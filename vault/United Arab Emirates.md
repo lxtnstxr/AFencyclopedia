@@ -1,0 +1,17 @@
+# United Arab Emirates
+#country
+
+### AF 2025-09-25 1571
+(01:13:36:45) The United Arab Emirates said if [[Israel]] annexes the [[Gaza Strip|West Bank]], the [[Abraham Accords]] are over.
+### AF 2025-10-15 1580
+(01:01:58) [[Donald Trump]] and [[Jared Kushner]] facilitated the Abraham Accords, which normalized relations between [[Israel]] and the United Arab Emirates, [[Bahrain]], [[Sudan]], and [[Morocco]].
+
+
+### AF 2025-08-12 1549
+(01:54:46) [[Israel]] has neutralized or subjugated regional rivals like [[Arab Republic of Egypt|Egypt]], [[Jim Jordan|Jordan]], the United Arab Emirates, [[Bahrain]], [[Saudi Arabia]], [[Syria]], [[Iraq]], [[Libya]], [[Sudan]], [[Lebanon]], and [[Yemen]], leaving [[Iran]] as the last major foe.
+
+### AF 2025-08-05 1545
+(31:04:37) A rumor circulated that [[Donald Trump]] snubbed [[Israel]] during a [[Middle East]] tour by visiting [[Saudi Arabia]], [[Qatar]], and the United Arab Emirates but not [[Israel]], due to disagreements over the [[Gaza Strip|Gaza]] war.
+
+### AF 2025-07-31 1542
+(00:53:54) During [[Donald Trump]]'s first term, [[Jared Kushner]] negotiated the Abraham Accords, which led to [[Bahrain]], the United Arab Emirates, [[Morocco]], and [[Sudan]] normalizing relations with [[Israel]].

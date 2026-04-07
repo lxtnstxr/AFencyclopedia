@@ -1,0 +1,6 @@
+# National Archives
+#organization
+
+### AF 2025-07-22 1536
+(54:25:37) The [[U.S. Department of Justice|DOJ]] released more than 6,000 documents related to the 1968 assassination of [[Martin Luther King Jr.]], totaling a quarter million pages, to the website of the National Archives.
+
