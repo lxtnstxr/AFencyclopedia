@@ -13,3 +13,9 @@
 
 ### AF 2025-07-19 1535
 (00:13:50) [[Nicholas J. Fuentes]] contrasted Shane Gillis with figures like [[Andrew Tate]] and [[Samuel J. Hyde]], whom he described as aspirational, intelligent, and unafraid of being perceived as dangerous or competent.
+
+### AF 2024-02-27 1298
+(02:08:11:340) [[Nicholas J. Fuentes]] criticized comedian Shane Gillis's [[Saturday Night Live]] monologue as nervous and his comedy as a "one trick pony" based on "dude bro" delivery, not clever material, and accused him of pandering to liberals by signaling he could make fun of conservatives.
+
+### AF 2024-02-27 1298
+(02:09:41:700) [[Nicholas J. Fuentes]] listed [[Norm Macdonald]], [[Samuel J. Hyde|Sam Hyde]], and [[Fred Armisen]] as his favorite comedians, valuing observational and perceptive comedy over Shane Gillis's style.

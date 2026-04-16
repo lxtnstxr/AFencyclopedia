@@ -6,7 +6,7 @@
 ### AF 2025-09-18 1567
 (00:08:38) Pam Bondi stated the [[U.S. Department of Justice]] would move against hate speech, a remark she later clarified and walked back.
 (00:33:06) Pam Bondi clarified her earlier remarks, stating the [[U.S. Department of Justice]] would only target hate speech that unlawfully incites violence, not those who said hateful things about [[Charlie Kirk]]'s slaying.
-(00:41:31) [[Nicholas J. Fuentes]] supported the third category outlined by Pam Bondi: the government targeting organized groups that incite violence, citing a double standard where right-wing organizing has been criminalized while [[Democratic Party|left]]-wing groups like [[Antifa]] operate freely.
+(00:41:31) [[Nicholas J. Fuentes]] supported the third category outlined by Pam Bondi: the government targeting organized groups that incite violence, citing a double standard where right-wing organizing has been criminalized while [[left]]-wing groups like [[Antifa]] operate freely.
 (01:10:27) [[Nicholas J. Fuentes]] retitled the show to focus on Pam Bondi's remarks about hate speech and moved to the super chat section.
 ### AF 2025-11-18 1600
 (53:55:66) [[Donald Trump]] called a meeting with [[Lauren Boebert]] in the [[White House|Oval Office]], attended by [[JD Vance]], Pam Bondi, [[Kash Patel]], and [[Marco Rubio]], to pressure her to stop supporting the [[Jeffrey Epstein]] files discharge petition.
@@ -23,3 +23,6 @@
 
 ### AF 2025-07-19 1535
 (00:01:35) [[Donald Trump]] instructed Attorney General Pam Bondi to seek the release of grand jury testimony related to the prosecutions of [[Jeffrey Epstein]] and [[Ghislaine Maxwell]].
+
+### AF 2019-02-25 0338
+(00:19:18) [[Alva Johnson]]'s lawsuit claimed witnesses including [[State of Florida|Florida]] Attorney General Pam Bondi and [[state]] director [[Karen Giorno]] saw the incident, though both later denied it occurred.

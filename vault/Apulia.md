@@ -1,0 +1,9 @@
+# Apulia
+#region
+
+### AF 2020-12-07 0729
+(01:28:38) [[Nicholas J. Fuentes]] stated his Italian ancestors are from [[Calabria]], [[Naples]], and [[Bari]] in Apulia, identifying most closely with his maternal line from [[Calabria]].
+
+
+### AF 2019-12-16 0514
+(01:46:57) [[Nicholas J. Fuentes]], discussing genetic testing services like [[23andMe]], stated his own results were generally accurate, reflecting his [[known]] Italian ancestry from [[Calabria]], Apulia, and [[Naples]].

@@ -5,12 +5,12 @@
 (00:12:55) Max Blumenthal was identified as the source of the narrative that [[Charlie Kirk]] was on the verge of flipping on [[Israel]], implying donors wanted him dead, using unnamed sources.
 (00:13:42) Max Blumenthal's article insinuated that [[Charlie Kirk]] felt blackmailed after a meeting with [[William Ackman]], a claim [[William Ackman]] and other attendees disputed with receipts showing [[Charlie Kirk]] helped organize the event.
 (00:15:15) Max Blumenthal responded to the rebuttal by [[William Ackman]] by claiming he meant [[Charlie Kirk]] felt "morally blackmailed," a statement [[Nicholas J. Fuentes]] called disingenuous.
-(00:15:55) [[Nicholas J. Fuentes]] stated he did not trust Max Blumenthal or his father, [[Sidney Blumenthal]], characterizing them as [[Democratic Party|left]]-wing [[Jews]].
-(00:20:41) [[Nicholas J. Fuentes]] stated he did not think [[Israel]] was responsible for [[Charlie Kirk]]'s death this [[time]], believing it was the [[Democratic Party|left]], and accused Max Blumenthal and [[Jackson Hinkle]] of trying to divide the right and [[Democratic Party|left]].
+(00:15:55) [[Nicholas J. Fuentes]] stated he did not trust Max Blumenthal or his father, [[Sidney Blumenthal]], characterizing them as [[left]]-wing [[Jews]].
+(00:20:41) [[Nicholas J. Fuentes]] stated he did not think [[Israel]] was responsible for [[Charlie Kirk]]'s death this [[time]], believing it was the [[left]], and accused Max Blumenthal and [[Jackson Hinkle]] of trying to divide the right and [[left]].
 (00:25:09) [[Nicholas J. Fuentes]] demanded that [[Candace Owens]] and Max Blumenthal produce evidence if they were insinuating [[Israel]] had a hand in [[Charlie Kirk]]'s murder.
 (00:27:23) [[Nicholas J. Fuentes]] stated that Max Blumenthal's credibility was in shambles after [[William Ackman]] put out receipts disputing his narrative of the meeting with [[Charlie Kirk]].
 (00:27:54) [[Nicholas J. Fuentes]] said he was not a fan of [[Charlie Kirk]] and that Max Blumenthal mischaracterized the meeting with [[William Ackman]], losing credibility.
-(00:30:03) [[Tucker Carlson]] characterized [[Charlie Kirk]] as loving [[Israel]] and only criticizing [[Benjamin Netanyahu]], a line [[Nicholas J. Fuentes]] said was the same used by the [[Jews|Jewish]] leftist Max Blumenthal.
+(00:30:03) [[Tucker Carlson]] characterized [[Charlie Kirk]] as loving [[Israel]] and only criticizing [[Benjamin Netanyahu]], a line [[Nicholas J. Fuentes]] said was the same used by the [[Jewish]] leftist Max Blumenthal.
 ### AF 2025-09-17 1566
 (00:56:56) [[Nicholas J. Fuentes]] identified Max Blumenthal, [[Candace Owens]], and [[Jackson Hinkle]] as key proponents of a conspiracy theory alleging [[Israel]] was responsible for the killing of [[Charlie Kirk]].
 ### AF 2025-09-18 1567
@@ -25,7 +25,7 @@
 (01:35:08:63) [[Nicholas J. Fuentes]] stated that Max Blumenthal and [[Tucker Carlson]] started a rumor in 2023 that he was a federal agent.(01:39:15) [[Brylin Hollyhand]] presented himself as the successor to [[Charlie Kirk]] after [[Charlie Kirk|Kirk]]'s death, claiming he would continue [[Charlie Kirk|Kirk]]'s work.
 ### AF 2025-10-28 1587
 (07:34:10) [[Tucker Carlson]] collaborated with Max Blumenthal from The Grayzone to write a hit piece about [[Nicholas J. Fuentes]] in 2022.
-(07:40:60) Max Blumenthal is a [[Jews|Jewish]] leftist who has been critical of the war in [[Gaza Strip|Gaza]] and a proponent of the theory that [[Israel]] killed [[Charlie Kirk]].
+(07:40:60) Max Blumenthal is a [[Jewish]] leftist who has been critical of the war in [[Gaza Strip|Gaza]] and a proponent of the theory that [[Israel]] killed [[Charlie Kirk]].
 (07:51:10) [[Nicholas J. Fuentes]] suggested that many people consider Max Blumenthal to be on the "[[Israel]] critical group" side, aiming to stop [[United States]] support for the conflict in [[Gaza Strip|Gaza]].
 (08:04:20) [[Tucker Carlson]] worked with Max Blumenthal and Max Blumenthal's wife to write a substantial hit piece against [[Nicholas J. Fuentes]] in 2022.
 ### AF 2025-11-25 1604
@@ -37,3 +37,87 @@
 
 ### AF 2025-08-01 1543
 (00:00:00) [[Nicholas J. Fuentes]] noted that Max Blumenthal, who is close to [[Tucker Carlson]], is the son of [[Sidney Blumenthal]], a former intelligence broker for [[Hillary Clinton]].
+
+### AF 2024-11-07 1419
+(53:11:540) [[Anya Parampil]], wife of Max Blumenthal and an ally of [[Joe Kent]], authored a 10,000-word, three-part article criticizing [[Nicholas J. Fuentes]] as retaliation for [[Joe Kent]]'s loss.
+
+### AF 2024-09-18 1391
+(52:52:48) [[Nicholas J. Fuentes]] criticized Max Blumenthal for saying to overlook the "dancing [[Israelis]]," noting Blumenthal's support for [[Bashar al-Assad]] and his wife's work for [[Russia Today]].
+
+### AF 2024-09-18 1391
+(01:00:49:08) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] is close personal friends with Max Blumenthal, son of [[Hillary Clinton]]'s hatchet man [[Sidney Blumenthal]].
+
+### AF 2024-09-18 1391
+(01:01:17:08) [[Nicholas J. Fuentes]] stated that Max Blumenthal's wife decried the shutdown of [[Russia Today]] [[United States|America]], which supplied money for [[Tucker Carlson]]'s tenant.
+
+### AF 2024-08-28 1379
+(00:26:12) [[Jewish]] critics of [[Israel]] like Max Blumenthal, [[Norman Finkelstein]], [[Glenn Greenwald]], and [[Noam Chomsky]] offer a circumscribed critique that does not address broader concepts of [[Jewish]] power, according to [[Nicholas J. Fuentes]].
+
+### AF 2024-08-28 1379
+(00:26:58) [[Dave Smith]] stated in an interview with [[Andrew Schultz]] that the best critics of [[Israel]] are [[Jewish]], such as [[Noam Chomsky]], [[Norman Finkelstein]], Max Blumenthal, and [[Glenn Greenwald]].
+
+### AF 2024-08-28 1379
+(00:28:37) Max Blumenthal referred to [[Nicholas J. Fuentes]] as a "real anti-Semite."
+
+### AF 2024-08-28 1379
+(00:47:20) [[Norman Finkelstein]] withdrew from an event where attendees chanted "Zog," and Max Blumenthal called [[Nicholas J. Fuentes]] a "real anti-Semite."
+
+### AF 2024-08-27 1378
+(04:22:05) [[The Gray Zone]], Max Blumenthal's publication, wrote a hit piece accusing [[Nicholas J. Fuentes]] of being a federal agent after he contributed to [[Joe Kent]]'s election loss.
+
+### AF 2024-08-14 1374
+(02:17:55) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] collaborated with Max Blumenthal, the son of [[Hillary Clinton|Clinton]] aide [[Sidney Blumenthal]], to produce a hit piece about him in retaliation for his opposition to [[Joe Kent]].
+
+### AF 2024-08-13 1373
+(01:25:09) [[Nicholas J. Fuentes]] claimed [[Tucker Carlson]] insinuated he was suspicious for not being charged in connection with January 6th, and alleged [[Tucker Carlson|Carlson]] collaborated with Max Blumenthal on a hit piece.
+
+### AF 2024-08-13 1373
+(01:25:52) [[Nicholas J. Fuentes]] alleged that [[Tucker Carlson]], the son of a [[Central Intelligence Agency|CIA]] agent, and Max Blumenthal, son of [[Sydney Blumenthal]], were behind a paid social media campaign using the hashtag "FedFuentes."
+
+### AF 2024-03-09 1304
+(30:59:65) [[Candace Owens|Candice Owens]] retweeted Max Blumenthal, causing another controversy with [[Ben Shapiro]] and the [[The Daily Wire|Daily Wire]].
+
+### AF 2023-08-31 1207
+(05:48:75) [[Nicholas J. Fuentes]] characterized the populist movement opposed to his own as a multi-ethnic workers' alliance involving Max Blumenthal and the EFF party leader in [[South Africa]].
+
+### AF 2023-07-22 1190
+(20:19:54) Max Blumenthal, the son of [[Sidney Blumenthal]], worked with a critic of [[Nicholas J. Fuentes]] to amplify smears against him. (20:36:96)
+
+### AF 2023-07-22 1190
+(01:43:55) Max Blumenthal took an interest in the story about [[Nicholas J. Fuentes]].
+
+### AF 2023-06-07 1173
+(14:08:00) [[Nicholas J. Fuentes]] accused [[Tucker Carlson]] of orchestrating a hit piece against him through a friend for [[The Grayzone]], authored by Max Blumenthal's wife, which labeled him an anti-Semite.
+
+### AF 2023-04-25 1152
+(00:05:04) [[Nicholas J. Fuentes]] stated that Max Blumenthal's wife confirmed [[Tucker Carlson]] was collaborating with her to produce a 10,000-word hit piece about him for [[The Grayzone]].
+
+### AF 2023-04-25 1152
+(00:56:24) [[Nicholas J. Fuentes]] accused [[Tucker Carlson]] of helping Max Blumenthal's wife, [[Anya Parampil]], write a [[The Grayzone]] hit piece about him in the months after [[Kanye West]]'s controversial statements, with [[Tucker Carlson|Carlson]] calling people to fish for information and accuse [[Fuentes]] of being a "[[fed]]."
+
+### AF 2023-04-25 1152
+(00:57:28) [[Nicholas J. Fuentes]] identified [[Sidney Blumenthal]] as a "hatchet man for [[Bill Clinton]]" and noted that his son, Max Blumenthal, got an apology and retraction from the [[Southern Poverty Law Center]], which has a $500 million endowment and rarely issues retractions.
+
+### AF 2023-04-18 1148
+(00:08:53) [[Nicholas J. Fuentes]] listed a series of past attacks against him, including for his involvement in the [[City of Charlottesville|Charlottesville rally]] in August 2017, a leaked video where he said "race mixing is bad" and "the [[Jews]] are out to get me," his support for DACA amnesty in October 2017, a feud about money with [[James Allsup]] and [[Matt Kuehnel]] in January 2018, a cookie joke denying the Holocaust, a livestream with "Catboy Cammie," and more recent claims from Max Blumenthal that he lied about how he got on the no-fly list.
+
+### AF 2023-04-18 1148
+(00:34:45) [[Nicholas J. Fuentes]] stated that when Max Blumenthal, the son of [[Hillary Clinton|Clinton]] operative [[Sidney Blumenthal]], published a report attacking him for being put on the no-fly list, [[Marjorie Taylor Greene]] put out a tweet attacking [[Laura Loomer]] and accusing [[Fuentes]] of being a federal informant.
+
+### AF 2023-04-18 1148
+(00:43:02) [[Nicholas J. Fuentes]] cited Max Blumenthal's hit piece about him being on the no-fly list because of a joke, arguing that the federal government would give a pretext for political persecution, and noted that there was never a rebuttal to his refutation of that claim.
+
+### AF 2023-04-18 1148
+(00:56:57) [[Nicholas J. Fuentes]] noted that [[Person|Milo Yiannopoulos]] was [[Jewish]] and had tried to control the [[Kanye West|Ye]] campaign to prevent it from being about [[Adolf Hitler|Hitler]], and was now attacking him while being [[Jewish]], a pattern he also saw with Max Blumenthal and [[
+
+### AF 2023-04-04 1141
+(12:55:09) [[Nicholas J. Fuentes]] accused [[Tucker Carlson]] of cooperating with a hit piece by Max Blumenthal's wife at [[The Grayzone|The Gray Zone]], which investigated how [[Nicholas J. Fuentes]] was "exploiting" a young man and "putting ideas in his head about [[Jews|Jewish people]]."
+
+### AF 2023-02-16 1123
+(00:05:56) [[Nicholas J. Fuentes]] announced he would address a new article from [[The Grayzone|The Gray Zone]] written by [[Anya Parampil]], who is married to Max Blumenthal.
+
+### AF 2023-02-16 1123
+(00:18:57) [[Nicholas J. Fuentes]] identified [[The Grayzone|The Gray Zone]] as a publication run by Max Blumenthal, whom he described as a prominent [[Jewish]] leftist and the son of [[Sidney Blumenthal]].
+
+### AF 2018-01-04 0079
+(00:42:34) [[Laura Loomer]] argued that some of the most anti-Semitic people are left-wing [[Jews]] themselves, citing Max Blumenthal's criticism of [[Elie Wiesel]] which was so severe that [[Hillary Clinton]] had to denounce it.

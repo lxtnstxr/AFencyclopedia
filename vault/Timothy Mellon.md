@@ -11,3 +11,6 @@
 
 ### AF 2025-08-21 1554
 (01:18:21) [[Nicholas J. Fuentes]] stated that [[Donald Trump]]'s 2024 campaign was funded by [[Elon Musk]], Tim Mellon, [[Miriam Adelson]], [[William Ackman|Bill Ackman]], and [[Jacob Helberg]], making him the "elite's candidate."
+
+### AF 2024-11-02 1417
+(24:42:720) Major financial contributors to [[Donald Trump]]'s campaign include billionaires such as Timothy Mellon, [[Ken Griffin]], [[Miriam Adelson]], [[Blackstone Group]], [[William Ackman]], [[Peter Thiel]], [[David Sacks]], and [[Jacob Helberg]].

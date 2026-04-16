@@ -35,13 +35,40 @@
 (03:27:860) [[Donald Trump]] had stated in February that NATO membership for [[Ukraine]] was off the table and had floated the idea of territorial concessions, including recognizing the annexation of [[Crimea]].
 
 ### AF 2025-08-15 1551
-(04:08:420) A potential security arrangement for a post-war [[Ukraine]] involved a "minerals deal" where [[Joe Biden|American]] commercial presence would serve as a tripwire against [[Russian Federation|Russian]] aggression, rather than formal NATO membership.
+(04:08:420) A potential security arrangement for a post-war [[Ukraine]] involved a "minerals deal" where [[American]] commercial presence would serve as a tripwire against [[Russian Federation|Russian]] aggression, rather than formal NATO membership.
 
 ### AF 2025-08-14 1550
-(00:31:04) [[Vladimir Putin]] did not accept the [[Joe Biden|U.S.]] proposal for a 30-day ceasefire in [[Ukraine]] because he did not trust [[Joe Biden|American]] intentions and because a ceasefire would benefit [[Ukraine]] by allowing it to regroup and receive more supplies from NATO.
+(00:31:04) [[Vladimir Putin]] did not accept the [[U.S.]] proposal for a 30-day ceasefire in [[Ukraine]] because he did not trust [[American]] intentions and because a ceasefire would benefit [[Ukraine]] by allowing it to regroup and receive more supplies from NATO.
 
 ### AF 2025-08-14 1550
 (00:32:52) [[Vladimir Putin]] articulated his demands for ending the war in [[Ukraine]], which included stopping NATO expansion, ensuring [[Ukraine]] remains a neutral buffer state, [[Russian Federation|Russia]] retaining [[Crimea]], and [[Russian Federation|Russia]] acquiring the four [[Ukraine|Ukrainian]] oblasts of Kherson, Zaporizhzhia, Donetsk, and Luhansk to form a land bridge to Crimea.
 
 ### AF 2025-08-14 1550
-(00:34:48) [[Volodymyr Zelenskyy]] and the [[Joe Biden|United States]] were unwilling to accept [[Vladimir Putin]]'s demands for [[Ukraine]] to cede territory, abandon NATO aspirations, and demilitarize.
+(00:34:48) [[Volodymyr Zelenskyy]] and the [[United States]] were unwilling to accept [[Vladimir Putin]]'s demands for [[Ukraine]] to cede territory, abandon NATO aspirations, and demilitarize.
+
+### AF 2024-10-21 1409
+(01:53:29:76) [[Nicholas J. Fuentes]] jokingly thanked his sponsors, listing entities like the [[United Nations]], [[BlackRock]], [[Qatar Airways]], [[Pfizer]], NATO, the [[U.S. Department of Defense]], and the [[Trilateral Commission]].
+
+### AF 2024-10-02 1398
+(04:16:25) [[Nicholas J. Fuentes]] stated that to end the war in [[Ukraine]], the [[United States]] must declare that [[Ukraine]] will never join NATO and allow [[Russia]] to maintain its sphere of influence over [[Belarus]], [[Ukraine]], and Central Asia in a multipolar world.
+
+### AF 2024-09-16 1389
+(01:12:14) [[Donald Trump]] has vowed that if elected, he would make peace with [[Russia]] before his inauguration, which [[Nicholas J. Fuentes]] interpreted as allowing [[Russia]] to keep all territory seized in [[Ukraine]] and preventing [[Ukraine]] from joining NATO.
+
+### AF 2024-09-16 1389
+(01:17:06) [[Nicholas J. Fuentes]] framed the 2024 election as a referendum: a [[Donald Trump]] victory benefits [[Russia]] and [[Israel]], while a [[Kamala Harris]] victory benefits [[Iran]] and the continuation of the [[U.S.]]-NATO proxy war in [[Ukraine]].
+
+### AF 2024-09-16 1389
+(01:21:00) [[Nicholas J. Fuentes]] characterized the election as [[Kamala Harris]] running on behalf of the "[[United States|American]] deep state" ([[Central Intelligence Agency|CIA]], NATO, [[U.S. Department of Defense|DOD]]) and [[Donald Trump]] running on behalf of the "[[Israel|Israeli]] deep state."
+
+### AF 2024-09-04 1383
+(01:06:21) NATO has been gradually expanding eastward since the end of the Cold War, with former Warsaw Pact countries joining, which [[Vladimir Putin]] stated was a red line, particularly regarding [[Ukraine]] and [[Georgia]].
+
+### AF 2024-08-12 1372
+(00:52:28) [[Donald Trump]] blamed [[Joe Biden]]'s low IQ and stupid statements, such as suggesting [[Ukraine]] could join NATO, for provoking [[Russia]]'s invasion of [[Ukraine]], a war he claimed would have had "zero chance" of happening under his administration.
+
+### AF 2024-07-26 1361
+(02:44:07) [[Nicholas J. Fuentes]] responded to a question about NATO's capacity to fight a war with [[Iran]], noting such a conflict would likely involve secondary conflicts with [[China]] and [[Russia]].
+
+### AF 2024-07-22 1357
+(00:21:35) The 2024 election was considered the most consequential for [[Ukraine]], the NATO alliance, [[Taiwan]], and [[Israel]]'s war against [[Iran]], [[Lebanon]], and the [[Gaza Strip]].

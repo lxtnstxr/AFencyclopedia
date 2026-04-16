@@ -6,7 +6,7 @@
 ### AF 2025-10-15 1580
 (01:35:00) [[Nicholas J. Fuentes]] stated that [[Gavin Wax]] was photographed with [[Chuck Schumer]] commemorating his grandmother as a Holocaust survivor, which [[Nicholas J. Fuentes]] questioned given she was in Italy during the war.
 ### AF 2025-10-29 1588
-(00:41:00) [[Nicholas J. Fuentes]] cited [[Eric Weinstein]], who is close with [[Peter Thiel]], posting a picture of himself in Italy giving the middle finger to the Arch of Titus, which commemorates the Roman destruction of the [[Jews|Jewish]] temple.
+(00:41:00) [[Nicholas J. Fuentes]] cited [[Eric Weinstein]], who is close with [[Peter Thiel]], posting a picture of himself in Italy giving the middle finger to the Arch of Titus, which commemorates the Roman destruction of the [[Jewish]] temple.
 
 
 ### AF 2025-08-20 1552

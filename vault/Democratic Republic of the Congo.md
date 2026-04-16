@@ -1,6 +1,9 @@
 # Democratic Republic of the Congo
 #country
 
-### AF 2025-10-23 1585
-(01:13:03) [[Nicholas J. Fuentes]] rejected the idea of "nationalism for all nations," arguing that countries like the Congo do not have an inherent right to all the resources beneath their feet if they cannot defend them.
 
+### AF 2019-04-11 0365
+(00:33:58) [[Nicholas J. Fuentes]] suggested obtaining a second passport from a [[country]] without an extradition treaty with the [[United States|U.S]]., such as [[Venezuela]], [[Cuba]], or the Congo.
+
+### AF 2017-10-09 0027
+(25:48:99) [[Nicholas J. Fuentes]] challenged critics of colonialism to live in places like [[Afghanistan]], the Congo, or among the [[Aborigines]] in [[Australia]].

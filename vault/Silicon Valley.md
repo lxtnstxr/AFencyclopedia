@@ -4,7 +4,7 @@
 ### AF 2025-10-09 1578
 (40:34:760) [[Nicholas J. Fuentes]] argued that in [[Donald Trump]]'s first term, movements like [[Black Lives Matter]] grew stronger and censorship by Silicon Valley increased due to a lack of decisive action from his administration.
 ### AF 2025-10-21 1583
-(01:29:12) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] establishment, including [[Jews|Jewish Zionists]] and libertarian donors from industries like oil, gas, Silicon Valley, and [[Wall Street]], opposes the rise of young nationalist conservatives within the party.
+(01:29:12) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] establishment, including [[Jewish Zionists]] and libertarian donors from industries like oil, gas, Silicon Valley, and [[Wall Street]], opposes the rise of young nationalist conservatives within the party.
 ### AF 2025-10-23 1585
 (00:19:57) [[Nicholas J. Fuentes]] argued that [[Charlie Kirk]] surrounded himself with grifters, billionaires, and lobbyists from Silicon Valley and [[Israel]], and that in his death, these same people were scavenging his corpse for personal gain.
 ### AF 2025-10-28 1587

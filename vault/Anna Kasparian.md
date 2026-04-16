@@ -13,3 +13,6 @@
 
 ### AF 2025-08-22 1555
 (01:02:12:22) [[Nicholas J. Fuentes]] mentioned that Anna Kasparian said "[[Nicholas J. Fuentes|Nick Fuentes]] has a problem with the [[Jews]]" during a talk show, a characterization he rejected.
+
+### AF 2024-10-03 1399
+(00:47:15) [[Nicholas J. Fuentes]] said he loves everything about [[Alex Jones]], finding him hilarious, courageous, and awesome, for the same reasons leftists like Anna Kasparian hate him.

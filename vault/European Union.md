@@ -17,10 +17,13 @@
 (01:01:03) If [[Emmanuel Macron]]'s government were to fall, [[Marine Le Pen]], a self-proclaimed philo-Semite and a staunch pro-[[Israel]] figure in the European Union, would likely come to power.
 
 ### AF 2025-08-14 1550
-(00:25:09) [[Donald Trump]] suspended proposed tariffs with major trading partners like [[State of Japan|Japan]], [[South Korea]], and the European Union in exchange for commitments to invest in the [[Joe Biden|United States]], which [[Nicholas J. Fuentes]] characterized as fake deals involving investments those countries were planning anyway.
+(00:25:09) [[Donald Trump]] suspended proposed tariffs with major trading partners like [[State of Japan|Japan]], [[South Korea]], and the European Union in exchange for commitments to invest in the [[United States]], which [[Nicholas J. Fuentes]] characterized as fake deals involving investments those countries were planning anyway.
 
 ### AF 2025-07-29 1541
 (04:35:40) [[Viktor Orbán]] and [[Benjamin Netanyahu|Netanyahu]] have maintained a close relationship for approximately 20 years, and [[Hungary]] consistently supports [[Israel]] in the European Union and the [[United Nations]].
 
 ### AF 2025-07-28 1540
 (00:48:10) [[Donald Trump]], while meeting with the Prime Minister of the [[United Kingdom]] and European Union leaders, acknowledged a famine and brutal humanitarian crisis in [[Gaza Strip]].
+
+### AF 2024-10-08 1402
+(02:09:530) [[Yoav Gallant]] is one of the few allies of the [[Joe Biden]] administration and the European Union within the [[Israel|Israeli government]].

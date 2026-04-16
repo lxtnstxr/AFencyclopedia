@@ -11,3 +11,21 @@
 
 ### AF 2025-11-14 1598
 (01:01:45:430) Upon re-election, [[Donald Trump]] hired [[Sriram Krishnam]] (who supports H-1B visas), John Radcliffe at the [[Central Intelligence Agency|CIA]], and [[Mike Walz]] as [[U.S. National Security Council|National Security Advisor]], while attacking [[Project 2025]] and bombing [[Iran]].
+
+### AF 2024-11-19 1421
+(01:02:30) John Ratcliffe was nominated to the [[Central Intelligence Agency|CIA]].
+
+### AF 2024-11-19 1421
+(01:02:33) John Ratcliffe was an appointee under [[George W. Bush]] and part of [[Mitt Romney]]'s transition team in the 2012 election.
+
+### AF 2024-11-19 1421
+(01:02:43) John Ratcliffe accused [[Iran]] of acts of war, citing alleged assassination attempts against [[Donald Trump]], hacking of the [[RNC]], and [[Houthis|Houthi]] rebels bombing [[United States|U.S.]] ships in [[Yemen]].
+
+### AF 2024-11-19 1421
+(01:03:03) The intelligence community expressed relief at John Ratcliffe's nomination.
+
+### AF 2024-11-19 1421
+(01:23:40) [[Nicholas J. Fuentes]] believed that experienced figures like John Ratcliffe, running the [[Central Intelligence Agency|CIA]], would not heed [[Tulsi Gabbard]].
+
+### AF 2020-10-21 0706
+(00:18:17) [[Nicholas J. Fuentes]] quoted John Ratcliffe, the Director of National Intelligence, stating that [[Iran]] was sending spoof emails to intimidate voters, incite unrest, and damage [[Donald Trump]].

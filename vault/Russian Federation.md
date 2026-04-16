@@ -2,19 +2,19 @@
 #country
 
 ### AF 2025-08-27 1558
-(00:24:00) These internet subcultures, active on platforms like Telegram and obscure forums, blend occult Satanism, esoteric Hitlerism, racialist politics, and accelerationist ideologies, and have been linked to cases in Russia, [[Europe]], [[Turkey]], and the [[Joe Biden|United States]].
+(00:24:00) These internet subcultures, active on platforms like Telegram and obscure forums, blend occult Satanism, esoteric Hitlerism, racialist politics, and accelerationist ideologies, and have been linked to cases in Russia, [[Europe]], [[Turkey]], and the [[United States]].
 ### AF 2025-09-04 1560
-(00:06:17) The [[Joe Biden|United States]] is engaged in a proxy war with the Russian Federation in [[Ukraine]] and a regional conflict in the [[Middle East]] involving [[Israel]], [[Iran]], and [[Iran|Iran's]] proxies.
-(00:55:32) Concurrent global conflicts include the [[Joe Biden|United States]] proxy war with the Russian Federation in [[Ukraine]], military involvement across the [[Middle East]], preparations for a conflict in [[Taiwan]] with [[China]], and engagements in the Horn of [[Africa]].
+(00:06:17) The [[United States]] is engaged in a proxy war with the Russian Federation in [[Ukraine]] and a regional conflict in the [[Middle East]] involving [[Israel]], [[Iran]], and [[Iran|Iran's]] proxies.
+(00:55:32) Concurrent global conflicts include the [[United States]] proxy war with the Russian Federation in [[Ukraine]], military involvement across the [[Middle East]], preparations for a conflict in [[Taiwan]] with [[China]], and engagements in the Horn of [[Africa]].
 ### AF 2025-09-09 1563
-(09:18:00) [[Nicholas J. Fuentes]] advocated that the [[Joe Biden|United States]] should treat [[Israel]] like a strategic competitor, such as [[China]] or the Russian Federation, and even suggested providing [[Iran]] with a nuclear weapon as a hedge against [[Israel|Israeli]] power.
+(09:18:00) [[Nicholas J. Fuentes]] advocated that the [[United States]] should treat [[Israel]] like a strategic competitor, such as [[China]] or the Russian Federation, and even suggested providing [[Iran]] with a nuclear weapon as a hedge against [[Israel|Israeli]] power.
 ### AF 2025-09-15 1564
-(01:57:54) [[Israel]] faces isolation, having lost support from [[China]], the Russian Federation, the [[Afghanistan|Muslim]] world, [[Europe]], [[Africa]], and Latin [[Joe Biden|America]], leaving [[Joe Biden|America]] as its primary ally.
+(01:57:54) [[Israel]] faces isolation, having lost support from [[China]], the Russian Federation, the [[Muslim]] world, [[Europe]], [[Africa]], and Latin [[America]], leaving [[America]] as its primary ally.
 ### AF 2025-09-26 1572
 (00:00:30) [[Nicholas J. Fuentes]] reported that Russia and [[China]] failed in a last-ditch effort to prevent the sanctions from being imposed on [[Iran]].
 (00:26:22) [[Nicholas J. Fuentes]] reported that a [[United Nations Security Council]] vote on a Russian and [[China|Chinese]] resolution to delay the sanctions had failed.
 (00:42:14) [[Nicholas J. Fuentes]] noted that Russia and [[China]]'s last-minute resolution in the [[United Nations Security Council]] to delay the sanctions failed.
-(01:22:03) [[Nicholas J. Fuentes]] argued that Russia and [[China]] can be confronted because they do not control the [[Joe Biden|United States]] system, whereas [[Jews]] do and have a nuclear-armed state.
+(01:22:03) [[Nicholas J. Fuentes]] argued that Russia and [[China]] can be confronted because they do not control the [[United States]] system, whereas [[Jews]] do and have a nuclear-armed state.
 ### AF 2025-10-09 1578
 (01:42:25:680) [[Nicholas J. Fuentes]] proposed that to prevent [[Iran]] from obtaining nuclear weapons, the [[United States]] needed a diplomatic architecture involving Russia, [[China]], [[Europe|Europeans]], and [[Iran]] that provided security assurances against regime change, coupled with economic integration.
 ### AF 2025-10-10 1579
@@ -54,12 +54,12 @@
 (01:23:17) Russia retains the capacity to mobilize more troops, resume energy warfare, and bombard [[Ukraine]] harder.
 (01:24:05) [[Donald Trump]] was elected on a promise to end wars he blamed on [[Joe Biden]] and neoconservatives, but his administration finds itself involved in regime change in [[Venezuela]], increased sanctions on Russia, and missile strikes authorized under [[Joe Biden]].
 (01:25:01) The [[United States]] has overcommitted itself by pledging to defend [[Taiwan]] against [[China]], [[Europe]] from Russia, and [[Israel]] from the entire Middle East while attempting to overturn governments in Central and [[South Africa|South America]].
-(01:27:30) The [[United States]]'s ability to defend its allies is theoretical and would collapse like a [[Republican Party|house]] of cards if all commitments were tested at once in a war against [[China]], Russia, [[Iran]], [[North Korea]], and [[Venezuela]].
+(01:27:30) The [[United States]]'s ability to defend its allies is theoretical and would collapse like a [[house]] of cards if all commitments were tested at once in a war against [[China]], Russia, [[Iran]], [[North Korea]], and [[Venezuela]].
 (01:30:01) [[Donald Trump]] lacks a strategic, long-term vision, thinking only tactically, which results in a schizophrenic foreign policy that oscillates between courting and confronting adversaries like Russia and [[Israel]].
 ### AF 2025-10-23 1585
 (00:34:54) [[Venezuela]] aligned itself strategically with [[United States|U.S]]. adversaries like [[China]], Russia, and [[Iran]].
 (00:37:14) [[Venezuela]]'s purchase of Russian weapons, collaboration with [[Iran]], and sale of oil to [[China]] were cited as the real problems [[Washington D.C.|Washington]] had with the country.
-(00:38:38) The [[United States]] aimed to send a message to strategic competitors like Russia and [[China]], and their clients in [[Central America|Central]] and [[South Africa|South America]], by targeting [[Venezuela]].
+(00:38:38) The [[United States]] aimed to send a message to strategic competitors like Russia and [[China]], and their clients in [[Central]] and [[South Africa|South America]], by targeting [[Venezuela]].
 (00:49:49) The [[United States]] was engaging in an all-out offensive across [[South Africa|South America]] to punish countries like [[Venezuela]] that had deep relationships with [[China]], Russia, and [[Iran]].
 (01:06:52) [[Nicholas J. Fuentes]] argued against isolationism, stating that every other country, like Russia and [[China]], secures its sphere of influence, and the [[United States]] should not abandon its imperial ambitions.
 ### AF 2025-11-06 1593
@@ -70,7 +70,7 @@
 (00:05:22) [[Charles Kushner]] is a convicted real estate fraudster and a major supporter of [[Chabad|Chabad Lubavitch]] in Russia and [[Israel]].
 
 ### AF 2025-08-26 1557
-(00:07:25) [[France]] has made an enemy of Russia and [[Israel]], with [[Emmanuel Macron]] specifically creating animosity with [[Vladimir Putin]], [[Benjamin Netanyahu]], and the [[Kushner family]] in the [[Joe Biden|United States]].
+(00:07:25) [[France]] has made an enemy of Russia and [[Israel]], with [[Emmanuel Macron]] specifically creating animosity with [[Vladimir Putin]], [[Benjamin Netanyahu]], and the [[Kushner family]] in the [[United States]].
 
 ### AF 2025-08-26 1557
 (00:42:01) [[Charles Kushner]] is a convicted fraudster and felon from [[New York]] real estate, who is a major supporter of the [[Chabad|Chabad Lubavitch]] dynasty of Hasidic [[Jews]], which is influential in Russia, [[Israel]], and [[New York|New York City]].
@@ -91,7 +91,7 @@
 (00:52:09) [[France]] is considered Russia's primary enemy due to its strong support for the war in [[Ukraine]].
 
 ### AF 2025-08-26 1557
-(00:52:23) [[France]] is actively combating Russian mercenaries and Private Military Companies (PMCs) in [[Western Africa|West Africa]] for control over various capitals in the [[Middle East|region]].
+(00:52:23) [[France]] is actively combating Russian mercenaries and Private Military Companies (PMCs) in [[Western Africa|West Africa]] for control over various capitals in the [[region]].
 
 ### AF 2025-08-26 1557
 (00:54:13) The servers for [[Parler]] were located in Russia, and [[Rebecca Mercer]] was married to a Russian oligarch.
@@ -103,13 +103,13 @@
 (00:56:50) Many right-wing political elements in [[Europe]], including the [[Christian Democratic Union]] in [[Germany]], the [[Alternative for Germany|AFD party]], and the [[National Rally|National Rally Party]] in [[France]], are connected to [[Israel]], with some also having ties to Russia.
 
 ### AF 2025-08-26 1557
-(01:02:13) [[Nicholas J. Fuentes]] stated his commitment to an "[[Joe Biden|America]] First" agenda, which involves disengaging from Russia, [[Israel]], and globalist interests, and stopping mass migration.
+(01:02:13) [[Nicholas J. Fuentes]] stated his commitment to an "[[America]] First" agenda, which involves disengaging from Russia, [[Israel]], and globalist interests, and stopping mass migration.
 
 ### AF 2025-08-22 1555
-(38:56:49) [[Nicholas J. Fuentes]] stated that the [[Joe Biden|United States]] supports [[Ukraine]] because [[Washington D.C.|Washington]], D.C., sees it as [[Joe Biden|America]]'s war against Russia, not because of a [[Ukraine|Ukrainian]] influence lobby, distinguishing it from support for [[Israel]].
+(38:56:49) [[Nicholas J. Fuentes]] stated that the [[United States]] supports [[Ukraine]] because [[Washington D.C.|Washington]], D.C., sees it as [[America]]'s war against Russia, not because of a [[Ukraine|Ukrainian]] influence lobby, distinguishing it from support for [[Israel]].
 
 ### AF 2025-08-22 1555
-(55:55:90) [[Nicholas J. Fuentes]] claimed [[Israel]] has gone out of its way to support the [[Joe Biden|U.S]]. war in [[Ukraine]], but has refused to sell weapon systems to countries that would help [[Ukraine]], voted against U.N. resolutions condemning Russia's invasion, and avoided putting strong sanctions on Russia to maintain a strategic relationship.
+(55:55:90) [[Nicholas J. Fuentes]] claimed [[Israel]] has gone out of its way to support the [[U.S]]. war in [[Ukraine]], but has refused to sell weapon systems to countries that would help [[Ukraine]], voted against U.N. resolutions condemning Russia's invasion, and avoided putting strong sanctions on Russia to maintain a strategic relationship.
 
 ### AF 2025-08-20 1552
 (01:07:40) [[Vladimir Putin]] maintained Russia's demands for [[Ukraine]] to cede four oblasts, including those in the Donbass and two connecting Russia to [[Crimea]], and refused to accept any security architecture that would place [[NATO]] troops in [[Ukraine]] after a ceasefire.
@@ -148,25 +148,25 @@
 (03:49:700) [[Donald Trump]] sought a domestic political victory and the appearance of being a peacemaker from the summit with [[Vladimir Putin]], while Russia gained more [[time]] to continue its military advance in [[Ukraine]].
 
 ### AF 2025-08-15 1551
-(04:05:000) Russia viewed [[China]] as both a strategic ally against [[Joe Biden|American]] hegemony and a long-term competitor, particularly regarding the Russian Far East and [[Siberia]].
+(04:05:000) Russia viewed [[China]] as both a strategic ally against [[American]] hegemony and a long-term competitor, particularly regarding the Russian Far East and [[Siberia]].
 
 ### AF 2025-08-15 1551
-(04:08:420) A potential security arrangement for a post-war [[Ukraine]] involved a "minerals deal" where [[Joe Biden|American]] commercial presence would serve as a tripwire against Russian aggression, rather than formal [[NATO]] membership.
+(04:08:420) A potential security arrangement for a post-war [[Ukraine]] involved a "minerals deal" where [[American]] commercial presence would serve as a tripwire against Russian aggression, rather than formal [[NATO]] membership.
 
 ### AF 2025-08-15 1551
-(04:12:820) [[Vladimir Putin]] had previously suggested that if [[Ukraine]]'s electric infrastructure were managed by [[Joe Biden|American]] personnel, Russia would not bomb it, indicating a model for future security arrangements.
+(04:12:820) [[Vladimir Putin]] had previously suggested that if [[Ukraine]]'s electric infrastructure were managed by [[American]] personnel, Russia would not bomb it, indicating a model for future security arrangements.
 
 ### AF 2025-08-15 1551
 (04:24:160) [[Donald Trump]] was expected to seek accelerated sanctions relief for Russia in exchange for concessions on [[Ukraine]], aiming to integrate Russia into the West to a degree.
 
 ### AF 2025-08-15 1551
-(04:33:140) [[Nicholas J. Fuentes]] argued that the [[Joe Biden|United States]] had no strategic interest in [[Ukraine]], which shares a historic and extensive border with Russia, and that the [[Joe Biden|America]] First position was to avoid [[Joe Biden|American]] deaths or a confrontation with Russia.
+(04:33:140) [[Nicholas J. Fuentes]] argued that the [[United States]] had no strategic interest in [[Ukraine]], which shares a historic and extensive border with Russia, and that the [[America]] First position was to avoid [[American]] deaths or a confrontation with Russia.
 
 ### AF 2025-08-15 1551
-(04:50:520) [[Nicholas J. Fuentes]] stated that [[China]] was the rising strategic competitor to the [[Joe Biden|United States]], with the Indo-Pacific [[Middle East|region]] holding the world's most important strategic industries, making containment of [[China]] a priority over containing Russia.
+(04:50:520) [[Nicholas J. Fuentes]] stated that [[China]] was the rising strategic competitor to the [[United States]], with the Indo-Pacific [[region]] holding the world's most important strategic industries, making containment of [[China]] a priority over containing Russia.
 
 ### AF 2025-08-15 1551
-(05:20:360) [[Nicholas J. Fuentes]] described his shift from an accelerationist, pro-Russia stance in 2022, rooted in despair during the [[Joe Biden|Biden]] administration, to a more pro-[[Joe Biden|America]] and stability-oriented view after witnessing possible political change, such as [[Elon Musk]]'s acquisition of [[Twitter]].
+(05:20:360) [[Nicholas J. Fuentes]] described his shift from an accelerationist, pro-Russia stance in 2022, rooted in despair during the [[Joe Biden|Biden]] administration, to a more pro-[[America]] and stability-oriented view after witnessing possible political change, such as [[Elon Musk]]'s acquisition of [[Twitter]].
 
 ### AF 2025-08-14 1550
 (00:01:40) [[Steve Wittkoff]] was sent to Russia by [[Donald Trump]] to negotiate a resolution ahead of the deadline, resulting in the agreement for the Alaska summit.
@@ -184,10 +184,10 @@
 (00:28:49) The previous [[Joe Biden|Biden]] administration's policy was to completely isolate Russia diplomatically, financially, and economically, a policy [[Donald Trump]] immediately began undoing.
 
 ### AF 2025-08-14 1550
-(00:30:07) [[Donald Trump]] publicly undermined [[Volodymyr Zelenskyy]] and [[Europe|European]] leaders like [[Keir Starmer]] and [[Emmanuel Macron]], including at an infamous [[White House|Oval Office]] meeting where he told [[Volodymyr Zelenskyy|Zelenskyy]] the [[Joe Biden|United States]] might stop supporting [[Ukraine]] and let Russia take more land.
+(00:30:07) [[Donald Trump]] publicly undermined [[Volodymyr Zelenskyy]] and [[Europe|European]] leaders like [[Keir Starmer]] and [[Emmanuel Macron]], including at an infamous [[White House|Oval Office]] meeting where he told [[Volodymyr Zelenskyy|Zelenskyy]] the [[United States]] might stop supporting [[Ukraine]] and let Russia take more land.
 
 ### AF 2025-08-14 1550
-(00:30:39) The initial [[Joe Biden|U.S.]] offer to Russia was to freeze the conflict lines in [[Ukraine]] wherever they stood, implement a 30-day ceasefire, and use that as a springboard for comprehensive peace.
+(00:30:39) The initial [[U.S.]] offer to Russia was to freeze the conflict lines in [[Ukraine]] wherever they stood, implement a 30-day ceasefire, and use that as a springboard for comprehensive peace.
 
 ### AF 2025-08-14 1550
 (00:32:52) [[Vladimir Putin]] articulated his demands for ending the war in [[Ukraine]], which included stopping [[NATO]] expansion, ensuring [[Ukraine]] remains a neutral buffer state, Russia retaining [[Crimea]], and Russia acquiring the four [[Ukraine|Ukrainian]] oblasts of Kherson, Zaporizhzhia, Donetsk, and Luhansk to form a land bridge to Crimea.
@@ -223,13 +223,13 @@
 (01:05:13) Alongside the announcement of the [[Steve Wittkoff]] meeting, [[Donald Trump]] announced a major tariff on [[India]], tacking on a 25% tariff effective at the end of the month over its purchase of Russian oil.
 
 ### AF 2025-08-06 1546
-(01:08:22) The tariff increase on [[India]] is designed to pressure [[Narendra Modi]] to stop buying Russian oil and to leverage [[India]] into a comprehensive trade agreement with the [[Joe Biden|United States]].
+(01:08:22) The tariff increase on [[India]] is designed to pressure [[Narendra Modi]] to stop buying Russian oil and to leverage [[India]] into a comprehensive trade agreement with the [[United States]].
 
 ### AF 2025-08-06 1546
 (01:13:48) Russia's conditions for ending the war in [[Ukraine]] include the annexation of four provinces, recognition of its annexation of [[Crimea]], and [[Ukraine]] remaining neutral without a military.
 
 ### AF 2025-08-06 1546
-(01:21:10) [[Armenia]], historically an ally of Russia, is now looking to the [[Joe Biden|United States]] for support following Russia's failures in conflicts involving its security partners.
+(01:21:10) [[Armenia]], historically an ally of Russia, is now looking to the [[United States]] for support following Russia's failures in conflicts involving its security partners.
 
 ### AF 2025-08-05 1545
 (01:10:21:34) A report two weeks prior indicated [[Marco Rubio]] was pressing [[Donald Trump]] to be tougher on [[China]], Russia, [[Iran]], and [[Venezuela]].
@@ -244,13 +244,13 @@
 (01:35:33) [[Nicholas J. Fuentes]] claimed that [[Candace Owens]], who works for [[The Daily Wire]], is the only person loudly promoting the conspiracy that [[Emmanuel Macron]]'s wife is transgender, and noted [[The Daily Wire]]'s past connections to Russian oligarch funding and its pro-[[Israel]] stance.
 
 ### AF 2025-07-25 1539
-(01:36:52) [[Nicholas J. Fuentes]] argued that [[Joe Biden|American]] conservatives' contempt for [[Europe|European]]-style socialism and leaders like [[Barack Obama]] and [[Greta Thunberg]] stems from the fact that these entities are often critical of [[Israel]], aligning with [[Israel|Israeli]] and Russian interests.
+(01:36:52) [[Nicholas J. Fuentes]] argued that [[American]] conservatives' contempt for [[Europe|European]]-style socialism and leaders like [[Barack Obama]] and [[Greta Thunberg]] stems from the fact that these entities are often critical of [[Israel]], aligning with [[Israel|Israeli]] and Russian interests.
 
 ### AF 2025-07-17 1534
 (07:16:74) The [[Europe|European]] signatories of the [[Joint Comprehensive Plan of Action]] want sanctions reinstated before Russia assumes the presidency of the [[United Nations Security Council]] in October.
 
 ### AF 2025-07-17 1534
-(19:35:79) [[Donald Trump]] faces challenges from [[Republican Party|Congress]] over legislation, from [[Israel]] over bombing [[Iran]], and from foreign governments like [[Iran]] and the Russian Federation.
+(19:35:79) [[Donald Trump]] faces challenges from [[Congress]] over legislation, from [[Israel]] over bombing [[Iran]], and from foreign governments like [[Iran]] and the Russian Federation.
 
 ### AF 2025-07-17 1534
 (22:32:51) [[Donald Trump]]'s post mentions the "laptop from hell" that he says came from [[Hunter Biden]]'s bathroom, not Russia.

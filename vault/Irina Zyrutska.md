@@ -8,3 +8,6 @@
 
 ### AF 2025-11-05 1592
 (43:30:28) [[Nicholas J. Fuentes]] claimed there are 50 million foreign-born people and 50 million illegal immigrants in the [[United States]], and cited violent attacks on Irina Zaruzka, [[Austin Metcalfe]], and [[Charlie Kirk]].
+
+### AF 2021-01-07 0741
+(02:37:33) [[Nicholas J. Fuentes]] thanked Marilyn Groyper and [[Aidan Duncan|Florida Groyper]] for helping him with transportation when Uber went offline in [[Washington D.C.|Washington, D.C.]].

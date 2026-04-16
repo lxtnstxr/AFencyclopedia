@@ -46,10 +46,31 @@
 (01:05:13) Alongside the announcement of the Steve Wittkoff meeting, [[Donald Trump]] announced a major tariff on [[India]], tacking on a 25% tariff effective at the end of the month over its purchase of [[Russian Federation|Russian]] oil.
 
 ### AF 2025-08-05 1545
-(02:10:80) Ceasefire negotiations between [[Israel]] and [[Hamas]] fell apart the previous week, leading [[Israel]] and [[Joe Biden|U.S]]. special envoy Steve Wittkoff to pull out of the talks.
+(02:10:80) Ceasefire negotiations between [[Israel]] and [[Hamas]] fell apart the previous week, leading [[Israel]] and [[U.S]]. special envoy Steve Wittkoff to pull out of the talks.
 
 ### AF 2025-07-31 1542
 (00:38:59) In January, [[Donald Trump]] dispatched special envoy Steve Wittkoff to negotiate a three-phase ceasefire between [[Israel]] and [[Hamas]], which began with a 60-day truce and a partial [[Israel|Israeli]] withdrawal from [[Gaza Strip|Gaza]].
 
 ### AF 2025-07-25 1539
-(00:03:51) [[Israel]] announced it was done with peace talks, a position soon followed by the [[Joe Biden|United States]] delegation led by Steve Wittkoff, ending the pretense of a willingness to negotiate.
+(00:03:51) [[Israel]] announced it was done with peace talks, a position soon followed by the [[United States]] delegation led by Steve Wittkoff, ending the pretense of a willingness to negotiate.
+
+### AF 2024-11-19 1421
+(01:13:53) [[Nikki Haley]] claimed that [[Howard Lutnick]], chair of [[Donald Trump]]'s transition team, and Steve Wittkoff, also in the administration, had both offered her a cabinet position, which she declined.
+
+### AF 2024-11-19 1421
+(01:03:12) Steve Wittkoff was appointed special envoy to the [[Middle East]].
+
+### AF 2024-11-19 1421
+(01:03:17) Steve Wittkoff was a major pro-[[Israel]] donor to the [[Israel Defense Forces|IDF]], [[Israel]]'s military.
+
+### AF 2024-11-19 1421
+(01:03:24) Steve Wittkoff and [[Howard Lutnick]] had offered [[Nikki Haley]] a cabinet position.
+
+### AF 2024-11-19 1421
+(01:03:29) Steve Wittkoff, a real estate developer and golf partner of [[Donald Trump]], donated to [[Donald Trump]]'s political action committee and helped connect him to entrepreneurs in his cryptocurrency venture.
+
+### AF 2024-11-19 1421
+(01:03:51) Steve Wittkoff used [[Joe Biden]]'s May decision to pause a shipment of bombs to [[Israel]] as a fundraising opportunity for [[Donald Trump]], reportedly raising six and seven-figure donations from [[Jewish]] donors.
+
+### AF 2024-11-19 1421
+(01:04:02) Steve Wittkoff stated that his friends called him asking how they could help [[Donald Trump]] after the [[Joe Biden]] administration paused bomb shipments to [[Israel]].

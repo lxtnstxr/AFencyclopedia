@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2025-09-26 1572
-(01:24:49) [[Nicholas J. Fuentes]] characterized [[Israel]] as a modern Sparta, with the world terrified of Mossad, its nuclear bombs, and its control over [[Joe Biden|America]].
+(01:24:49) [[Nicholas J. Fuentes]] characterized [[Israel]] as a modern Sparta, with the world terrified of Mossad, its nuclear bombs, and its control over [[America]].
 ### AF 2025-09-29 1573
 (01:32:31:85) [[Nicholas J. Fuentes]] referenced a speech where [[Tucker Carlson]] told Turning Point that [[Washington D.C.|Washington]] needed to acknowledge [[Jeffrey Epstein]] was Mossad to maintain credibility.
 ### AF 2025-10-08 1577
@@ -21,4 +21,13 @@
 (15:49:26) The Nelk Boys interview with [[Benjamin Netanyahu|Netanyahu]] was released in the middle of the [[Jeffrey Epstein]] scandal, where former prime ministers of [[Israel]] were denying [[Jeffrey Epstein]] worked for Mossad.
 
 ### AF 2025-07-19 1535
-(00:04:08) The head of Mossad visited the [[White House]] to discuss plans to deport two million [[Gaza Strip|Palestinians]] from the [[Gaza Strip]], seeking [[Joe Biden|United States]] assistance to bribe recipient countries.
+(00:04:08) The head of Mossad visited the [[White House]] to discuss plans to deport two million [[Palestinians]] from the [[Gaza Strip]], seeking [[United States]] assistance to bribe recipient countries.
+
+### AF 2024-10-30 1416
+(45:52:230) [[Peter Thiel]]'s finances reportedly originate from [[Palantir Technologies]], a company that profits from [[United States]] wars and is described as a "Mossad front," akin to companies established by [[Erik Prince]].
+
+### AF 2024-10-23 1411
+(01:08:34:550) [[Palantir Technologies]] is "infiltrated by the Mossad," and its allies promote [[Israel|Israeli]] "front intelligence and defense companies" in the [[United States]] that originate from [[Unit 8200]].
+
+### AF 2024-10-21 1409
+(02:15:21:63) A super chatter suggested that [[Hamas]]'s [[October 7th Attack]] master plan was discovered by Mossad and allowed to happen to create atrocity propaganda enabling the ethnic cleansing and annexation of the [[Gaza Strip]].

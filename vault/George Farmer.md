@@ -4,7 +4,7 @@
 ### AF 2025-09-29 1573
 (01:49:50) [[Candace Owens]] is married to George Farmer.
 
-(01:55:18) George Farmer is facing a 500 billion dollar defamation lawsuit from the [[France|French government]].
+(01:55:18) George Farmer is facing a 500 billion dollar defamation lawsuit from the [[French government]].
 
 ### AF 2025-08-26 1557
 (00:07:48) [[Candace Owens]] and her husband, George Farmer, have received financial backing from [[Rebecca Mercer]].

@@ -6,4 +6,19 @@
 
 
 ### AF 2025-07-17 1534
-(14:50:53) [[Jeffrey Epstein]] was an agent of [[Jews|Jewish]] power, empowered by [[Joe Biden|American]] [[Jews|Jewish]] billionaires like Les Wexner and connected to figures like [[Ehud Barak]] and [[Robert Maxwell]].
+(14:50:53) [[Jeffrey Epstein]] was an agent of [[Jewish]] power, empowered by [[American]] [[Jewish]] billionaires like Les Wexner and connected to figures like [[Ehud Barak]] and [[Robert Maxwell]].
+
+### AF 2024-01-05 1273
+(06:08:41) [[Nicholas J. Fuentes]] argued that [[Jeffrey Epstein]] being a [[Jews|Jew]], along with his associates [[Ghislaine Maxwell]], [[Ghislaine Maxwell|Robert Maxwell]], and Les Wexner, all connected to [[Israel]], should make society suspicious of [[Jews]] having dual allegiance.
+
+### AF 2023-06-06 1172
+(00:05:07) [[Frank Luntz]] maintained close personal and professional ties with [[Kevin McCarthy]], [[Jeffrey Epstein]], and Les Wexner.
+
+### AF 2023-06-06 1172
+(01:09:55) [[Frank Luntz]] was commissioned in 2003 by the Les Wexner Foundation to advise [[United States|American]] [[Jewish]] leaders on how to rally public support for [[Israel]], including invoking [[Saddam Hussein]].
+
+### AF 2023-03-29 1137
+(05:11:40) [[Benjamin Netanyahu|Bibi]]'s campaign received 90% of its contributions from outside [[Israel]], including from [[United States|American]] billionaires like [[Sheldon Adelson]], [[Sumner Redstone]], [[Robert Kraft]], Les Wexner, and the [[Ronald Lauder|Lauder family]].
+
+### AF 2019-07-08 0420
+(01:55:63) [[Michael Bloomberg|Bloomberg]] reported that [[Jeffrey Epstein]]'s source of wealth was unclear, though he ran a money management firm primarily for Victoria's Secret founder Les Wexner.

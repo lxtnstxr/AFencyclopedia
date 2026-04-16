@@ -2,7 +2,7 @@
 #person
 
 ### AF 2025-08-26 1557
-(00:02:50) Shiloh Hendrix, a white woman from the suburbs of [[City of Minneapolis|Minneapolis]], [[State of Minnesota|Minnesota]], was reportedly harassed by a group of [[Somalia|Somalian]] males at a park while with her daughter.
+(00:02:50) Shiloh Hendrix, a white woman from the suburbs of [[City of Minneapolis|Minneapolis]], [[Minnesota|Minnesota]], was reportedly harassed by a group of [[Somalia|Somalian]] males at a park while with her daughter.
 
 (00:03:22) The government charged Shiloh Hendrix with multiple counts of disorderly conduct, stating that her actions caused stress and hurt feelings within the community.
 (01:08:16) Shiloh Hendrix was charged with multiple counts of disorderly conduct by the [[Office of the City Attorney|Rochester City Attorney's Office]] for allegedly using racial slurs against a [[Somalia|Somali]] child with a disability, with a maximum penalty of 90 days in jail or a $1,000 fine.

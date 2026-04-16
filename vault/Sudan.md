@@ -12,3 +12,9 @@
 
 ### AF 2025-07-31 1542
 (00:53:54) During [[Donald Trump]]'s first term, [[Jared Kushner]] negotiated the Abraham Accords, which led to [[Bahrain]], the [[United Arab Emirates]], [[Morocco]], and Sudan normalizing relations with [[Israel]].
+
+### AF 2024-10-30 1416
+(32:02:230) The [[Abraham Accords]], facilitated by [[Jared Kushner]], normalized diplomatic relations between the [[United Arab Emirates]], [[Morocco]], [[Bahrain]], Sudan, and [[Israel]].
+
+### AF 2024-09-30 1397
+(32:02:66) [[Nicholas J. Fuentes]] argued that over the past 20 years, [[Israel]]-aligned neoconservatives in the [[United States]] executed this doctrine by destroying or destabilizing [[Iraq]], [[Syria]], [[Libya]], [[Yemen]], and Sudan.

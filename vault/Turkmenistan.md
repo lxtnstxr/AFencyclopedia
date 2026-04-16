@@ -6,3 +6,6 @@
 ### AF 2025-12-02 1607
 (42:21:570) [[The New York Times]] reported that the [[Donald Trump]] administration paused immigration applications from 19 countries, including [[Iran]], [[Sudan]], [[Eritrea]], [[Haiti]], [[Somalia]], Turkmenistan, [[Afghanistan]], [[Libya]], [[Myanmar]], [[Cuba]], [[Chad]], [[Yemen]], [[Laos]], [[Venezuela]], [[Sierra Leone]], [[Togo]], [[Burundi]], and [[Republic of Congo]].
 
+
+### AF 2018-02-05 0101
+(40:35:34) [[Nicholas J. Fuentes]] argued that [[United States]] military presence in [[Afghanistan]] served as a strategic base to project power against [[Iran]], [[Pakistan]], [[China]], and [[Russian]] influence in Central Asia, including Turkmenistan, [[Uzbekistan]], [[Tajikistan]], and [[Kyrgyzstan]].
