@@ -15,7 +15,7 @@
 (43:48:46) [[Nicholas J. Fuentes]] suggested that figures like [[Abraham Lincoln|Lincoln]], [[Hamilton]], and Jefferson, who helped draft the [[Constitution]] or preserved the union, are more deserving of national commemoration than [[Martin Luther King Jr.]].
 
 ### AF 2022-11-04 1093
-(00:09:36) [[Nicholas J. Fuentes]] defended his attendance at the [[City of Charlottesville|Charlottesville rally]] as a stand against the removal of Confederate statues, arguing it was part of a broader campaign that would eventually target figures like [[George Washington]] and Thomas Jefferson.
+(00:09:36) [[Nicholas J. Fuentes]] defended his attendance at the [[Charlottesville rally]] as a stand against the removal of Confederate statues, arguing it was part of a broader campaign that would eventually target figures like [[George Washington]] and Thomas Jefferson.
 
 ### AF 2022-11-04 1093
 (00:27:27) [[Sneako]] argued that the core philosophies of figures like Thomas Jefferson were based on freedom of speech, not slavery, unlike the Ku Klux Klan whose philosophies were based in hatred, justifying the removal of the latter's statues.
@@ -42,7 +42,7 @@
 (56:53:29) [[Nicholas J. Fuentes]] countered [[Nikole Hannah-Jones]]'s claim that [[United States|America]] was founded on slavery, noting that [[George Washington]], [[John Adams]], [[John Quincy Adams]], and Thomas Jefferson were not in favor of it, and [[Benjamin Franklin]] chaired an anti-slavery convention in 1775.
 
 ### AF 2021-06-14 0828
-(01:01:03:00) [[Nicholas J. Fuentes]] claimed the legacy of [[City of Charlottesville|Charlottesville]] is that the protesters were right, and the cultural revolution they opposed has led to the removal of statues of [[Abraham Lincoln]], Thomas Jefferson, and [[George Washington]].
+(01:01:03:00) [[Nicholas J. Fuentes]] claimed the legacy of [[Charlottesville]] is that the protesters were right, and the cultural revolution they opposed has led to the removal of statues of [[Abraham Lincoln]], Thomas Jefferson, and [[George Washington]].
 
 ### AF 2020-07-07 0635
 (02:19:24) [[Nicholas J. Fuentes]] argued that the phrase "All Men Are Created Equal" from the [[Declaration of Independence]] refers to a fundamental dignity before God, not physical or intellectual equality, citing Jefferson's slave ownership as proof.
@@ -100,3 +100,6 @@
 
 ### AF 2017-10-02 0022
 (01:04:32:57) [[Nicholas J. Fuentes]] dismissed [[Ben Sasse]]'s argument that an [[United States|American]] cannot be a white nationalist, citing the Naturalization Act of 1790, writings by [[John Jay]], Thomas Jefferson, [[George Washington]], and others to argue that [[United States|America]] was founded as a white nation.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:31:51) [[Nicholas J. Fuentes]] named [[George Washington]], [[Henry Ford]], [[Charles Lindbergh]], Thomas Jefferson, [[Abraham Lincoln]], and [[Frank Sinatra]] as examples of the "flesh and blood" people that constitute the [[United States]] of [[United States|America]].

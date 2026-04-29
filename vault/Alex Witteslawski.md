@@ -11,7 +11,7 @@
 (04:59:50) Alex Witteslawski recounted that while with the [[Leadership Institute]], he tackled speech codes on several college campuses and helped student activists defeat them.
 (06:39:10) Alex Witteslawski recommended that viewers of the show attend [[Leadership Institute]] trainings while advising those with nationalist views not to out themselves.
 (07:31:30) Alex Witteslawski also recommended training from the [[Foundation for Applied Conservative Leadership]] for grassroots lobbying and [[organization]] building.
-(13:20:50) Alex Witteslawski characterized the 2017 [[City of Charlottesville|Charlottesville]] rally as a disaster on multiple fronts, criticizing its poor messaging and optics.
+(13:20:50) Alex Witteslawski characterized the 2017 [[Charlottesville]] rally as a disaster on multiple fronts, criticizing its poor messaging and optics.
 (15:01:58) Alex Witteslawski pointed to anti-war marches in [[Washington D.C.|Washington, D.C.]] following the first [[Syria]] strikes as an example of effective, issue-based activism by the alt-right.
 (19:49:58) Alex Witteslawski advised activists to infiltrate local politics by attending every [[Republican Party]] meeting, becoming a precinct delegate, and taking over local party apparatuses.
 (21:54:25) Alex Witteslawski suggested that young viewers get involved in or take over campus organizations like [[Republican Party|College Republicans]], [[Turning Point USA]], or [[Young Americans for Liberty]] to advance their ideas.

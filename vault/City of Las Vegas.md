@@ -201,13 +201,13 @@
 (58:59:97) [[Nicholas J. Fuentes]] contended that the [[U.S. Department of Defense|Pentagon]]'s accusation against [[Russia]] dismantles the common assumption that governments cannot or will not stage false flag attacks, forcing a re-evaluation of events like the [[September 11 attacks]] and the Las Vegas shooting.
 
 ### AF 2021-09-15 0876
-(14:51:640) [[Nicholas J. Fuentes]] promoted the upcoming September 21st debut of a feature-length film recut from his "[[White Boy Summer]]" vlog series, containing new and previously unseen footage from a road trip from [[City of Chicago|Chicago]] to [[Denver]], Las Vegas, [[Los Angeles]], [[City of Phoenix|Phoenix]], and [[Dallas]].
+(14:51:640) [[Nicholas J. Fuentes]] promoted the upcoming September 21st debut of a feature-length film recut from his "[[White Boy Summer]]" vlog series, containing new and previously unseen footage from a road trip from [[Chicago]] to [[Denver]], Las Vegas, [[Los Angeles]], [[Phoenix]], and [[Dallas]].
 
 ### AF 2021-09-14 0875
-(00:14:45) [[Nicholas J. Fuentes]] announced that a feature-length "[[White Boy Summer]]" movie, compiled from vlogs of a road trip to [[Denver]], Las Vegas, [[L.A.]], [[City of Phoenix|Phoenix]], and [[Dallas]], would be airing on September 21st.
+(00:14:45) [[Nicholas J. Fuentes]] announced that a feature-length "[[White Boy Summer]]" movie, compiled from vlogs of a road trip to [[Denver]], Las Vegas, [[L.A.]], [[Phoenix]], and [[Dallas]], would be airing on September 21st.
 
 ### AF 2021-07-06 0841
-(00:21:58) [[Nicholas J. Fuentes]] began the July 4th episode of his program from [[City of Phoenix|Phoenix]], [[Arizona]], following a multi-[[city]] road trip that included stops in Las Vegas and [[Los Angeles]].
+(00:21:58) [[Nicholas J. Fuentes]] began the July 4th episode of his program from [[Phoenix]], [[Arizona]], following a multi-[[city]] road trip that included stops in Las Vegas and [[Los Angeles]].
 
 ### AF 2021-06-29 0839
 (02:43:04) [[Nicholas J. Fuentes]] was in Las Vegas during his road trip, having booked a penthouse with a view of the skyline for his show.
@@ -219,7 +219,7 @@
 (20:20:56) [[Nicholas J. Fuentes]] and [[Jaden McNeil]] drove from [[Grand Junction]] to Las Vegas to continue their road trip.
 
 ### AF 2021-06-29 0839
-(31:09:32) [[Nicholas J. Fuentes]] announced plans for public meetups in Las Vegas, [[Los Angeles]], [[City of Phoenix|Phoenix]], and cities in [[State of Texas|Texas]] during his ongoing road trip.
+(31:09:32) [[Nicholas J. Fuentes]] announced plans for public meetups in Las Vegas, [[Los Angeles]], [[Phoenix]], and cities in [[State of Texas|Texas]] during his ongoing road trip.
 
 ### AF 2021-06-01 0820
 (27:13:600) The Las Vegas shooting occurred during the [[Donald Trump]] administration, which [[Nicholas J. Fuentes]] suggested involved "funny business."
@@ -234,7 +234,7 @@
 (01:33:42) [[Nicholas J. Fuentes]] recounted that a viewer became a lifelong follower of his show after watching it while drunk in a hotel in Las Vegas.
 
 ### AF 2019-12-23 0517
-(01:26:35) [[Nicholas J. Fuentes]] recounted an encounter on a flight from Las Vegas to [[City of Chicago|Chicago]] with a [[Jews|Jewish]], Zionist member of [[Turning Point USA]].
+(01:26:35) [[Nicholas J. Fuentes]] recounted an encounter on a flight from Las Vegas to [[Chicago]] with a [[Jews|Jewish]], Zionist member of [[Turning Point USA]].
 
 ### AF 2019-12-23 0517
 (02:15:02) [[Nicholas J. Fuentes]] saw *Star Wars: Episode IX* in Las Vegas with [[Jaden]], [[Jake Lloyd]], and another [[person]], noting the film's themes mirrored their movement's struggle.
@@ -327,13 +327,13 @@
 (00:57:28) [[Milo]] and [[Laura Loomer]] were scheduled to hold an event in Las Vegas on April 13th, which was expected to draw counter-protests from [[Antifa]].
 
 ### AF 2018-03-02 0117
-(00:23:28) [[Nicholas J. Fuentes]] stated that the [[SHARE Act]], which would have legalized suppressors and established national concealed carry reciprocity, was shelved following the Las Vegas shooting and the [[City of Parkland|Parkland]] shooting.
+(00:23:28) [[Nicholas J. Fuentes]] stated that the [[SHARE Act]], which would have legalized suppressors and established national concealed carry reciprocity, was shelved following the Las Vegas shooting and the [[Parkland]] shooting.
 
 ### AF 2018-02-20 0112
-(01:43:86) [[Nicholas J. Fuentes]] expressed skepticism about media coverage of the [[City of Parkland|Parkland]] school shooting, citing unanswered questions about the Las Vegas shooting involving [[Stephen Paddock]].
+(01:43:86) [[Nicholas J. Fuentes]] expressed skepticism about media coverage of the [[Parkland]] school shooting, citing unanswered questions about the Las Vegas shooting involving [[Stephen Paddock]].
 
 ### AF 2018-02-19 0111
-(00:08:46) [[Nicholas J. Fuentes]] contrasted the significant activist response to the [[City of Parkland|Parkland]] shooting with the relative lack of political push following the Las Vegas shooting, which was the deadliest mass shooting in [[United States]] history.
+(00:08:46) [[Nicholas J. Fuentes]] contrasted the significant activist response to the [[Parkland]] shooting with the relative lack of political push following the Las Vegas shooting, which was the deadliest mass shooting in [[United States]] history.
 
 ### AF 2018-02-15 0109
 (30:51:54) The October 1st shooting in Las Vegas resulted in approximately 10,000 rounds fired and high casualties because the shooter was unimpeded for an extended period.

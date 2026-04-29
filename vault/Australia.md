@@ -49,7 +49,7 @@
 (00:57:46) [[Vivek Ramaswamy]] proposed increasing [[United States|U.S]]. naval capacity by at least 20% over the next several years to meet AUKUS agreement standards with Australia and the [[United Kingdom]].
 
 ### AF 2023-08-01 1196
-(01:03:30) [[Nicholas J. Fuentes]] claimed that if [[Jews]] have their way, civilization in [[Europe]] will also end, leaving only [[China]] and [[Russia]] as civilized states in a future where the [[United Kingdom]], [[Government of France|France]], [[United States|America]], [[Dominion of Canada|Canada]], and Australia become minority-white failed states.
+(01:03:30) [[Nicholas J. Fuentes]] claimed that if [[Jews]] have their way, civilization in [[Europe]] will also end, leaving only [[China]] and [[Russia]] as civilized states in a future where the [[United Kingdom]], [[France]], [[United States|America]], [[Dominion of Canada|Canada]], and Australia become minority-white failed states.
 
 ### AF 2023-06-23 1179
 (00:28:40) [[Nicholas J. Fuentes]] argued that the most important issue was the demographic extermination of white people in [[United States|America]], [[Dominion of Canada|Canada]], Australia, and [[Europe]], being replaced by people from the third world, and that commentators like [[Tucker Carlson]] were not addressing it.
@@ -97,7 +97,7 @@
 (01:06:59) [[Nicholas J. Fuentes]] defined the "Great Replacement" as the fact that white people are being replaced with non-white people in the [[United States]], [[Dominion of Canada|Canada]], Australia, and [[Europe]].
 
 ### AF 2022-03-01 0952
-(00:07:44) Along with 27 members of the [[Europe|European Union]], including [[Government of France|France]], [[Germany]], and [[Italian Republic|Italy]], and countries like the [[United Kingdom]], [[Dominion of Canada|Canada]], [[State of Japan|Japan]], [[South Korea]], Australia, [[New Zealand]], and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
+(00:07:44) Along with 27 members of the [[European Union]], including [[France]], [[Germany]], and [[Italian Republic|Italy]], and countries like the [[United Kingdom]], [[Dominion of Canada|Canada]], [[State of Japan|Japan]], [[South Korea]], Australia, [[New Zealand]], and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
 
 ### AF 2022-01-10 0932
 (05:11:94) [[Novak Djokovic]], a top tennis star, received a vaccine exemption and visa to compete in Australia but was detained and jailed upon arrival for not being vaccinated.
@@ -308,3 +308,9 @@
 
 ### AF 2017-10-09 0027
 (25:48:99) [[Nicholas J. Fuentes]] challenged critics of colonialism to live in places like [[Afghanistan]], the [[Congo]], or among the [[Aborigines]] in Australia.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:45:15) [[Nicholas J. Fuentes]] declared that [[Dominion of Canada|Canada]], Australia, and [[Europe|Western Europe]] are "finished" demographically.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(02:55:09) [[Nicholas J. Fuentes]] predicted that the Nationalist Socialist Network in Australia would disband, stating that he does not believe in "wearing costumes, larping as [[Nazis]]."

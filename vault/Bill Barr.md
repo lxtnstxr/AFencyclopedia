@@ -63,13 +63,13 @@
 (01:38:00) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] and Attorney General Bill Barr had warned that increased use of mail-in ballots due to coronavirus concerns was vulnerable to fraud.
 
 ### AF 2020-09-09 0677
-(01:14:55) William Barr announced that Operation Legend in [[City of Chicago|Chicago]] had resulted in over 500 arrests and 124 federal criminal charges, contributing to a 50% drop in the [[city]]'s murder rate over five weeks.
+(01:14:55) William Barr announced that Operation Legend in [[Chicago]] had resulted in over 500 arrests and 124 federal criminal charges, contributing to a 50% drop in the [[city]]'s murder rate over five weeks.
 
 ### AF 2020-09-09 0677
-(01:19:89) William Barr stated that at least 400 federal agents had been assigned to [[City of Chicago|Chicago]] as part of Operation Legend, with over 1,000 dispatched nationwide.
+(01:19:89) William Barr stated that at least 400 federal agents had been assigned to [[Chicago]] as part of Operation Legend, with over 1,000 dispatched nationwide.
 
 ### AF 2020-09-09 0677
-(02:20:84) [[Lori Lightfoot]] and [[David Brown|David O Brown]] were not in attendance for William Barr's press conference on Operation Legend in [[City of Chicago|Chicago]], though they had been invited.
+(02:20:84) [[Lori Lightfoot]] and [[David Brown|David O Brown]] were not in attendance for William Barr's press conference on Operation Legend in [[Chicago]], though they had been invited.
 
 ### AF 2020-07-30 0651
 (02:59:93) [[Nicholas J. Fuentes]] characterized congressional hearings as ineffective political theater, specifically criticizing the coverage of the Bill Barr hearing by outlets like the [[The Daily Caller|Daily Caller]].
@@ -78,13 +78,13 @@
 (00:00:00) [[Nicholas J. Fuentes]] opened his nightly broadcast, announcing the featured story would be the congressional testimony of Attorney General William Barr.
 
 ### AF 2020-07-28 0650
-(00:01:11) [[Nicholas J. Fuentes]] stated the main subject of William Barr's testimony was the use of non-lethal chemical agents like pepper spray and tear gas against rioters in cities like [[City of Portland|Portland]].
+(00:01:11) [[Nicholas J. Fuentes]] stated the main subject of William Barr's testimony was the use of non-lethal chemical agents like pepper spray and tear gas against rioters in cities like [[Portland]].
 
 ### AF 2020-07-28 0650
 (00:15:42) [[Nicholas J. Fuentes]] quoted William Barr's testimony, in which William Barr said the demonization of police following the death of [[George Floyd]] was "gravely injurious to our inner [[city]] communities."
 
 ### AF 2020-07-28 0650
-(00:28:00) [[Nicholas J. Fuentes]] criticized the congressional testimony of William Barr as a "media circus" and a "political charade" designed to generate sound bites rather than address the ongoing riots in [[City of Portland|Portland]] and [[City of Seattle|Seattle]].
+(00:28:00) [[Nicholas J. Fuentes]] criticized the congressional testimony of William Barr as a "media circus" and a "political charade" designed to generate sound bites rather than address the ongoing riots in [[Portland]] and [[Seattle]].
 
 ### AF 2020-07-28 0650
 (00:30:46) [[Nicholas J. Fuentes]] quoted a [[Fox News]] report summarizing William Barr's testimony, in which William Barr stated violent rioters had "hijacked" the [[George Floyd]] protests and slammed the "bogus Russiagate scandal."
@@ -93,7 +93,7 @@
 (00:32:42) [[Nicholas J. Fuentes]] described watching a portion of the hearing where [[Democratic Party|Democratic]] congresswomen asked leading questions and cut off William Barr's answers, while William Barr used right-wing talking points to defend the [[Donald Trump|Trump]] administration.
 
 ### AF 2020-07-28 0650
-(00:34:06) [[Nicholas J. Fuentes]] expressed frustration that William Barr's [[U.S. Department of Justice|Department of Justice]] had not brought serious charges against rioters in [[City of Portland|Portland]] and [[City of Seattle|Seattle]] despite two months of unrest.
+(00:34:06) [[Nicholas J. Fuentes]] expressed frustration that William Barr's [[U.S. Department of Justice|Department of Justice]] had not brought serious charges against rioters in [[Portland]] and [[Seattle]] despite two months of unrest.
 
 ### AF 2020-07-28 0650
 (00:35:40) [[Nicholas J. Fuentes]] cited a report from [[Revolver News]] claiming that sources within the [[U.S. Department of Justice|DOJ]] said William Barr was "eager to stop the protests but he is simply scared" of internal "swamp creature" resistance.
@@ -108,10 +108,10 @@
 (00:42:17) [[Nicholas J. Fuentes]] suggested the real obstacle to restoring order was "swamp creatures" and "left-wing sympathizers" within William Barr's own [[U.S. Department of Justice|Department of Justice]] sabotaging efforts against [[Antifa]].
 
 ### AF 2020-07-28 0650
-(00:43:26) [[Nicholas J. Fuentes]] concluded that the "real news" was the continuing lawlessness in [[City of Portland|Portland]] and [[City of Seattle|Seattle]], which stood in contrast to the political theater of William Barr's testimony.(01:35:05) [[Nicholas J. Fuentes]] argued that fundamental racial differences make mass migration and a stable, unified society impossible, leading to an inescapable crisis of identity, culture, and conflict.
+(00:43:26) [[Nicholas J. Fuentes]] concluded that the "real news" was the continuing lawlessness in [[Portland]] and [[Seattle]], which stood in contrast to the political theater of William Barr's testimony.(01:35:05) [[Nicholas J. Fuentes]] argued that fundamental racial differences make mass migration and a stable, unified society impossible, leading to an inescapable crisis of identity, culture, and conflict.
 
 ### AF 2020-07-22 0646
-(00:43:13) U.S. Attorney General William Barr stated the operation would involve sending about 200 federal agents to [[Kansas City]], a comparable number to [[City of Chicago|Chicago]], and about 35 to [[Albuquerque]], with over $60 million in federal grants for hiring more police officers.
+(00:43:13) U.S. Attorney General William Barr stated the operation would involve sending about 200 federal agents to [[Kansas City]], a comparable number to [[Chicago]], and about 35 to [[Albuquerque]], with over $60 million in federal grants for hiring more police officers.
 
 ### AF 2020-06-23 0627
 (02:23:20) [[Nicholas J. Fuentes]] stated that Bill Barr "seems to be on board with [[Donald Trump|Trump]] against a deep state" and is "one of the best guys in the cabinet by far."
@@ -154,3 +154,9 @@
 
 ### AF 2018-12-10 0292
 (00:36:00) With William Barr as Attorney General, [[Nicholas J. Fuentes]] argued the next critical personnel decision was the replacement for Chief of Staff [[James Mattis|John Kelly]], with candidates including [[Nick Ayers]], [[Mick Mulvaney]], [[Hope Hicks]], and [[Mark Meadows]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:59:53) [[Donald Barr]] is the father of Bill Barr, [[who]] was [[Donald Trump]]'s attorney general in his first term and was the head of the [[U.S. Department of Justice|Department of Justice]] in 2019 when [[Jeffrey Epstein]] died.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:31:37) [[Donald Trump]]'s attorney general, Bill Barr, had jurisdiction over the prison where [[Jeffrey Epstein]] killed himself in 2019.

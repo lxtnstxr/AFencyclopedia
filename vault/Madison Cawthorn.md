@@ -48,7 +48,7 @@
 (20:05:51) Madison Cawthorn publicly stated he was invited to an "orgy" by older [[Republican Party|Republican]] colleagues in [[Washington D.C.|D.C.]] and witnessed sitting representatives using cocaine.
 
 ### AF 2022-05-26 1002
-(20:59:21) Madison Cawthorn was reprimanded by [[Mike Johnson|Kevin McCarthy]] and subsequently retracted his claims about congressional misconduct.
+(20:59:21) Madison Cawthorn was reprimanded by [[Kevin McCarthy]] and subsequently retracted his claims about congressional misconduct.
 
 ### AF 2022-05-26 1002
 (21:51:99) Following his allegations, Madison Cawthorn faced a coordinated smear campaign and lost his primary election to [[Chuck Edwards]].
@@ -90,7 +90,7 @@
 (01:28:40) Madison Cawthorn stated he was invited to a sexual get-together by older colleagues in [[Washington D.C.|Washington, D.C.]], which he realized was an orgy where participants also used cocaine.
 
 ### AF 2022-05-19 0997
-(02:08:20) [[Mike Johnson|Kevin McCarthy]] and the [[Republican Party]] leadership conducted a "drip campaign" of releasing humiliating personal information against Madison Cawthorn and backed his primary opponents, leading to his narrow primary defeat.
+(02:08:20) [[Kevin McCarthy]] and the [[Republican Party]] leadership conducted a "drip campaign" of releasing humiliating personal information against Madison Cawthorn and backed his primary opponents, leading to his narrow primary defeat.
 
 ### AF 2022-05-19 0997
 (38:13:40) Madison Cawthorn publicly alleged that drug-fueled gay pedophile orgies were pervasive in [[Washington D.C.|Washington, D.C.]], and that he had been invited to one.

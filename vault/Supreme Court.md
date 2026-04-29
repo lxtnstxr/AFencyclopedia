@@ -9,7 +9,7 @@
 (11:49:070) [[Amy Coney Barrett]] recused herself from Supreme Court cases concerning modifications to election laws, leading to a 4-4 tie in the court's decisions on these matters.
 
 ### AF 2024-10-23 1411
-(21:18:790) The location of real decision-making power in the [[United States]] is opaque, potentially residing in the private or public sector, including [[Donald Trump|the president]], [[U.S. Congress|Congress]], Supreme Court, donors, banks, and media.
+(21:18:790) The location of real decision-making power in the [[United States]] is opaque, potentially residing in the private or public sector, including [[the president]], [[U.S. Congress|Congress]], Supreme Court, donors, banks, and media.
 
 ### AF 2024-04-08 1315
 (01:03:57) The Supreme Court interpreted the Constitution to include a right to abortion.

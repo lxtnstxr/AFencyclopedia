@@ -6,7 +6,7 @@
 
 
 ### AF 2024-07-26 1361
-(52:35:95) In [[African continent|Africa]], [[Russia]] is waging a proxy war against [[Government of France|France]] via the [[Wagner Group]], a private military contractor overthrowing pro-[[French]] regimes and replacing them with pro-[[Russian]] ones in countries like Burkina Faso and [[Niger]] across the Sahel [[region]].
+(52:35:95) In [[African continent|Africa]], [[Russia]] is waging a proxy war against [[France]] via the [[Wagner Group]], a private military contractor overthrowing pro-[[French]] regimes and replacing them with pro-[[Russian]] ones in countries like Burkina Faso and [[Niger]] across the Sahel [[region]].
 
 ### AF 2023-09-21 1221
 (29:31:29) A series of coups and revolutions against [[French]] neo-imperialism occurred in [[Niger]], Burkina Faso, [[Guinea]], and [[Mali]].
@@ -34,3 +34,9 @@
 
 ### AF 2019-10-21 0481
 (00:40:29) [[Nicholas J. Fuentes]] argued that the [[United States]] military presence in the [[Middle East]], including [[Syria]], [[Iraq]], [[Afghanistan]], [[Yemen]], [[Nigeria]], Burkina Faso, [[Niger]], and [[Libya]], was perpetual and unaffected by electoral politics.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:33:38:13) [[Jackson Hinkle]] lives in [[Russian Federation|Russia]] and supports movements in Burkina Faso and [[Yemen]] that are anti-[[United States|American]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:35:10:60) [[Nicholas J. Fuentes]] declared that he is anti-mass migration, anti-[[Israel]], anti-Burkina Faso, anti-[[Russian Federation|Russia]], anti-[[Iran]], anti-[[Venezuela]], and pro-[[United States|America]].

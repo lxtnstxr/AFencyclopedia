@@ -54,7 +54,7 @@
 (00:11:53) [[Nicholas J. Fuentes]] noted that the [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) was held with a sitting congressman and Steve King without problems, approximately six to seven weeks after the [[United States Capitol|Capitol]] riot.
 
 ### AF 2021-03-18 0774
-(01:56:11) [[Nicholas J. Fuentes]] noted that the [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) featured sitting Congressman [[Paul Gosar]], former Congressman Steve King, and commentator [[Michelle Malkin]] as speakers at the Hilton in [[City of Orlando|Orlando]].
+(01:56:11) [[Nicholas J. Fuentes]] noted that the [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) featured sitting Congressman [[Paul Gosar]], former Congressman Steve King, and commentator [[Michelle Malkin]] as speakers at the Hilton in [[Orlando]].
 
 ### AF 2021-03-04 0765
 (00:15:00) Speakers at [[AFPAC|AFPAC 2]] included political commentator [[Vince James]], commentator [[Jonathan Miller|John Miller]], journalist [[Michelle Malkin]], former Representative Steve King, and Representative [[Paul Gosar]].
@@ -75,7 +75,7 @@
 (01:21:28) [[Nicholas J. Fuentes]] confirmed that Steve King was coming to [[AFPAC]].
 
 ### AF 2021-01-29 0751
-(03:04:40) [[Nicholas J. Fuentes]] noted that [[Mike Johnson|Kevin McCarthy]] had previously met with former Representative Steve King after he defended white nationalism in a [[The New York Times|New York Times]] interview, and subsequently booted King from his committees for showing little remorse.
+(03:04:40) [[Nicholas J. Fuentes]] noted that [[Kevin McCarthy]] had previously met with former Representative Steve King after he defended white nationalism in a [[The New York Times|New York Times]] interview, and subsequently booted King from his committees for showing little remorse.
 
 ### AF 2020-06-24 0628
 (02:12:27) [[Nicholas J. Fuentes]] agreed it was possible for an overt [[United States|America]] First politician to be committee-blacklisted by the [[Republican Party]] like Steve King, but argued that with enough allies in [[Congress]] and a subtle approach, it could be mitigated.
@@ -108,7 +108,7 @@
 (00:25:43) In the same [[The New York Times]] interview, Steve King said he was not a racist, pointed to his [[Twitter]] timeline showing him greeting Iowans of all races, and said he supports immigrants [[who]] enter legally and assimilate, valuing [[United States|American]] culture based on values brought by whites from [[Europe]].
 
 ### AF 2019-01-10 0310
-(00:26:48) [[Republican Party|Republican]] [[House]] leaders [[Mike Johnson|Kevin McCarthy]] and [[Steve Scalise]] described Steve King's comments as reckless and unfortunate.
+(00:26:48) [[Republican Party|Republican]] [[House]] leaders [[Kevin McCarthy]] and [[Steve Scalise]] described Steve King's comments as reckless and unfortunate.
 
 ### AF 2019-01-10 0310
 (00:27:00) Steve King issued a clarification stating he was a nationalist [[who]] defended Western civilization's values but was not an advocate for white nationalism or white supremacy, rejecting those labels.

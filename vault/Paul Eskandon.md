@@ -6,4 +6,4 @@
 
 
 ### AF 2022-07-07 1027
-(00:07:06) Film director Paul Eskandon published an email on [[Twitter]] showing that The Mirage hotel in [[City of Las Vegas|Las Vegas]] cancelled his and producer Jason's reservations, falsely claiming they intended to host a ticketed event in their rooms.
+(00:07:06) Film director Paul Eskandon published an email on [[Twitter]] showing that The Mirage hotel in [[Las Vegas]] cancelled his and producer Jason's reservations, falsely claiming they intended to host a ticketed event in their rooms.

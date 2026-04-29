@@ -142,7 +142,7 @@
 (01:07:00) [[Nicholas J. Fuentes]] argued that figures like Michael Knowles and [[Andrew Klavan]] lack integrity for not openly stating beliefs that might align with [[United States|America]] First principles due to their employment under [[Ben Shapiro]].
 
 ### AF 2020-05-11 0602
-(02:01:35) [[Nicholas J. Fuentes]] commented that Michael Knowles had [[James Allsup]] on his show after [[City of Charlottesville|Charlottesville]] and "outclassed him" in debate, but suggested Knowles understands the underlying political dynamics.
+(02:01:35) [[Nicholas J. Fuentes]] commented that Michael Knowles had [[James Allsup]] on his show after [[Charlottesville]] and "outclassed him" in debate, but suggested Knowles understands the underlying political dynamics.
 
 ### AF 2020-05-11 0602
 (02:10:07) [[Nicholas J. Fuentes]] listed his ranking of [[The Daily Wire]] hosts from most to least insufferable as [[Andrew Klavan]], Michael Knowles, [[Ben Shapiro]], and [[Matt Walsh]], whom he called "a complete joke."

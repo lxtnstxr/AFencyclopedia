@@ -44,7 +44,7 @@
 (01:03:50) [[Nicholas J. Fuentes]] observed a wider shakeup in the conservative media movement, citing [[Steven Crowder]] leaving Blaze Media, [[James O'Keefe]] getting kicked out of [[Project Veritas]], [[Alex Jones]] being sued, and now [[Tucker Carlson]] being fired.
 
 ### AF 2023-04-18 1148
-(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as [[Tim Pool]], [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, [[Tucker Carlson]] being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Mike Johnson|Kevin McCarthy]], [[Matt Walsh]] making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling The Blaze executives he loves [[Israel]].
+(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as [[Tim Pool]], [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, [[Tucker Carlson]] being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Kevin McCarthy]], [[Matt Walsh]] making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling The Blaze executives he loves [[Israel]].
 
 ### AF 2023-03-30 1138
 (00:39:18) [[Ben Shapiro]] has never received a strike on [[Google|YouTube]], while [[Steven Crowder]], The Blaze, and [[Alex Jones]] have been banned or striked.
@@ -146,7 +146,7 @@
 (00:16:36) [[Nicholas J. Fuentes]] noted that Blaze TV is run by pro-[[Israel]] Protestant types and features hosts like [[Mark Levin]] and [[Glenn Beck]], whom he described as a Mormon Zionist.
 
 ### AF 2021-05-17 0812
-(18:26:52) [[Nicholas J. Fuentes]] stated that [[Lauren Boebert|Lauren Chen]], a host at Blaze TV, replied to a question on [[Twitter]] by saying she did not support [[Gaza Strip|Palestine]] but was not sure that meant she automatically supported [[Israel]]. (19:43:74) (20:56:18)
+(18:26:52) [[Nicholas J. Fuentes]] stated that [[Lauren Boebert|Lauren Chen]], a host at Blaze TV, replied to a question on [[Twitter]] by saying she did not support [[Palestine]] but was not sure that meant she automatically supported [[Israel]]. (19:43:74) (20:56:18)
 
 ### AF 2021-05-17 0812
 (18:57:66) [[Nicholas J. Fuentes]] claimed that Blaze TV is a "very Zio network" run by hardcore Zionists [[Glenn Beck]] and [[Mark Levin]], and that editorial restrictions there prevent honest criticism of [[Israel]]. (21:00:84) (21:03:16)
@@ -203,7 +203,7 @@
 (00:45:52) [[Nicholas J. Fuentes]] stated that major conservative media outlets like CRTV, [[The Daily Wire]], and [[Breitbart News|Breitbart]] are run by Zionists, specifically naming [[Mark Levin]], [[Ben Shapiro]], and the late [[Breitbart News|Andrew Breitbart]].
 
 ### AF 2018-12-17 0297
-(02:30:38) Major right-wing online media outlets like [[Prager University|Prager University]], [[Breitbart News|Breitbart]], CRTV, and The Blaze were either run by [[Jews|Jewish]] Zionists or people sympathetic to them.
+(02:30:38) Major right-wing online media outlets like [[Prager University]], [[Breitbart News|Breitbart]], CRTV, and The Blaze were either run by [[Jews|Jewish]] Zionists or people sympathetic to them.
 
 ### AF 2018-12-10 0292
 (00:04:00) [[Gavin McInnes]] was fired from his job at CRTV over the weekend and subsequently banned from [[Google|YouTube]], losing a channel with 220,000 subscribers, as part of a broader deplatforming campaign.
@@ -279,3 +279,6 @@
 
 ### AF 2017-10-04 0024
 (01:08:62) [[Allie Stuckey]] was positioned by [[Nicholas J. Fuentes]] as a potential "Tommy Lahren 2.0" for The Blaze.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:22:00.530) [[Nicholas J. Fuentes]] stated that he is "above it all" and compared people complaining about the show to "losers" [[who]] need "a release valve" for their outrage, which he said they can find on Blaze TV or by watching [[Matt Walsh]].

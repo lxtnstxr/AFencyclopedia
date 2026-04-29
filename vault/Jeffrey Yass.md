@@ -8,4 +8,4 @@
 
 
 ### AF 2024-10-14 1405
-(02:08:58) [[Donald Trump]] owes his political resurgence to major pro-[[Israel]] donors, including [[Sheldon Adelson|Miriam Adelson]], Jeffrey Yass, [[Isaac Perlmutter]], and [[David Sacks]], who funded his campaign.
+(02:08:58) [[Donald Trump]] owes his political resurgence to major pro-[[Israel]] donors, including [[Miriam Adelson]], Jeffrey Yass, [[Isaac Perlmutter]], and [[David Sacks]], who funded his campaign.

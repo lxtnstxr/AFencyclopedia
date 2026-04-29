@@ -16,7 +16,7 @@
 (01:18:00:59) [[Nicholas J. Fuentes]] opposed all foreign influence in the [[United States]], citing operations linked to Turkey, the [[Russian Federation|Russia]], [[China]], [[India]], and [[Israel]].
 
 ### AF 2024-10-22 1410
-(50:41:57) Invading [[Iran]] would be comparable to invading countries like Turkey, [[Arab Republic of Egypt|Egypt]], [[Government of France|France]], or [[Brazil]].
+(50:41:57) Invading [[Iran]] would be comparable to invading countries like Turkey, [[Arab Republic of Egypt|Egypt]], [[France]], or [[Brazil]].
 
 ### AF 2024-10-02 1398
 (01:16:50) [[Nicholas J. Fuentes]] identified wild cards in the conflict as Turkey and [[Recep Tayyip Erdogan|Erdogan]], potential intervention by [[Russia]] and [[China]], and the [[United States]] presidential election, noting [[Donald Trump]] would be more willing to underwrite [[Israel]]'s war than [[Kamala Harris]].
@@ -55,7 +55,7 @@
 (28:41:40) During the [[Syria|Syrian]] [[civil war]], the [[Bashar al-Assad]] regime was backed by [[Iran]] and [[Russia]], while opposition forces were supported by Turkey, [[Saudi Arabia]], other Gulf countries, the [[United States]], and [[Israel]].
 
 ### AF 2024-01-06 1274
-(00:07:08) [[Nicholas J. Fuentes]] argued that [[Destiny]] is unintelligent, citing his inability to locate [[Israel]] on a map, confusion over [[Donald Trump|the president]] of Turkey, and ignorance about [[Genghis Khan]], the [[Bible]], and [[Kevin McCarthy]].
+(00:07:08) [[Nicholas J. Fuentes]] argued that [[Destiny]] is unintelligent, citing his inability to locate [[Israel]] on a map, confusion over [[the president]] of Turkey, and ignorance about [[Genghis Khan]], the [[Bible]], and [[Kevin McCarthy]].
 
 ### AF 2023-12-13 1262
 (30:16:23) Turkey, a [[North Atlantic Treaty Organization|NATO]] member run by President [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]], whom [[Nicholas J. Fuentes]] characterized as a dictator, receives a security guarantee from the [[United States]], unlike [[Iran]] or [[Russia]].
@@ -265,7 +265,7 @@
 (00:13:54) Tens of thousands of people fled their homes in northern [[Syria]] as Turkey's offensive encircled the border towns of Ras al-Ain and Tal Abyad.
 
 ### AF 2019-10-10 0475
-(00:15:21) A group of 29 [[Republican Party|Republican]] members of the [[United States House of Representatives]], including [[Mike Johnson|Kevin McCarthy]] and [[Steve Scalise]], announced legislation to impose sanctions on Turkey in response to its assault on Kurdish forces in [[Syria]].
+(00:15:21) A group of 29 [[Republican Party|Republican]] members of the [[United States House of Representatives]], including [[Kevin McCarthy]] and [[Steve Scalise]], announced legislation to impose sanctions on Turkey in response to its assault on Kurdish forces in [[Syria]].
 
 ### AF 2019-10-10 0475
 (00:17:32) [[Benjamin Netanyahu|Bibi]], the Prime Minister of [[Israel]], expressed solidarity with the [[Kurdistan|Kurds]] in [[Syria]] amid the Turkish offensive.
@@ -280,7 +280,7 @@
 (00:31:40) [[Nicholas J. Fuentes]] argued that Turkey's justification for its military operation in [[Syria]]—to prevent a terrorist corridor along its border—mirrored the justification used by [[Israel]] for its airstrikes in [[Syria]] and [[Iraq]].
 
 ### AF 2019-10-09 0474
-(00:33:40) [[Nicholas J. Fuentes]] asserted that the widespread condemnation of Turkey's operation by the [[Europe|European Union]], the [[United States]], and [[Congress]] was primarily because it complicated [[United States|American]] leverage and the interests of the military-industrial complex and the [[Israel lobby]] in the [[region]].
+(00:33:40) [[Nicholas J. Fuentes]] asserted that the widespread condemnation of Turkey's operation by the [[European Union]], the [[United States]], and [[Congress]] was primarily because it complicated [[United States|American]] leverage and the interests of the military-industrial complex and the [[Israel lobby]] in the [[region]].
 
 ### AF 2019-10-09 0474
 (00:48:40) [[Nicholas J. Fuentes]] speculated that [[Donald Trump]] might be using Turkey's intervention in [[Syria]] to complicate the [[United States|U.S]]. occupation and force a de facto withdrawal, similar to how he used tariffs to pressure [[Mexico]] on immigration, bypassing Congressional and institutional resistance.
@@ -355,7 +355,7 @@
 (10:45:42) [[Jamal Khashoggi]], a [[Saudi Arabia|Saudi]] journalist and critic of the regime [[who]] wrote for the [[Washington Post]], disappeared after entering the [[Saudi Arabia|Saudi]] consulate in Turkey.
 
 ### AF 2018-10-11 0259
-(01:42:36) [[Nicholas J. Fuentes]] discussed the disappearance of [[Saudi Arabia|Saudi]] journalist [[Jamal Khashoggi]], a columnist for the [[Washington Post]] and critic of the [[Saudi Arabia|Saudi]] government, [[who]] entered the [[Saudi Arabia|Saudi]] consulate in [[City of Istanbul|Istanbul]], Turkey, and never left.
+(01:42:36) [[Nicholas J. Fuentes]] discussed the disappearance of [[Saudi Arabia|Saudi]] journalist [[Jamal Khashoggi]], a columnist for the [[Washington Post]] and critic of the [[Saudi Arabia|Saudi]] government, [[who]] entered the [[Saudi Arabia|Saudi]] consulate in [[Istanbul]], Turkey, and never left.
 
 ### AF 2018-10-08 0256
 (00:40:00) [[Jair Bolsonaro]]'s electoral success exemplifies a global trend of right-wing populist victories, seen also in [[Hungary]] with [[Viktor Orbán]], [[Italian Republic|Italy]] with [[Matteo Salvini]], [[Russia]] with [[Vladimir Putin]], and Turkey with [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]].
@@ -418,7 +418,7 @@
 (00:08:24) The [[Kurds]], a stateless ethnic group present in Turkey, [[Syria]], [[Iran]], and [[Iraq]], established a significant presence in northern [[Syria]] during the [[civil war]].
 
 ### AF 2018-03-29 0134
-(00:11:26) The [[PKK (Kurdish Workers' Party)]] has been designated a terrorist [[organization]] in Turkey for approximately 30 years and was responsible for bombings in [[Ankara]] and [[City of Istanbul|Istanbul]] during the [[Obama]] administration.
+(00:11:26) The [[PKK (Kurdish Workers' Party)]] has been designated a terrorist [[organization]] in Turkey for approximately 30 years and was responsible for bombings in [[Ankara]] and [[Istanbul]] during the [[Obama]] administration.
 
 ### AF 2018-03-29 0134
 (00:13:36) Turkish forces captured [[Afrin]] and raised their flag over the [[region]], with [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] threatening to advance eastward to [[Manbij]], where [[United States]] troops were stationed.
@@ -487,7 +487,7 @@
 (00:14:30) In the summer, [[Saudi Arabia]] accused the [[Qatar|Qatari]] royal family, the [[House]] of Thani, of praising [[Iran]] and led a coalition to impose a total blockade and embargo on [[Qatar]], leading Turkey to send troops and [[Iran]] to send aid to the [[country]].
 
 ### AF 2017-12-05 0064
-(01:19:52) [[Nicholas J. Fuentes]] listed international reactions against [[Donald Trump]]'s [[City of Jerusalem|Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] of Turkey, [[who]] threatened to sever ties with [[Israel]].
+(01:19:52) [[Nicholas J. Fuentes]] listed international reactions against [[Donald Trump]]'s [[Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] of Turkey, [[who]] threatened to sever ties with [[Israel]].
 
 ### AF 2017-12-05 0064
 (01:22:05) [[Nicholas J. Fuentes]] questioned whether alienating allies like [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[Jim Jordan|Jordan]], Turkey, [[France]], and [[Germany]] over a symbolic gesture for [[Israel]] constituted putting [[America First]].
@@ -509,3 +509,63 @@
 
 ### AF 2017-09-29 0021
 (00:27:32) [[Nicholas J. Fuentes]] warned that if [[South Korea]] saw a nuclear-armed [[North Korea]] and a non-interventionist [[United States|U.S]]., it might seek its own nuclear arsenal, potentially triggering a cascade of proliferation in [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], and Turkey.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:48:41) [[Iran]] rejected the latest peace proposal from [[Washington D.C.|Washington]], mediated by [[Pakistan]], Turkey, [[Saudi Arabia]], and [[Arab Republic of Egypt|Egypt]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:29:53) [[Donald Trump]] claimed that [[Iran]] begged for a deal and that the [[United States]] is holding off on escalating while waiting on negotiations mediated by [[Pakistan]], Turkey, [[Arab Republic of Egypt|Egypt]], and [[Saudi Arabia]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:27:26) Mediating countries, including Turkey, [[Arab Republic of Egypt|Egypt]], and [[Pakistan]], attempted to arrange a summit between representatives of [[Iran]] and the [[United States]] in [[Islamabad]], [[Pakistan]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:43:56) [[Pakistan]], [[Arab Republic of Egypt|Egypt]], and Turkey attempted to put together a peace deal.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:14:14) [[Nicholas J. Fuentes]] stated that Turkey, [[Pakistan]], and [[Saudi Arabia]] were working to bring an [[Iran|Iranian]] delegation and the [[United States]] together for a meeting in [[Pakistan]] or Turkey later that week.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:47:36) [[Nicholas J. Fuentes]] reported that Turkey, [[Pakistan]], and [[Saudi Arabia]] were attempting to arrange a bilateral negotiation between [[Iran]] and the [[United States]] in either Turkey or [[Pakistan]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:50:52) [[Nicholas J. Fuentes]] read from a [[The Wall Street Journal|Wall Street Journal]] report stating that mediators from Turkey, [[Arab Republic of Egypt|Egypt]], and [[Pakistan]] were pushing for a meeting in the next 48 hours, but both sides remained far apart.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:18:36) [[Nicholas J. Fuentes]] assessed that reports of Turkey, [[Pakistan]], and [[Saudi Arabia]] acting as intermediaries to de-escalate the conflict with [[Iran]] were a "fiction" and "overhyped," stating those countries have "no influence" over the [[United States]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:41:55) [[Nicholas J. Fuentes]] reported that [[Iran]] is requesting that [[JD Vance]] be brought in to negotiate in [[Pakistan]] or Turkey, rather than [[Steve Wittkoff|Steve Witkoff]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:31) [[Nicholas J. Fuentes]] stated that [[Israel]] has had close security, military, and intelligence ties with the [[Kurdistan|Kurds]] in [[Syria]], [[Iraq]], and Turkey.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:42:54) [[Nicholas J. Fuentes]] stated that [[Israel]] wants regime change in [[Iraq]], [[Syria]], [[State of Libya|Libya]], [[Arab Republic of Egypt|Egypt]], and Turkey.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:25:53:64) [[Nicholas J. Fuentes]] argued that [[Arab Republic of Egypt|Egypt]] is mobilizing in the [[Sinai]] and Turkey is extending its arm into [[Syria]] because [[Israel]]'s expansionist ambitions are destabilizing the [[Middle East]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:59:29) [[Nicholas J. Fuentes]] argued that if [[Iran]] gets a deal, they get sanctions relief, their currency recovers, their economy recovers, they rebuild infrastructure, and they can normalize relations with [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[Pakistan]], and Turkey.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:28:32) The [[United States]] opened indirect talks with [[Iran]] only after an intense lobbying effort from Turkey, [[Qatar]], [[Pakistan]], the [[United Arab Emirates]], [[Oman]], [[Saudi Arabia]], and [[Arab Republic of Egypt|Egypt]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:01:22) [[Iran]] has been integrating into the [[region]], making peace with [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], and Turkey.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:21:53) [[Nicholas J. Fuentes]] identified Turkey, [[Arab Republic of Egypt|Egypt]], [[Qatar]], [[Saudi Arabia]], [[Pakistan]], the [[United Arab Emirates]], and [[Oman]] as countries lobbying the [[United States]] to make a deal with [[Iran]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:15) [[Nicholas J. Fuentes]] stated that a multilateral framework proposal for negotiations with [[Iran]] was put together by seven [[Islam|Muslim]]-majority countries, including [[Arab Republic of Egypt|Egypt]], Turkey, the [[United Arab Emirates|UAE]], [[Qatar]], [[Saudi Arabia]], [[Pakistan]], and [[Oman]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:44:33) [[Nicholas J. Fuentes]] called [[Hasan Piker]] "human garbage" [[who]] should be deported back to Turkey.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:18:06) Turkey, [[Saudi Arabia]], [[Qatar]], and [[Israel]] lobbied [[Washington D.C.]] against the strike on [[Iran]], saying they were not ready and would not allow the use of their airspace.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:14:10) [[Donald Trump]] announced a 25% tariff on any [[country]] doing business with [[Iran]], targeting major trading partners like [[China]], Turkey, the [[United Arab Emirates|Emirates]], [[Iraq]], and [[India]].

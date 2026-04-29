@@ -6,7 +6,7 @@
 
 
 ### AF 2019-10-30 0488
-(02:10:58) [[Nicholas J. Fuentes]] cited a quote attributed to [[Dan Crenshaw]] by Christians United for Israel: "Our morality doesn't come from government. It comes from [[City of Jerusalem|Jerusalem]]."
+(02:10:58) [[Nicholas J. Fuentes]] cited a quote attributed to [[Dan Crenshaw]] by Christians United for Israel: "Our morality doesn't come from government. It comes from [[Jerusalem]]."
 
 ### AF 2019-08-26 0448
 (00:19:57) [[Amy Wax]] spoke at the [[National Conservatism Conference]] alongside figures including [[John Bolton]], [[Tucker Carlson]], and [[David Brody]] of Christians United for Israel.

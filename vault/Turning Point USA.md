@@ -190,7 +190,7 @@
 (01:10:22) [[Nicholas J. Fuentes]] decided to schedule the fourth [[AFPAC]] alongside a Turning Point USA conference due to the latter's growing size and younger audience.
 
 ### AF 2024-06-17 1342
-(01:10:53) Turning Point USA historically holds summer conferences in [[State of Florida|Florida]] and winter conferences in [[City of Phoenix|Phoenix]], [[Arizona]].
+(01:10:53) Turning Point USA historically holds summer conferences in [[State of Florida|Florida]] and winter conferences in [[Phoenix]], [[Arizona]].
 
 ### AF 2024-06-17 1342
 (01:11:15) In 2024, Turning Point USA moved its summer conference to [[Detroit]], [[State of Michigan|Michigan]] because it is a swing state in the presidential election.
@@ -442,13 +442,13 @@
 (00:12:30) [[Nikki Haley]] was booed by the audience at a Turning Point USA event when mentioned by [[Tucker Carlson]].
 
 ### AF 2023-12-20 1265
-(08:49:560) Turning Point USA's AmericaFest in [[City of Phoenix|Phoenix]] has become the largest conservative convention in the [[United States]], surpassing the declining attendance of [[Conservative Political Action Conference|CPAC]].
+(08:49:560) Turning Point USA's AmericaFest in [[Phoenix]] has become the largest conservative convention in the [[United States]], surpassing the declining attendance of [[Conservative Political Action Conference|CPAC]].
 
 ### AF 2023-12-20 1265
 (09:44:980) [[Rob Smith]], who identifies as [[United States|America]]'s favorite gay [[black]] veteran, is a paid brand ambassador for Turning Point USA.
 
 ### AF 2023-12-20 1265
-(17:10:800) During Turning Point USA's AmericaFest in [[City of Phoenix|Phoenix]], a group of young men confronted [[Rob Smith]], chanting "[[United States|America]] First" and homophobic slurs, which led to him leaving the event.
+(17:10:800) During Turning Point USA's AmericaFest in [[Phoenix]], a group of young men confronted [[Rob Smith]], chanting "[[United States|America]] First" and homophobic slurs, which led to him leaving the event.
 
 ### AF 2023-12-20 1265
 (18:08:740) [[Charlie Kirk]], [[J.R. Majewski]], and [[Tristan Tate]] publicly came to the defense of [[Rob Smith]] after the confrontation at the Turning Point USA event.
@@ -469,7 +469,7 @@
 (01:07:35) [[Nicholas J. Fuentes]] claimed Turning Point USA, with a $40-50 million annual budget, fails to win elections but succeeds in pushing pro-[[Israel]] messaging on college campuses.
 
 ### AF 2023-11-02 1242
-(00:58:28) In 2017, [[Nicholas J. Fuentes]] was blacklisted from Turning Point USA and banned from [[Conservative Political Action Conference|CPAC]] due to his participation in the [[City of Charlottesville|Charlottesville rally]] and his commentary on white identity.
+(00:58:28) In 2017, [[Nicholas J. Fuentes]] was blacklisted from Turning Point USA and banned from [[Conservative Political Action Conference|CPAC]] due to his participation in the [[Charlottesville rally]] and his commentary on white identity.
 
 ### AF 2023-10-27 1241
 (00:27:30) [[Nicholas J. Fuentes]] claimed that organizations like Turning Point USA and [[Prager University|PragerU]] use conservative content as a "Trojan horse" to disseminate pro-[[Israel]] propaganda to young audiences.
@@ -484,7 +484,7 @@
 (54:59:83) The [[Fuentes Rally]] was organized in about three weeks, sold out of tickets in four hours, and had an energy that [[Nicholas J. Fuentes]] claimed surpassed that of the Turning Point USA event happening nearby.
 
 ### AF 2023-07-20 1189
-(59:08:47) Turning Point USA claimed seven thousand people watched [[Donald Trump|the president's]] speech at their convention, but an actual count showed only about a thousand people in the auditorium.
+(59:08:47) Turning Point USA claimed seven thousand people watched [[the president's]] speech at their convention, but an actual count showed only about a thousand people in the auditorium.
 
 ### AF 2023-07-20 1189
 (01:52:34) [[Nicholas J. Fuentes]] recounted a dream he had two months before the "[[Nicholas J. Fuentes|Groyper]] War" in 2019, where he was kicked out of a Turning Point USA event for asking a question about [[Israel]], which he saw as a premonition of the events that made him famous.
@@ -622,7 +622,7 @@
 (01:54:08) [[Nicholas J. Fuentes]] commented on a video exposé by a [[Groyper]] about a degenerate party hosted by Turning Point USA influencers [[Lance Videos]] and [[Joe Busrawi]] at [[AmericaFest]], praising the video's quality while razzing its "corny" intro.
 
 ### AF 2022-01-06 0930
-(01:56:29) [[Nicholas J. Fuentes]] detailed the problems at a Turning Point USA [[AmericaFest]] party in [[City of Phoenix|Phoenix]], including underage drinking, "slutty girls" dancing in cages, and the venue being oversold so 500 people could not get in.
+(01:56:29) [[Nicholas J. Fuentes]] detailed the problems at a Turning Point USA [[AmericaFest]] party in [[Phoenix]], including underage drinking, "slutty girls" dancing in cages, and the venue being oversold so 500 people could not get in.
 
 ### AF 2022-01-05 0929
 (00:06:59) [[Nicholas J. Fuentes]] stated the upcoming [[AFPAC|AFPAC 3]] conference would be comparable in size to events held by Turning Point USA.
@@ -814,7 +814,7 @@
 (00:58:18) [[Nicholas J. Fuentes]] claimed that [[Charlie Kirk]] and Turning Point USA had lost touch with their original mission, prioritizing money and flashy conferences over substantive political action, such as supporting the "Stop the Steal" effort after the 2020 election.
 
 ### AF 2020-12-21 0737
-(01:00:01) [[Nicholas J. Fuentes]] stated that Turning Point USA had significant financial resources, with $30 million in annual revenue and $5 million in assets, but had done little to mobilize these resources for the "Stop the Steal" movement beyond one event in [[City of Phoenix|Phoenix]].
+(01:00:01) [[Nicholas J. Fuentes]] stated that Turning Point USA had significant financial resources, with $30 million in annual revenue and $5 million in assets, but had done little to mobilize these resources for the "Stop the Steal" movement beyond one event in [[Phoenix]].
 
 ### AF 2020-12-21 0737
 (01:02:33) [[Nicholas J. Fuentes]] argued that Turning Point USA's purpose was to steer young conservatives into supporting the political status quo, channeling them into organizations like the [[Heritage Foundation]] or staff positions with establishment [[Republican Party|Republicans]].
@@ -877,7 +877,7 @@
 (00:07:23) [[Nicholas J. Fuentes]] asserted that many Generation Z conservatives across various organizations, including Turning Point USA, exhibit a fascination with the [[Groyper]] movement.
 
 ### AF 2020-07-14 0640
-(00:42:46) [[Charlie Kirk]] of Turning Point USA would "say or do anything" to gain access to [[Donald Trump|the president]] or nominee to sell to his donors, according to [[Nicholas J. Fuentes]].
+(00:42:46) [[Charlie Kirk]] of Turning Point USA would "say or do anything" to gain access to [[the president]] or nominee to sell to his donors, according to [[Nicholas J. Fuentes]].
 
 ### AF 2020-07-07 0635
 (04:49:44) [[Charlie Kirk]]'s [[organization]], Turning Point Action, distributed signs reading "[[United States|America]] First. No apologies." at its events, which [[Nicholas J. Fuentes]] viewed as a cynical attempt to co-opt his movement's slogan.
@@ -1099,7 +1099,7 @@
 (01:07:20:48) [[Nicholas J. Fuentes]] cited [[Benny Johnson]] as an example of the double standard in conservative circles, where [[Boris Johnson|Johnson]]'s personal conduct did not preclude him from speaking at the Turning Point USA SAS conference.
 
 ### AF 2019-12-23 0517
-(01:26:35) [[Nicholas J. Fuentes]] recounted an encounter on a flight from [[City of Las Vegas|Las Vegas]] to [[City of Chicago|Chicago]] with a [[Jews|Jewish]], Zionist member of Turning Point USA.
+(01:26:35) [[Nicholas J. Fuentes]] recounted an encounter on a flight from [[Las Vegas]] to [[Chicago]] with a [[Jews|Jewish]], Zionist member of Turning Point USA.
 
 ### AF 2019-12-23 0517
 (01:27:17) During the flight encounter, [[Nicholas J. Fuentes]] told the Turning Point USA member that his movement would win and normalize its activities within a year.
@@ -1291,7 +1291,7 @@
 (00:02:36) The [[Young America's Foundation]] released an internal memo on May 25, 2018, detailing allegations of unethical and illegal business practices by Turning Point USA.
 
 ### AF 2019-11-07 0494
-(00:07:58) The [[Young America's Foundation]] memo accused Turning Point USA of having members [[who]] attended the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally and harboring racists within its [[organization]].
+(00:07:58) The [[Young America's Foundation]] memo accused Turning Point USA of having members [[who]] attended the [[Charlottesville]] "Unite the Right" rally and harboring racists within its [[organization]].
 
 ### AF 2019-11-07 0494
 (00:08:27) [[Dan Crenshaw]] is scheduled to appear at [[Arizona State University]] for Turning Point USA's "Culture War" campus tour.
@@ -1303,7 +1303,7 @@
 (00:14:42) Employees of [[The Daily Wire]], including [[Ben Shapiro]], are ideologically aligned and personally loyal to him, unlike the more decentralized activist structure of Turning Point USA.
 
 ### AF 2019-11-07 0494
-(00:22:58) [[Donald Trump Jr.]]'s appearance at a Turning Point USA event at [[University of California, Los Angeles|UCLA]] will involve heightened security similar to airport screenings due to his status as [[Donald Trump|the president's]] son.
+(00:22:58) [[Donald Trump Jr.]]'s appearance at a Turning Point USA event at [[University of California, Los Angeles|UCLA]] will involve heightened security similar to airport screenings due to his status as [[the president's]] son.
 
 ### AF 2019-11-07 0494
 (00:40:48) Turning Point USA, founded in 2012 by [[Charlie Kirk]], initially claimed to be the umbrella [[organization]] for the entire young conservative movement, encompassing groups like the [[Young America's Foundation]] and the [[Leadership Institute]].
@@ -1657,7 +1657,7 @@
 (02:11:84) [[Madeleine Fry]] cited the example of [[Steven King|Steve King]] being stripped of his congressional committees as a precedent for Turning Point USA demanding better of its ambassadors.
 
 ### AF 2019-09-19 0465
-(14:59:64) [[Nicholas J. Fuentes]] argued that mainstream conservative opinion, as seen on [[Fox News]] and from Turning Point USA, attributes rising crime in cities like [[City of Minneapolis|Minneapolis]] solely to [[Democratic Party|Democratic]] policy, not racial demographics.
+(14:59:64) [[Nicholas J. Fuentes]] argued that mainstream conservative opinion, as seen on [[Fox News]] and from Turning Point USA, attributes rising crime in cities like [[Minneapolis]] solely to [[Democratic Party|Democratic]] policy, not racial demographics.
 
 ### AF 2019-09-04 0454
 (01:16:17) A college [[organization]] [[fair]] featured booths for Turning Point USA and a pro-[[Israel]] student group positioned next to each other.
@@ -1690,7 +1690,7 @@
 (01:45:45:020) A viewer claimed that while out with his [[black]] girlfriend with an [[United States|America]] First mug, someone from Turning Point USA called him a "Nicker lover," which traumatized him.
 
 ### AF 2019-05-23 0393
-(00:01:39) [[Kyle Kashuv]], a pro-gun [[City of Parkland|Parkland]] shooting survivor and former member of Turning Point USA, was reported to have made racist and offensive comments against [[black]] people and [[Jews]] in text messages, Skype conversations, and a shared [[Google]] document.
+(00:01:39) [[Kyle Kashuv]], a pro-gun [[Parkland]] shooting survivor and former member of Turning Point USA, was reported to have made racist and offensive comments against [[black]] people and [[Jews]] in text messages, Skype conversations, and a shared [[Google]] document.
 
 ### AF 2019-05-23 0393
 (00:03:18) Turning Point USA publicly stated that [[Nicholas J. Fuentes]] was not an authorized speaker for their [[organization]] after he spoke at [[Iowa State University]].
@@ -1735,7 +1735,7 @@
 (00:42:44) [[Charlie Kirk]], the founder of Turning Point USA, was cited as an example of free market advocates whose ideology was criticized for ignoring the negative impact of immigration driven by corporate interests.
 
 ### AF 2019-02-08 0328
-(01:23:20) [[Nicholas J. Fuentes]] commented on a resurfaced video from December showing [[Candace Owens]], communications director for Turning Point USA, making remarks about [[Adolf Hitler]] and nationalism at an event in [[City of London|London]].
+(01:23:20) [[Nicholas J. Fuentes]] commented on a resurfaced video from December showing [[Candace Owens]], communications director for Turning Point USA, making remarks about [[Adolf Hitler]] and nationalism at an event in [[London]].
 
 ### AF 2019-02-08 0328
 (01:37:11) [[Nicholas J. Fuentes]] criticized [[Candace Owens]] as a "diversity hire" and suggested Turning Point USA should follow its own advice on meritocracy, implying her position was due to identity politics.
@@ -1795,7 +1795,7 @@
 (01:00:58) [[Nicholas J. Fuentes]] argued that the movement needs a renewed evangelism for [[Catholic]] and classical ideas, creating easily consumable resources like those produced by Turning Point USA, the [[Leadership Institute]], or the [[Ayn Rand Institute]] for [[Milton Friedman]] or [[Ayn Rand]], to make thinkers like [[Augustine]], [[Aquinas]], [[Plato]], and [[Aristotle]] accessible and popularize traditionalism.
 
 ### AF 2017-10-19 0035
-(00:12:49) [[Nicholas J. Fuentes]] criticized the stage optics of the [[City of Gainesville|Gainesville]] event, noting the lack of a podium, poor lighting, and the awkward positioning of [[Eli Mosley]] and [[Enoch Spencer]] on stage, contrasting this with the professional event training provided by organizations like the [[Leadership Institute]] and Turning Point USA.
+(00:12:49) [[Nicholas J. Fuentes]] criticized the stage optics of the [[Gainesville]] event, noting the lack of a podium, poor lighting, and the awkward positioning of [[Eli Mosley]] and [[Enoch Spencer]] on stage, contrasting this with the professional event training provided by organizations like the [[Leadership Institute]] and Turning Point USA.
 
 ### AF 2017-10-19 0035
 (00:25:50) [[Nicholas J. Fuentes]] mocked a Turning Point USA demonstration at [[Kent State University]] where a member wore a diaper and crawled on the ground to protest safe spaces, calling it a "clown show" that made the conservative movement look unserious and perverted.
@@ -1808,3 +1808,84 @@
 
 ### AF 2017-08-30 0005
 (01:01:08:49) [[Nicholas J. Fuentes]] criticized Turning Point USA for focusing exclusively on capitalism and issues like marginal tax rates instead of concerns like immigration or national debt that he argued are more relevant to young people.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:39:07) Turning Point USA activists countered [[Nicholas J. Fuentes|Groyper]] criticisms by arguing that [[Donald Trump]] supported legal immigration, was pro-[[Israel]], endorsed [[Lindsey Graham]], and was pro-gay and pro-trans, being friends with [[Caitlyn Jenner]].
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:32:40.450) [[Nicholas J. Fuentes]] criticized the conservative alternative halftime show organized by Turning Point USA featuring [[Kid Rock]], calling it a "tough watch" and stating "if that's the best we have to offer, honestly, I'm switching sides."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:50:20.320) [[Nicholas J. Fuentes]] criticized Turning Point USA for organizing an alternative show, asking, "what's even the point other than to say, we're just protesting all of that. Cause it's in Spanish."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:52:06.870) [[Nicholas J. Fuentes]] contrasted the "triumphant" and "expansive inspiring vision" of the [[Bad Bunny]] show with what he called the "loser festival" of the Turning Point USA show.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:35:40) [[Nicholas J. Fuentes]] characterized [[Charlie Kirk]] as a surrogate for the [[Republican Party|GOP]] and [[Donald Trump]], whose [[organization]] Turning Point USA is adept at defending the [[Republican Party|GOP]] and getting people to vote for [[Donald Trump|Trump]] regardless of consistency on issues like abortion, immigration, or foreign policy.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:44:31) [[Nicholas J. Fuentes]] traced the evolution of the conspiracy: it started with someone embezzling money at Turning Point USA, then turned into [[Israel]] killing him for turning against them, then [[Israel]], [[France]], [[Arab Republic of Egypt|Egypt]], and the [[United States]] all working together, and finally the idea that he was an indigo child groomed by extraterrestrials to break the “space-[[time]] continuum.”
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:22:38) [[JD Vance]], in a speech at a Turning Point USA event, stated that "[[Donald Trump|President Trump]] did not build the greatest coalition in politics by running his supporters through endless self-defeating purity tests," and added that "if you love [[United States|America]], you have a home on this team."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:32:26) [[Nicholas J. Fuentes]] claimed that [[Tucker Carlson]], Turning Point USA, and [[Elon Musk]] are all telling the public that the decision for the 2028 [[Republican Party|Republican]] nominee has already been made: [[JD Vance]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:15:08) [[Nicholas J. Fuentes]] announced that Turning Point USA will host a live stream on December 15th to address the allegations, and that [[Candace Owens]] will react to it.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:27:04) [[Nicholas J. Fuentes]] reported that Blake Neff, the architect of the [[Charlie Kirk]] podcast, announced that Turning Point USA will host a live stream on December 15th in [[Phoenix]] to formally address the conspiracy theories.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:30:32) [[Nicholas J. Fuentes]] reported that [[Erika Frantz Kirk|Erika Kirk]] said people can attack her, but not her family and Turning Point USA, and that she will never back down.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:31:29) [[Nicholas J. Fuentes]] argued that Turning Point USA's response is calculated, fake, and a public relations strategy that is not working.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:33:21) [[Nicholas J. Fuentes]] argued that Turning Point USA is a "grift operation" made up of phony, calculating political opportunists like Jack Paso and Andrew Culver.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:35:54) [[Nicholas J. Fuentes]] argued that Turning Point USA needs to address the accusations head-on and go on the offensive, rather than pretending to take the high road.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:38:05) [[Nicholas J. Fuentes]] argued that [[Erika Frantz Kirk|Erika Kirk]] and Turning Point USA are losing the public relations battle because [[Candace Owens]] is dominating the conversation.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:40:36) [[Nicholas J. Fuentes]] stated that, as an objective observer, Turning Point USA is getting their "asses kicked."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:57:44) [[Nicholas J. Fuentes]] criticized [[Tucker Carlson]] for acting like a regular [[person]] while being worth $50 million, citing an example of [[Tucker Carlson]] bringing his dog to a Turning Point USA event.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:04:09) [[Nicholas J. Fuentes]] argued that Turning Point USA cannot effectively fight [[Candace Owens]] because they are "two sides of the same coin" — both are shameless, cynical opportunists.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:04:50) [[Nicholas J. Fuentes]] cited as evidence of Turning Point USA's cynicism a rally with pyrotechnics and [[Erika Frantz Kirk|Erika Kirk]] walking on stage in a white pants suit.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:08:45) [[Nicholas J. Fuentes]] asserted that in May 2024, [[Charlie Kirk]] created a separate website specifically for his [[Jews|Jewish]] donors, featuring a disclaimer stating that [[Candace Owens]] has nothing to do with Turning Point USA.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:08:45) [[Nicholas J. Fuentes]] stated that [[Charlie Kirk]]'s website was an open letter to [[Jews|Jewish]] donors, emphasizing Turning Point USA's support for [[Israel]] and distancing the [[organization]] from [[Candace Owens]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:14:34) [[Nicholas J. Fuentes]] threatened to "blow a gaping hole" in [[Candace Owens]]'s credibility if Turning Point USA is not successful in stopping her, promising to expose stories about her husband and donors.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:32:23) [[Nicholas J. Fuentes]] stated that only Turning Point USA can stop [[Candace Owens]], but that he will do it if they cannot.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:39:15) [[Nicholas J. Fuentes]] stated that [[Candace Owens]] was with [[The Daily Wire]] and Turning Point USA, is still on [[Google|YouTube]], and is playing the martyr, while [[he]] was actually put on a no-fly list and censored for 10 years.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:44:29) [[Nicholas J. Fuentes]] defended his criticism of [[Candace Owens]], noting that he has been more critical of Turning Point USA than anyone, and that she was on their roster until months ago.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:31:56) [[Nicholas J. Fuentes]] stated he is waiting for the Turning Point USA live stream on December 15th to respond to [[Candace Owens]], and if they don't do a good job, he will "expose [[Candace Owens]] for what she really is."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:34:11) [[Nicholas J. Fuentes]] threatened to "put her in a coffin metaphorically" if Turning Point USA doesn't do a good job on December 15th.

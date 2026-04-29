@@ -21,7 +21,7 @@
 (00:38:53) Steve Mnuchin emphasized the urgency of distributing stimulus checks within three weeks, as a payroll tax cut would have taken six to eight months to impact the economy.
 
 ### AF 2020-03-17 0566
-(00:02:14) Treasury Secretary and [[Donald Trump|the president]] suggested the direct cash payments could be more than the floated $1,000 figure during a press conference.
+(00:02:14) Treasury Secretary and [[the president]] suggested the direct cash payments could be more than the floated $1,000 figure during a press conference.
 
 ### AF 2020-03-17 0566
 (00:44:46) [[Donald Trump]] held daily press conferences with a team including [[Vice President Pence]], Treasury Secretary Mnuchin, and [[Dr. Fauci]] to provide updates and coordinate the federal coronavirus response.

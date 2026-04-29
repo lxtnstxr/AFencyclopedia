@@ -148,10 +148,16 @@
 (01:46:03) [[Nicholas J. Fuentes]] agreed with an assessment that his abstention from drugs and relationships was an underrated contributor to his success, similar to [[Donald Trump|Trump]], [[Warren Buffett|Buffett]], and Carolus Rex.
 
 ### AF 2020-09-16 0682
-(08:25:380) Following the [[City of Miami|Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with Milo Yiannopoulos, traveled to [[City of Phoenix|Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
+(08:25:380) Following the [[Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with Milo Yiannopoulos, traveled to [[Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
 
 ### AF 2020-09-15 0681
 (01:09:32:90) [[Nicholas J. Fuentes]] dismissed critics [[who]] attack him by association, such as posting pictures of him with Milo Yiannopoulos or noting he streamed with someone [[who]] posted questionable content.
 
 ### AF 2020-06-26 0630
-(02:06:27) [[Nicholas J. Fuentes]] noted a breaking news report that Milo Yiannopoulos was giving the [[Federal Bureau of Investigation|FBI]] information from his "vault" to help convict people arrested at the [[City of Charlottesville|Charlottesville rally]].
+(02:06:27) [[Nicholas J. Fuentes]] noted a breaking news report that Milo Yiannopoulos was giving the [[Federal Bureau of Investigation|FBI]] information from his "vault" to help convict people arrested at the [[Charlottesville rally]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:40:43) [[Iran|Iranian]] Foreign Minister Abbas Aragchi said that Tuesday's talks were more substantive and that both sides presented ideas aimed at crafting an agreement, and agreed to exchange texts to create the framework for a deal.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:41:41) [[Nicholas J. Fuentes]] stated his disagreement with [[Dave Smith]] for saying that Michael Tracy should be killed for his position on [[Jeffrey Epstein]].

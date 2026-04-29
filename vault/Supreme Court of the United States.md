@@ -739,3 +739,15 @@
 
 ### AF 2017-10-11 0029
 (00:10:33) [[Wilt Chamberlain|Will Chamberlain]] argued that the "general welfare" clause of the [[U.S. Constitution]] has been construed broadly by the Supreme Court and that spending to prevent a major war easily meets this standard.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:18:30) The Supreme Court rejected [[Donald Trump]]'s tariffs.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:05:27) [[Nicholas J. Fuentes]] noted that the Supreme Court "handed down the decision striking down the tariffs," which he said contributed to the administration's problems.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:09:21) [[Nicholas J. Fuentes]] reported that the Supreme Court struck down [[Donald Trump|Trump]]'s emergency tariffs, forcing the government to provide a refund of $150 billion plus interest to the firms that paid them.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:14:04) [[Nicholas J. Fuentes]] commented on a female justice of the Supreme Court, comparing her appearance to [[Elliot Page]].

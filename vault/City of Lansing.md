@@ -6,7 +6,7 @@
 
 
 ### AF 2020-12-14 0733
-(00:15:03) [[Nicholas J. Fuentes]] noted that he had traveled to rally at state capitals in [[City of Phoenix|Phoenix]], [[Harrisburg]], [[Atlanta]], and Lansing during the Stop the Steal effort but was not permitted to speak at the official [[Washington D.C.|Washington, D.C.]] events.
+(00:15:03) [[Nicholas J. Fuentes]] noted that he had traveled to rally at state capitals in [[Phoenix]], [[Harrisburg]], [[Atlanta]], and Lansing during the Stop the Steal effort but was not permitted to speak at the official [[Washington D.C.|Washington, D.C.]] events.
 
 ### AF 2020-12-07 0729
 (00:20:20) [[Nicholas J. Fuentes]]'s rally in [[Harrisburg]] was the first event organized exclusively by his [[America First]] movement since a rally in Lansing, [[State of Michigan|Michigan]].
@@ -27,10 +27,10 @@
 (00:06:10) [[Nicholas J. Fuentes]] announced he would host a second "Stop the Steal" rally at the State [[United States Capitol|Capitol]] building in Lansing, [[State of Michigan|Michigan]] at noon on Wednesday.
 
 ### AF 2020-11-06 0718
-(04:51:40) Organized protests were scheduled for November 7th, 2020, at noon at the state capitols in [[City of Phoenix|Phoenix]], [[Arizona]]; [[Harrisburg]], [[Commonwealth of Pennsylvania|Pennsylvania]]; [[Atlanta]], [[Country of Georgia|Georgia]]; [[Carson City]], [[State of Nevada|Nevada]]; Lansing, [[State of Michigan|Michigan]]; and [[Madison]], [[Wisconsin]].
+(04:51:40) Organized protests were scheduled for November 7th, 2020, at noon at the state capitols in [[Phoenix]], [[Arizona]]; [[Harrisburg]], [[Commonwealth of Pennsylvania|Pennsylvania]]; [[Atlanta]], [[Country of Georgia|Georgia]]; [[Carson City]], [[State of Nevada|Nevada]]; Lansing, [[State of Michigan|Michigan]]; and [[Madison]], [[Wisconsin]].
 
 ### AF 2020-08-17 0662
 (02:06:00) [[Gretchen Whitmer|Governor Gretchen Whitmer]] of [[State of Michigan|Michigan]] spoke from a [[UAW]] hall in Lansing, crediting the [[Obama-Biden]] administration with saving the auto industry and criticizing [[Donald Trump]]'s pandemic response, while arguing essential workers were the nation's MVPs.
 
 ### AF 2021-05-13 0000
-(00:15:18) [[Nicholas J. Fuentes]] personally attended protest rallies in the [[state]] capitals of Lansing, [[City of Phoenix|Phoenix]], [[Atlanta]], and [[Harrisburg]] to demand independent audits of the 2020 election.
+(00:15:18) [[Nicholas J. Fuentes]] personally attended protest rallies in the [[state]] capitals of Lansing, [[Phoenix]], [[Atlanta]], and [[Harrisburg]] to demand independent audits of the 2020 election.

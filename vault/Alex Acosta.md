@@ -30,4 +30,10 @@
 (00:37:28) [[Nicholas J. Fuentes]] noted that commentators like [[Cabot Phillips]], Alex Sears, and [[Cassie]] had all visited [[Israel]].
 
 ### AF 2017-08-30 0005
-(01:00:47:51) [[Nicholas J. Fuentes]] pointed out that young conservatives like [[Cabot Phillips]], Alex Sears, and [[Kassy Dillon]] are often sent to [[Israel]], questioning why they aren't sent to cities like [[Athens]], [[Rome]], [[City of London|London]], or [[City of Philadelphia|Philadelphia]] which he claimed built [[United States|America]].
+(01:00:47:51) [[Nicholas J. Fuentes]] pointed out that young conservatives like [[Cabot Phillips]], Alex Sears, and [[Kassy Dillon]] are often sent to [[Israel]], questioning why they aren't sent to cities like [[Athens]], [[Rome]], [[London]], or [[Philadelphia]] which he claimed built [[United States|America]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:05:10) [[Nicholas J. Fuentes]] traced a "through line" of lookism and inceldom from [[Elliot Rodger]] and Alec Minassian through [[Andrew Tate]] in 2022 to [[Clavicular]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:00:55) [[Nicholas J. Fuentes]] summarized the [[known]] story of [[Jeffrey Epstein]], starting with his conviction in the late 2000s for sex trafficking, his sweetheart plea deal negotiated by [[Alan Dershowitz]] and Alex Acosta, his mysterious death in prison, and the speculation that he was killed for his secrets.

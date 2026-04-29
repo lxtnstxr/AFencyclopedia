@@ -33,10 +33,10 @@
 (02:09:38) [[Nicholas J. Fuentes]] noted that [[Russians]] historically fashion themselves as the "third Rome," a succession from Rome to Constantinople to [[Moscow]].
 
 ### AF 2021-08-20 0860
-(03:02:34) [[Nicholas J. Fuentes]] stated that [[Russians]] historically fashion themselves as the "third Rome," following Rome and [[City of Istanbul|Constantinople]].
+(03:02:34) [[Nicholas J. Fuentes]] stated that [[Russians]] historically fashion themselves as the "third Rome," following Rome and [[Constantinople]].
 
 ### AF 2021-05-11 0809
-(00:44:46) [[Nicholas J. Fuentes]] described a historical narrative where [[Jews|Jewish people]], after being expelled by the Roman Empire, sought to establish a homeland in [[Gaza Strip|Palestine]] in the 19th century, a movement [[known]] as Zionism.
+(00:44:46) [[Nicholas J. Fuentes]] described a historical narrative where [[Jews|Jewish people]], after being expelled by the Roman Empire, sought to establish a homeland in [[Palestine]] in the 19th century, a movement [[known]] as Zionism.
 
 ### AF 2021-03-24 0779
 (02:33:56) [[Nicholas J. Fuentes]] considers [[Italian]]-[[United States|America]]ns to embody the quintessential human experience, with a history encompassing the Romans, the [[Church]], the Renaissance, fascism, and the [[United States|America]]n mob.
@@ -84,13 +84,13 @@
 (05:42:36) [[Nicholas J. Fuentes]] stated he attends a local Novus Ordo mass in communion with Rome rather than traveling for a Latin Mass, prioritizing the Eucharist over specific rites.
 
 ### AF 2019-03-29 0357
-(57:48:440) [[Nicholas J. Fuentes]] explained that [[Jews|Jewish people]] are a diaspora, with [[Ashkenazi Jews]] originating in [[Europe|Eastern Europe]], [[Sephardic Jews]] from the [[Middle East]], and [[Ethiopian Jews]], all claiming descent from tribes expelled from [[Gaza Strip|Palestine]] by the Roman Empire.
+(57:48:440) [[Nicholas J. Fuentes]] explained that [[Jews|Jewish people]] are a diaspora, with [[Ashkenazi Jews]] originating in [[Europe|Eastern Europe]], [[Sephardic Jews]] from the [[Middle East]], and [[Ethiopian Jews]], all claiming descent from tribes expelled from [[Palestine]] by the Roman Empire.
 
 ### AF 2019-01-04 0306
 (00:53:37) The caller "Real Question" argued that ancient advanced civilizations like those in [[Pakistan]] and the [[Middle East]] predated [[Greece]] and Rome, challenging the idea that high IQ is tied solely to Northern [[Europe|European]] advancement.
 
 ### AF 2018-12-20 0300
-(01:02:30) [[Nicholas J. Fuentes]] dismissed the idea of joining the [[Eastern Orthodox Church]], arguing it lacks the authority of Rome or [[City of Jerusalem|Jerusalem]].
+(01:02:30) [[Nicholas J. Fuentes]] dismissed the idea of joining the [[Eastern Orthodox Church]], arguing it lacks the authority of Rome or [[Jerusalem]].
 
 ### AF 2018-10-31 0273
 (01:51:03) [[Nicholas J. Fuentes]] and a caller named Saxon mocked Nordic pagans and "the Nordic far right" for advocating secular democracy, with [[Fuentes]] stating that [[Mediterranean Sea|Mediterranean]] cultures like [[Italian Republic|Italy]] and [[Spain]] are superior, having produced the Roman Empire, unlike Northern [[Europe|Europeans]].
@@ -102,10 +102,10 @@
 (50:01:00) The Lutheran caller debated [[Nicholas J. Fuentes]] on the doctrine of Sola Fide (faith alone), citing New Testament passages from [[Ephesians]], [[Galatians]], and Romans, while [[Nicholas J. Fuentes]] countered by referencing the Epistle of James which states "not by faith alone."
 
 ### AF 2018-09-21 0245
-(36:00:19) [[Nicholas J. Fuentes]] stated that the [[Eastern Orthodox Church]] agreed at the [[Council of Florence]] that Rome held primacy, a position they reversed after the fall of [[City of Istanbul|Constantinople]] to the Saracens.
+(36:00:19) [[Nicholas J. Fuentes]] stated that the [[Eastern Orthodox Church]] agreed at the [[Council of Florence]] that Rome held primacy, a position they reversed after the fall of [[Constantinople]] to the Saracens.
 
 ### AF 2018-09-21 0245
-(40:59:25) [[Nicholas J. Fuentes]] contrasted the enduring 2,000-year history and global evangelization of the [[Catholic Church]] in Rome with the [[Eastern Orthodox Church]], whose center in [[City of Istanbul|Constantinople]] fell and whose influence in [[Russia]] was later challenged by the [[Bolshevik Revolution]].
+(40:59:25) [[Nicholas J. Fuentes]] contrasted the enduring 2,000-year history and global evangelization of the [[Catholic Church]] in Rome with the [[Eastern Orthodox Church]], whose center in [[Constantinople]] fell and whose influence in [[Russia]] was later challenged by the [[Bolshevik Revolution]].
 
 ### AF 2018-07-06 0195
 (02:00:10) [[Nicholas J. Fuentes]] cited the historical conflict in the Roman Empire between the traditionalist countryside, represented by figures like [[Cato the Elder]], and the progressive urban centers.
@@ -138,7 +138,40 @@
 (01:15:13.130) [[Nicholas J. Fuentes]] said his favorite ancient [[time]] period was that of the Romans, citing his Italian [[heritage]], despite a friend's ribbing that modern [[Italian Republic|Italians]] are not direct descendants of Romans.
 
 ### AF 2017-08-30 0005
-(01:00:47:51) [[Nicholas J. Fuentes]] pointed out that young conservatives like [[Cabot Phillips]], [[Alex Acosta|Alex Sears]], and [[Kassy Dillon]] are often sent to [[Israel]], questioning why they aren't sent to cities like [[Athens]], Rome, [[City of London|London]], or [[City of Philadelphia|Philadelphia]] which he claimed built [[United States|America]].
+(01:00:47:51) [[Nicholas J. Fuentes]] pointed out that young conservatives like [[Cabot Phillips]], [[Alex Acosta|Alex Sears]], and [[Kassy Dillon]] are often sent to [[Israel]], questioning why they aren't sent to cities like [[Athens]], Rome, [[London]], or [[Philadelphia]] which he claimed built [[United States|America]].
 
 ### AF 2017-08-29 0004
 (00:09:50) [[The Guardian]] published an article by [[Kwame Apaya]] titled "There is no such thing as western civilization," which argued that Western civilization is not a coherent historical continuum from [[Greece]] and Rome to the present.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:54:47) [[Nicholas J. Fuentes]] connected with [[Keith Wood|Keith Woods]] in Rome, where they created content and spent [[time]] together.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:55:12) [[Nicholas J. Fuentes]] noted the "insane coincidence" that [[Candace Owens]] also took an unannounced trip to [[Italian Republic|Italy]] and visited Rome during the same week he was there.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:55:29) An unnamed [[Jews|Jewish]] source reportedly told [[Laura Loomer]] that [[Candace Owens]] arrived in Rome, leading [[Nicholas J. Fuentes]] to believe his simultaneous presence there would be seen as an unlikely coincidence.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:57:39) [[Nicholas J. Fuentes]] spent [[time]] driving around Rome with [[Keith Wood|Keith Woods]], noting that [[Keith Wood|Keith Woods]] forgot his fries and their car almost ran out of charge due to incorrect charging stations.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:58:02) [[Nicholas J. Fuentes]] and [[Keith Wood|Keith Woods]] created a travel vlog in Rome, adopting a "comedians and cars getting coffee" style, avoiding political discussions like the [[Hungary|Hungarian]] election or white nationalism.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:59:05) [[Nicholas J. Fuentes]] reflected on the saying "all roads lead to Rome" as he returned to the [[city]] to "find himself."
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:54:15) [[Steve Wittkoff|Steve Witkoff]] and other negotiators went to [[Oman]], Rome, and other locations to make a deal during the 60-day period.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:15:29:31) [[Nicholas J. Fuentes]] stated that he is an [[United States|American]] nationalist, tracing [[United States|America]]'s roots to [[Europe]], [[Christianity]], [[Greece]], and Rome, whereas [[Jews|Jewish]] nationalists have a different story of enmity with the same peoples.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:33:12) [[Nicholas J. Fuentes]] criticized [[J. R. R. Tolkien]] and [[Lord of the Rings]], stating [[J. R. R. Tolkien|Tolkien]] hated the [[British Empire]], Rome, and colonialism, and wrote a book about "weak vulnerable midgets and hobbits" [[who]] overcome power with the "magic of friendship."
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:44:17) [[Nicholas J. Fuentes]] stated that ethnic enclaves in major cities will continue to grow "until there's nothing left," citing [[London]], [[Paris]], [[Berlin]], Rome, [[Madrid]], [[New York]], [[Chicago]], and [[Los Angeles]] as already lost.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:04:46:370) [[Nicholas J. Fuentes]] stated that he sides with Rome despite others claiming it is satanic.Here is the chronological knowledge log derived from the provided transcript.

@@ -1146,7 +1146,7 @@
 (00:52:44) [[Nicholas J. Fuentes]] announced the topics for the show would be a potential immigration deal, recent comments from Candace Owens, and political developments in [[State of Virginia|Virginia]].
 
 ### AF 2019-02-08 0328
-(01:23:20) [[Nicholas J. Fuentes]] commented on a resurfaced video from December showing Candace Owens, communications director for [[Turning Point USA]], making remarks about [[Adolf Hitler]] and nationalism at an event in [[City of London|London]].
+(01:23:20) [[Nicholas J. Fuentes]] commented on a resurfaced video from December showing Candace Owens, communications director for [[Turning Point USA]], making remarks about [[Adolf Hitler]] and nationalism at an event in [[London]].
 
 ### AF 2019-02-08 0328
 (01:23:52) [[Nicholas J. Fuentes]] quoted Candace Owens as saying, "If [[Adolf Hitler|Hitler]] just wanted to make [[Germany]] great and have things run well, okay, fine," and that his error was wanting to "globalize" and make "everybody to be [[Germany|German]]."
@@ -1216,3 +1216,486 @@
 
 ### AF 2017-12-01 0062
 (00:48:47) [[Nicholas J. Fuentes]] questioned why [[Alex Jones]] hosts figures like [[Laura Loomer]], Candace Owens, and [[Joy Villa]] but will not host figures like himself or [[James Allsup]] to discuss issues like white demographic change.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:55:12) [[Nicholas J. Fuentes]] noted the "insane coincidence" that Candace Owens also took an unannounced trip to [[Italian Republic|Italy]] and visited [[Rome]] during the same week he was there.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:55:29) An unnamed [[Jews|Jewish]] source reportedly told [[Laura Loomer]] that Candace Owens arrived in [[Rome]], leading [[Nicholas J. Fuentes]] to believe his simultaneous presence there would be seen as an unlikely coincidence.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:55:54) [[Nicholas J. Fuentes]] stated that he and Candace Owens were "estranged" and not in communication, clarifying he was unaware of her travel plans.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:56:59) [[Nicholas J. Fuentes]] denied meeting with the [[Vatican]], [[Barack Obama]], and Candace Owens to plot against [[Donald Trump]], jokingly adding he would have taken the meeting if offered.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:37:21.430) Earlier today, [[Donald Trump]] made a post on [[Cozy.tv|Truth Social]] criticizing [[Alex Jones]], [[Megyn Kelly|Megan Kelly]], [[Tucker Carlson]], and Candace Owens.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:38:07.370) [[Donald Trump]] published a 500-word post on [[Cozy.tv|Truth Social]], condemning major [[Israel]]-critical and anti-war commentators like [[Alex Jones]], Candace Owens, [[Tucker Carlson]], and [[Megyn Kelly|Megan Kelly]], whom he referred to as "bankrupt," "crazy," and by other derogatory terms.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:07.840) [[Donald Trump]] humorously suggested that [[Brigitte Macron]] was "far prettier" than Candace Owens, after Candace Owens allegedly claimed the First Lady of [[France]] was a man.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:29.710) All the individuals criticized by [[Donald Trump]] in his [[Cozy.tv|Truth Social]] post, including [[Tucker Carlson]], Candace Owens, [[Alex Jones]], and [[Megyn Kelly|Megan Kelly]], had previously voted for him.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:45:58.180) *[[The Wall Street Journal]]* reported that [[Donald Trump]] labeled [[Tucker Carlson]], [[Megyn Kelly]], Candace Owens, and [[Alex Jones]] as "losers and stupid people" in a 500-word [[Cozy.tv|Truth Social]] post on Thursday, accusing them of seeking publicity and saying anything for it.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:46:52.730) [[Donald Trump]]'s 500-word post on [[Cozy.tv|Truth Social]] launched a "devastating" attack on [[Alex Jones]], [[Megyn Kelly]], Candace Owens, [[Tucker Carlson]], and [[Marjorie Taylor Greene|Marjorie Greene]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:47:17.360) [[Donald Trump]] stated that [[Tucker Carlson]], [[Megyn Kelly]], Candace Owens, and [[Alex Jones]] had "low IQs" and were "stupid people" [[who]] had been "fighting" him for years.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:47:51.790) [[Donald Trump]] asserted that [[Tucker Carlson]], [[Megyn Kelly]], Candace Owens, and [[Alex Jones]] had been "thrown off television" and "lost their shows" because "nobody cares about them."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:02.590) [[Donald Trump]] claimed that [[Tucker Carlson]], [[Megyn Kelly]], Candace Owens, and [[Alex Jones]] were "nutjobs" and "troublemakers" [[who]] would "say anything necessary for some free and cheap publicity."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:13.080) [[Donald Trump]] declared that the views of [[Tucker Carlson]], [[Megyn Kelly|Megan Kelly]], Candace Owens, and [[Alex Jones]] were "the opposite of [[Donald Trump|MAGA]]."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:53.610) [[Donald Trump]] criticized "crazy Candace Owens" for falsely accusing the "highly respected First Lady of [[France]]" (referring to [[Brigitte Macron]]) of being a man, and suggested that [[Brigitte Macron]] was "far more beautiful" than Candace Owens.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:08.070) Candace Owens reportedly "hates" [[Nicholas J. Fuentes]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:18.610) [[Alex Jones]], [[Megyn Kelly]], [[Tucker Carlson]], and Candace Owens consistently supported and voted for [[Donald Trump]] for ten years.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:01:46.720) [[Tucker Carlson]], [[Megyn Kelly|Megan Kelly]], and Candace Owens, along with [[Alex Jones]], encouraged voters to support [[Donald Trump]] in 2024.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:05:59.420) [[Donald Trump]] is damaging the [[Donald Trump|MAGA]] movement by using [[Cozy.tv|Truth Social]] to declare that supporters of [[Mark Levin]] or his war in [[Iran]] are not [[Donald Trump|MAGA]], and that [[Tucker Carlson]], [[Megyn Kelly|Megan Kelly]], [[Alex Jones]], Candace Owens, and [[Marjorie Taylor Greene]] are "idiots."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:13:03.940) [[Donald Trump]], [[who]] advocated for "Golden Age, [[America First]], No New Wars, Mass Deportations," published a 500-word criticism of [[Megyn Kelly]], Candace Owens, [[Tucker Carlson]], [[Marjorie Taylor Greene]], and [[Alex Jones]] because they opposed a war with [[Iran]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:13:56.860) Candace Owens is characterized by [[Nicholas J. Fuentes]] as a "full-blown anti-Semite."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:39.040) As of 2026, [[Donald Trump]]'s [[Donald Trump|MAGA]] movement advocates for war with [[Iran]], opposing the release of the [[Jeffrey Epstein|Epstein]] files, and supports figures like [[Mark Levin]], [[Laura Loomer]], and [[Lindsey Graham]] over [[Tucker Carlson]], Candace Owens, [[Megyn Kelly]], and [[Alex Jones]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:26:03) Individuals such as [[Sneeko|Sneako]], [[Tucker Carlson]], and Candace Owens are belatedly acknowledging [[Donald Trump]] as "the problem," particularly after the [[United States]] entered into war with [[Iran]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:28:05) Candace Owens is advocating for the 25th Amendment to remove [[Donald Trump]] from office, acknowledging this need "a year and a half in" to his term.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:36:44) [[Nicholas J. Fuentes]] noted that figures like Candace Owens, [[Ian Carroll]], [[Dave Smith]], and [[Alex Jones]] all supported [[Donald Trump]] in 2024, either "because they were caught up in it or because they had no other choice."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:37:42) [[Nicholas J. Fuentes]] credited [[Tucker Carlson]], Candace Owens, and [[Dave Smith]] for now breaking from [[Donald Trump]], though "better late than never."
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:18:07) [[Nicholas J. Fuentes]] noted that Candace Owens described the war situation as a “debacle.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:28:55) [[Nicholas J. Fuentes]] announced a new t-shirt featuring himself and Candace Owens.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:54:58) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] claimed he knew for a fact that [[Erika Frantz Kirk|Erika Kirk]] was being followed by Egyptian planes, but that someone later paid for the same data, found it was bogus because Candace Owens entered the data incorrectly, and the story was never spoken of again.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:06:00) [[Nicholas J. Fuentes]] stated that Candace Owens was pushing the "Cazarian mafia" narrative and that Professor Qingchong Chang claimed [[Donald Trump]] wants to avoid another election.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:12:58) [[Nicholas J. Fuentes]] stated that Candace Owens is against the war with [[Iran]] but believes it is the work of the Khazarian mafia.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:13:03) [[Nicholas J. Fuentes]] stated that Candace Owens is incorrect, asserting that "it's the [[Jews]]."
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:38:41) [[Matt Walsh]] came out with a video strongly going after Candace Owens for attacking [[Erika Frantz Kirk|Erica Kirk]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:43:40) Candace Owens is running a show without any actual credible evidence regarding [[Erika Frantz Kirk|Erica Kirk]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:10:35:53) [[Nicholas J. Fuentes]] noted that this question about whether [[Israel]] is made up of "real [[Jews]]" is also raised by Candace Owens and others in the [[Israel]]-critical space.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:43:17:13) [[Nicholas J. Fuentes]] claimed that Candace Owens says [[Israel]] is all Khazarians, and that this is a narrative that protects "[[Israel]]-critical [[Jews]]."
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:53:50:11) [[Nicholas J. Fuentes]] stated that the narrative that [[Benjamin Netanyahu|Netanyahu]] is Polish is false and deceptive, and that it is being promoted by [[Alexander Dugin]], Candace Owens, [[Tucker Carlson]], and [[Ian Carroll]], which he characterized as seeming "very [[Russian Federation|Russian]]" and beneficial to Orthodox [[Jews]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:21:59) Kerry Pregine-Bowler disputed [[Seth Dillon]]'s criticisms of Candace Owens, stating she had never heard Candace Owens say anything antisemitic.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:30:12) Candace Owens quote-tweeted [[Nicholas J. Fuentes]] after he posted that he was not voting [[Republican Party|Republican]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:30:58) [[Nicholas J. Fuentes]] questioned the motives of Candace Owens for quote-tweeting him.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:10:03) [[Nicholas J. Fuentes]] reacted to a super-chatter named Candace Owens, stating that it is "scary" and that her super-fans might do something violent, like having a bomb in [[Centennial Park]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:13:33) [[Nicholas J. Fuentes]] argued that Candace Owens should be on a "stochastic terrorism watch list" for stating that [[Sam Altman]] is a robot and [[Charlie Kirk]] is a [[time]] traveler.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:58:04) Candace Owens proposed a theory that [[Israel]] is not controlled by [[Jews]], but by "Gypsies pretending to be [[Jews|Jewish]]" [[who]] are "Stephords of Caesarean Turks."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:09:59) [[Nicholas J. Fuentes]] described Candace Owens's anti-[[United States|American]] rhetoric as "[[Russian Federation|Russian]] propaganda" and "anti-Western propaganda."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:36:52) [[Nicholas J. Fuentes]] recounted watching Candace Owens' show and noted that she discussed [[Jeffrey Epstein|Epstein]] but eventually digressed into topics like [[Freud]], [[National Aeronautics and Space Administration|NASA]], and psychology, concluding that it was not about [[Jews]] vs. [[Christianity|Christians]] but about "Cazarians" [[who]] are really gypsies.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:42:40) [[Nicholas J. Fuentes]] criticized other "red-pilled anti-Semites" like [[Tucker Carlson]], Ian Carroll, and Candace Owens for using the refrain "it's not [[Jews]], it's Zionists" or "it's not [[Israel]], it's the [[Likud|Likud party]]."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:10:07) [[Nicholas J. Fuentes]] played a clip from Candace Owens' show, which had 1.1 million views, to illustrate a divide in how the [[Jeffrey Epstein]] case is being discussed.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:11:10) Candace Owens argued that "the people that we are fighting are effectively pagan Gypsies [[who]] have been wearing the cloak of Judaism" since the fall of the Khazar Empire.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:12:13) [[Nicholas J. Fuentes]] accused Candace Owens of being evasive by saying the conflict is not a war between monotheistic faiths ([[Christianity]], [[Judaism]], [[Islam]]) rather than directly saying it is not about [[Jews]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:15:40) [[Nicholas J. Fuentes]] characterized Candace Owens' "Khazarian mafia" theory as a myth that posits a secret group of "pagan Gypsies" have infiltrated all religions by pretending to be [[Jews|Jewish]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:16:56) [[Nicholas J. Fuentes]] linked Candace Owens' alliance with [[Basim Youssef]] and [[Dave Smith]] to her belief in the "Khazarian mafia," arguing that it allows her to claim "good [[Jews]]" exist and it is not a conflict between religions.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:30:07) [[Nicholas J. Fuentes]] rejected the "Khazarian mafia" theory propagated by Candace Owens as a distraction from the real story of [[Jeffrey Epstein]] being a [[Jews|Jew]] in the service of [[Israel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:53:49.100) [[Nicholas J. Fuentes]] criticized Candace Owens for sitting with [[Bassem Youssef]].
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(27:32:00) [[Nicholas J. Fuentes]] reported that Candace Owens commented on the snowstorm by stating she did not see the [[ice]] on her deck melting even though it was 30 degrees, which [[Nicholas J. Fuentes]] criticized as demonstrating she does not know that water freezes at 32 degrees Fahrenheit.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(27:34:00) [[Nicholas J. Fuentes]] mocked Candace Owens for being community-noted after claiming the [[ice]] was not melting at 30 degrees, and for her subsequent attempt at damage control where she claimed her deck is always 10 degrees warmer than the rest of the neighborhood.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(27:36:00) [[Nicholas J. Fuentes]] contrasted himself with Candace Owens, referring to a previous incident where she called him a "theater kid" and suggested grown men should not listen to him.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(27:37:00) [[Nicholas J. Fuentes]] criticized Candace Owens for her general ignorance, citing her mispronunciation of words like "debacle" and "architecture," and an argument with [[Bill Maher]] where she was unaware that [[United States]] astronauts returned to the moon multiple times.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(27:41:00) [[Nicholas J. Fuentes]] stated that the "biggest red pill" is that most people are "retarded," pointing to Candace Owens as one of the most popular podcasters.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(27:42:00) [[Nicholas J. Fuentes]] argued that if people are attracted to Candace Owens and think she is funny, then the audience is even "dumber than the influencers."
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:31:48:60) [[Nicholas J. Fuentes]] stated that Candace Owens agreed with [[Dave Smith]] on everything except the [[U.S. Immigration and Customs Enforcement|ICE]] killing in [[Minneapolis]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:16:51) [[Nicholas J. Fuentes]] stated that the fundamental difference between himself and Candace Owens is that he believes the world's conflict is a theological battle between [[Jacob]] and [[Esau]], or [[Jews]] and [[Christianity|Christians]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:17:50) [[Nicholas J. Fuentes]] reported that Candace Owens accused him of misrepresenting the global conflict as a battle of [[Jews]] versus [[Christianity|Christians]], whereas she believes it is a battle of Satanists against all God-fearing people.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:18:02) [[Nicholas J. Fuentes]] attributed Candace Owens's worldview to a "Frankist conspiracy," alleging she believes a Satanic cult originating from [[Jews|Jewish]] cabalists infiltrated all world religions 300 years ago.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:20:54) [[Nicholas J. Fuentes]] quoted Candace Owens as saying that [[Nicholas J. Fuentes]] is the [[person]] [[who]] told her "that people that are sub-saharan just don't have a high IQ."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:21:52) [[Nicholas J. Fuentes]] mocked Candace Owens for using the word "incursion" in her critique of psychology and [[Los Angeles|Hollywood]], comparing her to a "[[black]] [[person]] [[[who]]] learns a new word."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:22:38) [[Nicholas J. Fuentes]] quoted Candace Owens as calling his worldview "low IQ anti-semitism" because he identifies [[Jews]] as the main problem rather than a generic Satanic cult.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:24:54) [[Nicholas J. Fuentes]] recalled that he previously criticized Candace Owens for bringing [[Dave Smith]] on her show, calling Smith a "token" [[who]] does not believe "it's the [[Jews]]."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:25:44) [[Nicholas J. Fuentes]] vowed to investigate the intellectual origins of Candace Owens's "ritualistic satanic abuse" theory, claiming someone is feeding her the idea.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:26:04) [[Nicholas J. Fuentes]] quoted Candace Owens as describing the Satanists as "gypsies" [[who]] exist in every faith, and then criticized her for using that term.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:26:12) [[Nicholas J. Fuentes]] criticized Candace Owens for being unable to distinguish between his worldview and a conspiracy involving [[Alistair Crowley]], [[National Aeronautics and Space Administration|NASA]], and the [[Apollo program]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:29:21) [[Nicholas J. Fuentes]] described Candace Owens's worldview as a "[[black]] hole" that draws in every event including the [[French Revolution]], [[Charlie Kirk]], the genocide in [[Gaza Strip|Gaza]], and ancient [[Sumer]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:29:50) [[Nicholas J. Fuentes]] speculated that Candace Owens might be a [[Scientologist]], citing her strong opposition to the field of psychology.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:31:00) [[Nicholas J. Fuentes]] alleged that Candace Owens is close friends with [[John Mappin]], [[who]] he described as a high-ranking [[Scientologist]], and that she vacations and hunts pheasant with him.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:32:40) [[Nicholas J. Fuentes]] challenged Candace Owens to address why she remains friends with a [[Scientologist]] if she believes in a satanic cult.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:33:35) [[Nicholas J. Fuentes]] argued that [[Tucker Carlson]] and Candace Owens are "in on it" and have been "deployed" by the system because they are allowed on platforms like [[Google|YouTube]], [[Spotify]], and [[Apple Inc.|Apple]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:34:20) [[Nicholas J. Fuentes]] stated that he is banned from all major social media platforms, including [[Google|YouTube]] and [[Spotify]], while [[Tucker Carlson]] and Candace Owens are promoted.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(19:34:000) [[Nicholas J. Fuentes]] criticized Candace Owens for posting a lengthy attack against him on [[Twitter|X]] and for dedicating a full episode of her show to criticizing him.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(19:37:000) [[Nicholas J. Fuentes]] referenced Candace Owens's claim that Egyptian military planes were following [[Charlie Kirk]] and [[Erika Frantz Kirk|Erica Kirk]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(19:41:000) [[Nicholas J. Fuentes]] stated that a YouTuber debunked Candace Owens's claim about the Egyptian planes, revealing that 66% of her data was wrong and that in many cases the planes were on a different continent.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(19:44:000) [[Nicholas J. Fuentes]] noted that Candace Owens made a commitment on December 16, 2025, to release an interactive map proving her claims, but 30 days later she had not delivered it.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(19:48:000) [[Nicholas J. Fuentes]] asserted that Candace Owens's credibility was "imploding" due to the Egyptian plane story and the collapse of the "Fort Waukachuka" theory.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(19:49:000) [[Nicholas J. Fuentes]] claimed that Candace Owens had pivoted to a new theory involving [[Charlie Kirk]] being a [[time]] traveler with telekinetic abilities.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(19:56:800) [[Nicholas J. Fuentes]] told Candace Owens that her children have a chance of having a higher IQ because she "race mixed with a white [[person]]."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:45:14) [[Nicholas J. Fuentes]] referenced Candace Owens "crawling back" to him after he leaned out and grew a beard.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:45:50) [[Nicholas J. Fuentes]] stated that "looksmaxing is real" and the "blackpill is real," referencing Candace Owens as an example.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:47:20) [[Nicholas J. Fuentes]] stated that Candace Owens lived with her boyfriend when she was 14.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:47:36) [[Nicholas J. Fuentes]] stated that Candace Owens "objectively won in life" by marrying a "[[United Kingdom|British]] rich guy" and becoming a huge podcaster, and advised her to "get the chip off your shoulder."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:48:08) [[Nicholas J. Fuentes]] claimed that Candace Owens started "seething" at him after he started flirting with another [[black]] woman, [[Ray Valentina]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:48:34) [[Nicholas J. Fuentes]] claimed that as soon as he leaned out, grew the beard, and started flirting with another [[black]] woman, Candace Owens began tweeting at him, doing shows about him, and crying about him.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:53:20) [[Nicholas J. Fuentes]] mocked Candace Owens for mispronouncing "blitzkrieg" and defining it as "a strategy of bombardment."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:53:50) [[Nicholas J. Fuentes]] imagined Candace Owens's white producers sweating as she struggles to read and mispronounces words.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:55:01) [[Nicholas J. Fuentes]] recalled that Candace Owens previously stated that the [[Russian Revolution]] happened in the 1870s.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:56:07) [[Nicholas J. Fuentes]] concluded that Candace Owens "literally knows nothing about anything."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(04:13:57) [[Nicholas J. Fuentes]] expressed agreement that Candace Owens is a "perfect candidate for witch burning."
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:20:59) [[Nicholas J. Fuentes]] claimed that once the censorship receded, the most popular shows became [[Tucker Carlson]], Candace Owens, and [[Nicholas J. Fuentes|Nick Fuentes]], asserting that people have an appetite for "white identity."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:09:28) [[Nicholas J. Fuentes]] stated that [[Ben Shapiro]] gave a speech calling out [[Tucker Carlson]], Candace Owens, [[Daryl Cooper]], [[Steve Bannon]], [[Megyn Kelly]], [[Andrew Tate]], and [[Alex Jones]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:41:01) [[Nicholas J. Fuentes]] stated that anyone [[who]] was pro-[[Donald Trump|Trump]] can "never be trusted again," including [[Tucker Carlson]] and Candace Owens.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:47:34) [[Nicholas J. Fuentes]] claimed [[Tucker Carlson]] and Candace Owens are not hurting after telling people to vote for [[Donald Trump|Trump]]; rather, they are "making more money than ever," with [[Tucker Carlson|Tucker]] having bought a new [[house]] and Candace Owens being unable to contain her joy.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:13:36) [[Nicholas J. Fuentes]] introduced the night's topic as the feud between Candace Owens and [[Erika Frantz Kirk|Erika Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:14:05) [[Nicholas J. Fuentes]] stated that Candace Owens has been escalating a campaign to expose a conspiracy to kill [[Charlie Kirk]], and that [[Erika Frantz Kirk|Erika Kirk]] has retaliated on [[Fox News]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:15:08) [[Nicholas J. Fuentes]] announced that [[Turning Point USA]] will host a live stream on December 15th to address the allegations, and that Candace Owens will react to it.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:23:10) [[Nicholas J. Fuentes]] stated that the show will cover the feud between Candace Owens and [[Erika Frantz Kirk|Erika Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:23:47) [[Nicholas J. Fuentes]] stated that Candace Owens is now explicitly attacking [[Erika Frantz Kirk|Erika Kirk]] as part of a three-month conspiracy crusade.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:24:12) [[Nicholas J. Fuentes]] stated that when Candace Owens started the conspiracy, it was predictable that it would eventually connect the assassination to [[Brigitte Macron]] being transgender.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:26:34) [[Nicholas J. Fuentes]] stated that Candace Owens has been hinting that [[Charlie Kirk]]'s family and wife were complicit in his assassination.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:27:58) [[Nicholas J. Fuentes]] reported that Candace Owens was invited to attend the live stream but declined, then said she would attend if [[Erika Frantz Kirk|Erika Kirk]] is there.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:38:05) [[Nicholas J. Fuentes]] argued that [[Erika Frantz Kirk|Erika Kirk]] and [[Turning Point USA]] are losing the public relations battle because Candace Owens is dominating the conversation.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:39:45) [[Nicholas J. Fuentes]] stated that he is anti-Candace Owens and thinks she is a "horrible, disgusting human being" [[who]] is setting the movement back five years.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:41:14) [[Nicholas J. Fuentes]] described Candace Owens as having a "big fat, stupid [[black]] head" and being "giddy" and "elated" that she was attacked by [[Erika Frantz Kirk|Erika Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:41:32) [[Nicholas J. Fuentes]] argued that Candace Owens is a narcissist [[who]] is attracted to "narcissistic supply" and is happy to redirect the conversation back to her.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:43:17) [[Nicholas J. Fuentes]] reported that Candace Owens responded to [[Erika Frantz Kirk|Erika Kirk]] and said that [[Erika Frantz Kirk|Erika Kirk]] cannot weaponize the sympathy of her dead husband to shield her [[organization]] from criticism.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:47:02) [[Nicholas J. Fuentes]] argued that Candace Owens is attacking people with no evidence, calling Tyler Boyer a "gay pedophile" with no receipts.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:47:45) [[Nicholas J. Fuentes]] argued that Candace Owens is setting conspiracy theories back years by doing a dishonest "bait and switch."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:48:50) [[Nicholas J. Fuentes]] argued that Candace Owens claims people are telling her she can't ask questions, but nobody has said that; rather, people are asking her to be more responsible.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:51:47) [[Nicholas J. Fuentes]] argued that Candace Owens uses a "Motte-and-bailey" fallacy, saying wild, evidence-free things and then retreating to "we're just asking questions."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:53:35) [[Nicholas J. Fuentes]] argued that Candace Owens's claims about a palm pistol and the angle of the shot were proven wrong, but she just moved on.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:02:37) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] and Candace Owens are "detrimental" and "liars of a different variety."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:03:06) [[Nicholas J. Fuentes]] questioned Candace Owens's obsession with [[France]] and her husband from the [[United Kingdom]], and [[Tucker Carlson]]'s statements that [[Russian Federation|Russia]] is the [[United States|U.S]].'s closest ally.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:04:09) [[Nicholas J. Fuentes]] argued that [[Turning Point USA]] cannot effectively fight Candace Owens because they are "two sides of the same coin" — both are shameless, cynical opportunists.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:05:44) [[Nicholas J. Fuentes]] stated that Candace Owens has been a huge beneficiary of [[Charlie Kirk]]'s death, seeing her viewership spike from 1 million to 4–5 million per video, and demanded she disclose how much money she has made.Here is the knowledge log derived from the monologue portion of the transcript, adhering to all specified formatting and content rules.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:06:57) [[Nicholas J. Fuentes]] estimated that Candace Owens had earned at least one million dollars since September 10 by profiting from coverage of the assassination of [[Charlie Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:08:45) [[Nicholas J. Fuentes]] asserted that in May 2024, [[Charlie Kirk]] created a separate website specifically for his [[Jews|Jewish]] donors, featuring a disclaimer stating that Candace Owens has nothing to do with [[Turning Point USA]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:08:45) [[Nicholas J. Fuentes]] stated that [[Charlie Kirk]]'s website was an open letter to [[Jews|Jewish]] donors, emphasizing [[Turning Point USA]]'s support for [[Israel]] and distancing the [[organization]] from Candace Owens.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:09:33) [[Nicholas J. Fuentes]] accused Candace Owens of standing on the grave of [[Charlie Kirk]] by pretending they were close allies after his death, despite their previous distance.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:09:53) [[Nicholas J. Fuentes]] claimed that Candace Owens is driven by narcissistic supply and financial gain, and that she is "reveling" in being at the center of the narrative surrounding [[Charlie Kirk]]'s death.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:11:39) [[Nicholas J. Fuentes]] observed that public discussion of [[Charlie Kirk]]'s assassination has shifted entirely to Candace Owens, her "fight," and her struggle.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:12:17) [[Nicholas J. Fuentes]] described Candace Owens's actions as the most "cut and dry example" of one [[person]]'s character defects causing harm to society.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:13:28) [[Nicholas J. Fuentes]] argued that if Candace Owens were not cynically going live every day to exploit the death of [[Charlie Kirk]], the resulting "hysteria and paranoia" would not be happening.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:13:49) [[Nicholas J. Fuentes]] stated that without Candace Owens's influence, the public would be focused on the evidence against [[Tyler Robinson]], rather than on theories involving [[Brigitte Macron]], Egyptian planes, and [[Erika Frantz Kirk|Erica Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:14:34) [[Nicholas J. Fuentes]] threatened to "blow a gaping hole" in Candace Owens's credibility if [[Turning Point USA]] is not successful in stopping her, promising to expose stories about her husband and donors.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:15:31) [[Nicholas J. Fuentes]] called Candace Owens a "ridiculous [[black]] narcissist" and an "idiot."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:15:37) [[Nicholas J. Fuentes]] expressed admiration for [[Tim Pool]] but disagreed with [[Tim Pool]]'s characterization of Candace Owens as a genius, insisting she is "a fucking idiot."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:16:15) [[Nicholas J. Fuentes]] criticized Candace Owens for using the word "compromise" when she meant "compartmentalize" in her advice to [[Erika Frantz Kirk|Erica Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:17:33) [[Nicholas J. Fuentes]] stated that [[Erika Frantz Kirk|Erica Kirk]] and [[Blake Neff]] could not stop Candace Owens, but he can, and claimed that other conservatives are now cheering him on despite previously trashing him.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:19:33) [[Nicholas J. Fuentes]] stated that "a lot of ballistics experts" have contradicted Candace Owens's theory about the bullet in [[Charlie Kirk]]'s assassination, saying that it is plausible that a .30-06 caliber bullet could have lodged in his vertebrae depending on variables.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:31:31) [[Nicholas J. Fuentes]] criticized Candace Owens for using dreams and visions as evidence, comparing her to the fictional character "That's So Raven."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:31:52) [[Nicholas J. Fuentes]] advised [[Benny Johnson]], [[Jack Posobiec]], and [[Blake Neff]] to simply call Candace Owens dumb, punch her "in her stupid big fat face metaphorically," and expose her with facts.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:32:23) [[Nicholas J. Fuentes]] stated that only [[Turning Point USA]] can stop Candace Owens, but that he will do it if they cannot.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:34:06) [[Nicholas J. Fuentes]] analyzed the "self-affirming loop" logic of Candace Owens's supporters, where any disagreement makes one part of the [[Federal Bureau of Investigation|FBI]] or the conspiracy.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:35:20) [[Nicholas J. Fuentes]] described the ideological trap set by Candace Owens's claims, where if she is wrong, it is because she is being [[fed]] bad information, and if you point it out, you are part of the conspiracy.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:37:25) [[Nicholas J. Fuentes]] called the argumentation style of Candace Owens's supporters the "definition of psychosis."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:38:40) [[Nicholas J. Fuentes]] complained that people [[who]] previously praised him as a "truth teller" now accuse him of taking a check and betraying the cause for disagreeing with Candace Owens.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:39:15) [[Nicholas J. Fuentes]] stated that Candace Owens was with [[The Daily Wire]] and [[Turning Point USA]], is still on [[Google|YouTube]], and is playing the martyr, while [[he]] was actually put on a no-fly list and censored for 10 years.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:44:29) [[Nicholas J. Fuentes]] defended his criticism of Candace Owens, noting that he has been more critical of [[Turning Point USA]] than anyone, and that she was on their roster until months ago.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:44:59) [[Nicholas J. Fuentes]] pointed out that Candace Owens did not know what "UTC" stood for, thinking it meant "Utah [[time]]."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:45:04) [[Nicholas J. Fuentes]] dismissed Candace Owens's claim about an Egyptian military plane landing in [[Provo]] as flawed because she got the [[time]] zone wrong.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:45:33) [[Nicholas J. Fuentes]] criticized Candace Owens for saying she was given information in a dream and for saying a tip "feels right," calling this not evidence.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:18:55) [[Nicholas J. Fuentes]] contrasted his content with Candace Owens's, stating that every single episode of her show since September 10 has been about [[Charlie Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:19:38) [[Nicholas J. Fuentes]] referenced a calculation that Candace Owens has made over $700,000 from 45 videos since [[Charlie Kirk]]'s death.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:29:49) [[Nicholas J. Fuentes]] commented on Candace Owens, referencing her claim that she found "the final piece of the puzzle."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:30:29) [[Nicholas J. Fuentes]] asked if Candace Owens had proved a "[[United States|U.S]]., [[France]], [[Israel]] conspiracy."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:30:34) [[Nicholas J. Fuentes]] summarized Candace Owens's latest theory about a guy from the 1980s in [[Mexico]] proving that [[Brigitte Macron]] is a man.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:31:15) [[Nicholas J. Fuentes]] called for [[Erika Frantz Kirk|Erica Kirk]] to stop Candace Owens, whom he described as a malicious actor, a compulsive liar, and a disingenuous [[person]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:31:56) [[Nicholas J. Fuentes]] stated he is waiting for the [[Turning Point USA]] live stream on December 15th to respond to Candace Owens, and if they don't do a good job, he will "expose Candace Owens for what she really is."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:32:45) [[Nicholas J. Fuentes]] threatened to expose Candace Owens's husband and donors, giving her the "[[Tucker Carlson]] treatment."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:33:23) [[Nicholas J. Fuentes]] stated he is not afraid of Candace Owens, calling her an "ignorant [[black]] bitch" and a "[[black]] Karen."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:34:29) [[Nicholas J. Fuentes]] called for turning the [[page]] on the "Book Club," but clarified it was metaphorical.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:34:49) [[Nicholas J. Fuentes]] wondered how long the "grift" of Candace Owens can continue, noting her fans must be getting tired.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:29:34:80) Candace Owens joined [[Elon Musk]] in calling [[Nicholas J. Fuentes]] a [[fed]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:59:40) Candace Owens joined the pile-on after [[Elon Musk]] called [[Nicholas J. Fuentes]] a "[[fed]]."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:59:48) The father-in-law of Candace Owens is [[Lord Farmer]], [[who]] runs an [[organization]] for cooperation between [[Jews]] and [[Christianity|Christians]] in the [[United Kingdom]] and is the heir to a family that makes jewelry for the [[United Kingdom|British]] crown.

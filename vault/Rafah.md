@@ -11,7 +11,7 @@
 (59:46:85) [[Benjamin Netanyahu]]'s governing coalition relied on two far-right, religious Zionist ministers who threatened to collapse the government if he agreed to a ceasefire without eradicating [[Hamas]] or invaded Rafah.
 
 ### AF 2024-06-03 1339
-(01:02:32:87) [[Israel]] had taken control of the [[City of Philadelphia|Philadelphia Corridor]] border area with [[Arab Republic of Egypt|Egypt]] and was engaging [[Hamas]] forces in Rafah, their last stronghold in the [[Gaza Strip]].
+(01:02:32:87) [[Israel]] had taken control of the [[Philadelphia Corridor]] border area with [[Arab Republic of Egypt|Egypt]] and was engaging [[Hamas]] forces in Rafah, their last stronghold in the [[Gaza Strip]].
 
 ### AF 2024-05-27 1335
 (00:00:00) [[Nicholas J. Fuentes]] announced the featured story for the episode would be a massacre in Rafah within the [[Gaza Strip]].
@@ -77,7 +77,7 @@
 (08:45:32) [[Nicholas J. Fuentes]] argued that [[Israel]]'s invasion of Rafah demonstrates that [[Israel]], not the [[United States]], is in control of the bilateral relationship, as the operation proceeded despite [[United States|U.S]]. objections and with [[United States|U.S]].-supplied funding and weapons.
 
 ### AF 2024-05-06 1328
-(52:59:84) [[Nicholas J. Fuentes]] stated he would discuss [[Israel]]'s ground invasion of Rafah and the [[Israel]]-[[Gaza Strip|Palestine]] conflict in a subsequent show.
+(52:59:84) [[Nicholas J. Fuentes]] stated he would discuss [[Israel]]'s ground invasion of Rafah and the [[Israel]]-[[Palestine]] conflict in a subsequent show.
 
 ### AF 2024-05-02 1327
 (01:11:40) [[Nicholas J. Fuentes]] argued that the law, combined with proposed "anti-Semitism monitors" on campuses, constitutes a full-spectrum attack by Zionist groups to silence criticism of [[Israel]] ahead of a planned [[Israel|Israeli]] invasion of Rafah and potential war with [[Hezbollah]] and [[Iran]].

@@ -13,3 +13,6 @@
 
 ### AF 2017-11-17 0053
 (00:53:45) [[Nicholas J. Fuentes]] referenced a Comedy Central clip showing a white man dancing silly to a rap song for his wife.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:47:10) [[Nicholas J. Fuentes]] listed the assets of [[Paramount Global]]: the [[CBS]] television station, [[CBS News]], [[Paramount Global|Nickelodeon]], [[Paramount Global|MTV]], Comedy Central, [[Paramount Global|Paramount+]], and [[Paramount Global|Showtime]].

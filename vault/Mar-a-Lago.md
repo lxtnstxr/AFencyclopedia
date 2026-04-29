@@ -70,3 +70,30 @@
 
 ### AF 2018-04-20 0149
 (01:13:59) [[Nicholas J. Fuentes]] reported that [[Shinzo Abe]] visited [[Donald Trump]] at Mar-a-Lago and that [[North Korea]] was in direct contact with the [[United States]] at the highest levels.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:57:51) [[Benjamin Netanyahu]] visited [[Donald Trump]] at Mar-a-Lago in late December, and in January, [[Iran]] experienced large protests.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:17:10.000) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu|Bibi Netanyahu]] gave [[Donald Trump|Trump]] a hug at Mar-a-Lago, and [[Mark Levin]] called [[Donald Trump|Trump]] the first [[Jews|Jewish]] [[president]] of the [[United States]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:26:48) [[Benjamin Netanyahu]] visited Mar-a-Lago just before New Year's 2026 and asked [[Donald Trump]] for another war with [[Iran]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:55:20) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] was only able to recover politically because [[Merrick Garland]] and the [[Democratic Party|Democrats]] overplayed their hand by raiding Mar-a-Lago and indicting him.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Benjamin Netanyahu|Bibi]] traveled to Mar-a-Lago on December 29th to plead with [[Donald Trump]] to bomb [[Iran]]'s ballistic missiles and proxies in support of a regime change war.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:06:58) [[Benjamin Netanyahu|Bibi]] visited Mar-a-Lago for his fifth meeting with [[Donald Trump]] in 2025.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:07:51) [[Nicholas J. Fuentes]] stated that those [[who]] paid a million dollars to attend events at Mar-a-Lago received insider information that allowed them to profit from [[Polymarket]] and [[Trumpcoin]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:59:00) [[Benjamin Netanyahu|Bibi]] visited the [[United States]] for the fifth [[time]] in late December 2025, spending a week at Mar-a-Lago with [[Donald Trump]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:01:17) [[Donald Trump]] has a pattern of taking military action while [[China|Chinese]] delegations are present, such as bombing [[Syria]] when the [[China|Chinese]] were at Mar-a-Lago.

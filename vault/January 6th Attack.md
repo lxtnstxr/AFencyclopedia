@@ -20,7 +20,7 @@
 (00:10:32) [[Nicholas J. Fuentes]] returned to [[Rumble Inc.|Rumble Inc]] with over 100,000 subscribers and no mainstream backing, having fought to regain his platform after being "knocked out of orbit" following the January 6th Attack.
 
 ### AF 2024-09-11 1386
-(00:15:00) [[Nicholas J. Fuentes]] described his nearly decade-long story as intertwined with the [[Donald Trump]] administration and the history of the [[United States|American]] right, having been present for events like the [[City of Charlottesville|Charlottesville]] rally and the January 6th Attack.
+(00:15:00) [[Nicholas J. Fuentes]] described his nearly decade-long story as intertwined with the [[Donald Trump]] administration and the history of the [[United States|American]] right, having been present for events like the [[Charlottesville]] rally and the January 6th Attack.
 
 ### AF 2024-09-11 1386
 (00:33:29) A debate moderator fact-checked [[Donald Trump]] on [[Nancy Pelosi]]'s role in the January 6th Attack, dismissing his point about requesting the [[U.S. Department of Defense|National Guard]].
@@ -47,7 +47,7 @@
 (00:40:25) [[Nicholas J. Fuentes]] argued that events like the January 6th Attack or a white race riot can create positive political outcomes by signaling unrest.
 
 ### AF 2024-08-05 1367
-(00:42:53) [[Nicholas J. Fuentes]] claimed that events like [[City of Charlottesville|Charlottesville]] and the January 6th Attack were used by the state to decapitate leadership and bury political movements through prosecutions.
+(00:42:53) [[Nicholas J. Fuentes]] claimed that events like [[Charlottesville]] and the January 6th Attack were used by the state to decapitate leadership and bury political movements through prosecutions.
 
 ### AF 2024-08-05 1367
 (02:24:29) [[Nicholas J. Fuentes]] denied condemning [[Donald Trump]], stating he loves [[Donald Trump|Trump]] and is always loyal, but criticizes the bad people around him, such as advisors who don't believe the election was stolen or who called for the 25th Amendment after January 6th.
@@ -74,7 +74,7 @@
 (00:51:45) [[Chris LaCivita]], [[Donald Trump]]'s 2024 campaign manager, does not believe the 2020 election was stolen and stated [[Donald Trump]]'s cabinet should have invoked the 25th Amendment after January 6th Attack.
 
 ### AF 2024-07-13 1355
-(01:03:05) [[Nicholas J. Fuentes]] reported he was present at pro-[[Donald Trump]] events in Lansing, Harrisburg, [[City of Phoenix|Phoenix]], and the "Million MAGA March," and was at the January 6th Attack, for which he received a subpoena and was placed on a no-fly list.
+(01:03:05) [[Nicholas J. Fuentes]] reported he was present at pro-[[Donald Trump]] events in Lansing, Harrisburg, [[Phoenix]], and the "Million MAGA March," and was at the January 6th Attack, for which he received a subpoena and was placed on a no-fly list.
 
 ### AF 2024-07-13 1355
 (01:03:33) [[Nicholas J. Fuentes]] stated he lost his income, had his money confiscated, and was banned from all major and alternative platforms due to his support for [[Donald Trump]] and the January 6th Attack.
@@ -98,7 +98,7 @@
 (56:03:13) [[David Sacks]] had previously stated that the January 6th Attack disqualified [[Donald Trump]] from office but changed his mind over a year due to persuasion from [[JD Vance]].
 
 ### AF 2024-06-06 1340
-(00:27:04) [[Nicholas J. Fuentes]] argued that censorship and persecution of dissidents were worse under [[Donald Trump]] than under [[Joe Biden]], citing the January 6th Attack, the [[City of Charlottesville|Charlottesville]] lawsuit, and online cancellations.
+(00:27:04) [[Nicholas J. Fuentes]] argued that censorship and persecution of dissidents were worse under [[Donald Trump]] than under [[Joe Biden]], citing the January 6th Attack, the [[Charlottesville]] lawsuit, and online cancellations.
 
 ### AF 2024-05-30 1338
 (00:13:01) [[Nicholas J. Fuentes]] was present at the [[United States Capitol]] on January 6th, which resulted in him being placed on a federal no-fly list, having a bank account frozen, and being subpoenaed by the [[U.S. Congress]].
@@ -119,7 +119,7 @@
 (15:17:84) [[Patrick Casey]], a founder of [[Identity Europa]] and formerly associated with the [[alt-right]] and [[Nicholas J. Fuentes|Groyper]]s, "betrayed" the [[Nicholas J. Fuentes|Groyper]]s after January 6th.
 
 ### AF 2024-01-31 1286
-(00:26:36) [[Nicholas J. Fuentes]] warned that activities like [[Patriot Front]]'s were heading towards a honeypot event similar to [[City of Charlottesville|Charlottesville]] or January 6th, used to set up participants.
+(00:26:36) [[Nicholas J. Fuentes]] warned that activities like [[Patriot Front]]'s were heading towards a honeypot event similar to [[Charlottesville]] or January 6th, used to set up participants.
 
 ### AF 2023-09-20 1220
 (00:02:16) [[Nicholas J. Fuentes]] stated that new charges had been filed against [[Ray Epps]], who had been accused by [[Revolver News|Revolver]] and [[Fox News]] of being an undercover [[Federal Bureau of Investigation|FBI]] agent during the January 6th riot.
@@ -299,7 +299,7 @@
 (00:43:43) The United States House Select Committee on the January 6 Attack subpoenaed [[Nicholas J. Fuentes]] in connection with the events at the [[United States Capitol|U.S. Capitol]] on January 6.
 
 ### AF 2021-12-06 0916
-(00:24:53) [[Nicholas J. Fuentes]] recounted a series of events that were supposed to end his career, including comments about the Holocaust, the "kill the globalist" remark, the Leadership Institute recording, being at [[City of Charlottesville|Charlottesville]], losing his [[Google|YouTube]] channel, the Cookie Monster joke, the January 6 [[United States Capitol|Capitol]] event, being kicked off [[DLive]], being banned from payment processors, and being banned from [[Twitter]].
+(00:24:53) [[Nicholas J. Fuentes]] recounted a series of events that were supposed to end his career, including comments about the Holocaust, the "kill the globalist" remark, the Leadership Institute recording, being at [[Charlottesville]], losing his [[Google|YouTube]] channel, the Cookie Monster joke, the January 6 [[United States Capitol|Capitol]] event, being kicked off [[DLive]], being banned from payment processors, and being banned from [[Twitter]].
 
 ### AF 2021-10-07 0888
 (00:18:38) Geofence warrants, which allow law enforcement to collect digital activity data within a specific geographical area, were used to identify individuals inside the [[United States Capitol|Capitol]] on January 6th.
@@ -326,7 +326,7 @@
 (02:35:02) [[Nicholas J. Fuentes]] cited the film *Drive* as a "Kino" movie with primordial themes of masculinity and honor that resonate broadly, and related to the protagonist's feeling of being hunted and in an impossible situation after the January 6th [[United States Capitol|Capitol]] riot.
 
 ### AF 2021-04-12 0790
-(00:48:11) [[Nicholas J. Fuentes]] contrasted the January 6th [[United States Capitol|Capitol]] riot, which he framed as a political protest about election integrity, with the [[City of Minneapolis|Minneapolis]] looting, which he described as apolitical criminal opportunism.
+(00:48:11) [[Nicholas J. Fuentes]] contrasted the January 6th [[United States Capitol|Capitol]] riot, which he framed as a political protest about election integrity, with the [[Minneapolis]] looting, which he described as apolitical criminal opportunism.
 
 ### AF 2021-04-12 0790
 (01:06:32) [[Nicholas J. Fuentes]] claimed that [[Anti-Defamation League|Jonathan Greenblatt]] of the [[Anti-Defamation League|ADL]] called for [[Tucker Carlson]]'s show to be canceled, and that the [[Southern Poverty Law Center|SPLC]] had been trying to get him banned since January 6th.

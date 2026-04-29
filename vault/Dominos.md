@@ -7,3 +7,6 @@
 
 ### AF 2020-02-05 0540
 (01:45:59) [[Nicholas J. Fuentes]] listed [[T. Anthony's]], Domino's, and [[Tasty Burger]] as the main restaurants he frequented while a student at [[Boston University]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:41:33) [[Nicholas J. Fuentes]] said that when they come out the other side of this controversy, he will tip [[Ian Carroll]] $5 for delivering his Domino's pizza, suggesting that is the job for which he is suited.

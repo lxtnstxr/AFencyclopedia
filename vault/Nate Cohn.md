@@ -2,7 +2,7 @@
 #person
 
 ### AF 2020-11-04 0716
-(01:59:33) Nate Cohn stated that a vote dump in [[City of Phoenix|Maricopa County]], [[Arizona]] favored [[Donald Trump]] by 18 points, tightening the race and precluding a call for the state that night.
+(01:59:33) Nate Cohn stated that a vote dump in [[Maricopa County]], [[Arizona]] favored [[Donald Trump]] by 18 points, tightening the race and precluding a call for the state that night.
 
 
 ### AF 2020-11-03 0715

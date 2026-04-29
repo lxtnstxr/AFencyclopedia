@@ -82,7 +82,7 @@
 (29:30:190) [[William Ackman]] coordinated with over 100 [[New York]] City elites, including billionaires, the mayor, and members of the [[New York City Police Department]], as well as [[Republican Party|congressmen]], media, and conservative activist groups, to pressure [[Harvard University]] into stopping pro-Palestine activism.
 
 ### AF 2024-10-23 1411
-(30:06:470) [[William Ackman]] specifically targeted [[Claudine Gay]], [[Donald Trump|the president]] of [[Harvard University]], in a "high pressure campaign" aimed at her removal, which was motivated by her refusal to suppress pro-Palestine activism.
+(30:06:470) [[William Ackman]] specifically targeted [[Claudine Gay]], [[the president]] of [[Harvard University]], in a "high pressure campaign" aimed at her removal, which was motivated by her refusal to suppress pro-Palestine activism.
 
 ### AF 2024-10-23 1411
 (32:04:990) The plagiarism scandal was a pretext, as the story was old and weaponized amidst a high-pressure campaign by billionaires to remove three [[Ivy League]] presidents (at [[Harvard University]], [[University of Pennsylvania]], and [[Columbia|Columbia University]]) because they were not [[Jewish]] and allowed pro-Palestine activism.
@@ -155,3 +155,45 @@
 
 ### AF 2024-10-04 1400
 (04:38:40) [[Nicholas J. Fuentes]] claimed that the [[Jewish]] religion, based on the Old Testament, lacks a universal brotherhood of man and a commandment to love one's enemy, which he argued fosters a tribalist and vengeful ethic exemplified by [[Israel]]'s actions in Palestine.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:01:03) [[Nicholas J. Fuentes]] asserted that individuals do not commit acts of violence such as murdering [[Charlie Kirk]] for voting for [[Kamala Harris]], stabbing young girls on trains for being [[black]], or shooting Palestinians in the head for being [[Jews|Jewish]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:59:30) [[Nicholas J. Fuentes]] criticized [[Matt Walsh]] and other pro-[[Donald Trump]] influencers for telling people he was "obsessed with Palestine" and that [[Donald Trump|Trump's]] war rhetoric was a "throwaway comment."
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:08:22) [[Matt Walsh]] previously argued that the real [[America First]] position is to be indifferent to developments in the [[Middle East]], including Palestine, [[Iran]], [[Lebanon]], and [[Yemen]], and to fixate on domestic matters like school board meetings and the economy.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:53:00.900) [[Nicholas J. Fuentes]] stated that people do not shoot Palestinians in the back of the head or cheer it on simply because they are [[Jews|Jewish]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:24:17:34) [[Nicholas J. Fuentes]] stated that [[Huckabee]] has long opposed a two-[[state]] solution and in a previous interview said he does not believe in referring to Arab descendants living in [[United Kingdom|British]]-controlled Palestine as Palestinians.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(52:45:00) [[Nicholas J. Fuentes]] argued that people do not murder [[Charlie Kirk]] supporters for voting for [[Kamala Harris]], people do not stab young girls on trains because they are born [[black]], and people do not shoot Palestinians in the back of the head or cheer it on simply because they are [[Jews|Jewish]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:01:02:00) [[Nicholas J. Fuentes]] argued that people do not murder [[Charlie Kirk]] supporters for voting for [[Kamala Harris]], people do not stab young girls on trains because they are born [[black]], and people do not shoot Palestinians in the back of the head or cheer it on simply because they are [[Jews|Jewish]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(00:52:45) [[Nicholas J. Fuentes]] argued that people do not murder [[Charlie Kirk]] or stab young girls or shoot Palestinians in the back of the head just because of their race or religion, but because they are "lost."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:36:18) [[Nicholas J. Fuentes]] reported that in response to the [[TikTok Inc.|TikTok]] acquisition, a new alternative platform called Upscroll has been created by [[Ireland|Irish]] leftists sympathetic to Palestine.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:39:52) [[Nicholas J. Fuentes]] argued that [[the left]] is pro-Palestine because they view Palestinians as an indigenous community, the same reason they do "land acknowledgements" for Native [[United States|Americans]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:41:02) [[Nicholas J. Fuentes]] said that [[Islam|Muslims]] support Palestine because of a religious jihad related to the Al-Aqsa Mosque and because Palestinians are their "[[Islam|Muslim]] homeboys."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:52:05) [[Nicholas J. Fuentes]] stated that he is "[[America first]]" and argued that if someone is "Palestine first," they should go back to Palestine.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:52:47) [[Nicholas J. Fuentes]] stated he is compassionate and does not think the [[United States]] should supply [[Israel]] with bombs to kill Palestinians, but that he will not be "guilt-tripped" on his own soil.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:03:03) [[Nicholas J. Fuentes]] argued that after [[October 7th Attack|October 7th]], [[United States|American]] [[Jews]] saw [[the left]] sympathize with Palestinians and even [[Hamas]], which alienated them and made them more right-wing.

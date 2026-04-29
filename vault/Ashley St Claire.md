@@ -105,7 +105,7 @@
 (01:30:48) Ashley St. Clair had previously been advertised as a special guest at [[Turning Point USA]]'s Teen Student Action Summit and had appeared in conservative media as a brand ambassador.
 
 ### AF 2019-10-01 0470
-(01:32:66) Ashley St. Clair told [[Nicholas J. Fuentes]] that [[Charlie Kirk]] was "a really great guy" during a conversation at a party in [[City of Miami|Miami]].
+(01:32:66) Ashley St. Clair told [[Nicholas J. Fuentes]] that [[Charlie Kirk]] was "a really great guy" during a conversation at a party in [[Miami]].
 
 ### AF 2019-10-01 0470
 (01:39:32) Ashley St. Clair had previously been exposed in June for saying illegal immigration "isn't even a problem" and for criticizing [[Turning Point USA]] as a place where "a bunch of white guys go to drink and get laid."

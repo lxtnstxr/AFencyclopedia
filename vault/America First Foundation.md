@@ -23,10 +23,10 @@
 (01:02:57) The article by [[Anya Parampil]] noted that [[Nicholas J. Fuentes]] commands his own nonprofit, the America First Foundation, which hosts an annual convention rivaling the established [[Conservative Political Action Conference|CPAC]].
 
 ### AF 2022-06-23 1018
-(00:15:00) [[Nicholas J. Fuentes]] announced the sale of tickets for a movie premiere event in [[City of Las Vegas|Las Vegas]] on July 14th, organized by the America First Foundation, featuring a screening and Q&A.
+(00:15:00) [[Nicholas J. Fuentes]] announced the sale of tickets for a movie premiere event in [[Las Vegas]] on July 14th, organized by the America First Foundation, featuring a screening and Q&A.
 
 ### AF 2022-06-23 1018
-(00:15:00) The America First Foundation offered $80 general admission and $1,000 VIP director's passes for its [[City of Las Vegas|Las Vegas]] event, which included a dinner, film screening, and after-party with [[Nicholas J. Fuentes]] and the film's directors.
+(00:15:00) The America First Foundation offered $80 general admission and $1,000 VIP director's passes for its [[Las Vegas]] event, which included a dinner, film screening, and after-party with [[Nicholas J. Fuentes]] and the film's directors.
 
 ### AF 2022-06-23 1018
 (01:00:00) [[Nicholas J. Fuentes]] positioned the America First movement as the only nationalist resistance against a conservative establishment he claimed was subverted by Zionist interests, contrasting it with organizations like [[Conservative Political Action Conference|CPAC]] and the [[Republican Party]].

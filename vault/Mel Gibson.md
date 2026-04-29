@@ -39,3 +39,6 @@
 
 ### AF 2017-11-27 0058
 (01:44:00) [[Nicholas J. Fuentes]] stated that Mel Gibson faced a decade-long ban from [[Los Angeles|Hollywood]] after making drunken remarks, while other figures like [[Alec Baldwin]] and [[Charlie Sheen]] faced no similar consequences for their actions.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:45:00) [[Nicholas J. Fuentes]] mocked the conspiracy theories, comparing them to a courtroom scene where a witness is called from purgatory, and stated that antisemitism “used to be smart” and was an elite club including [[Charles Lindbergh]], [[Henry Ford]], Mel Gibson, [[Richard Wagner]], and [[Adolf Hitler|Hitler]].

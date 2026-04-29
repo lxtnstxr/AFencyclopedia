@@ -10,3 +10,6 @@
 
 ### AF 2018-05-09 0161
 (00:35:51) [[Jacob Wohl]] rejected the claim that the [[Iraq]] war was driven by [[Jews|Zionist Jews]], arguing key decision-makers like [[George W. Bush|George Bush]], [[Dick Cheney]], and Condoleezza Rice were not [[Jews|Jewish]] or Zionist.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(16:03:85) [[Nicholas J. Fuentes]] stated that Condoleezza Rice, [[Chris LaCivita]], and [[Jared Kushner]] are back in [[the White House]], and [[Marco Rubio]] is the [[secretary of state]].

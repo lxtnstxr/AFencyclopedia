@@ -15,4 +15,4 @@
 (01:06:45:98) [[Nicholas J. Fuentes]] stated that [[North Atlantic Treaty Organization|NATO]] membership for the [[Baltic states]] and [[Israel|Poland]], combined with [[Ukraine]], would leave [[Belarus]] as an indefensible protrusion and give [[North Atlantic Treaty Organization|NATO]] a decisive military advantage over [[Russia]] from the [[Baltic Sea]] to the Caucasus.
 
 ### AF 2022-03-08 0954
-(55:20:12) [[Russia]] annexed [[City of Sevastopol|Crimea]] specifically to retain the strategic [[City of Sevastopol|Sevastopol]] naval base and its [[Black Sea]] Fleet, crucial for defending its southwestern border and the Caucasus [[region]].
+(55:20:12) [[Russia]] annexed [[Crimea]] specifically to retain the strategic [[Sevastopol]] naval base and its [[Black Sea]] Fleet, crucial for defending its southwestern border and the Caucasus [[region]].

@@ -129,7 +129,7 @@
 (01:08:51) [[Nicholas J. Fuentes]] noted that [[MasterCard]] had previously banned [[PornHub]], [[Tumblr]] banned porn, and OnlyFans was now banning porn, suggesting a broader crackdown on pornography by financial and tech institutions.
 
 ### AF 2021-08-19 0863
-(02:19:41) [[Nicholas J. Fuentes]] listed the [[Afghanistan|Taliban]] victory in [[Afghanistan]], [[Kanye]] coming to [[City of Chicago|Chicago]], and OnlyFans banning pornography as "good developments" that occurred around his birthday.
+(02:19:41) [[Nicholas J. Fuentes]] listed the [[Afghanistan|Taliban]] victory in [[Afghanistan]], [[Kanye]] coming to [[Chicago]], and OnlyFans banning pornography as "good developments" that occurred around his birthday.
 
 ### AF 2021-08-20 0860
 (00:53:54) [[Nicholas J. Fuentes]] announced that the featured story was about OnlyFans banning pornography from its platform starting October 1st, a decision he called a "huge white pill."
@@ -162,7 +162,7 @@
 (01:28:50) [[Nicholas J. Fuentes]] suggested OnlyFans may have banned porn due to child pornography on its platform or fear of regulation, referencing a [[BBC]] exposé.
 
 ### AF 2021-08-20 0860
-(03:12:28) [[Nicholas J. Fuentes]] listed the [[Afghanistan|Taliban]] victory in [[Afghanistan]], [[Kanye]] coming to [[City of Chicago|Chicago]], and OnlyFans banning pornography as "good developments."
+(03:12:28) [[Nicholas J. Fuentes]] listed the [[Afghanistan|Taliban]] victory in [[Afghanistan]], [[Kanye]] coming to [[Chicago]], and OnlyFans banning pornography as "good developments."
 
 ### AF 2021-08-20 0860
 (03:38:01) [[Nicholas J. Fuentes]] joked that [[Elon Musk]]'s investment in animatronics is to compensate for the shortage of women without OnlyFans accounts.
@@ -187,3 +187,12 @@
 
 ### AF 2020-03-31 0576
 (01:48:00) [[Nicholas J. Fuentes]] contrasted historical pornography, which involved a small number of professionals, with the modern OnlyFans model, which he argued turns everyone into a porn star and drags society down to a level of filth.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:47:48) [[Nicholas J. Fuentes]] stated that OnlyFans is in the same business as [[Jeffrey Epstein]].Here is the chronological knowledge log derived from the provided transcript.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(05:16:43) [[United States|The United States]] is experiencing social decay characterized by drag queen performances in schools, teenagers joining OnlyFans, and widespread addiction to technology.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:14:11) [[Nicholas J. Fuentes]] argued that raising the age of consent is a symptom of a sexually dysfunctional society where a girl can turn 18 and start an OnlyFans.

@@ -12,7 +12,7 @@
 (00:23:45) [[Nicholas J. Fuentes]] argued that the future of the conservative movement looked bleak, with figures like [[Charlie Kirk]], [[Ben Shapiro]], and [[Tucker Carlson]] as leading voices, and politicians like [[Matt Gaetz]], Andy Biggs, [[Lauren Boebert]], and [[Marjorie Taylor Greene]] as the congressional "MAGA caucus."
 
 ### AF 2022-11-15 1099
-(02:02:12) [[Nicholas J. Fuentes]] reported that members of the [[House Freedom Caucus]], including Andy Biggs and [[Bob Good]], planned to challenge [[Mike Johnson|Kevin McCarthy]] for the nomination, arguing he did not have the 218 votes needed to win the speakership on the [[House]] floor.
+(02:02:12) [[Nicholas J. Fuentes]] reported that members of the [[House Freedom Caucus]], including Andy Biggs and [[Bob Good]], planned to challenge [[Kevin McCarthy]] for the nomination, arguing he did not have the 218 votes needed to win the speakership on the [[House]] floor.
 
 ### AF 2021-06-16 0830
 (00:51:14) In the [[House]] vote on Juneteenth, only 14 [[Republican Party|Republicans]], including [[Paul Gosar]], Andy Biggs, [[Mo Brooks]], and [[Thomas Massie]], voted against the bill.

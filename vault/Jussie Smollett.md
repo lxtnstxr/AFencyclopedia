@@ -4,8 +4,8 @@
 ### AF 2021-12-09 0919
 (00:00:00) [[Nicholas J. Fuentes]] announced the featured stories for his show, which included the conviction of Jussie Smollett and a new law in [[New York|New York City]].
 
-(00:00:36) Jussie Smollett was found guilty of disorderly conduct for lying to police about a staged hate crime in [[City of Chicago|Chicago]] three years prior.
-(00:33:27) [[Nicholas J. Fuentes]] recounted the details of the Jussie Smollett hoax, in which Smollett claimed to have been attacked by two white men in [[City of Chicago|Chicago]] wearing [[MAGA]] hats.
+(00:00:36) Jussie Smollett was found guilty of disorderly conduct for lying to police about a staged hate crime in [[Chicago]] three years prior.
+(00:33:27) [[Nicholas J. Fuentes]] recounted the details of the Jussie Smollett hoax, in which Smollett claimed to have been attacked by two white men in [[Chicago]] wearing [[MAGA]] hats.
 (00:35:10) [[Nicholas J. Fuentes]] read a report stating Jussie Smollett was found guilty on five counts of disorderly conduct for lying to police about the staged attack.
 (00:36:48) The prosecution's case against Jussie Smollett featured testimony from brothers [[Abimbola]] and [[Olabinjo Osundairo]], who said Smollett paid them $3,500 to carry out the attack.
 (00:37:17) Jussie Smollett testified that he had a prior sexual relationship with [[Abimbola Osundairo]] and denied the check was payment for the hoax.
@@ -29,7 +29,7 @@
 (03:30:740) Jussie Smollett was nominated for an Outstanding Supporting Actor award at the [[National Association for the Advancement of Colored People|NAACP]] Image Awards following the dismissal of felony charges against him for staging a hate crime.
 
 ### AF 2019-03-29 0357
-(04:30:660) Jussie Smollett was indicted on 16 felony charges for allegedly staging a hate crime in [[City of Chicago|Chicago]] before the charges were dropped.
+(04:30:660) Jussie Smollett was indicted on 16 felony charges for allegedly staging a hate crime in [[Chicago]] before the charges were dropped.
 
 ### AF 2019-03-29 0357
 (04:41:860) The [[National Association for the Advancement of Colored People|NAACP]] nominated Jussie Smollett for an award at its Image Awards ceremony.
@@ -44,7 +44,7 @@
 (04:01:54) The Cook County prosecutor overseeing the Jussie Smollett case received a text message from [[Michelle Obama]]'s chief of staff; Smollett was a friend of the [[Obama]] family.
 
 ### AF 2019-03-26 0354
-(04:09:48) All 16 felony charges against Jussie Smollett for allegedly staging a hate crime were dropped by the [[City of Chicago|Chicago]] police, despite police evidence including a video of purchased supplies, a $3,000 check, and the alleged perpetrators being [[black]] Africans [[who]] knew Smollett.
+(04:09:48) All 16 felony charges against Jussie Smollett for allegedly staging a hate crime were dropped by the [[Chicago]] police, despite police evidence including a video of purchased supplies, a $3,000 check, and the alleged perpetrators being [[black]] Africans [[who]] knew Smollett.
 
 ### AF 2019-03-26 0354
 (04:53:94) Jussie Smollett's alleged attackers were identified as [[black]] Africans from [[African continent|Africa]] [[who]] were extras on the same show and one was his personal trainer.
@@ -83,10 +83,10 @@
 (00:21:54) [[Nicholas J. Fuentes]] characterized the allegations by [[Alva Johnson]] as part of a pattern of deceptive hoaxes, linking it to the recent case involving Jussie Smollett.
 
 ### AF 2019-02-21 0336
-(00:02:20) Jussie Smollett was arrested and charged with disorderly conduct for making a false police report regarding a staged hate crime in [[City of Chicago|Chicago]].
+(00:02:20) Jussie Smollett was arrested and charged with disorderly conduct for making a false police report regarding a staged hate crime in [[Chicago]].
 
 ### AF 2019-02-21 0336
-(00:06:40) Jussie Smollett was released on $100,000 bail after surrendering to [[City of Chicago|Chicago]] police and returned to the set of the television show *Empire*.
+(00:06:40) Jussie Smollett was released on $100,000 bail after surrendering to [[Chicago]] police and returned to the set of the television show *Empire*.
 
 ### AF 2019-02-21 0336
 (00:07:09) Jussie Smollett paid two individuals $3,500 with a check to stage a physical attack on him, a transaction later acquired by police during their investigation.
@@ -104,7 +104,7 @@
 (00:01:07) [[Nicholas J. Fuentes]] introduced new developments in the case of Jussie Smollett, referencing new videos, evidence, and secret reports from the [[Chicago Police Department]].
 
 ### AF 2019-02-20 0335
-(00:04:20) [[Nicholas J. Fuentes]] recounted that Jussie Smollett reported being attacked on January 29th by two individuals he identified as [[Donald Trump|MAGA]] supporters in [[City of Chicago|Chicago]].
+(00:04:20) [[Nicholas J. Fuentes]] recounted that Jussie Smollett reported being attacked on January 29th by two individuals he identified as [[Donald Trump|MAGA]] supporters in [[Chicago]].
 
 ### AF 2019-02-20 0335
 (00:06:22) The [[Chicago Police Department]] identified two persons of interest in the Jussie Smollett case as Nigerian brothers [[who]] had worked with Smollett on the television show *Empire*.
@@ -134,7 +134,7 @@
 (00:00:00) [[Nicholas J. Fuentes]] hosts the [[United States|America]] First show, announcing coverage of a government funding bill and new details in the Jussie Smollett case.
 
 ### AF 2019-02-15 0333
-(00:05:03) Jussie Smollett, a [[black]] gay actor on the television show *Empire*, reported being attacked by two assailants in [[City of Chicago|Chicago]] on January 29th.
+(00:05:03) Jussie Smollett, a [[black]] gay actor on the television show *Empire*, reported being attacked by two assailants in [[Chicago]] on January 29th.
 
 ### AF 2019-02-15 0333
 (00:06:06) Jussie Smollett told police the attack occurred at 2 a.m. while he was going to a [[Subway]] restaurant, where the assailants yelled racial slurs, hit him, poured a substance believed to be bleach on him, and placed a rope around his neck.
@@ -143,7 +143,7 @@
 (00:07:41) During the police investigation, Jussie Smollett initially refused to turn over his phone, citing private pictures and videos, and later provided heavily redacted phone records that police deemed inadmissible.
 
 ### AF 2019-02-15 0333
-(00:09:46) Police found no surveillance footage of the alleged attack on Jussie Smollett, despite the incident occurring directly beneath a camera in [[City of Chicago|Chicago]].
+(00:09:46) Police found no surveillance footage of the alleged attack on Jussie Smollett, despite the incident occurring directly beneath a camera in [[Chicago]].
 
 ### AF 2019-02-15 0333
 (00:10:27) Authorities arrested two [[black]] [[Nigerian]] men at [[O'Hare International Airport]] as suspects in the attack on Jussie Smollett; both men had worked with Smollett on *Empire* and attended the same gym.
@@ -161,7 +161,7 @@
 (00:15:42) [[Nicholas J. Fuentes]] predicted that within six months to a year, public figures would reference the Jussie Smollett attack as a legitimate hate crime without being challenged.
 
 ### AF 2019-02-13 0331
-(01:24:00) Jussie Smollett, a gay actor on the show *Empire*, told [[City of Chicago|Chicago]] police he was attacked by two men yelling anti-gay and anti-[[black]] slurs and "This is [[Donald Trump|MAGA]] [[country]]" on January 29th.
+(01:24:00) Jussie Smollett, a gay actor on the show *Empire*, told [[Chicago]] police he was attacked by two men yelling anti-gay and anti-[[black]] slurs and "This is [[Donald Trump|MAGA]] [[country]]" on January 29th.
 
 ### AF 2019-02-13 0331
 (01:25:00) According to a report by the [[The New York Post|New York Post]], Jussie Smollett claimed his attackers poured bleach on him and put a rope around his neck.
@@ -170,7 +170,7 @@
 (01:29:00) A patron at Lizzie McNeil's [[Ireland|Irish]] Pub near the alleged attack site and neighbor Agin Mohammed expressed skepticism about Jussie Smollett's story, citing the liberal nature of the neighborhood and the lack of camera footage.
 
 ### AF 2019-02-13 0331
-(01:30:00) [[City of Chicago|Chicago]] police reviewed thousands of hours of camera footage from the area of the alleged attack on Jussie Smollett and found no evidence corroborating his account.
+(01:30:00) [[Chicago]] police reviewed thousands of hours of camera footage from the area of the alleged attack on Jussie Smollett and found no evidence corroborating his account.
 
 ### AF 2019-02-13 0331
 (01:31:00) Jussie Smollett told police he was on the phone with his manager during the attack, [[who]] claimed to have heard the incident, but Jussie Smollett refused to turn over his phone and provided only heavily redacted records.

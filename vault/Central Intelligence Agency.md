@@ -470,13 +470,13 @@
 (00:19:30) [[Vincent James]] questioned whether the CIA meeting with the [[Afghanistan|Taliban]], the subsequent warning, and the bombings were a coincidence.
 
 ### AF 2021-08-26 0867
-(00:20:41) The [[The Wall Street Journal|Wall Street Journal]] reported the CIA and [[United States|U.S]]. troops were conducting missions outside [[City of Kabul|Kabul]] airport.
+(00:20:41) The [[The Wall Street Journal|Wall Street Journal]] reported the CIA and [[United States|U.S]]. troops were conducting missions outside [[Kabul]] airport.
 
 ### AF 2021-08-27 0864
-(00:16:09) [[William J. Burns]], the director of the CIA, held a secret meeting in [[City of Kabul|Kabul]] with [[Afghanistan|Taliban]] leader [[Abdul Ghani Baradar]].
+(00:16:09) [[William J. Burns]], the director of the CIA, held a secret meeting in [[Kabul]] with [[Afghanistan|Taliban]] leader [[Abdul Ghani Baradar]].
 
 ### AF 2021-08-27 0864
-(00:20:22) [[Antony Blinken]], the [[United States]] [[Secretary of State]], warned of a "very real possibility" of an [[Islamic State of Iraq and Syria|ISIS]] attack in [[City of Kabul|Kabul]] following the CIA chief's meeting.
+(00:20:22) [[Antony Blinken]], the [[United States]] [[Secretary of State]], warned of a "very real possibility" of an [[Islamic State of Iraq and Syria|ISIS]] attack in [[Kabul]] following the CIA chief's meeting.
 
 ### AF 2021-08-27 0864
 (00:28:26) The CIA and [[U.S. Department of Defense|Department of Defense]] previously planned Operation Northwoods, a proposed false flag operation involving staged terrorism against [[United States|American]] targets to justify war with [[Cuba]].
@@ -698,10 +698,76 @@
 (48:00:16) [[Nicholas J. Fuentes]] stated that the death of [[Breitbart News|Andrew Breitbart]] in his mid-40s from a heart attack was suspicious and suggested possible involvement by the CIA or deep [[state]] organizations.
 
 ### AF 2017-09-25 0017
-(00:26:22) [[Destiny|Destiny]] stated the difference is evidence; for the [[Iraq]] War, he can point to the creation of the Office of Special Plans to bypass the CIA and sell false WMD [[intel]].
+(00:26:22) [[Destiny]] stated the difference is evidence; for the [[Iraq]] War, he can point to the creation of the Office of Special Plans to bypass the CIA and sell false WMD [[intel]].
 
 ### AF 2017-09-25 0017
-(00:28:51) [[Destiny|Destiny]] described how the [[George W. Bush|Bush]] administration created the Office of Special Plans to draft raw intelligence, bypassing the CIA, to sell the idea of [[Weapons of Mass Destruction|WMDs]] in [[Iraq]].
+(00:28:51) [[Destiny]] described how the [[George W. Bush|Bush]] administration created the Office of Special Plans to draft raw intelligence, bypassing the CIA, to sell the idea of [[Weapons of Mass Destruction|WMDs]] in [[Iraq]].
 
 ### AF 2021-05-26 0817
 (21:07:000) [[Nicholas J. Fuentes]], an [[United States|American]] dissident, believes he would be safer in [[China]] or [[Russia]] where the CIA cannot operate effectively, compared to the [[United States]] or other areas under [[United States|American]] hegemonic control.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:50:49) [[Donald Trump]] reportedly mobilized an "air armada" with the [[U.S. Department of Defense|Pentagon]] and the CIA to rescue two F-15 pilots stranded in [[Iran]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:18:43) [[Nicholas J. Fuentes]] recalled that the [[United States]] supplied [[Iran|Iranian]] protesters with weapons through the [[Kurdistan|Kurds]], which he had previously identified as a CIA, [[Israel Defense Forces|Mossad]], or [[U.S. Department of Defense|Department of Defense]] invasion by proxy.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:07:24) [[Joe Kent]] was in the CIA, [[Tucker Carlson]]'s father was in the CIA, and [[Peter Thiel]] was identified as a CIA contractor through his company [[Palantir Technologies|Palantir]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:20:11) The [[JD Vance|Vance]] faction, including [[Costin Alamariu|Bronze Age Pervert]] (despite being [[Jews|Jewish]]), [[Tucker Carlson]], and a faction from within the CIA, was against the war because they believed it would hurt [[JD Vance|Vance]]'s chances.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:23:40) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]]’s father, [[Joe Kent]], and [[Peter Thiel]] all had connections to the CIA, and that [[JD Vance]] worked for [[Peter Thiel]], a CIA contractor.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:26:28) [[Nicholas J. Fuentes]] characterized the narrative of [[Joe Kent]]—a disillusioned war hero turned anti-war [[patriot]]—as a constructed story, noting that [[Joe Kent]]’s wife did die but that [[Joe Kent]] was a CIA operative.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:32:34) [[Nicholas J. Fuentes]] rejected the idea that [[Joe Kent]] had been “red pilled,” stating that [[Joe Kent]] was a CIA officer and part of a political power play, not an ordinary [[person]] influenced by media.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:38:41) [[Nicholas J. Fuentes]] claimed that the internet in the [[United States]] is "pumped full of propaganda" from [[Israel]], [[India]], and the CIA.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:43:09) [[Tucker Carlson]]'s dad ran [[Voice of America]] for the CIA and then was at the [[Foundation for Defensive Democracies]], the most pro-[[Israel]] think tank in [[Washington D.C.|DC]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:23:47:00) For its first eight years of existence, [[Palantir Technologies|Palantir]] worked with the CIA.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:04) [[Peter Thiel]], [[Tucker Carlson]], and CIA connected individuals planned for [[JD Vance]] to become the [[Republican Party|Republican]] nominee for [[president]] in 2028.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:02:46) [[Tucker Carlson]] hosted a guest [[who]] claimed the CIA hired a psychic to use remote viewing to see aliens working with the military inside an [[Alaska]] base, and that the psychic was killed by a CIA heart attack gun.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:03:49) [[Nicholas J. Fuentes]] stated that his father was not in the CIA and that his best friends are not in the CIA, in contrast to [[Tucker Carlson]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:07:52) The CIA and [[Israel Defense Forces|Mossad]] armed protests in [[Iran]], which were embellished by the media and assisted by [[Elon Musk]]'s [[White House|Starlink]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:13) [[Marco Rubio]] is the [[U.S. Department of State|Secretary of State]], [[John Ratcliffe|Ratcliffe]] is the CIA director, and [[Michael Waltz|Waltz]] is the [[NSA]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:55:54) [[Nicholas J. Fuentes]] argued that [[Tucker Carlson]]'s "Mr. Smith Goes to [[Washington D.C.|Washington]] shtick" is cowardice, as he is a multimillionaire with friends in the CIA.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:57:12) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]]'s best friend [[Joe Kent]] is a CIA officer, and that [[Tucker Carlson]] is in favor of [[Peter Thiel]], [[who]] is a CIA contractor.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:47:09) The [[Network Contagion Research Institute]] (NCRI) is based at the Center for Critical Intelligence Studies (CCIS) at [[Prager University|Rutgers University]], which [[Nicholas J. Fuentes]] described as a front for the Central Intelligence Agency (CIA).
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:47:42) The Central Intelligence Agency (CIA) conducted mind control experiments on [[Hungary|Hungarian]] immigrants at [[Prager University|Rutgers University]] as part of the [[Concept|MKUltra]] program.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:48:20) The Center for Critical Intelligence Studies (CCIS) receives grants from the [[Defense Intelligence Agency]] (DIA) and has classes taught by agents from the [[Federal Bureau of Investigation]] ([[Federal Bureau of Investigation|FBI]]) and the Central Intelligence Agency (CIA).
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:20) [[Joe Kent]], a CIA officer and friend of [[Tucker Carlson]], lost his 2022 congressional race because [[Nicholas J. Fuentes]] campaigned against him.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:43) [[Tucker Carlson]]'s father ran [[White House|Voice of America]] for the Central Intelligence Agency (CIA), and [[Tucker Carlson]] is "tight with [[Hungary]] and [[Russian Federation|Russia]]."

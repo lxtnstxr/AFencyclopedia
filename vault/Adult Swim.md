@@ -12,7 +12,7 @@
 (01:27:07) [[Nicholas J. Fuentes]] argued that social media was the place where individuals like [[Tim Pool]], [[The Joe Rogan Experience|Joe Rogan]], himself, [[Mike Cernovich]], [[Douglas Mackey|Ricky Vaughn]], [[Comrade Stump]], [[Beardson Beardley]], or [[Samuel J. Hyde|Sam Hyde]] could subvert traditional media like Adult Swim, [[Warner Bros. Discovery|CNN]], and [[Fox News]].
 
 ### AF 2020-10-13 0700
-(00:39:08) [[Nicholas J. Fuentes]] criticized [[Tim Heidecker]], a comedian from Adult Swim, for tattling to [[Google|YouTube]] about anti-Semitism and [[City of Charlottesville|Charlottesville]] instead of being funny, calling it a demoralizing state of affairs.
+(00:39:08) [[Nicholas J. Fuentes]] criticized [[Tim Heidecker]], a comedian from Adult Swim, for tattling to [[Google|YouTube]] about anti-Semitism and [[Charlottesville]] instead of being funny, calling it a demoralizing state of affairs.
 
 ### AF 2019-05-14 0387
 (00:33:06) [[Joseph Bernstein|Joe Bernstein]] was previously responsible for a [[BuzzFeed]] article that led to the cancellation of the comedy show "[[Million Dollar Extreme]]'s World Peace" on Adult Swim.

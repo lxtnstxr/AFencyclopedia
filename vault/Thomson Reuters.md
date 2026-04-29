@@ -61,3 +61,9 @@
 
 ### AF 2017-11-09 0050
 (16:31:00) Two [[Lebanon|Lebanese]] sources told Reuters that the resigned Prime Minister of [[Lebanon]] was being kept under [[house]] arrest in [[Saudi Arabia]], with one source alleging [[Saudi Arabia]] pressured his resignation as part of a royal purge.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:59:33) [[Washington Post|The Washington Post]] and Reuters reported that [[Donald Trump]] requested military options to invade [[Iran]] and secure its stockpile of highly enriched uranium.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:03:10) Polling from Reuters and the [[Washington Post]] indicated that 30% of the [[United States|American]] people supported the war with [[Iran]].

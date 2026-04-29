@@ -33,7 +33,7 @@
 (02:56:00) [[Saurabh Sharma]] joined the board of the National Conservatism [[organization]], which was founded by dual [[Israel|Israeli]]-[[United States]] citizen [[Youram Hazony|Yoram Hazony]] and funded by figures like [[Roger Hertog]] and [[Peter Thiel]].
 
 ### AF 2023-05-09 1158
-(19:18:690) [[Nicholas J. Fuentes]] identified institutions like the National Conservative Conference, run by [[Youram Hazony|Yoram Hazony]], and the [[Claremont Institute]], funded by [[Paul Singer]], as being central to an [[United States|American]] right faction bolstered by money and influence from [[Israel]]'s [[Labor Party|Likud]] party.
+(19:18:690) [[Nicholas J. Fuentes]] identified institutions like the National Conservative Conference, run by [[Youram Hazony|Yoram Hazony]], and the [[Claremont Institute]], funded by [[Paul Singer]], as being central to an [[United States|American]] right faction bolstered by money and influence from [[Israel]]'s [[Likud]] party.
 
 ### AF 2023-05-09 1158
 (19:52:030) [[Youram Hazony|Yoram Hazony]], a dual citizen of [[Israel]] and the [[United States]], hosted the National Conservative Conference where figures like [[Josh Hawley]], [[Ron DeSantis]], [[Marco Rubio]], [[JD Vance]], and [[Blake Masters]] spoke.

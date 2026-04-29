@@ -39,4 +39,4 @@
 (00:33:12) The Huanan Seafood Market in Wuhan was identified as a potential origin point for the virus, where vendors sold live animals including wolf pups, foxes, rats, peacocks, crocodiles, giant salamanders, snakes, porcupines, and camel meat.
 
 ### AF 2020-01-21 0529
-(00:45:16) [[Nicholas J. Fuentes]] stated that the first [[United States|U.S]]. case of the coronavirus was confirmed in [[City of Seattle|Seattle]] after a man arrived from [[China]] before enhanced health screenings were announced at major [[United States|U.S]]. airports for passengers from Wuhan.
+(00:45:16) [[Nicholas J. Fuentes]] stated that the first [[United States|U.S]]. case of the coronavirus was confirmed in [[Seattle]] after a man arrived from [[China]] before enhanced health screenings were announced at major [[United States|U.S]]. airports for passengers from Wuhan.

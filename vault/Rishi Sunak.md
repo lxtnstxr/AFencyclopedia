@@ -6,10 +6,10 @@
 
 
 ### AF 2023-10-23 1240
-(00:16:49) Rishi Sunak's government in the [[United Kingdom]] and [[Emmanuel Macron]]'s government in [[Government of France|France]] announced plans to deport [[Islam|Muslims]] who support [[Hamas]].
+(00:16:49) Rishi Sunak's government in the [[United Kingdom]] and [[Emmanuel Macron]]'s government in [[France]] announced plans to deport [[Islam|Muslims]] who support [[Hamas]].
 
 ### AF 2023-10-05 1230
-(00:26:49) [[Nicholas J. Fuentes]] stated that Western democracies are fine with center-right leaders like [[Emmanuel Macron]] in [[Government of France|France]], Rishi Sunak in the [[United Kingdom]], or [[Mitt Romney]] and [[John McCain]] in the [[United States]], but treat specific right-wing, anti-immigration candidates as a threat to democracy.
+(00:26:49) [[Nicholas J. Fuentes]] stated that Western democracies are fine with center-right leaders like [[Emmanuel Macron]] in [[France]], Rishi Sunak in the [[United Kingdom]], or [[Mitt Romney]] and [[John McCain]] in the [[United States]], but treat specific right-wing, anti-immigration candidates as a threat to democracy.
 
 ### AF 2023-08-08 1198
 (00:08:03) [[Nicholas J. Fuentes]] criticized contemporary Western leaders like [[Justin Trudeau]], [[Barack Obama]], Rishi Sunak, and [[Angela Merkel]] as inferior to past authoritarian figures.

@@ -126,7 +126,7 @@
 (00:43:09) [[Nicholas J. Fuentes]] reported that the [[AstraZeneca]] vaccine, not yet greenlit by the FDA in the [[United States]], was stopped in multiple countries due to bad reactions, with [[Dominion of Canada|Canada]] halting it for people under 55 due to blood clot concerns.
 
 ### AF 2020-10-02 0694
-(00:08:22) [[Donald Trump]]'s physician, [[Sean Conley]], administered an experimental antibody treatment not yet approved by the FDA, and [[Donald Trump|the president]] also took supplements including zinc, vitamin D, and melatonin.
+(00:08:22) [[Donald Trump]]'s physician, [[Sean Conley]], administered an experimental antibody treatment not yet approved by the FDA, and [[the president]] also took supplements including zinc, vitamin D, and melatonin.
 
 ### AF 2020-03-12 0563
 (00:27:05) [[Scott Gottlieb]], former commissioner of the FDA, estimated that [[United States|U.S]]. labs had a capacity to process results for more than 20,000 coronavirus patients per day, compared to [[South Korea]] which was testing 15,000 people daily.

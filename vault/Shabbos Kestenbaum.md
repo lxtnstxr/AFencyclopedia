@@ -19,3 +19,6 @@
 
 ### AF 2024-08-02 1366
 (19:40:24) Shabbos Kestenbaum, a [[Democratic Party|Democrat]] who spoke at the [[Republican Party]] National Convention and was suing [[Harvard University]] for antisemitism, published a video arguing that Diversity, Equity, and Inclusion (DEI) programs were antisemitic.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:23:39) [[Nicholas J. Fuentes]] argued that even the Religious Liberty Commission is not for [[Christianity|Christians]] but to give a hearing for Shabbos Kestenbaum to complain about antisemitism at [[Harvard University]].

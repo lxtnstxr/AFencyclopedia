@@ -25,7 +25,7 @@
 (02:19:29) [[Nicholas J. Fuentes]] said he is considering moving to [[Wisconsin]] because Illinois is "cucked," but defended Illinois as his home.
 
 ### AF 2019-11-15 0500
-(01:47:06) [[Nicholas J. Fuentes]] revealed that he campaigned for [[Ted Cruz]] in the Illinois primary on March 15, 2016, door-knocking in neighborhoods like Little Village and McKinley Park in [[City of Chicago|Chicago]].
+(01:47:06) [[Nicholas J. Fuentes]] revealed that he campaigned for [[Ted Cruz]] in the Illinois primary on March 15, 2016, door-knocking in neighborhoods like Little Village and McKinley Park in [[Chicago]].
 
 ### AF 2019-11-11 0496
 (01:09:53:83) [[Nicholas J. Fuentes]] cited a recently passed law in Illinois requiring children under 12 to learn about the history of the LGBT movement, including the Stonewall Riots, in their curriculum.
@@ -79,7 +79,7 @@
 (01:00:29:87) [[Nicholas J. Fuentes]] stated it was great to meet a viewer named Dominic Liberatore at the [[Donald Trump]] rally and expressed tentative support for "sanctuary gun counties" in Illinois as a tactical co-option of left-wing rhetoric.
 
 ### AF 2018-03-30 0135
-(00:17:06) [[Nicholas J. Fuentes]], [[who]] lives in Illinois, stated that [[City of Chicago|Chicago]] has some of the strictest gun laws in the [[United States]], including regulations on guns and cigarettes, though there is no statewide semi-automatic weapons ban.
+(00:17:06) [[Nicholas J. Fuentes]], [[who]] lives in Illinois, stated that [[Chicago]] has some of the strictest gun laws in the [[United States]], including regulations on guns and cigarettes, though there is no statewide semi-automatic weapons ban.
 
 ### AF 2018-03-30 0135
 (01:29:47) The caller shared that he sparred well at his boxing gym, helping train Illinois's best boxer "Tommy White Lightning Hughes," which [[Nicholas J. Fuentes]] praised as the kind of strength-building, face-punching adversity that prepares men for life.
@@ -103,7 +103,7 @@
 (00:37:01) [[Nicholas J. Fuentes]] mentioned former Illinois congressman [[Joe Walsh]] as an example of a commentator [[who]] would point out media hypocrisy.
 
 ### AF 2017-11-24 0057
-(01:00:01.500) [[Nicholas J. Fuentes]] criticized his hometown of [[City of Chicago|Chicago]], Illinois, for high taxes, rising crime, population flight, and a [[Hispanic]] takeover of the [[west]] side, calling it a once-great [[city]] now going to hell.
+(01:00:01.500) [[Nicholas J. Fuentes]] criticized his hometown of [[Chicago]], Illinois, for high taxes, rising crime, population flight, and a [[Hispanic]] takeover of the [[west]] side, calling it a once-great [[city]] now going to hell.
 
 ### AF 2017-11-24 0057
 (01:00:43.350) [[Nicholas J. Fuentes]] commented on former Illinois Governor [[Rod Blagojevich]], saying he was a criminal but shouldn't have been in prison for as long as he was, noting that immigrants [[who]] kill people sometimes get less [[time]].

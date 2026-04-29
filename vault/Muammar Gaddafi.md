@@ -27,10 +27,10 @@
 (25:44:58) The sanctions were intended to cause [[Vladimir Putin]] to suffer the same fate as [[Saddam Hussein]] or Muammar Gaddafi, and for [[Russia]] to suffer the same fate as [[Syria]], [[Libya]], or [[Arab Republic of Egypt|Egypt]].
 
 ### AF 2022-03-23 0963
-(01:06:13:60) [[Nicholas J. Fuentes]] cited Gaddafi, [[Saddam Hussein]], [[Columbia|Colombia]], and [[Serbia]] as examples of [[United States|U.S.]] interventionism while critics called [[Vladimir Putin|Putin]]'s actions "19th century."
+(01:06:13:60) [[Nicholas J. Fuentes]] cited Gaddafi, [[Saddam Hussein]], [[Colombia]], and [[Serbia]] as examples of [[United States|U.S.]] interventionism while critics called [[Vladimir Putin|Putin]]'s actions "19th century."
 
 ### AF 2022-03-21 0962
-(01:10:43:42) [[Destiny|Destiny]] argued that [[North Atlantic Treaty Organization|NATO]]'s 2011 intervention in [[Libya]] to depose Muammar Gaddafi was a justified violation of sovereignty, leading [[Nicholas J. Fuentes]] to conclude that, in [[Destiny]]'s view, sovereignty was conditional and determined by [[North Atlantic Treaty Organization|NATO]].
+(01:10:43:42) [[Destiny]] argued that [[North Atlantic Treaty Organization|NATO]]'s 2011 intervention in [[Libya]] to depose Muammar Gaddafi was a justified violation of sovereignty, leading [[Nicholas J. Fuentes]] to conclude that, in [[Destiny]]'s view, sovereignty was conditional and determined by [[North Atlantic Treaty Organization|NATO]].
 
 ### AF 2022-03-11 0956
 (01:08:01) [[Nicholas J. Fuentes]] blamed [[North Atlantic Treaty Organization|NATO]] for the destabilization and [[civil war]] in [[Libya]] following the deposition of Muammar Gaddafi.

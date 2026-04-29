@@ -15,4 +15,4 @@
 (01:25:56) [[Nicholas J. Fuentes]], asked for book recommendations on right-wing nationalism/socialism distinct from [[National Socialism]], cited [[Carl Schmitt]], Martin Heidegger, [[Leo Strauss]], [[Oakeshott]], [[Donoso Cortés]], [[Hamann]], and [[Spengler]] as foundational thinkers for understanding modern conservatism, which he described as inherently socialistic.
 
 ### AF 2017-12-18 0071
-(01:12:50) [[Nicholas J. Fuentes]] agreed that the alt-right needs to read [[Christianity|Christian]] authors like [[G.K. Chesterton]] and [[G.K. Chesterton|C.S. Lewis]] to understand [[Christianity]]'s significance, noting that alt-right reading lists prominently feature Heidegger, [[Friedrich Nietzsche|Nietzsche]], and [[Guillaume Faye]] but exclude [[Christianity|Christian]] thinkers.
+(01:12:50) [[Nicholas J. Fuentes]] agreed that the alt-right needs to read [[Christianity|Christian]] authors like [[G.K. Chesterton]] and [[C.S. Lewis]] to understand [[Christianity]]'s significance, noting that alt-right reading lists prominently feature Heidegger, [[Friedrich Nietzsche|Nietzsche]], and [[Guillaume Faye]] but exclude [[Christianity|Christian]] thinkers.

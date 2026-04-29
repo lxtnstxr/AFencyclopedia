@@ -81,7 +81,7 @@
 (42:30:47) [[Nicholas J. Fuentes]] pointed to [[Julian Assange]] being in jail and Edward Snowden seeking asylum in [[Russia]] as evidence of the [[United States|U.S.]] government jailing political dissidents.
 
 ### AF 2021-01-19 0745
-(00:24:21) [[Nicholas J. Fuentes]] stated that despite having nothing left to lose, [[Donald Trump|Trump]]'s final pardons did not include loyalists like [[Julian Assange]], Edward Snowden, [[Steven Crowder|Steve Bannon]], or [[United States Capitol|Capitol]] rioters, but instead rewarded enemies.
+(00:24:21) [[Nicholas J. Fuentes]] stated that despite having nothing left to lose, [[Donald Trump|Trump]]'s final pardons did not include loyalists like [[Julian Assange]], Edward Snowden, [[Steve Bannon]], or [[United States Capitol|Capitol]] rioters, but instead rewarded enemies.
 
 ### AF 2020-12-23 0739
 (03:40:61) [[Mike Pence]]'s Chief of Staff, [[Nick Ayers]], was best friends with the staff of [[Nikki Haley]], and [[Mike Pence]] was allegedly a neoconservative who blocked pardons for Edward Snowden and [[Julian Assange]] within the [[White House]].

@@ -30,4 +30,4 @@
 (00:29:43) Brandon Straka and other gay conservatives criticized [[Nicholas J. Fuentes]] online after the incident where he led a crowd in booing [[Lauren Boebert|Lady Maga]] at the [[Washington D.C.|Washington, D.C.]] rally.
 
 ### AF 2020-12-07 0729
-(00:20:48) Previous rallies in [[Atlanta]] and [[City of Phoenix|Phoenix]] featured other figures like [[Alex Jones]], [[Ali Alexander]], [[Scott Pressler]], and Brandon Straka.
+(00:20:48) Previous rallies in [[Atlanta]] and [[Phoenix]] featured other figures like [[Alex Jones]], [[Ali Alexander]], [[Scott Pressler]], and Brandon Straka.

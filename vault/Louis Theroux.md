@@ -105,7 +105,7 @@
 (02:02:34) [[Nicholas J. Fuentes]] criticized Louis Theroux's rebuttal about slavery as a stupid, asinine, and smug comment, and noted that the [[United Kingdom|British]] were pioneers of the African slave trade.
 
 ### AF 2022-02-15 0947
-(02:05:00) [[Nicholas J. Fuentes]] remarked that Louis Theroux must really think the movement is a cult, as he flew to [[City of Phoenix|Phoenix]] to find people watching [[Fuentes]]'s show every day.
+(02:05:00) [[Nicholas J. Fuentes]] remarked that Louis Theroux must really think the movement is a cult, as he flew to [[Phoenix]] to find people watching [[Fuentes]]'s show every day.
 
 ### AF 2022-02-15 0947
 (02:07:14) [[Nicholas J. Fuentes]] stated that Louis Theroux's line "let's not be silly and pretend it's not about race" was a condescending way of asking [[Beardson]] to drop the act and admit he is racist.
@@ -159,7 +159,7 @@
 (02:13:01) As Louis Theroux began to say "you're involved in a movement," [[Beardson Beardley]] interrupted with "hey Louis, go fuck yourself. I have nothing else to say to you. Eat shit. Bye bye."
 
 ### AF 2022-02-15 0947
-(02:13:56) [[Nicholas J. Fuentes]] stated that Louis Theroux and the [[BBC]] flew to [[City of Chicago|Chicago]], drove to [[State of Kentucky|Kentucky]] for a four or five hour drive, and were kicked out by [[Beardson Beardley]] after ten minutes, and made [[Beardson]] the enemy of the show out of vindictiveness.
+(02:13:56) [[Nicholas J. Fuentes]] stated that Louis Theroux and the [[BBC]] flew to [[Chicago]], drove to [[State of Kentucky|Kentucky]] for a four or five hour drive, and were kicked out by [[Beardson Beardley]] after ten minutes, and made [[Beardson]] the enemy of the show out of vindictiveness.
 
 ### AF 2022-02-15 0947
 (02:14:11) [[Nicholas J. Fuentes]] claimed that Louis Theroux doxed [[Beardson Beardley]] by using his real name in the documentary, which he never goes by, as a petty retaliation for being kicked out.
@@ -216,7 +216,7 @@
 (00:15:00) [[Nicholas J. Fuentes]] expressed skepticism about Louis Theroux's documentary project, believing that liberal media would never produce a sympathetic or ambiguous portrayal of the [[America First]] movement.
 
 ### AF 2021-07-29 0850
-(24:17:62) Louis Theroux visited [[City of Chicago|Chicago]] in March or April.
+(24:17:62) Louis Theroux visited [[Chicago]] in March or April.
 
 ### AF 2021-07-29 0850
 (24:25:10) [[Nicholas J. Fuentes]] and Louis Theroux initially doubted predictions of a fourth wave of [[COVID-19]] due to low hospitalization, death, and infection rates, believing herd immunity was approaching.

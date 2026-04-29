@@ -7,3 +7,6 @@
 
 ### AF 2018-06-28 0190
 (01:13:23) Kathy Griffin posed with a severed head resembling [[Donald Trump]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:23:30) Kathy Griffin’s pictures in 2017 disgust [[Nicholas J. Fuentes]].

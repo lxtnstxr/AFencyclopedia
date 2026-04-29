@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2024-04-24 1325
-(08:23:68) [[Nicholas J. Fuentes]] reported that a massive pro-[[Gaza Strip|Palestine]] protest at University of Texas at Austin prompted [[Greg Abbott]], the governor of [[State of Texas|Texas]], to comment on it and call for the [[U.S. Department of Defense|National Guard]] to disperse the protestors.
+(08:23:68) [[Nicholas J. Fuentes]] reported that a massive pro-[[Palestine]] protest at University of Texas at Austin prompted [[Greg Abbott]], the governor of [[State of Texas|Texas]], to comment on it and call for the [[U.S. Department of Defense|National Guard]] to disperse the protestors.
 
 
 ### AF 2019-11-11 0496

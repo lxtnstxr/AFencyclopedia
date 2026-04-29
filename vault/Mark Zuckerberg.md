@@ -99,7 +99,7 @@
 (01:00:05) [[Nicholas J. Fuentes]] claimed that [[BlackRock]], Mark Zuckerberg, [[Twitter|Jack Dorsey]], [[Google]], the [[Anti-Defamation League|ADL]], and [[Southern Poverty Law Center|SPLC]] have a stranglehold over the [[country]], with [[Benjamin Netanyahu|Bibi Netanyahu]] "calling the shots."
 
 ### AF 2021-06-09 0826
-(01:10:52:20) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] congratulated [[Donald Trump|the president]] of [[Nigeria]] for banning [[Twitter]] and said he would have done the same, but Mark Zuckerberg "kept telling him how great he was."
+(01:10:52:20) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] congratulated [[the president]] of [[Nigeria]] for banning [[Twitter]] and said he would have done the same, but Mark Zuckerberg "kept telling him how great he was."
 
 ### AF 2021-06-08 0825
 (00:57:59) [[ProPublica]]'s report obtained [[Internal Revenue Service|IRS]] data on thousands of wealthy [[United States|Americans]], including [[Warren Buffett]], [[Bill Gates]], [[Rupert Murdoch]], and Mark Zuckerberg, covering more than 15 years.
@@ -189,7 +189,7 @@
 (00:39:36) [[Nicholas J. Fuentes]] questioned the altruism of billionaires like [[Bill Gates]], [[Jeff Bezos]], and Mark Zuckerberg, suggesting their promotion of vaccines and public health initiatives served their own monetary and power interests.
 
 ### AF 2019-10-02 0471
-(00:52:52) [[Nicholas J. Fuentes]] accused Mark Zuckerberg, [[Google]], and [[Twitter|Jack Dorsey]] of cooperating with government and media interests to ban users [[who]] asked questions about events like the [[City of Las Vegas|Las Vegas]] shooting, [[Sandy Hook]], and [[Jeffrey Epstein]].
+(00:52:52) [[Nicholas J. Fuentes]] accused Mark Zuckerberg, [[Google]], and [[Twitter|Jack Dorsey]] of cooperating with government and media interests to ban users [[who]] asked questions about events like the [[Las Vegas]] shooting, [[Sandy Hook]], and [[Jeffrey Epstein]].
 
 ### AF 2019-07-10 0422
 (00:15:14) [[Nicholas J. Fuentes]] argued that Mark Zuckerberg wields power greater than Roman emperors due to [[Facebook]]'s 2.5 billion monthly active users and its control over global information flow.
@@ -259,3 +259,9 @@
 
 ### AF 2017-12-15 0070
 (00:10:47) Mark Zuckerberg publicly opposed the repeal of net neutrality.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:02:24) [[Nicholas J. Fuentes]] noted that in 2024, [[Jeff Bezos]], [[Elon Musk]], and Mark Zuckerberg were at the inauguration, unlike in 2016.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:32:00) [[Nicholas J. Fuentes]] stated that [[Elon Musk]], [[Jeff Bezos]], and Mark Zuckerberg were all at the inauguration because they are all working for the same agenda of foreign labor, globalization, free trade, and wars for [[Israel]], and are all in the [[Jeffrey Epstein|Epstein]] files.

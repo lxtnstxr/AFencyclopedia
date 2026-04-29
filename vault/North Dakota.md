@@ -30,7 +30,7 @@
 (01:02:17) [[Nicholas J. Fuentes]] listed key upcoming [[Democratic Party|Democratic]] primary contests, including [[State of Michigan|Michigan]], [[Washington D.C.|Washington]], [[State of Missouri|Missouri]], [[Idaho]], [[State of Mississippi|Mississippi]], and North Dakota the following week, and [[State of Florida|Florida]], [[State of Illinois|Illinois]], [[State of Ohio|Ohio]], and [[Arizona]] the week after.
 
 ### AF 2019-09-09 0457
-(01:53:38) [[Nicholas J. Fuentes]] criticized the North Dakota [[constitution]] for only recognizing "two biological genders," arguing(01:08:44) [[Nicholas J. Fuentes]] announced that a viewer named Bakers had purchased a ticket for an upcoming event in [[City of Miami|Miami]].
+(01:53:38) [[Nicholas J. Fuentes]] criticized the North Dakota [[constitution]] for only recognizing "two biological genders," arguing(01:08:44) [[Nicholas J. Fuentes]] announced that a viewer named Bakers had purchased a ticket for an upcoming event in [[Miami]].
 
 ### AF 2018-12-14 0296
 (00:32:50) [[Democratic Party|Democratic]] Senator [[Heidi Heitkamp]] of North Dakota was defeated after voting against the confirmation of [[Supreme Court of the United States|Supreme Court]] Justice [[Brett Kavanaugh]].

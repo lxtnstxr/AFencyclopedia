@@ -91,7 +91,7 @@
 (01:55:280) Andrew Klavan's remarks on "[[Jesus Christ|Christ]] is [[Martin Luther King Jr.|King]]" sparked a major public battle among conservatives on [[Twitter]], pitting die-hard [[Christianity|Christians]] against [[Jewish]] commentators and philosemites.
 
 ### AF 2024-03-26 1308
-(05:23:660) [[Nicholas J. Fuentes]] participated in a [[Twitter]] Space about the controversy with [[Lauren Boebert|Lauren Chen]], [[Sovereign Bra]], [[Chase]], [[Adam Kinzinger|Adam King]], Andrew Meyer, [[Karlyn Borysenko]], [[Laura Loomer]], and [[Donald Trump|Chief Trumpster]].
+(05:23:660) [[Nicholas J. Fuentes]] participated in a [[Twitter]] Space about the controversy with [[Lauren Boebert|Lauren Chen]], [[Sovereign Bra]], [[Chase]], [[Adam Kinzinger|Adam King]], Andrew Meyer, [[Karlyn Borysenko]], [[Laura Loomer]], and [[Chief Trumpster]].
 
 ### AF 2024-03-26 1308
 (34:41:910) Andrew Klavan said [[Candace Owens]]'s use of "[[Jesus Christ|Christ]] is [[Martin Luther King Jr.|King]]" was satanic because "the [[Jews]] built everything," and argued [[Ben Shapiro]] could be a servant of God without being a [[Christianity|Christian]].
@@ -136,7 +136,7 @@
 (10:04:48) [[The Daily Wire]], founded by [[Ben Shapiro]], also hosts shows by Andrew Klavan, [[Matt Walsh]], and [[Michael Knowles]] and is headquartered in [[Nashville]].
 
 ### AF 2023-12-14 1263
-(01:40:02) Andrew Klavan of [[The Daily Wire]] reacted to a clip of [[Nicholas J. Fuentes]] by suggesting he was trying out to be [[Donald Trump|the president]] of [[Harvard University|Harvard]].
+(01:40:02) Andrew Klavan of [[The Daily Wire]] reacted to a clip of [[Nicholas J. Fuentes]] by suggesting he was trying out to be [[the president]] of [[Harvard University|Harvard]].
 
 ### AF 2023-07-26 1193
 (00:09:57) Andrew Klavan of [[The Daily Wire]] dedicated a segment of his stream to [[Nicholas J. Fuentes]] and [[Andrew Tate]], framing them as two sides of the same coin and rejecting their brand of conservatism.

@@ -2,10 +2,10 @@
 #Unknown
 
 ### AF 2023-03-11 1129
-(00:01:16) [[Mike Johnson|Kevin McCarthy]] announced in an interview with [[Breitbart News|Breitbart]] his intention to release all [[January 6th Attack|January 6th]] Capitol footage to the public, pending security reviews with the Capitol Police.
+(00:01:16) [[Kevin McCarthy]] announced in an interview with [[Breitbart News|Breitbart]] his intention to release all [[January 6th Attack|January 6th]] Capitol footage to the public, pending security reviews with the Capitol Police.
 
 (01:01:01) [[Tucker Carlson]]'s Monday report on the [[January 6th Attack|January 6th]] tapes revealed that Officer [[Brian Sicknick]] was not killed by rioters and that [[Jacob Chansley]] (the Q Shaman) was escorted peacefully by Capitol Police.
-(01:03:24) [[Mike Johnson|Kevin McCarthy]], in an interview with [[Breitbart News|Breitbart]], stated the [[January 6th Attack|January 6th]] committee never consulted the Capitol Police about security concerns before releasing footage that revealed secure leadership locations.
+(01:03:24) [[Kevin McCarthy]], in an interview with [[Breitbart News|Breitbart]], stated the [[January 6th Attack|January 6th]] committee never consulted the Capitol Police about security concerns before releasing footage that revealed secure leadership locations.
 
 ### AF 2021-06-15 0829
 (07:16:84) [[Revolver News|Revolver]] was the first to expose that US Capitol Police Officer [[Brian Sicknick]] was not killed by [[United States Capitol|Capitol]] rioters.

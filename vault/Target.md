@@ -15,4 +15,4 @@
 (00:50:17) [[Nicholas J. Fuentes]] recounted a personal experience at Target where a security guard aggressively approached him for not having his mask on immediately upon entering, which he felt was unjustified.
 
 ### AF 2020-05-28 0615
-(00:50:33) Rioters in [[City of Minneapolis|Minneapolis]] looted and burned a Target store, a [[Cub Foods]] supermarket, a [[Wendy's]], and an [[AutoZone]].
+(00:50:33) Rioters in [[Minneapolis]] looted and burned a Target store, a [[Cub Foods]] supermarket, a [[Wendy's]], and an [[AutoZone]].

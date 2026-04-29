@@ -11,7 +11,7 @@
 ### AF 2025-09-25 1571
 (48:16:21) The ADL waged a war against [[Elon Musk]] and [[Twitter|X]], leading an advertiser boycott until [[Elon Musk|Musk]] made a "pilgrimage to [[Israel]]."
 ### AF 2025-09-26 1572
-(00:07:52) [[Nicholas J. Fuentes]] referenced an incident where [[Kanye West]] tweeted about [[Jews]] inventing cancel culture, after which [[Donald Trump|the president]] of the Anti-Defamation League stated they had to shut him down.
+(00:07:52) [[Nicholas J. Fuentes]] referenced an incident where [[Kanye West]] tweeted about [[Jews]] inventing cancel culture, after which [[the president]] of the Anti-Defamation League stated they had to shut him down.
 ### AF 2025-09-29 1573
 (25:16:65) [[Nicholas J. Fuentes]] argued the right should unite against [[Jewish]] influence in [[America]], naming organizations like the ADL, [[American Israel Public Affairs Committee|AIPAC]], and the [[U.S. Department of State|State Department]].
 ### AF 2025-09-30 1574
@@ -100,7 +100,7 @@
 (00:47:52) [[Nicholas J. Fuentes]] argued that [[Jewish]] critics of [[Israel]] refuse to examine broader [[Jewish]] power structures like the [[World Jewish Congress]], [[Zionist Organization of America]], Anti-Defamation League, dual citizenship, Hollywood, banks, or the [[Talmud]].
 
 ### AF 2024-08-28 1379
-(01:02:28) Advocacy groups like the Anti-Defamation League pressure platforms such as [[Twitter]] and [[TikTok]] to censor criticism of [[Israel]] and support for [[Gaza Strip|Palestine]].
+(01:02:28) Advocacy groups like the Anti-Defamation League pressure platforms such as [[Twitter]] and [[TikTok]] to censor criticism of [[Israel]] and support for [[Palestine]].
 
 ### AF 2024-08-07 1369
 (05:58:00) The ADL marshaled an advertiser boycott against [[Twitter]] after [[Elon Musk]] acquired it, nearly bankrupting the platform, which only subsided after [[Elon Musk]] made an agreement with the ADL following the [[October 7th Attack]].
@@ -211,7 +211,7 @@
 (50:15:02) [[Elon Musk]] is embroiled in an anti-Semitism controversy with the ADL, a [[Jewish]] [[organization]], and faces threats from [[Benjamin Netanyahu|Bibi]].
 
 ### AF 2023-12-09 1260
-(00:15:27) [[Nicholas J. Fuentes]] framed a conflict between [[Elon Musk]] and [[Disney|Disney]] and the ADL over a free and open internet.
+(00:15:27) [[Nicholas J. Fuentes]] framed a conflict between [[Elon Musk]] and [[Disney]] and the ADL over a free and open internet.
 
 ### AF 2023-11-29 1253
 (00:21:13) [[Nicholas J. Fuentes]] referenced the "Ban the ADL" campaign, which initially argued that the [[Jewish]] group ADL should not control political discourse in [[United States|America]] through censorship.
@@ -244,7 +244,7 @@
 (00:22:00) [[Nicholas J. Fuentes]] claimed the ADL and the [[Southern Poverty Law Center|SPLC]] maintain a countdown calendar for when white people will become a minority in the [[United States]].
 
 ### AF 2023-10-23 1240
-(00:36:29) [[Nicholas J. Fuentes]] noted that right-wing [[Jews|Zionist Jews]] recently attacked the ADL not for controlling speech, but for supporting pro-[[Gaza Strip|Palestine]] voices.
+(00:36:29) [[Nicholas J. Fuentes]] noted that right-wing [[Jews|Zionist Jews]] recently attacked the ADL not for controlling speech, but for supporting pro-[[Palestine]] voices.
 
 ### AF 2023-10-19 1238
 (00:44:07) The ADL claimed credit for negatively impacting the value of [[Twitter]] and has direct access to major tech companies for content moderation.
@@ -520,7 +520,7 @@
 (01:05:20) [[Nicholas J. Fuentes]] claimed the ADL is connected to
 
 ### AF 2023-09-01 1208
-(02:44:960) Jonathan Greenblatt, [[Donald Trump|the president]] of the ADL, tweeted about having a "frank and productive conversation" with [[Linda Yaccarino]], the CEO of [[Twitter|X]], regarding the platform's policies on hate speech.
+(02:44:960) Jonathan Greenblatt, [[the president]] of the ADL, tweeted about having a "frank and productive conversation" with [[Linda Yaccarino]], the CEO of [[Twitter|X]], regarding the platform's policies on hate speech.
 
 ### AF 2023-09-01 1208
 (10:28:960) In June 2020, [[Mark Zuckerberg]] declined to remove a post from [[Donald Trump]] on [[Facebook]] that stated "when the looting starts, the shooting starts," leading to a meeting with the ADL.
@@ -685,7 +685,7 @@
 (00:37:10) [[Nicholas J. Fuentes]] defended [[Kanye West|Ye]] against accusations of being a plant, arguing that [[Kanye West|Ye]] does not take orders from anyone and that the ADL's actions against him prove he is not acting in their interests.
 
 ### AF 2023-01-09 1104
-(00:53:30) [[Nicholas J. Fuentes]] called on [[Marjorie Taylor Greene]] to "stop shilling for [[Mike Johnson|Kevin McCarthy]] and start shilling for [[Jesus Christ|Jesus]]," and to denounce Jonathan Greenblatt and the [[Republican Jewish Coalition]] instead of [[Nicholas J. Fuentes]].
+(00:53:30) [[Nicholas J. Fuentes]] called on [[Marjorie Taylor Greene]] to "stop shilling for [[Kevin McCarthy]] and start shilling for [[Jesus Christ|Jesus]]," and to denounce Jonathan Greenblatt and the [[Republican Jewish Coalition]] instead of [[Nicholas J. Fuentes]].
 
 ### AF 2022-12-03 1102
 (01:25:44) [[Nicholas J. Fuentes]] claimed that [[Kanye West|Ye]]'s comment about [[Jews]] inventing cancel culture caused [[Adidas]] to forfeit $250 million and [[Gap]] to lose 40-60% of online sales after pressure from groups like the ADL and the [[Southern Poverty Law Center|SPLC]].
@@ -964,13 +964,13 @@
 (33:00:11) The *[[The Jerusalem Post]]* article noted that extremism trackers like the ADL and the [[Southern Poverty Law Center|SPLC]] classify [[Nicholas J. Fuentes]] as a hate group leader who advocates antisemitism and Holocaust denial.
 
 ### AF 2022-05-27 1003
-(00:51:05) The Anti-Defamation League called for [[Telegram]] to be censored by the [[Apple Inc.|App Store]] for allowing posts about replacement theory following the [[City of Buffalo|Buffalo]] shooting.
+(00:51:05) The Anti-Defamation League called for [[Telegram]] to be censored by the [[Apple Inc.|App Store]] for allowing posts about replacement theory following the [[Buffalo]] shooting.
 
 ### AF 2022-05-17 0995
-(00:34:58) [[Nicholas J. Fuentes]] predicted that institutions like the ADL, the federal government, and big tech companies would use the [[City of Buffalo|Buffalo]] shooting as an opening to attack his movement.
+(00:34:58) [[Nicholas J. Fuentes]] predicted that institutions like the ADL, the federal government, and big tech companies would use the [[Buffalo]] shooting as an opening to attack his movement.
 
 ### AF 2022-05-17 0995
-(00:50:06) [[Nicholas J. Fuentes]] read a tweet from the ADL calling on [[Telegram]] to immediately remove content related to the [[City of Buffalo|Buffalo]] shooting and implement hate and extremism policies.
+(00:50:06) [[Nicholas J. Fuentes]] read a tweet from the ADL calling on [[Telegram]] to immediately remove content related to the [[Buffalo]] shooting and implement hate and extremism policies.
 
 ### AF 2022-05-17 0995
 (00:50:55) The ADL called on [[Google]] and [[Apple Inc.|Apple]] to remove [[Telegram]] from their app stores if the platform did not take action to censor content.
@@ -1018,10 +1018,10 @@
 (01:30:04) [[Nicholas J. Fuentes]] stated that the [[Southern Poverty Law Center|SPLC]] and ADL were not as strong as [[Elon Musk]], and that [[Twitter]] was a strategic, smaller platform that [[Elon Musk]] could realistically buy, unlike [[Facebook]] or [[Google]].
 
 ### AF 2022-03-29 0968
-(00:22:44) Following [[Marjorie Taylor Greene]]'s [[AFPAC]] speech, media outlets including [[Microsoft National Broadcasting Company|MSNBC]], [[Warner Bros. Discovery|CNN]], the ADL, and the [[Southern Poverty Law Center|SPLC]], as well as politicians like [[Mitch McCarthy]], [[Mitt Romney]], [[Liz Cheney]], [[Dan Crenshaw]], and [[Adam Kinzinger]], condemned the event.
+(00:22:44) Following [[Marjorie Taylor Greene]]'s [[AFPAC]] speech, media outlets including [[MSNBC]], [[Warner Bros. Discovery|CNN]], the ADL, and the [[Southern Poverty Law Center|SPLC]], as well as politicians like [[Mitch McCarthy]], [[Mitt Romney]], [[Liz Cheney]], [[Dan Crenshaw]], and [[Adam Kinzinger]], condemned the event.
 
 ### AF 2022-03-08 0953
-(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the ADL, the [[Southern Poverty Law Center|SPLC]], [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
+(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the ADL, the [[Southern Poverty Law Center|SPLC]], [[Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
 
 ### AF 2022-02-10 0944
 (00:07:40) [[Nicholas J. Fuentes]] claimed the [[Southern Poverty Law Center|SPLC]] and the ADL had been in a "nonstop panic" writing articles about him and his movement for over a year.
@@ -1204,7 +1204,7 @@
 (00:42:54) [[Nicholas J. Fuentes]] argued the trajectory of tech companies was towards totalitarianism, with [[Google]] rewriting history and making dissident content inaccessible, leaving only ADL-approved information.
 
 ### AF 2020-10-15 0702
-(02:11:32) During an interview, detractors pulled up the ADL website and listed things [[Nicholas J. Fuentes]] had said on [[Twitter]] and his attendance at the [[City of Charlottesville|Charlottesville rally]].
+(02:11:32) During an interview, detractors pulled up the ADL website and listed things [[Nicholas J. Fuentes]] had said on [[Twitter]] and his attendance at the [[Charlottesville rally]].
 
 ### AF 2020-10-13 0700
 (00:53:48) [[Nicholas J. Fuentes]] predicted that pressure from groups like the [[Southern Poverty Law Center|SPLC]] and the ADL would eventually mount against back-end services and payment processors for alternative tech platforms, leading to the entire internet becoming a "gay faggot zone."
@@ -1243,7 +1243,7 @@
 (00:49:01) [[Nicholas J. Fuentes]] argued that the influence of people like [[Bari Weiss]] and organizations like the ADL is significant and worth analyzing honestly when discussing demographic power in [[United States|America]].
 
 ### AF 2020-07-27 0649
-(00:29:06) The [[Republican Party]] proposed a new coronavirus relief package that included a second round of $1,200 direct payments to individuals and $2,400 to couples, with the same income thresholds as the previous round. (00:30:66) The [[Republican Party]]'s proposed relief bill slashed enhanced federal unemployment benefits from a $600 weekly bonus to a system based on 70% of previous wages, capped at a maximum of $500 per week. (00:53:96) A media report, citing experts and former law enforcement officials, stated that far-right terrorism was the number one threat to the [[United States]] and governments on both sides of [[the Atlantic]]. (00:58:62) [[Bill Kristol]] retweeted and helped promote a new podcast called "Gen Z [[Republican Party|GOP]]" launched by four young men, which was also covered by the [[The Boston Globe|Boston Globe]] and other media outlets. (01:08:10) The "Gen Z [[Republican Party|GOP]]" group, founded by individuals including [[Sam Garber|Samuel Garber]], officially launched with a video stating their opposition to [[Donald Trump]] and a desire to build a future [[Republican Party]] that stays away from "unproductive discourse." (01:11:36) The "Gen Z [[Republican Party|GOP]]" group's stated platform included support for free trade, fiscal responsibility, bipartisan border security reform, public-private partnerships for healthcare, climate change solutions, and proclaiming that "[[Black Lives Matter]]." (01:13:43) [[Steven Crowder|Steve Bannon]] once characterized figures like [[Paul Ryan]] as people "grown in a Petri dish at the [[Heritage Foundation]]." (01:14:59) [[Nicholas J. Fuentes]] argued that establishment conservative figures like [[Charlie Kirk]], [[Ben Shapiro]], and [[The Daily Wire|Daily Wire]] represented a capitulation to liberal humanism, holding progressive views on most issues for social acceptability. (01:23:39) [[Nicholas J. Fuentes]] posited that the "Gen Z [[Republican Party|GOP]]" project was a potential psychological operation intended to shift the Overton window leftward, making established conservative figures like [[Charlie Kirk]] and [[Ben Shapiro]] appear more palatable and right-wing by contrast. (01:25:09) [[Donald Trump]] maintained an approval rating above 90% within the [[Republican Party]]. (01:32:28) [[Nicholas J. Fuentes]] stated that the mission of his movement was to make the [[Republican Party]] so hostile and intolerant towards left-wing figures that they would have to join the [[Democratic Party]]. (01:33:06) A report by [[Seth Jones]] of the [[Center for Strategic and International Studies]]' Transnational Threats Project claimed that 13 out of 14 terrorist incidents in the [[United States]] from January 1 to May 8 were classified as right-wing. (01:34:36) [[Nicholas J. Fuentes]] argued that reports on domestic terrorism systematically excluded violence committed by non-white or non-right-wing groups, such as [[Black Lives Matter]] or [[Antifa]], from their definitions and statistics. (01:39:66) [[Nicholas J. Fuentes]] identified the ADL and the [[Southern Poverty Law Center|SPLC]] as [[American Jewish Committee|Jewish organizations]] that produce and launder propaganda through NGOs and think tanks to be disseminated by left-wing media. (01:53:88) [[Mitch McConnell]] unveiled the [[Republican Party]]'s coronavirus relief plan, which proposed $105 billion to help schools reopen, $16 billion for state testing capacity, $26 billion for vaccine development, and liability shields for businesses, doctors, and schools. (01:56:82) The [[Republican Party]]'s proposed relief bill included $190 billion for additional Paycheck Protection Program loans and allowed small businesses with fewer than 300 employees that saw revenue fall by more than 50% to apply for a second round of aid. (02:00:90) [[Nicholas J. Fuentes]] criticized the [[Republican Party]]'s proposed coronavirus relief as grossly inadequate, noting that only $250 billion of trillions in total bailout spending went to direct payments to [[United States|Americans]]. (02:03:47) [[Nicholas J. Fuentes]] argued that the economic damage from government-mandated lockdowns was permanent, citing an example from [[China]] where 20% of restaurants were predicted never to reopen. (02:07:72) [[Nicholas J. Fuentes]] stated that the [[Republican Party]] deserved to lose the upcoming election for offering a stingy relief bill after having inflicted economic damage through lockdowns, but that voting for [[Donald Trump]] remained imperative as the only alternative to a [[Democratic Party]] victory.(01:23:06) Attendees at [[Nicholas J. Fuentes]]'s "GROIPER meetups" included lawyers, scientists, and doctors, whom he described as "super high quality people."
+(00:29:06) The [[Republican Party]] proposed a new coronavirus relief package that included a second round of $1,200 direct payments to individuals and $2,400 to couples, with the same income thresholds as the previous round. (00:30:66) The [[Republican Party]]'s proposed relief bill slashed enhanced federal unemployment benefits from a $600 weekly bonus to a system based on 70% of previous wages, capped at a maximum of $500 per week. (00:53:96) A media report, citing experts and former law enforcement officials, stated that far-right terrorism was the number one threat to the [[United States]] and governments on both sides of [[the Atlantic]]. (00:58:62) [[Bill Kristol]] retweeted and helped promote a new podcast called "Gen Z [[Republican Party|GOP]]" launched by four young men, which was also covered by the [[The Boston Globe|Boston Globe]] and other media outlets. (01:08:10) The "Gen Z [[Republican Party|GOP]]" group, founded by individuals including [[Sam Garber|Samuel Garber]], officially launched with a video stating their opposition to [[Donald Trump]] and a desire to build a future [[Republican Party]] that stays away from "unproductive discourse." (01:11:36) The "Gen Z [[Republican Party|GOP]]" group's stated platform included support for free trade, fiscal responsibility, bipartisan border security reform, public-private partnerships for healthcare, climate change solutions, and proclaiming that "[[Black Lives Matter]]." (01:13:43) [[Steve Bannon]] once characterized figures like [[Paul Ryan]] as people "grown in a Petri dish at the [[Heritage Foundation]]." (01:14:59) [[Nicholas J. Fuentes]] argued that establishment conservative figures like [[Charlie Kirk]], [[Ben Shapiro]], and [[The Daily Wire|Daily Wire]] represented a capitulation to liberal humanism, holding progressive views on most issues for social acceptability. (01:23:39) [[Nicholas J. Fuentes]] posited that the "Gen Z [[Republican Party|GOP]]" project was a potential psychological operation intended to shift the Overton window leftward, making established conservative figures like [[Charlie Kirk]] and [[Ben Shapiro]] appear more palatable and right-wing by contrast. (01:25:09) [[Donald Trump]] maintained an approval rating above 90% within the [[Republican Party]]. (01:32:28) [[Nicholas J. Fuentes]] stated that the mission of his movement was to make the [[Republican Party]] so hostile and intolerant towards left-wing figures that they would have to join the [[Democratic Party]]. (01:33:06) A report by [[Seth Jones]] of the [[Center for Strategic and International Studies]]' Transnational Threats Project claimed that 13 out of 14 terrorist incidents in the [[United States]] from January 1 to May 8 were classified as right-wing. (01:34:36) [[Nicholas J. Fuentes]] argued that reports on domestic terrorism systematically excluded violence committed by non-white or non-right-wing groups, such as [[Black Lives Matter]] or [[Antifa]], from their definitions and statistics. (01:39:66) [[Nicholas J. Fuentes]] identified the ADL and the [[Southern Poverty Law Center|SPLC]] as [[American Jewish Committee|Jewish organizations]] that produce and launder propaganda through NGOs and think tanks to be disseminated by left-wing media. (01:53:88) [[Mitch McConnell]] unveiled the [[Republican Party]]'s coronavirus relief plan, which proposed $105 billion to help schools reopen, $16 billion for state testing capacity, $26 billion for vaccine development, and liability shields for businesses, doctors, and schools. (01:56:82) The [[Republican Party]]'s proposed relief bill included $190 billion for additional Paycheck Protection Program loans and allowed small businesses with fewer than 300 employees that saw revenue fall by more than 50% to apply for a second round of aid. (02:00:90) [[Nicholas J. Fuentes]] criticized the [[Republican Party]]'s proposed coronavirus relief as grossly inadequate, noting that only $250 billion of trillions in total bailout spending went to direct payments to [[United States|Americans]]. (02:03:47) [[Nicholas J. Fuentes]] argued that the economic damage from government-mandated lockdowns was permanent, citing an example from [[China]] where 20% of restaurants were predicted never to reopen. (02:07:72) [[Nicholas J. Fuentes]] stated that the [[Republican Party]] deserved to lose the upcoming election for offering a stingy relief bill after having inflicted economic damage through lockdowns, but that voting for [[Donald Trump]] remained imperative as the only alternative to a [[Democratic Party]] victory.(01:23:06) Attendees at [[Nicholas J. Fuentes]]'s "GROIPER meetups" included lawyers, scientists, and doctors, whom he described as "super high quality people."
 
 ### AF 2020-07-27 0649
 (02:16:05) [[Nicholas J. Fuentes]] denied having "animosity for [[Jews]]," arguing that discussing disproportionate [[Jews|Jewish]] influence in media, [[Los Angeles|Hollywood]], and organizations like the ADL and [[Southern Poverty Law Center|SPLC]] is simply stating facts that [[Jews|Jewish]] publications themselves brag about.
@@ -1508,3 +1508,42 @@
 
 ### AF 2017-10-26 0040
 (00:38:29) [[Twitter]] collaborated with the ADL, which classifies the Pepe the Frog cartoon as a hate symbol, to define hateful imagery for its new policies.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:46:51) [[Nicholas J. Fuentes]] stated that he has been "in a war" with the [[Southern Poverty Law Center|SPLC]], Right Wing Watch, Media Matters, and the ADL for a decade.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:34:57) [[Nicholas J. Fuentes]] argued that the ADL is able to overrule free speech.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:46:05) [[Nicholas J. Fuentes]] identified the culprits as [[American Israel Public Affairs Committee|AIPAC]], the ADL, and the [[World Jewish Congress]], and the [[Israel|Jewish state]] of [[Israel]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:14:12:61) [[Nicholas J. Fuentes]] argued that [[Jews|Jewish]] groups like the ADL and the [[American Jewish Committee]] advocated for mass migration in 1965 to avoid being a marginalized minority in a white [[Christianity|Christian]] [[country]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:34:05:472) [[Nicholas J. Fuentes]] reported that the Anti-Defamation League (ADL) condemned the outing to the club.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:02:29:120) [[Nicholas J. Fuentes]] reported that after the event, the ADL put out a statement condemning the trip to the club.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:10:12:120) [[Nicholas J. Fuentes]] reported that the ADL rebuked the nightclub in social media posts, saying it is not okay to glorify the individual responsible for murdering 6 million [[Jews]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(14:21:000) [[Nicholas J. Fuentes]] argued that the success of the [[Nicholas J. Fuentes|Groyper]] movement is meaningless without placing operatives in government offices and the [[Ivy League]], and he advised supporters to conceal their views to avoid being placed on a list by the Anti-Defamation League.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:35:05) [[Nicholas J. Fuentes]] stated the ADL is a hate [[organization]] that hates white people and has direct connections to [[Israel]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:36:24) [[Nicholas J. Fuentes]] accused the ADL of taking [[Christianity]] out of schools, forcing racial integration, supporting affirmative action, and supporting mass migration to defeat white people.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:36:05) [[Nicholas J. Fuentes]] argued that [[Jews]], as an organized force (ADL, [[American Israel Public Affairs Committee|AIPAC]]), use their societal position and resources to take control over society systematically.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:45:47) [[Joel Finkelstein]] is the founder of the [[Network Contagion Research Institute]] (NCRI), whose partner organizations include the [[United Nations]], the Anti-Defamation League (ADL), and [[George Soros]]'s [[Open Society Foundations]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:49:35) [[Joel Finkelstein]], founder of the [[Network Contagion Research Institute]] (NCRI), was a fellow at the Anti-Defamation League (ADL), and NCRI fellow [[Alex Goldenberg]] is the [[director of national intelligence]] at [[White House|Narravance]], a company owned by NCRI co-founder [[Adam Sohn]].

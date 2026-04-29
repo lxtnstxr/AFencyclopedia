@@ -18,16 +18,16 @@
 (00:15:20) Kyle Kashuv publicly announced on [[Twitter]] that [[Harvard University|Harvard]] University had rescinded his admission offer.
 
 ### AF 2019-06-17 0408
-(00:16:40) The leaked document that led to Kyle Kashuv's admission being rescinded also contained a veiled threat of a school shooting, referencing building a map in CS:GO that resembled [[City of Parkland|Parkland]].
+(00:16:40) The leaked document that led to Kyle Kashuv's admission being rescinded also contained a veiled threat of a school shooting, referencing building a map in CS:GO that resembled [[Parkland]].
 
 ### AF 2019-06-17 0408
-(00:17:00) Kyle Kashuv became a political figure as the right-wing response to left-wing [[City of Parkland|Parkland]] shooting survivors like [[David Hogg]], promoted by figures such as [[Ali Alexander]] and later [[Ben Shapiro]].
+(00:17:00) Kyle Kashuv became a political figure as the right-wing response to left-wing [[Parkland]] shooting survivors like [[David Hogg]], promoted by figures such as [[Ali Alexander]] and later [[Ben Shapiro]].
 
 ### AF 2019-06-17 0408
 (00:18:10) [[Laura Loomer]] actively campaigned for [[Harvard University|Harvard]] to rescind Kyle Kashuv's admission following the leak of his racist comments.
 
 ### AF 2019-05-23 0393
-(00:01:39) Kyle Kashuv, a pro-gun [[City of Parkland|Parkland]] shooting survivor and former member of [[Turning Point USA]], was reported to have made racist and offensive comments against [[black]] people and [[Jews]] in text messages, Skype conversations, and a shared [[Google]] document.
+(00:01:39) Kyle Kashuv, a pro-gun [[Parkland]] shooting survivor and former member of [[Turning Point USA]], was reported to have made racist and offensive comments against [[black]] people and [[Jews]] in text messages, Skype conversations, and a shared [[Google]] document.
 
 ### AF 2019-05-23 0393
 (00:02:18) Kyle Kashuv verified the allegations about his past racist and offensive comments, which included using racial slurs and making jokes about the [[United States Holocaust Memorial Museum|Holocaust]].
@@ -48,4 +48,4 @@
 (00:14:07) Kyle Kashuv is being groomed by [[Ben Shapiro]] for a future role in neoconservative politics.
 
 ### AF 2018-04-05 0139
-(00:13:06) A viral tweet from "[[Millennial Matt]]" featuring a high school photo of [[Nicholas J. Fuentes]] was retweeted by [[Greta Van Susteren]] of [[Fox News]], [[Jake Tapper]] of [[Warner Bros. Discovery|CNN]], and commented on by [[City of Parkland|Parkland]] survivor Kyle Kashuv.
+(00:13:06) A viral tweet from "[[Millennial Matt]]" featuring a high school photo of [[Nicholas J. Fuentes]] was retweeted by [[Greta Van Susteren]] of [[Fox News]], [[Jake Tapper]] of [[Warner Bros. Discovery|CNN]], and commented on by [[Parkland]] survivor Kyle Kashuv.

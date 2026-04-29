@@ -124,7 +124,7 @@
 (00:39:18) [[Nicholas J. Fuentes]] framed opposition to [[Israel]] as a theological imperative for [[Christianity|Christians]], stating that [[Jews]] reject Jesus Christ and that [[Israel]]'s government is based on a religion that is the antithesis of [[Christianity]].
 
 ### AF 2024-04-16 1320
-(42:41:96) [[Nicholas J. Fuentes]] identifies as Italian, [[Ireland|Irish]], and Mexican, originating from a working-class background in [[City of Chicago|Chicago]], and professes devotion to Jesus and [[United States|America]].
+(42:41:96) [[Nicholas J. Fuentes]] identifies as Italian, [[Ireland|Irish]], and Mexican, originating from a working-class background in [[Chicago]], and professes devotion to Jesus and [[United States|America]].
 
 ### AF 2024-04-11 1317
 (35:50:93) [[The New York Post]] reported that [[Nala Ray]], an [[Illinois]]-born pastor's child, left the adult industry after a "come to Jesus moment" and reconnected with her faith.
@@ -523,10 +523,10 @@
 (01:28:09) [[Nicholas J. Fuentes]] commented on the [[Max Stirner]] meme, finding it esoterically humorous, and recalled Stirner's interpretation of Jesus Christ as the first anarchist revolutionary whose life was a rejection of worldly punishment through transcendence.
 
 ### AF 2018-03-16 0126
-(04:33:02) [[Nicholas J. Fuentes]] maintained that the [[Pope Francis|Catholic Church]] is the one true church because it holds the apostolic succession of [[Saint Peter]], whom Jesus Christ designated as the rock upon which the church was built, a theological distinction absent in [[Orthodoxy]].
+(04:33:02) [[Nicholas J. Fuentes]] maintained that the [[Catholic Church]] is the one true church because it holds the apostolic succession of [[Saint Peter]], whom Jesus Christ designated as the rock upon which the church was built, a theological distinction absent in [[Orthodoxy]].
 
 ### AF 2018-03-05 0118
-(00:09:40) [[Nicholas J. Fuentes]] debated [[Styxhexenhammer666]] on religion on the [[My Name is Al Show]], covering topics including the historicity of Jesus Christ, the authority of the [[Pope Francis|Catholic Church]], and arguments for God's existence.
+(00:09:40) [[Nicholas J. Fuentes]] debated [[Styxhexenhammer666]] on religion on the [[My Name is Al Show]], covering topics including the historicity of Jesus Christ, the authority of the [[Catholic Church]], and arguments for God's existence.
 
 ### AF 2018-03-05 0118
 (00:17:40) [[Nicholas J. Fuentes]] recommended "The Case for Christ" by [[Lee Strobel]] for its evidence on the historicity of Jesus Christ, citing sources like [[Josephus]] and [[Tacitus]].
@@ -550,10 +550,82 @@
 (07:20:58) In an interview, [[Ben Shapiro]] stated the traditional Orthodox [[Jews|Jewish]] view is that Jesus Christ tried to overthrow the [[Rome|Roman Empire]] and was killed for it.
 
 ### AF 2017-10-06 0026
-(01:20:44) A viewer named "Spoiler Alert" noted that since [[Vatican II]], the official position of the [[Pope Francis|Catholic Church]] has been that [[Jews]] do not need to believe in Jesus Christ to go to heaven, which [[Nicholas J. Fuentes]] agreed was heresy.
+(01:20:44) A viewer named "Spoiler Alert" noted that since [[Vatican II]], the official position of the [[Catholic Church]] has been that [[Jews]] do not need to believe in Jesus Christ to go to heaven, which [[Nicholas J. Fuentes]] agreed was heresy.
 
 ### AF 2017-09-29 0021
 (00:43:20) [[Nicholas J. Fuentes]] referenced passages from the [[Talmud]] that disparage Jesus Christ, stating these are facts not discussed in mainstream media despite open criticism of other religions.
 
 ### AF 2017-09-22 0016
 (01:36:55) [[Nicholas J. Fuentes]] suggested that [[Christianity|Christians]] [[who]] believe [[Christianity]] is "cucking for Judaism" should read the Talmud to understand traditional [[Jews|Jewish]] views on Jesus and [[Christianity]], citing the example of [[Israel|Israeli]] schools avoiding the plus sign because it resembles a cross.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(01:37:05) [[Nicholas J. Fuentes]] proclaimed Jesus Christ as integral to the past, present, and future, advocating for the current century to become the most [[Christianity|Christian]] in global history.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:03:12) [[Christianity]], through Jesus Christ, distinguishes itself from other religions by emphasizing the endurance of suffering for persecutors and an "overflowing of love" and "self-gift."
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:45:57:34) [[Nicholas J. Fuentes]] described Judaism as a "bastard religion" that did not accept the Messiah, and that the Hebrew Bible had its fulfillment in Christ.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:46:45:25) [[Nicholas J. Fuentes]] argued that a "real [[Jews|Jew]]" is the Pharisees that put Christ on the cross.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:17:53) [[Nicholas J. Fuentes]] argued that the entire basis of [[Christianity]] is that Jesus Christ is the promised Messiah in the Old Testament, something [[Jews]] do not believe.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(04:44:37) [[Nicholas J. Fuentes]] stated that for [[Islam|Muslims]], the Quran is the word of God, while for [[Christianity|Christians]], the word of God is Christ.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:25:21) [[Nicholas J. Fuentes]] stated that all one needs is Jesus and prayer.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:26:54) [[Nicholas J. Fuentes]] declared that Jesus Christ was the past, present, and future.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(28:47:00) [[Nicholas J. Fuentes]] stated that Jesus Christ was humanity's past, is its present, and will be its future after death.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(37:05:00) [[Nicholas J. Fuentes]] repeated his statement about Jesus Christ being the past, present, and future, and his wish for the most [[Christianity|Christian]] century.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(54:44:00) [[Nicholas J. Fuentes]] said that [[Christianity]] and Christ are different from other religions because [[Christianity]] is based on bearing suffering for the sake of those [[who]] persecute them.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:37:05:00) [[Nicholas J. Fuentes]] said that Jesus Christ is the past, present, and future of [[Christianity|Christians]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:17:09) [[Nicholas J. Fuentes]] stated that the Khazarian hypothesis was created to absolve modern [[Jews]] of the charge of deicide—killing Jesus Christ.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:18:57) [[Nicholas J. Fuentes]] described the [[Catholic Church|Catholic]] interpretation of [[Judaism]] as a continuation of the Pharisaical sect that rejected Jesus Christ, and whose subsequent history is a punishment for that rejection.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:21:00) [[Nicholas J. Fuentes]] argued from a [[Catholic Church|Catholic]] perspective that [[Jews]] and [[Christianity|Christians]] have been in a constant battle since Christ's arrival, which the [[Jews]] rejected, and that the Church's story is about their eventual reconciliation to Christ.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:22:17) [[Nicholas J. Fuentes]] argued that [[Judaism]] cannot be "good" because it does not have Christ, and that [[Jews]], having "obstinately and stubbornly rejected the Son," do not have the Holy Spirit.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:24:50) [[Nicholas J. Fuentes]] stated that in the Middle Ages, [[Islam]] was understood as a [[Christianity|Christian]] heresy because it believed Christ was the Messiah but not the final prophet.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:33:42) [[Nicholas J. Fuentes]] concluded that the "theological political truth" of the world is that it is a conflict between "the synagogue and the church" over Christ, and that the [[Jews|Jewish]] question cannot be separated from this dimension.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:20:17) [[Nicholas J. Fuentes]] declared the conflict is "[[Catholic Church|Catholics]] versus everybody," and that [[Jews]] [[who]] do not recognize Christ cannot reach God the Father.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:17:00) [[Nicholas J. Fuentes]] addressed a viewer [[who]] is a [[Jews|Jew]] by blood but a [[Christianity|Christian]] by faith, telling him that leaving his family for the truth is worthwhile and quoting Jesus's command to "let the dead lay with the dead."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:17:36) [[Nicholas J. Fuentes]] stated that he could not believe in anything else in a world where the account of Jesus Christ and the gospel exists.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(00:28:47) [[Nicholas J. Fuentes]] declared that Jesus Christ is the past, present, and future, and that his goal is for the current century to be “the most [[Christianity|Christian]] century in the history of [[planet Earth]].”
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:19:16) [[Nicholas J. Fuentes]] said he wants Jesus Christ at the center of society.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:18:16) [[Nicholas J. Fuentes]] said that [[Ben Shapiro]] does not celebrate Christmas or measure [[time]] by the birth of Christ.

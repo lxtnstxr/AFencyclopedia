@@ -24,7 +24,7 @@
 (00:55:00) [[Nicholas J. Fuentes]] dismissed examples like [[Margaret Thatcher]], [[Angela Merkel]], and Theresa May as token cases, arguing that for every one woman in history you could name a thousand men, and that the rule remains that "they ruin everything."
 
 ### AF 2018-07-12 0199
-(00:30:38) [[Donald Trump]] traveled from [[Brussels]] to [[City of London|London]] to meet with Theresa May and was scheduled to meet the [[United Kingdom|British]] monarch the following day before proceeding to [[Country of Scotland|Scotland]] and then [[Helsinki]].
+(00:30:38) [[Donald Trump]] traveled from [[Brussels]] to [[London]] to meet with Theresa May and was scheduled to meet the [[United Kingdom|British]] monarch the following day before proceeding to [[Country of Scotland|Scotland]] and then [[Helsinki]].
 
 ### AF 2018-07-12 0199
 (01:21:32) [[Donald Trump]] arrived in the [[United Kingdom]] and commented on the [[Brexit]] negotiations, stating he had advised Theresa May on a course of action which she did not follow.
@@ -33,7 +33,7 @@
 (01:29:30) [[Donald Trump]] stated that [[Boris Johnson]] would make a fine prime minister and criticized Theresa May's performance, while also indicating the [[United States]] would not enter a bilateral trade deal with the [[United Kingdom]] if Theresa May's proposed [[Brexit]] agreement was approved.
 
 ### AF 2018-07-11 0198
-(36:24:10) [[Donald Trump]]'s schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister Theresa May and the Queen in [[City of London|London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in [[Helsinki]], [[Finland]].
+(36:24:10) [[Donald Trump]]'s schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister Theresa May and the Queen in [[London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in [[Helsinki]], [[Finland]].
 
 ### AF 2018-04-12 0144
 (00:07:42) [[United Kingdom|British]] Prime Minister Theresa May joined the call for action in [[Syria]] on Monday.

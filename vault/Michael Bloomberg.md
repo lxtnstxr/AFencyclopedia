@@ -4,9 +4,9 @@
 ### AF 2025-10-02 1576
 (55:52:55) [[Miriam Adelson]] and Michael Bloomberg were among the biggest individual donors in the last election cycle for both major parties, both [[Jewish]].
 ### AF 2025-10-29 1588
-(00:23:40) [[Nicholas J. Fuentes]] characterized [[United States|American]] politics as a debate between pro-[[Israel]] [[Jews]] on the [[Republican Party|Republican]] side, like [[Sheldon Adelson|Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], [[Larry Ellison]], [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and Michael Bloomberg.
+(00:23:40) [[Nicholas J. Fuentes]] characterized [[United States|American]] politics as a debate between pro-[[Israel]] [[Jews]] on the [[Republican Party|Republican]] side, like [[Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], [[Larry Ellison]], [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and Michael Bloomberg.
 ### AF 2025-11-10 1595
-(01:15:40) [[Nicholas J. Fuentes]] asserted that a [[Jewish]] oligarchy, including figures like [[Sheldon Adelson|Miriam Adelson]], Michael Bloomberg, and [[George Soros]], controls major political donations, media, and universities in the [[United States]].
+(01:15:40) [[Nicholas J. Fuentes]] asserted that a [[Jewish]] oligarchy, including figures like [[Miriam Adelson]], Michael Bloomberg, and [[George Soros]], controls major political donations, media, and universities in the [[United States]].
 
 
 ### AF 2024-07-09 1351
@@ -49,7 +49,7 @@
 (01:18:20) Mike Bloomberg and poor [[black]] communities were described as sharing a common alienation from and hostility towards traditional [[United States|American]] identity, forming a natural political alliance against it.
 
 ### AF 2020-09-16 0682
-(36:51:280) The Bloomberg report stated that stops for "suspicious vehicles" in [[City of Minneapolis|Minneapolis]] dropped 24% and stops for "suspicious persons" dropped 39% since [[George Floyd]]'s death.
+(36:51:280) The Bloomberg report stated that stops for "suspicious vehicles" in [[Minneapolis]] dropped 24% and stops for "suspicious persons" dropped 39% since [[George Floyd]]'s death.
 
 ### AF 2020-09-16 0682
 (38:07:240) The Bloomberg analysis noted that the majority of a police department's interactions with the public occur during routine traffic and pedestrian stops, not responses to violent calls.
@@ -163,7 +163,7 @@
 (01:36:51) [[Bernie Sanders]] responded that he opposed authoritarianism worldwide and criticized Michael Bloomberg for suggesting the [[Chinese government]] was responsive to the Politburo, asking [[who]] elected the Politburo in what he called a real dictatorship.
 
 ### AF 2020-02-25 0554
-(01:46:57) Michael Bloomberg stated the [[United States Embassy in Jerusalem|U.S. embassy]] should not be moved back to [[Rishon LeZion|Tel Aviv]] after being moved to [[City of Jerusalem|Jerusalem]], as it was done without getting anything from the [[Israel|Israeli government]], and advocated for a two-state solution as the only answer.
+(01:46:57) Michael Bloomberg stated the [[United States Embassy in Jerusalem|U.S. embassy]] should not be moved back to [[Rishon LeZion|Tel Aviv]] after being moved to [[Jerusalem]], as it was done without getting anything from the [[Israel|Israeli government]], and advocated for a two-state solution as the only answer.
 
 ### AF 2020-02-25 0554
 (02:06:14) Michael Bloomberg joked that a misconception was that he was six feet tall, and his quote was: "I've trained for this job for a long [[time]], and when I get it, I'm going to do something rather than talk about it."
@@ -178,7 +178,7 @@
 (01:37:26) Michael Bloomberg came out swinging with an attack referencing [[Russia]] at the start of a [[Democratic Party|Democratic]] debate, reminiscent of [[Ron Paul|Rand Paul]]'s tactic in a 2015 [[Republican Party|Republican]] primary debate.
 
 ### AF 2020-02-25 0554
-(01:58:52) On the issue of [[Israel]] and [[Gaza Strip|Palestine]], Michael Bloomberg stated the [[United States|US]] [[United States Embassy in Jerusalem|embassy]] should not be moved back from [[City of Jerusalem|Jerusalem]] and advocated for a two-state solution, asking [[Israel]] to temper some settlements.
+(01:58:52) On the issue of [[Israel]] and [[Palestine]], Michael Bloomberg stated the [[United States|US]] [[United States Embassy in Jerusalem|embassy]] should not be moved back from [[Jerusalem]] and advocated for a two-state solution, asking [[Israel]] to temper some settlements.
 
 ### AF 2020-02-25 0554
 (02:00:48) Michael Bloomberg advocated for a restrained, science-based approach to marijuana legalization, acknowledging its negative effects on developing adolescent brains.
@@ -283,7 +283,7 @@
 (02:06:85) [[Jeffrey Epstein]]'s leaked Rolodex included names such as [[Alec Baldwin]], [[Dustin Hoffman]], [[Mick Jagger]], [[Rupert Murdoch]], [[Tony Blair]], Michael Bloomberg, [[Andrew Cuomo]], and [[Edward Kennedy|Ted Kennedy]].
 
 ### AF 2019-05-27 0395
-(00:00:00) [[Nicholas J. Fuentes]] hosts the [[United States|America]] First show, announcing coverage of the [[Europe|European Union]] Parliament election results and an article from Bloomberg about immigration in [[State of Japan|Japan]].
+(00:00:00) [[Nicholas J. Fuentes]] hosts the [[United States|America]] First show, announcing coverage of the [[European Union]] Parliament election results and an article from Bloomberg about immigration in [[State of Japan|Japan]].
 
 ### AF 2019-05-27 0395
 (00:04:00) [[Nicholas J. Fuentes]] announced he would analyze a Bloomberg article detailing a new immigration program in [[State of Japan|Japan]] initiated under former Prime Minister [[Shinzo Abe]].
@@ -295,7 +295,7 @@
 (00:15:30) The Bloomberg article stated that since [[Shinzo Abe]] became Prime Minister in 2012, the number of foreign-born workers in [[State of Japan|Japan]] has expanded steadily, marking a major shift from the [[country]]'s historically restrictive policies.
 
 ### AF 2019-05-27 0395
-(00:16:20) [[Nicholas J. Fuentes]] characterized the Bloomberg article's celebratory tone towards [[Tokyo]]'s increasing diversity as a "perverse and sick mentality" held by rootless cosmopolitans [[who]] want every [[city]] to resemble [[New York|New York City]] or [[City of London|London]].
+(00:16:20) [[Nicholas J. Fuentes]] characterized the Bloomberg article's celebratory tone towards [[Tokyo]]'s increasing diversity as a "perverse and sick mentality" held by rootless cosmopolitans [[who]] want every [[city]] to resemble [[New York|New York City]] or [[London]].
 
 ### AF 2019-05-20 0391
 (00:10:02) Bloomberg published an article stating that the fertility rate in the [[United States]] had fallen to 1.7 children per woman, well below the 2.1 replacement rate, and argued that the only solution to the resulting demographic and economic challenges was increased immigration.

@@ -15,3 +15,9 @@
 
 ### AF 2024-11-02 1417
 (22:25:340) Both Brett Cooper from [[The Daily Wire]] and [[Megyn Kelly]] chose to wear garbage bags as their Halloween costumes.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:25:00) [[Nicholas J. Fuentes]] reported that "Clavicular" met Brett Cooper and that she could barely contain herself, claiming she was "glazing" [[Sneeko]] and himself to make Clavicular jealous.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:26:14) [[Nicholas J. Fuentes]] alleged that Brett Cooper flew to the [[New York]] fashion show to make a cameo just to be in Clavicular's presence to "download the aura."

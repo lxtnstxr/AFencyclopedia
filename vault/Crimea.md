@@ -62,7 +62,7 @@
 (29:31:210) The [[U.S. Department of Defense|Pentagon]], through the [[Oracle Corporation|RAND Corporation]] report, admitted that [[Ukraine]] would never regain control of Crimea or the [[Donbas]] [[region]] from [[Russia]].
 
 ### AF 2023-02-02 1116
-(39:52:430) [[Russia]]'s [[City of Sevastopol|Sevastopol]] naval base in Crimea is strategically vital for its power projection in the [[Black Sea]] and [[Europe|Eastern Europe]].
+(39:52:430) [[Russia]]'s [[Sevastopol]] naval base in Crimea is strategically vital for its power projection in the [[Black Sea]] and [[Europe|Eastern Europe]].
 
 ### AF 2023-02-02 1116
 (47:31:970) [[Nicholas J. Fuentes]] made a bet with [[Destiny]] that the outcome of the [[Russia]]-[[Ukraine]] war would be [[Russia]]n control of Crimea and the [[Donbas]], with [[Ukraine]] never joining [[North Atlantic Treaty Organization|NATO]].

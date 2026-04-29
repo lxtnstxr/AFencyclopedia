@@ -6,7 +6,7 @@
 
 
 ### AF 2021-06-29 0839
-(41:57:48) [[Nicholas J. Fuentes]] criticized [[Mike Johnson|Kevin McCarthy]] as part of the "young guns" with [[Paul Ryan]] and Eric Cantor, noting Eric Cantor was primaried and [[Paul Ryan]] retired.
+(41:57:48) [[Nicholas J. Fuentes]] criticized [[Kevin McCarthy]] as part of the "young guns" with [[Paul Ryan]] and Eric Cantor, noting Eric Cantor was primaried and [[Paul Ryan]] retired.
 
 ### AF 2021-05-28 0819
-(38:10:48) [[Nicholas J. Fuentes]] claims [[Mike Johnson|Kevin McCarthy]] recently called [[Marjorie Taylor Greene]] anti-Semitic and was a "disaster" similar to [[Paul Ryan]], having collaborated with other "[[Republican Party|GOP]] swamp creatures" like Eric Cantor.
+(38:10:48) [[Nicholas J. Fuentes]] claims [[Kevin McCarthy]] recently called [[Marjorie Taylor Greene]] anti-Semitic and was a "disaster" similar to [[Paul Ryan]], having collaborated with other "[[Republican Party|GOP]] swamp creatures" like Eric Cantor.

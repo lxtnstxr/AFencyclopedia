@@ -12,7 +12,7 @@
 (17:42:44) [[Nicholas J. Fuentes]]'s previous show mapped out a "significant influence network inside the right," based on the drama with [[Chris Burnett]], a writer from the Manhattan Institute.
 
 ### AF 2024-10-24 1412
-(35:06:64) [[Nicholas J. Fuentes]] linked the "frat bro uprising" to [[William Ackman]], who "funded all of that," including a "rager" and supporting the Manhattan Institute's "hit piece against [[Donald Trump|the president]] of [[Harvard University|Harvard]]."
+(35:06:64) [[Nicholas J. Fuentes]] linked the "frat bro uprising" to [[William Ackman]], who "funded all of that," including a "rager" and supporting the Manhattan Institute's "hit piece against [[the president]] of [[Harvard University|Harvard]]."
 
 ### AF 2024-10-23 1411
 (00:54:910) [[Chris Brunet]], a protégé of [[Christopher Rufo]] at the Manhattan Institute, was fired for not supporting [[Israel]]'s actions in [[Gaza Strip|Gaza]].
@@ -154,3 +154,15 @@
 
 ### AF 2021-06-07 0824
 (02:00:38) [[Christopher Rufo]] of the Manhattan Institute exposed a [[Lockheed Martin]] training program that forced white executives to confess to being racist and privileged.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:07:33) A recent focus group of 20 Gen Z [[Republican Party|Republican]]s, conducted by the Manhattan Institute, included a participant [[who]] expressed support for "national sovereignty" and stated that [[Adolf Hitler]] was a nationalist [[who]] wanted to "take [[Germany]] back for [[Germany|Germans]]," and advocated for a similar approach in [[United States|America]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:33:52) [[Nicholas J. Fuentes]] recalled that after the [[October 7th Attack|October 7th]] protests, a campaign to fire university presidents for tolerating anti-[[Israel]] protests failed for a year, but succeeded when [[Christopher Rufo|Chris Rufo]] of the Manhattan Institute published a plagiarism report on [[Harvard University|Harvard]] [[White House|President]] [[Claudine Gay]], forcing her out.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:34:23) [[Nicholas J. Fuentes]] stated that [[Christopher Rufo|Chris Rufo]] of the Manhattan Institute contacted him for a "hit piece".
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:34:48) [[Nicholas J. Fuentes]] stated that the Manhattan Institute held an event two weeks ago where they gave [[Ben Shapiro]] an award, with a $250,000 price tag for a seat, funded by pro-[[Israel]] [[Jews|Jew]] [[Paul Singer]].

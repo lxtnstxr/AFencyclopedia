@@ -57,3 +57,6 @@
 
 ### AF 2019-10-28 0486
 (01:21:40) [[Nicholas J. Fuentes]] outlined the game plan: apply pressure at [[Charlie Kirk]]'s [[Ohio State University]] event, and if the Q&A is canceled, disrupt the [[Dan Crenshaw]] event at Arizona State University on November 8th.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(53:48:00) [[Nicholas J. Fuentes]] mentioned that his friend [[Clavicular]] went to [[Arizona]], was "mugged to death" by someone from Arizona State University, and was arrested.

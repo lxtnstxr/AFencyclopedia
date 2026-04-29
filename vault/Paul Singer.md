@@ -87,7 +87,7 @@
 (01:24:45:710) The term "MAGA" has been redefined to mean "colorblind meritocracy, individualism, a pro-[[Israel]] spin on [[United States|America]] first," with funding from [[George Soros]], [[Thomas Klingenstein]], and Paul Singer used to advocate for banning "Groypers" and limiting free speech for "anti-Semites," while criticizing the establishment but not "[[Israel|Israeli]] donors."
 
 ### AF 2024-10-23 1411
-(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including Paul Singer, [[Peter Thiel]], [[Alex Karp]], [[Thomas Klingenstein]], [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Sheldon Adelson|Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
+(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including Paul Singer, [[Peter Thiel]], [[Alex Karp]], [[Thomas Klingenstein]], [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
 
 ### AF 2024-10-23 1411
 (01:25:51:710) Paul Singer, a "pro-[[Israel]], pro-gay [[Jews|Jew]]," backed [[George W. Bush]] in 2004, opposed [[Donald Trump]] by funding the "Steele dossier," and now funds the [[Manhattan Institute]] (which targeted [[Claudine Gay]]) and the [[Claremont Institute]] (which is developing the "colorblind meritocracy consensus").
@@ -156,7 +156,7 @@
 (01:19:21) The [[Claremont Institute]], a conservative think tank, received funding from [[Peter Thiel]] and Paul Singer, a prominent donor who also contributed to the campaigns of [[Benjamin Netanyahu|Bibi]] in [[Israel]].
 
 ### AF 2023-05-09 1158
-(19:18:690) [[Nicholas J. Fuentes]] identified institutions like the [[National Conservatism|National Conservative Conference]], run by [[Youram Hazony|Yoram Hazony]], and the [[Claremont Institute]], funded by Paul Singer, as being central to an [[United States|American]] right faction bolstered by money and influence from [[Israel]]'s [[Labor Party|Likud]] party.
+(19:18:690) [[Nicholas J. Fuentes]] identified institutions like the [[National Conservatism|National Conservative Conference]], run by [[Youram Hazony|Yoram Hazony]], and the [[Claremont Institute]], funded by Paul Singer, as being central to an [[United States|American]] right faction bolstered by money and influence from [[Israel]]'s [[Likud]] party.
 
 ### AF 2023-03-29 1137
 (01:07:20) The [[Claremont Institute]] think tank is funded by [[Peter Thiel]] and Paul Singer, who [[Nicholas J. Fuentes]] asserted may be an [[Israel|Israeli]] spy.
@@ -190,3 +190,6 @@
 
 ### AF 2019-05-24 0394
 (00:36:23) [[E. Michael Jones]] asserted that [[Jews]] are driving [[United States|America]] into another war in the [[Middle East]], naming three rich [[Jews]]—[[Sheldon Adelson]], Paul Singer, and [[Bernard Marcus]]—as controlling [[United States|U.S]]. foreign policy.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:34:48) [[Nicholas J. Fuentes]] stated that the [[Manhattan Institute]] held an event two weeks ago where they gave [[Ben Shapiro]] an award, with a $250,000 price tag for a seat, funded by pro-[[Israel]] [[Jews|Jew]] Paul Singer.

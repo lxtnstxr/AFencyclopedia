@@ -2,7 +2,7 @@
 #person
 
 ### AF 2022-11-15 1099
-(02:08:12) [[Marjorie Taylor Greene]] appeared on *War Room* with [[Steve Bannon]] to argue it was bad strategy to oppose [[Mike Johnson|Kevin McCarthy]]'s speakership, fearing it could lead to a moderate [[Republican Party|Republican]] or [[Democratic Party|Democrat]] like Liz Cheney or [[Nancy Pelosi]] becoming Speaker instead.
+(02:08:12) [[Marjorie Taylor Greene]] appeared on *War Room* with [[Steve Bannon]] to argue it was bad strategy to oppose [[Kevin McCarthy]]'s speakership, fearing it could lead to a moderate [[Republican Party|Republican]] or [[Democratic Party|Democrat]] like Liz Cheney or [[Nancy Pelosi]] becoming Speaker instead.
 
 
 ### AF 2022-08-17 1049
@@ -24,22 +24,22 @@
 (00:54:05) After [[January 6th Attack|January 6th]], [[Matt Gaetz]] went on television to attack [[Republican Party|Republicans]] who criticized [[Trump]], including Liz Cheney.
 
 ### AF 2022-04-28 0986
-(00:55:40) On the leaked call, [[Mike Johnson|Kevin McCarthy]] told colleagues including [[Steve Scalise]], Liz Cheney, and [[Tom Emmer]] that he would call [[Trump]] and tell him "it would be my recommendation you should resign."
+(00:55:40) On the leaked call, [[Kevin McCarthy]] told colleagues including [[Steve Scalise]], Liz Cheney, and [[Tom Emmer]] that he would call [[Trump]] and tell him "it would be my recommendation you should resign."
 
 ### AF 2022-04-28 0986
-(00:57:33) [[Nicholas J. Fuentes]] stated that [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Paul Ryan]], [[Mike Pence]], Liz Cheney, and [[Steve Scalise]] were not [[Trump]] loyalists, a fact [[known]] from the beginning of [[Trump]]'s political career.
+(00:57:33) [[Nicholas J. Fuentes]] stated that [[Kevin McCarthy]], [[Mitch McConnell]], [[Paul Ryan]], [[Mike Pence]], Liz Cheney, and [[Steve Scalise]] were not [[Trump]] loyalists, a fact [[known]] from the beginning of [[Trump]]'s political career.
 
 ### AF 2022-03-29 0968
-(00:02:48) [[Marjorie Taylor Greene]] spoke at the [[AFPAC]] conference approximately a month prior and faced criticism from figures including [[Dan Crenshaw]], Liz Cheney, [[Mike Johnson|Kevin McCarthy]], and [[Mitch McConnell]].
+(00:02:48) [[Marjorie Taylor Greene]] spoke at the [[AFPAC]] conference approximately a month prior and faced criticism from figures including [[Dan Crenshaw]], Liz Cheney, [[Kevin McCarthy]], and [[Mitch McConnell]].
 
 ### AF 2022-03-29 0968
-(00:22:44) Following [[Marjorie Taylor Greene]]'s [[AFPAC]] speech, media outlets including [[Microsoft National Broadcasting Company|MSNBC]], [[Warner Bros. Discovery|CNN]], the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]], as well as politicians like [[Mitch McCarthy]], [[Mitt Romney]], Liz Cheney, [[Dan Crenshaw]], and [[Adam Kinzinger]], condemned the event.
+(00:22:44) Following [[Marjorie Taylor Greene]]'s [[AFPAC]] speech, media outlets including [[MSNBC]], [[Warner Bros. Discovery|CNN]], the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]], as well as politicians like [[Mitch McCarthy]], [[Mitt Romney]], Liz Cheney, [[Dan Crenshaw]], and [[Adam Kinzinger]], condemned the event.
 
 ### AF 2022-03-08 0953
-(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], Liz Cheney, [[Ronna McDaniel]], and [[Mitt Romney]].
+(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Kevin McCarthy]], [[Mitch McConnell]], Liz Cheney, [[Ronna McDaniel]], and [[Mitt Romney]].
 
 ### AF 2022-03-01 0952
-(02:45:53) [[Nicholas J. Fuentes]] argued that the [[Republican Party]]'s base and platform are behind figures like [[Marjorie Taylor Greene]], [[Paul Gosar]], [[Louie Gohmert]], and [[Donald Trump]], and the [[America First]] agenda, rather than behind [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Ronna McDaniel]], [[Mitt Romney]], or Liz Cheney.
+(02:45:53) [[Nicholas J. Fuentes]] argued that the [[Republican Party]]'s base and platform are behind figures like [[Marjorie Taylor Greene]], [[Paul Gosar]], [[Louie Gohmert]], and [[Donald Trump]], and the [[America First]] agenda, rather than behind [[Kevin McCarthy]], [[Mitch McConnell]], [[Ronna McDaniel]], [[Mitt Romney]], or Liz Cheney.
 
 ### AF 2021-09-25 0884
 (24:37:00) [[Elise Stefanik]] was promoted as an [[America First]] alternative to Liz Cheney within [[Republican Party|GOP]] leadership.
@@ -57,7 +57,7 @@
 (17:47:760) In a statement following the ouster of Liz Cheney, [[Donald Trump]] called her "a bitter, horrible human being" and a "warmonger."
 
 ### AF 2021-05-12 0810
-(19:44:220) On the same day Liz Cheney was removed from leadership, [[House]] Minority Leader [[Mike Johnson|Kevin McCarthy]] stated he did not believe there was voter fraud in the 2020 election and claimed nobody else believed it either.
+(19:44:220) On the same day Liz Cheney was removed from leadership, [[House]] Minority Leader [[Kevin McCarthy]] stated he did not believe there was voter fraud in the 2020 election and claimed nobody else believed it either.
 
 ### AF 2021-05-10 0808
 (00:31:00) [[Axios]] reported that Liz Cheney, a critic of [[Donald Trump]], was expected to be removed from her position as [[House]] [[Republican Conference]] Chair for stating his claims of an illegitimate [[Joe Biden]] victory were lies.
@@ -96,7 +96,7 @@
 (01:15:40) [[Nicholas J. Fuentes]] argued that the anti-establishment sentiment within local and state [[Republican Party]] organizations, fueled by actions like protecting Liz Cheney, presented an opportunity for [[United States|America]] First activists to infiltrate and guide the party toward a more muscular nationalist ideology.
 
 ### AF 2021-02-04 0755
-(01:03:09) [[Nicholas J. Fuentes]] listed [[Ted Cruz]], [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], [[Adam Kinzinger]], and Liz Cheney as examples of [[Republican Party]] figures who had turned against [[Donald Trump]] and his supporters.(01:04:55) The [[Zionist Organization of America|ZOA]] called for [[Nicholas J. Fuentes]] to be banned from all platforms.
+(01:03:09) [[Nicholas J. Fuentes]] listed [[Ted Cruz]], [[Mitch McConnell]], [[Kevin McCarthy]], [[Adam Kinzinger]], and Liz Cheney as examples of [[Republican Party]] figures who had turned against [[Donald Trump]] and his supporters.(01:04:55) The [[Zionist Organization of America|ZOA]] called for [[Nicholas J. Fuentes]] to be banned from all platforms.
 
 ### AF 2019-10-10 0475
 (00:16:07) Liz Cheney, chairwoman of the [[House Republican Conference]], stated that [[Recep Tayyip Erdogan|Erdoğan]] and his regime must face serious consequences for attacking Kurdish allies.

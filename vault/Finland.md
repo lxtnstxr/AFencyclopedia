@@ -2,7 +2,7 @@
 #country
 
 ### AF 2025-08-20 1552
-(00:45:40) [[Volodymyr Zelenskyy]] traveled to [[Washington D.C.]] accompanied by the heads of state of major [[Europe|European]] [[NATO]] allies, including [[Donald Trump|the president]] of [[France]], the prime minister of the [[United Kingdom]], the prime minister of [[Italian Republic|Italy]], [[Donald Trump|the president]] of Finland, the head of the [[European Commission]], and the general secretary of [[NATO]].
+(00:45:40) [[Volodymyr Zelenskyy]] traveled to [[Washington D.C.]] accompanied by the heads of state of major [[Europe|European]] [[NATO]] allies, including [[the president]] of [[France]], the prime minister of the [[United Kingdom]], the prime minister of [[Italian Republic|Italy]], [[the president]] of Finland, the head of the [[European Commission]], and the general secretary of [[NATO]].
 
 (01:42:16) [[Nicholas J. Fuentes]] argued that [[Russian Federation|Russia]]'s primary security concern with [[Ukraine]] was the wide-open [[Europe|European]] plain and the strategic importance of the [[Black Sea]] and [[Crimea]], rather than its border with Finland.
 
@@ -58,7 +58,7 @@
 (00:00:30) [[Donald Trump|Trump]] held a summit with [[Vladimir Putin|Putin]] in [[Helsinki]], the capital of Finland, following a [[Europe|European]] trip that included stops in [[Brussels]] for a [[North Atlantic Treaty Organization|NATO]] summit, the [[United Kingdom]], and [[Country of Scotland|Scotland]].
 
 ### AF 2018-07-11 0198
-(36:24:10) [[Donald Trump]]'s schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[City of London|London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in [[Helsinki]], Finland.
+(36:24:10) [[Donald Trump]]'s schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in [[Helsinki]], Finland.
 
 ### AF 2017-11-03 0046
 (01:33:00) [[Nicholas J. Fuentes]] argued that homogeneous [[Region of Scandinavia|Scandinavia]]n countries like [[Norway]], [[Sweden]], [[Denmark]], and Finland report the highest happiness rates, which he attributed to shared ethnicity, culture, and high social trust.

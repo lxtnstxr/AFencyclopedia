@@ -18,7 +18,7 @@
 (13:37:43) [[Nicholas J. Fuentes]] recommended the [[Christianity|Christian]] apologetic works of authors [[Peter Kreeft]], Ed Feser, [[G.K. Chesterton]], [[C.S. Lewis]], and [[Fulton Sheen]].
 
 ### AF 2018-03-05 0118
-(00:13:40) [[Nicholas J. Fuentes]] recommended a reading list on [[Christianity]], including works by Edward Feser on [[Thomas Aquinas]], [[Peter Kreeft]]'s "A Shorter Summa," and [[G.K. Chesterton|C.S. Lewis]]'s "Mere [[Christianity]]."
+(00:13:40) [[Nicholas J. Fuentes]] recommended a reading list on [[Christianity]], including works by Edward Feser on [[Thomas Aquinas]], [[Peter Kreeft]]'s "A Shorter Summa," and [[C.S. Lewis]]'s "Mere [[Christianity]]."
 
 ### AF 2018-03-05 0118
 (00:15:40) [[Nicholas J. Fuentes]] recommended "The Last Superstition" by Edward Feser as a refutation of arguments by new atheists like [[Richard Dawkins]], [[Daniel Dennett]], and [[Christopher Hitchens]].

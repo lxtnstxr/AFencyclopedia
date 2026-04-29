@@ -2,7 +2,7 @@
 #person
 
 ### AF 2019-01-29 0320
-(00:11:23) [[Barack Obama]]'s past associations included figures like Saul Alinsky, [[Jeremiah Wright]], and [[Louis Farrakhan]], and he worked as a community organizer in [[City of Chicago|Chicago]].
+(00:11:23) [[Barack Obama]]'s past associations included figures like Saul Alinsky, [[Jeremiah Wright]], and [[Louis Farrakhan]], and he worked as a community organizer in [[Chicago]].
 
 
 ### AF 2018-06-21 0185

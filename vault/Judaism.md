@@ -92,3 +92,21 @@
 
 ### AF 2017-09-29 0021
 (00:42:20) [[Nicholas J. Fuentes]] criticized the focus on criticizing [[Islam]], noting that while attacks on [[Christianity]] and [[Islam]] are common in media, criticism of the [[Talmud]] and certain facts about Judaism are forbidden, which he presented as an observable double standard.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:13:31) [[Tucker Carlson]] claims that the war has nothing to do with Judaism.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:12:13) [[Nicholas J. Fuentes]] accused [[Candace Owens]] of being evasive by saying the conflict is not a war between monotheistic faiths ([[Christianity]], Judaism, [[Islam]]) rather than directly saying it is not about [[Jews]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:18:57) [[Nicholas J. Fuentes]] described the [[Catholic Church|Catholic]] interpretation of Judaism as a continuation of the Pharisaical sect that rejected [[Jesus Christ]], and whose subsequent history is a punishment for that rejection.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:22:17) [[Nicholas J. Fuentes]] argued that Judaism cannot be "good" because it does not have [[Jesus Christ|Christ]], and that [[Jews]], having "obstinately and stubbornly rejected the Son," do not have the Holy Spirit.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:23:30) [[Nicholas J. Fuentes]] rejected the term "monotheistic religions" as implying [[Christianity]] is one among many, and instead classified modern Judaism and [[Islam]] as "heresies off of [[Christianity]]."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:26:00) [[Nicholas J. Fuentes]] argued that [[Islam]] and Judaism are impediments to the gospel spreading and that [[Christianity]] is inherently in conflict with both, citing [[Jews|Jewish]] proliferation of liberalism, communism, and [[Zionism]].

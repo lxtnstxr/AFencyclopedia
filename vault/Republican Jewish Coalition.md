@@ -27,7 +27,7 @@
 (01:47:31) The Republican Jewish Coalition stated that [[Donald Trump]] was building the most pro-[[Israel]] administration in [[United States|U.S.]] history.
 
 ### AF 2024-09-09 1385
-(00:04:41) [[Donald Trump]] attended a gala for the Republican Jewish Coalition where [[Sheldon Adelson|Miriam Adelson]] was present and praised the [[State of Israel]].
+(00:04:41) [[Donald Trump]] attended a gala for the Republican Jewish Coalition where [[Miriam Adelson]] was present and praised the [[State of Israel]].
 
 ### AF 2024-09-09 1385
 (01:00:06) At a gala hosted by the Economic Club of [[New York]] with the Republican Jewish Coalition, [[Donald Trump]] said, "If [[Kamala Harris]] wins, [[Israel]] is gone."
@@ -39,7 +39,7 @@
 (01:00:48:180) [[Trump]]'s post-presidency actions, such as hosting a "Log Cabin [[Republican Party|Republicans]]" event at [[Mar-a-Lago]] and speaking at the Republican Jewish Coalition, disappointed [[Nicholas J. Fuentes]] and his supporters.
 
 ### AF 2023-01-09 1104
-(00:53:30) [[Nicholas J. Fuentes]] called on [[Marjorie Taylor Greene]] to "stop shilling for [[Mike Johnson|Kevin McCarthy]] and start shilling for [[Jesus Christ|Jesus]]," and to denounce [[Anti-Defamation League|Jonathan Greenblatt]] and the Republican Jewish Coalition instead of [[Nicholas J. Fuentes]].
+(00:53:30) [[Nicholas J. Fuentes]] called on [[Marjorie Taylor Greene]] to "stop shilling for [[Kevin McCarthy]] and start shilling for [[Jesus Christ|Jesus]]," and to denounce [[Anti-Defamation League|Jonathan Greenblatt]] and the Republican Jewish Coalition instead of [[Nicholas J. Fuentes]].
 
 ### AF 2022-12-03 1102
 (01:27:31) [[Nicholas J. Fuentes]] listed [[Ari Emanuel]], [[Jared Kushner]], [[Rahm Emanuel]], [[Ari Emanuel|Zika Emanuel]], [[American Israel Public Affairs Committee|AIPAC]], and the Republican Jewish Coalition as examples of [[Jewish]] influence in [[Los Angeles|Hollywood]] and government.
@@ -78,13 +78,13 @@
 (01:15:00) [[Nicholas J. Fuentes]] asserted that the Republican Jewish Coalition and major [[American Jewish Committee|Jewish organizations]] opposed [[Marjorie Taylor Greene]] because she was a "real deal" populist [[Republican Party|Republican]] congresswoman, suggesting a conflict between her platform and organized [[Jews|Jewish]] interests.
 
 ### AF 2021-01-29 0751
-(03:37:20) [[Nicholas J. Fuentes]] argued that power in the [[United States]] proceeds from moneyed interests, big tech, foreign governments, multinational corporations, lobbyists, and organized [[Jews|Jewish]] groups, not from voters or politicians, citing the influence of the Republican Jewish Coalition over [[Mike Johnson|Kevin McCarthy]] regarding [[Marjorie Taylor Greene]].
+(03:37:20) [[Nicholas J. Fuentes]] argued that power in the [[United States]] proceeds from moneyed interests, big tech, foreign governments, multinational corporations, lobbyists, and organized [[Jews|Jewish]] groups, not from voters or politicians, citing the influence of the Republican Jewish Coalition over [[Kevin McCarthy]] regarding [[Marjorie Taylor Greene]].
 
 ### AF 2021-01-29 0751
-(03:47:40) [[Nicholas J. Fuentes]] stated that the Republican Jewish Coalition was leaning on [[Mike Johnson|Kevin McCarthy]] to censure [[Marjorie Taylor Greene]], a sitting [[United States|U.S]]. congresswoman sworn into office a month prior.
+(03:47:40) [[Nicholas J. Fuentes]] stated that the Republican Jewish Coalition was leaning on [[Kevin McCarthy]] to censure [[Marjorie Taylor Greene]], a sitting [[United States|U.S]]. congresswoman sworn into office a month prior.
 
 ### AF 2021-01-29 0751
-(04:29:40) [[Nicholas J. Fuentes]] claimed that figures like [[Charlie Kirk]], [[Steven Crowder|Steve Bannon]], and [[Ryan Girdusky]] could not explain why a "real deal" populist congresswoman like [[Marjorie Taylor Greene]] was being opposed and thwarted by the Republican Jewish Coalition and major [[United States|American]] [[American Jewish Committee|Jewish organizations]], implying a need to understand underlying [[Jews|Jewish]] influence.
+(04:29:40) [[Nicholas J. Fuentes]] claimed that figures like [[Charlie Kirk]], [[Steve Bannon]], and [[Ryan Girdusky]] could not explain why a "real deal" populist congresswoman like [[Marjorie Taylor Greene]] was being opposed and thwarted by the Republican Jewish Coalition and major [[United States|American]] [[American Jewish Committee|Jewish organizations]], implying a need to understand underlying [[Jews|Jewish]] influence.
 
 ### AF 2021-01-29 0751
 (04:35:40) [[Nicholas J. Fuentes]] argued that the coordinated effort by the Republican Jewish Coalition, presidents of major [[United States|American]] [[American Jewish Committee|Jewish organizations]], the [[Zionist Organization of America]], and the media to oppose and censure [[Marjorie Taylor Greene]] reveals a systemic conflict with legitimate, [[Christianity|Christian]], right-wing [[United States|American]] patriotism.
@@ -93,10 +93,16 @@
 (01:44:35) The Republican Jewish Coalition wages a campaign against [[Andrew Torba|Gab.com]], which it identifies as a free speech platform.
 
 ### AF 2021-06-22 0834
-(02:05:95) A former congressman and [[Donald Trump|the president]] of the Republican Jewish Coalition co-authored an article for [[Newsweek]].
+(02:05:95) A former congressman and [[the president]] of the Republican Jewish Coalition co-authored an article for [[Newsweek]].
 
 ### AF 2019-04-10 0364
 (01:36:15) [[Donald Trump]] spoke at a Republican Jewish Coalition event.
 
 ### AF 2019-02-11 0329
 (01:24:20) [[Matt Brooks]], leader of the Republican Jewish Coalition, publicly challenged [[Nancy Pelosi]] and [[Steny Hoyer]] to respond to [[Ilhan Omar]]'s comments, noting Hoyer's leadership of many [[AIPAC]] trips to [[Israel]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:18:42) [[Mark Levin]], speaking at a Republican Jewish Coalition summit in [[Las Vegas]], stated that organized [[Jews|Jewry]] would be watching [[who]] associates with [[who]] and make their decisions for 2028.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:27:42) [[Mark Levin]] said at the Republican Jewish Coalition in November that if [[JD Vance]] did not disavow [[Tucker Carlson]] and [[Nicholas J. Fuentes]], [[Jews]] would make decisions about 2028.

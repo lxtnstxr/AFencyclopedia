@@ -37,3 +37,6 @@
 
 ### AF 2017-10-06 0026
 (01:34:18) [[Nicholas J. Fuentes]] listed [[Bashar al-Assad]], [[Vladimir Putin]], and [[Rodrigo Duterte]] as his top three non-[[United States|American]] leaders today, and [[Julius Caesar]], [[Napoleon Bonaparte]], and Otto von Bismarck as his top three historical leaders.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:31:07:450) [[Nicholas J. Fuentes]] quoted Otto von Bismarck's preference for diplomacy because once you go to war, you have no control over the outcome.

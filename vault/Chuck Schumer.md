@@ -52,7 +52,7 @@
 (06:37:36) Chuck Schumer, the [[Democratic Party|Democratic]] [[Senate Majority Leader]], moved to set up a vote on a bill to codify abortion rights in federal law, an action seen as a political message ahead of midterm elections, though the bill lacked the votes to overcome a filibuster and pass the [[Senate]].
 
 ### AF 2022-01-06 0930
-(45:41:93) [[Nicholas J. Fuentes]] listed [[Mitch McConnell]], [[Nancy Pelosi]], [[Mike Johnson|Kevin McCarthy]], and Chuck Schumer as the current leaders of [[Congress]] whom he deemed unworthy of respect.
+(45:41:93) [[Nicholas J. Fuentes]] listed [[Mitch McConnell]], [[Nancy Pelosi]], [[Kevin McCarthy]], and Chuck Schumer as the current leaders of [[Congress]] whom he deemed unworthy of respect.
 
 ### AF 2021-09-21 0880
 (00:44:04) In the spring, [[Jen Psaki]], [[Nancy Pelosi]], Chuck Schumer, and [[Joe Biden]] all publicly stated there would be no federal vaccine mandate, before later implementing one.
@@ -142,13 +142,13 @@
 (27:37:77) Chuck Schumer's office met with the Angel Moms, while [[the White House]] staff did not.
 
 ### AF 2019-02-14 0332
-(31:14:31) [[Nicholas J. Fuentes]] noted that Congressional leaders [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Nancy Pelosi]], and Chuck Schumer demanded an apology from [[Ilhan Omar]] for her comments about [[AIPAC]].
+(31:14:31) [[Nicholas J. Fuentes]] noted that Congressional leaders [[Kevin McCarthy]], [[Mitch McConnell]], [[Nancy Pelosi]], and Chuck Schumer demanded an apology from [[Ilhan Omar]] for her comments about [[AIPAC]].
 
 ### AF 2019-02-13 0331
 (01:12:00) In Fall 2017, a memorandum from the office of Chuck Schumer claimed [[Donald Trump]] would protect [[DACA]] through congressional legislation without seeking wall funding in exchange, a claim [[the White House]] denied within 48 hours.
 
 ### AF 2019-02-11 0329
-(01:28:40) [[Nicholas J. Fuentes]] stated that two-thirds of the [[United States Capitol|U.S. Congress]] attends the annual [[AIPAC]] conference in [[Washington D.C.|Washington, D.C.]], with speakers including [[Nancy Pelosi]], Chuck Schumer, [[Mitch McConnell]], and [[Marco Rubio]].
+(01:28:40) [[Nicholas J. Fuentes]] stated that two-thirds of the [[U.S. Congress]] attends the annual [[AIPAC]] conference in [[Washington D.C.|Washington, D.C.]], with speakers including [[Nancy Pelosi]], Chuck Schumer, [[Mitch McConnell]], and [[Marco Rubio]].
 
 ### AF 2019-01-17 0312
 (12:56:02) [[Nancy Pelosi]] and Chuck Schumer opposed funding for a border wall, creating a legislative impasse in the [[United States Congress]].
@@ -214,7 +214,7 @@
 (00:22:46) [[Senate Majority Leader]] [[Mitch McConnell]] stated the [[Federal Bureau of Investigation|FBI]] report on [[Brett Kavanaugh]] would be made available only to senators, leading Chuck Schumer to argue an investigation would not be legitimate if not released to the public.
 
 ### AF 2018-07-16 0201
-(00:23:30) Chuck Schumer stated that for [[Donald Trump|the president]] to side with [[Vladimir Putin|Putin]] against [[United States|American]] law enforcement and intelligence agencies was thoughtless, dangerous, and weak.
+(00:23:30) Chuck Schumer stated that for [[the president]] to side with [[Vladimir Putin|Putin]] against [[United States|American]] law enforcement and intelligence agencies was thoughtless, dangerous, and weak.
 
 ### AF 2018-03-30 0135
 (00:48:56) The caller Joe presented a "2D chess theory" that [[Donald Trump]] and [[Jefferson Beauregard Sessions III|Jeff Sessions]] knowingly proposed an [[Bureau of Alcohol, Tobacco, Firearms and Explosives|ATF]] bump [[stock]] ban they expected to fail in court, as the [[Bureau of Alcohol, Tobacco, Firearms and Explosives|ATF]] had previously authorized bump stocks as non-firearm accessories, a move [[Dianne Feinstein]] and Chuck Schumer criticized as insufficient, demanding legislation instead.
@@ -281,3 +281,15 @@
 
 ### AF 2017-09-14 0010
 (00:13:12) [[Nicholas J. Fuentes]] discusses recent developments where [[Donald Trump]] appeared to negotiate a deal on [[Deferred Action for Childhood Arrivals|DACA]] with [[Democratic Party|Democratic]] leaders [[Nancy Pelosi]] and Chuck Schumer.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:41:03) [[Nicholas J. Fuentes]] reported that [[U.S. Immigration and Customs Enforcement|ICE]] was also ending the practice of making arrests inside private residences without a warrant, which was one of the demands of Chuck Schumer.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(22:35:00) [[Nicholas J. Fuentes]] reported that [[U.S. Congress|Senate]] Minority Leader Chuck Schumer presented a list of demands, stating that [[Democratic Party|Democrats]] will not supply votes for the [[U.S. Department of Homeland Security|Homeland Security]] portion of the spending package unless [[U.S. Immigration and Customs Enforcement|ICE]] is defunded, agents are forced to remove their masks, and random raids for illegal immigrants are stopped.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(28:40:00) [[Nicholas J. Fuentes]] stated that the [[country]] is in a "war on all fronts" and that people should stop sympathizing with enemies like [[Mark Levine]], [[Alex Jones|Alex]] Pretty, Chuck Schumer, and [[Ben Shapiro]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:15:22) [[Nicholas J. Fuentes]] reported that Chuck Schumer, the [[Senate]] Minority Leader, introduced a resolution in the [[United States Senate]] to condemn [[Nicholas J. Fuentes]] for his comments about [[Adolf Hitler]].

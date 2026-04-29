@@ -12,7 +12,7 @@
 (46:31:07) [[Warner Bros. Discovery|CNN]] leadership, including figures like [[Jeff Zucker]], [[Anderson Cooper]], [[Wolf Blitzer]], and Jake Tapper, are not [[Palestinian]].
 
 ### AF 2023-11-02 1242
-(01:31:34) [[MSNBC]] fired three commentators for being too pro-[[Gaza Strip|Palestine]] during the [[Gaza Strip|Gaza]] war coverage, and the only people on screen for a period were ethnic [[Jews]] like [[Wolf Blitzer]] and Jake Tapper.
+(01:31:34) [[MSNBC]] fired three commentators for being too pro-[[Palestine]] during the [[Gaza Strip|Gaza]] war coverage, and the only people on screen for a period were ethnic [[Jews]] like [[Wolf Blitzer]] and Jake Tapper.
 
 ### AF 2023-04-05 1142
 (26:14:01) [[Warner Bros. Discovery|CNN]] legal analyst [[Kary Cordero]] told Jake Tapper that the case against [[Donald Trump]] was "underwhelming," containing no significant new violations or facts beyond what had been publicly [[known]] for seven years.
@@ -27,7 +27,7 @@
 (00:15:35) [[Nicholas J. Fuentes]] accused figures like Jake Tapper of having a "weasel-ly sniveling" energy for advocating that dissenting voices be shut down or investigated by the government.
 
 ### AF 2022-03-08 0953
-(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], Jake Tapper, the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
+(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], Jake Tapper, the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
 
 ### AF 2021-07-02 0840
 (00:08:30) [[Nicholas J. Fuentes]] mentioned a fundraiser for [[Paul Gosar]] on Friday that generated media hit pieces from figures like Jake Tapper and [[Fox News]].
@@ -72,10 +72,10 @@
 (01:25:58) [[Anderson Cooper]] and Jake Tapper were cited as examples of prominent media figures.
 
 ### AF 2019-08-05 0433
-(01:18:49) [[Nicholas J. Fuentes]] suggested that political actors like [[Joe Biden]] and Jake Tapper might politically benefit from mass shootings that align with narratives about white nationalism, as seen with [[Joe Biden]]'s campaign launch focusing on [[City of Charlottesville|Charlottesville]].
+(01:18:49) [[Nicholas J. Fuentes]] suggested that political actors like [[Joe Biden]] and Jake Tapper might politically benefit from mass shootings that align with narratives about white nationalism, as seen with [[Joe Biden]]'s campaign launch focusing on [[Charlottesville]].
 
 ### AF 2018-04-05 0139
-(00:13:06) A viral tweet from "[[Millennial Matt]]" featuring a high school photo of [[Nicholas J. Fuentes]] was retweeted by [[Greta Van Susteren]] of [[Fox News]], Jake Tapper of [[Warner Bros. Discovery|CNN]], and commented on by [[City of Parkland|Parkland]] survivor [[Kyle Kashuv]].
+(00:13:06) A viral tweet from "[[Millennial Matt]]" featuring a high school photo of [[Nicholas J. Fuentes]] was retweeted by [[Greta Van Susteren]] of [[Fox News]], Jake Tapper of [[Warner Bros. Discovery|CNN]], and commented on by [[Parkland]] survivor [[Kyle Kashuv]].
 
 ### AF 2018-03-09 0122
 (00:14:30) Jake Tapper was identified as being half-[[Jews|Jewish]].

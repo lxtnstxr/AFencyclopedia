@@ -18,7 +18,7 @@
 (00:45:34) Investigations revealed connections between [[Federal Bureau of Investigation|FBI]] officials [[Peter Strzok]] and Lisa Page, and [[Bruce Ohr]], [[who]] used the [[Christopher Steele|Steele dossier]] to obtain a [[Foreign Intelligence Surveillance Act|FISA]] warrant to spy on the [[Donald Trump]] campaign.
 
 ### AF 2018-01-29 0096
-(11:06:10) [[Nicholas J. Fuentes]] connected the memo's release to the previous week's news that the [[Federal Bureau of Investigation|FBI]] announced it was missing 50,000 text messages between agents [[Peter Strzok]] and Lisa Page from December 2016 to May 2017, allegedly related to a "secret society" conspiring against [[Donald Trump|the president]].
+(11:06:10) [[Nicholas J. Fuentes]] connected the memo's release to the previous week's news that the [[Federal Bureau of Investigation|FBI]] announced it was missing 50,000 text messages between agents [[Peter Strzok]] and Lisa Page from December 2016 to May 2017, allegedly related to a "secret society" conspiring against [[the president]].
 
 ### AF 2018-01-23 0092
 (00:48:27) [[Peter Strzok]] and Lisa Page were involved in missing text messages from December 2016 to May 2017 that the [[Federal Bureau of Investigation|FBI]] could not locate.

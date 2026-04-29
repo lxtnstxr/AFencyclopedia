@@ -9,7 +9,7 @@
 (01:17:36) [[Nicholas J. Fuentes]] described driving with [[Kanye West|Ye]] in Miami while [[Kanye West|Ye]] played his own songs like "30 Hours" and "Come to Life" at their request, calling it a "dream come true."
 
 ### AF 2022-10-20 1082
-(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[City of Chicago|Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], Miami, [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[City of Philadelphia|Philadelphia]], and [[City of Minneapolis|Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
+(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], Miami, [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[Philadelphia]], and [[Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
 
 ### AF 2022-10-04 1071
 (00:55:56) [[Sneeko]] flew from Miami to [[Romania]] to appear on a stream with [[Andrew Tate]], but [[Andrew Tate]] refused to let him on the show, citing him as a liability partly due to his association with [[Nicholas J. Fuentes]].
@@ -51,7 +51,7 @@
 (00:04:46) The 2020 [[vice]] presidential debate between [[Mike Pence]] and [[Kamala Harris]] was held in Miami and moderated by [[Susan Page]] of [[Russia Today|USA Today]].
 
 ### AF 2020-03-27 0574
-(01:47:44) When asked his favorite [[city]] besides [[City of Chicago|Chicago]], [[Nicholas J. Fuentes]] stated he really likes [[Manchester]] and [[Boston]], enjoys [[New England]], but hates [[Washington D.C.|DC]] and Miami.
+(01:47:44) When asked his favorite [[city]] besides [[Chicago]], [[Nicholas J. Fuentes]] stated he really likes [[Manchester]] and [[Boston]], enjoys [[New England]], but hates [[Washington D.C.|DC]] and Miami.
 
 ### AF 2020-02-03 0538
 (01:53:19) While in Miami, [[Nicholas J. Fuentes]] and [[Steve Franssen]] attempted to "red pill" [[Kathy Zhu]] on race during a conversation.
@@ -66,7 +66,7 @@
 (00:11:39) [[Nicholas J. Fuentes]] referenced a successful event held in Miami in late September.
 
 ### AF 2019-12-03 0506
-(01:32:52) [[Nicholas J. Fuentes]] recounted traveling to events throughout the year in locations including [[City of Chicago|Chicago]], [[CPAC]], [[Iowa State University]], [[India|Indiana]], [[State of Michigan|Michigan]], Miami, and [[Tennessee]].
+(01:32:52) [[Nicholas J. Fuentes]] recounted traveling to events throughout the year in locations including [[Chicago]], [[CPAC]], [[Iowa State University]], [[India|Indiana]], [[State of Michigan|Michigan]], Miami, and [[Tennessee]].
 
 ### AF 2019-12-03 0506
 (01:35:53) [[Nicholas J. Fuentes]] defended the security and privacy measures for the [[Groyper]] Summit, citing the successful [[organization]] of a dozen events that year, including one in Miami, without fallout for any of the roughly 500 combined attendees.
@@ -156,13 +156,13 @@
 (00:11:36) [[Nicholas J. Fuentes]] confirmed he will debate [[Jacob Wohl]] on [[Donald Trump]]'s foreign policy, with a focus on [[Israel]], at the upcoming demandfreespeech.org event in Miami.
 
 ### AF 2018-08-31 0231
-(23:08:03) [[Nicholas J. Fuentes]] argued that areas like Miami, [[Los Angeles]], [[Hartford]], and [[City of Chicago|Chicago]] no longer resemble [[United States|America]] due to ethnic enclaves and represent a future where meaningful assimilation is impossible.
+(23:08:03) [[Nicholas J. Fuentes]] argued that areas like Miami, [[Los Angeles]], [[Hartford]], and [[Chicago]] no longer resemble [[United States|America]] due to ethnic enclaves and represent a future where meaningful assimilation is impossible.
 
 ### AF 2018-03-19 0127
-(00:57:45) [[Nicholas J. Fuentes]] had a personal grievance with [[Milo]], [[who]] canceled a planned interview with him in Miami, [[State of Florida|Florida]] in August 2017 after the [[City of Charlottesville|Charlottesville]] rally.
+(00:57:45) [[Nicholas J. Fuentes]] had a personal grievance with [[Milo]], [[who]] canceled a planned interview with him in Miami, [[State of Florida|Florida]] in August 2017 after the [[Charlottesville]] rally.
 
 ### AF 2017-11-22 0056
 (02:14:16) A Cuban-[[United States|American]] anarcho-capitalist caller from Miami argued that Cubans are the most conservative [[Hispanic]] demographic, with 60% voting for [[Donald Trump]], due to their [[Europe|European]] cultural roots and experience fleeing socialism.
 
 ### AF 2017-11-01 0044
-(10:44:020) [[Nicholas J. Fuentes]] was scheduled for an interview with [[Milo Yiannopoulos]] and [[Allum Bokhari]] in Miami, Florida shortly after the [[City of Charlottesville|Charlottesville]] rally, but the interview was canceled.
+(10:44:020) [[Nicholas J. Fuentes]] was scheduled for an interview with [[Milo Yiannopoulos]] and [[Allum Bokhari]] in Miami, Florida shortly after the [[Charlottesville]] rally, but the interview was canceled.

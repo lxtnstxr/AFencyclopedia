@@ -117,10 +117,10 @@
 (08:47:42) Gavin Newsom stated that [[State of Florida|Florida]] received $28 million from the federal Chips and Science Act, which he called one of the most significant economic plans since [[Franklin D. Roosevelt]].
 
 ### AF 2023-12-01 1254
-(12:11:36) Gavin Newsom challenged [[Ron DeSantis]] on his business climate claims, citing [[Disney|Disney]] and the [[Tampa Bay Rays]].
+(12:11:36) Gavin Newsom challenged [[Ron DeSantis]] on his business climate claims, citing [[Disney]] and the [[Tampa Bay Rays]].
 
 ### AF 2023-12-01 1254
-(12:21:72) [[Ron DeSantis]] claimed he made [[Disney|Disney]] a fortune and saved jobs by keeping it open during COVID, unlike Gavin Newsom who closed it for over a year.
+(12:21:72) [[Ron DeSantis]] claimed he made [[Disney]] a fortune and saved jobs by keeping it open during COVID, unlike Gavin Newsom who closed it for over a year.
 
 ### AF 2023-12-01 1254
 (12:37:58) [[Ron DeSantis]] accused Gavin Newsom of locking working-class and middle-income kids out of school for longer than anywhere else in the [[country]] during the COVID-19 pandemic.

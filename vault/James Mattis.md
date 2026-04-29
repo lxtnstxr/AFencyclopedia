@@ -36,7 +36,7 @@
 (30:21:86) [[Nicholas J. Fuentes]] stated that the appointments of [[Mick Mulvaney]] as Chief of Staff and [[Bill Barr|Barr]] as Attorney General were good picks, and that the departure of Mattis was positive.
 
 ### AF 2018-12-20 0300
-(00:27:34) [[Nicholas J. Fuentes]] connected the resignation of Defense Secretary James Mattis to [[Donald Trump]]'s decision to pull troops from [[Syria]] and [[Afghanistan]], citing James Mattis's resignation letter which stated he wanted a defense secretary whose views aligned more closely with [[Donald Trump|the president's]].
+(00:27:34) [[Nicholas J. Fuentes]] connected the resignation of Defense Secretary James Mattis to [[Donald Trump]]'s decision to pull troops from [[Syria]] and [[Afghanistan]], citing James Mattis's resignation letter which stated he wanted a defense secretary whose views aligned more closely with [[the president's]].
 
 ### AF 2018-12-20 0300
 (00:29:03) [[Nicholas J. Fuentes]] expressed his personal dislike for James Mattis, criticizing him for supporting transgender individuals and homosexuals in the military, being a [[Democratic Party|Democrat]], and implementing cultural sensitivity training.
@@ -66,7 +66,7 @@
 (00:04:41) Unverified reports circulated that Deputy Attorney General [[Rod Rosenstein]] had verbally resigned to [[White House]] Chief of Staff John Kelly in anticipation of being fired.
 
 ### AF 2018-09-20 0244
-(00:30:05) [[Nicholas J. Fuentes]] listed figures within the [[Donald Trump|Trump]] administration [[who]] he believed were working against [[Donald Trump|the president's]] agenda, including Chief of Staff John Kelly, [[Nikki Haley]], and [[John Bolton]].
+(00:30:05) [[Nicholas J. Fuentes]] listed figures within the [[Donald Trump|Trump]] administration [[who]] he believed were working against [[the president's]] agenda, including Chief of Staff John Kelly, [[Nikki Haley]], and [[John Bolton]].
 
 ### AF 2018-09-05 0233
 (00:09:01) The anonymous op-ed in [[The New York Times]] described individuals like John Kelly and [[Reince Priebus]] as "the adults in the room" tasked with managing [[Donald Trump]].

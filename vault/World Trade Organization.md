@@ -27,4 +27,7 @@
 (03:45:00) [[China]] recorded a deficit in its current account for the first quarter of 2018, its first since joining the World Trade Organization in 2001, indicating it was importing more services than it was exporting.
 
 ### AF 2018-05-31 0175
-(00:10:39) [[Wilbur Ross]] announced from [[Paris]] that [[Mexico]], [[Dominion of Canada|Canada]], and the [[Europe|European Union]] would lose their tariff exemptions, leading to retaliatory measures and complaints to the World Trade Organization.
+(00:10:39) [[Wilbur Ross]] announced from [[Paris]] that [[Mexico]], [[Dominion of Canada|Canada]], and the [[European Union]] would lose their tariff exemptions, leading to retaliatory measures and complaints to the World Trade Organization.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:51:01) [[China]] entered the World Trade Organization in 2001 and subsequently made a concerted effort to impose its will in [[Latin America]].

@@ -24,7 +24,7 @@
 (03:12:36) [[Nicholas J. Fuentes]] noted that Alex Stein debated [[Destiny]] on "The Kill Stream" the previous Friday, drawing significant viewership.
 
 ### AF 2022-08-04 1041
-(00:05:36) [[Nicholas J. Fuentes]] promoted a debate hosted by [[Ethan Ralph]] on [[Cozy.tv]] between Alex Stein and [[Destiny|Destiny]] concerning a viral video where Alex Stein harassed [[Alexandria Ocasio-Cortez|AOC]].
+(00:05:36) [[Nicholas J. Fuentes]] promoted a debate hosted by [[Ethan Ralph]] on [[Cozy.tv]] between Alex Stein and [[Destiny]] concerning a viral video where Alex Stein harassed [[Alexandria Ocasio-Cortez|AOC]].
 
 ### AF 2022-08-02 1039
 (01:03:10) [[Nicholas J. Fuentes]] participated in a multi-hour debate hosted by Modern Day Debate alongside [[Lauren Southern]], Alex Stein, and [[Destiny]].

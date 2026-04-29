@@ -27,7 +27,7 @@
 (01:28:23) Winston Churchill questioned whether [[Charlie Kirk]] would deny that [[Jews]] killed [[Jesus Christ|Jesus]], to which [[Nicholas J. Fuentes]] responded, "Of course."
 
 ### AF 2019-08-05 0433
-(01:34:44) [[Nicholas J. Fuentes]] read an excerpt from an article by [[Patrick Buchanan|Pat Buchanan]], written after the [[City of Charlottesville|Charlottesville rally]], which argued that Western imperialism and figures like Winston Churchill embodied a belief in racial superiority, framing the contemporary condemnation of white supremacy as a radical experiment.
+(01:34:44) [[Nicholas J. Fuentes]] read an excerpt from an article by [[Patrick Buchanan|Pat Buchanan]], written after the [[Charlottesville rally]], which argued that Western imperialism and figures like Winston Churchill embodied a belief in racial superiority, framing the contemporary condemnation of white supremacy as a radical experiment.
 
 ### AF 2019-04-19 0370
 (05:32:17) During his rebuttal, [[Jordan B. Peterson]] argued that capitalism is not a perfect system but is the best one discovered so far, comparing it to Winston Churchill's defense of democracy.

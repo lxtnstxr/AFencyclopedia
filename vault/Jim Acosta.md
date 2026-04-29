@@ -18,7 +18,7 @@
 (00:06:00) [[Fox News]], alongside [[Warner Bros. Discovery|CNN]], [[CBS News|CBS]], [[ABC News|ABC]], [[Associated Press|AP]], and [[Russia Today|USA Today]], filed an amicus brief in support of [[Warner Bros. Discovery|CNN]]'s lawsuit against the [[White House]] over the revocation of Jim Acosta's press pass.
 
 ### AF 2018-11-14 0282
-(00:09:20) [[Chris Wallace]] of [[Fox News]] stated the network supported [[Warner Bros. Discovery|CNN]]'s legal effort to regain Jim Acosta's [[White House]] press credential, condemning the "growing antagonistic tone" between [[Donald Trump|the president]] and the press.
+(00:09:20) [[Chris Wallace]] of [[Fox News]] stated the network supported [[Warner Bros. Discovery|CNN]]'s legal effort to regain Jim Acosta's [[White House]] press credential, condemning the "growing antagonistic tone" between [[the president]] and the press.
 
 ### AF 2018-11-13 0281
 (00:29:06) [[Warner Bros. Discovery|CNN]] filed a lawsuit against the [[White House]] after the administration revoked the press credentials of correspondent Jim Acosta, arguing the action violated Jim Acosta's First and Fifth Amendment rights.

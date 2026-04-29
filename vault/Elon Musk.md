@@ -19,7 +19,7 @@
 (01:09:16) [[Nicholas J. Fuentes]] argued that the rise of free speech on platforms like [[Twitter]] under Elon Musk has allowed the [[United States|American]] public to wake up to the reality of fighting [[Israel]]'s wars, leading to widespread opposition.
 ### AF 2025-11-05 1592
 (01:10:52:47) [[Nicholas J. Fuentes]] claimed that [[Silicon Valley]] got what it wanted in terms of artificial intelligence and defense contracts, with [[Palantir Technologies|Palantir]] and Elon Musk's people brought into the [[U.S. Department of Defense|Department of Defense]] and [[U.S. National Security Council|National Security Council]].
-(01:12:15:97) [[Nicholas J. Fuentes]] listed major donors to [[Donald Trump]]'s campaign as Elon Musk ($270 million), [[Tim Mellon]] ($200 million), [[Sheldon Adelson|Miriam Adelson]] ($100 million), and [[Marc Andreessen]] ($65 million).
+(01:12:15:97) [[Nicholas J. Fuentes]] listed major donors to [[Donald Trump]]'s campaign as Elon Musk ($270 million), [[Tim Mellon]] ($200 million), [[Miriam Adelson]] ($100 million), and [[Marc Andreessen]] ($65 million).
 ### AF 2025-11-06 1593
 (05:14:71) Elon Musk traveled to [[Auschwitz]], [[Birkenau]], and [[Israel]] to meet with [[Benjamin Netanyahu|Bibi]] and [[Ben Shapiro]].
 ### AF 2025-11-13 1597
@@ -102,7 +102,7 @@
 (02:08:53) Elon Musk, [[David Sacks]], and [[Peter Thiel]]—all members of the "PayPal Mafia"—funded [[JD Vance|J.D. Vance]]'s political ambitions and lobbied [[Donald Trump]] to choose him as his vice-presidential candidate.
 
 ### AF 2025-08-11 1548
-(02:20:10) On July 28th, 2024, [[JD Vance|J.D. Vance]] publicly urged Elon Musk to reconcile with [[Donald Trump]], stating it was a "mistake" for Musk to distance himself from [[Donald Trump|the president]].
+(02:20:10) On July 28th, 2024, [[JD Vance|J.D. Vance]] publicly urged Elon Musk to reconcile with [[Donald Trump]], stating it was a "mistake" for Musk to distance himself from [[the president]].
 
 ### AF 2025-08-11 1548
 (02:22:06) [[Nicholas J. Fuentes]] challenged [[Candace Owens]] to investigate [[JD Vance|J.D. Vance]]'s connections to [[David Frum]], [[Peter Thiel]], [[David Sacks]], and Elon Musk, predicting she would conclude [[JD Vance|Vance]] must be opposed in the 2028 election.
@@ -351,7 +351,7 @@
 (02:57:21) Elon Musk traveled to [[El Salvador]] to meet with President [[Nayib Bukele]].
 
 ### AF 2024-09-17 1390
-(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[Government of France|France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[Donald Trump|the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Sheldon Adelson|Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Gaza Strip|Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) Elon Musk was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[Donald Trump|the president]] of [[Israel]] after pro-[[Gaza Strip|Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
+(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) Elon Musk was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[the president]] of [[Israel]] after pro-[[Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
 
 ### AF 2024-09-16 1389
 (00:35:13) [[Nicholas J. Fuentes]] expressed optimism about the future of white identity politics, citing Elon Musk's takeover of [[Twitter]], the rise of [[Rumble Inc.|Rumble]], and [[Donald Trump]]'s radical immigration rhetoric.
@@ -372,7 +372,7 @@
 (01:26:11) [[Ashley St Claire]] is constantly promoted by Elon Musk and "bad-jackets" everybody who won't vote for [[Donald Trump]], including pro-lifers who criticized [[Donald Trump|Trump]] and [[Lauren Boebert|Lauren Chen]] after she was outed as a [[Russian]] asset.
 
 ### AF 2024-09-02 1381
-(00:36:30) [[Nicholas J. Fuentes]] expressed frustration that there is no viable political candidate or movement exclusively for [[United States|Americans]], criticizing the influence of non-[[United States|Americans]] like [[Peter Thiel]], Elon Musk, and [[Sheldon Adelson|Miriam Adelson]] in [[United States]] politics.
+(00:36:30) [[Nicholas J. Fuentes]] expressed frustration that there is no viable political candidate or movement exclusively for [[United States|Americans]], criticizing the influence of non-[[United States|Americans]] like [[Peter Thiel]], Elon Musk, and [[Miriam Adelson]] in [[United States]] politics.
 
 ### AF 2024-08-28 1379
 (00:52:34) Key figures in the [[MAGA]] movement include [[Donald Trump]], [[Tucker Carlson]], [[Robert F. Kennedy Jr.]], [[Tulsi Gabbard]], [[JD Vance]], [[Usha Vance]], Elon Musk, and [[Vivek Ramaswamy]], many of whom are immigrants or children of immigrants.
@@ -540,7 +540,7 @@
 (00:14:30) [[Nicholas J. Fuentes]] claimed his bans from [[Twitter]] were issued without specific violations cited and that Elon Musk's decision to restore him was based on the principle that people should not be permanently banned unless they break the law.
 
 ### AF 2024-04-25 1326
-(01:54:52) [[Nicholas J. Fuentes]] argued that Elon Musk's post-Auschwitz visit crackdown on "anti-Semitism" on [[Twitter|X]] and [[Joe Biden]]'s signing of the [[TikTok]] ban were responses to [[Jewish]] pressure over pro-[[Gaza Strip|Palestine]] content.
+(01:54:52) [[Nicholas J. Fuentes]] argued that Elon Musk's post-Auschwitz visit crackdown on "anti-Semitism" on [[Twitter|X]] and [[Joe Biden]]'s signing of the [[TikTok]] ban were responses to [[Jewish]] pressure over pro-[[Palestine]] content.
 
 ### AF 2024-04-24 1325
 (14:55:58) [[Nicholas J. Fuentes]] argued that major events over the past seven months, including Elon Musk and [[Twitter]] beginning to censor again, protests at [[Columbia|Columbia University]] and [[Google]], collapsing youth support for the [[Joe Biden|Biden administration]], and the battle over aid for [[Ukraine]], all lead back to the [[Jewish]] occupation of [[United States|America]].
@@ -648,13 +648,13 @@
 (01:08:08) [[Nicholas J. Fuentes]] stated that Elon Musk controls [[Starlink]], making him a decisive factor in the [[Ukraine]] war, and that the [[Mossad]] influences [[United States|America]]n politics through billionaire networks.
 
 ### AF 2024-02-21 1295
-(00:13:07) [[Nicholas J. Fuentes]] referenced an article from [[Ron Unz]] arguing that Elon Musk, despite controlling Tesla, SpaceX, and [[Twitter]], was forced to capitulate to [[Jewish]] power by traveling to [[City of Auschwitz|Auschwitz]] and declaring himself "aspirationally [[Jewish]]" following the outbreak of the war in [[Gaza Strip|Gaza]].
+(00:13:07) [[Nicholas J. Fuentes]] referenced an article from [[Ron Unz]] arguing that Elon Musk, despite controlling Tesla, SpaceX, and [[Twitter]], was forced to capitulate to [[Jewish]] power by traveling to [[Auschwitz]] and declaring himself "aspirationally [[Jewish]]" following the outbreak of the war in [[Gaza Strip|Gaza]].
 
 ### AF 2024-02-21 1295
-(00:15:03) [[Nicholas J. Fuentes]] argued that Elon Musk and [[Kanye West]], whom he described as heroes, were both forced to surrender to [[Jewish]] power, with Musk doing so at [[City of Auschwitz|Auschwitz]].
+(00:15:03) [[Nicholas J. Fuentes]] argued that Elon Musk and [[Kanye West]], whom he described as heroes, were both forced to surrender to [[Jewish]] power, with Musk doing so at [[Auschwitz]].
 
 ### AF 2024-02-21 1295
-(00:50:51) [[Nicholas J. Fuentes]] gave examples of key nodes being controlled, including Elon Musk prohibiting pro-[[Gaza Strip|Palestine]] phrases on [[Twitter]], [[Larry Fink]] of [[BlackRock]] blacklisting [[Israel]] protesters, and [[Joe Biden]] and [[Lloyd Austin]] saying nothing positive about [[Israel]].
+(00:50:51) [[Nicholas J. Fuentes]] gave examples of key nodes being controlled, including Elon Musk prohibiting pro-[[Palestine]] phrases on [[Twitter]], [[Larry Fink]] of [[BlackRock]] blacklisting [[Israel]] protesters, and [[Joe Biden]] and [[Lloyd Austin]] saying nothing positive about [[Israel]].
 
 ### AF 2024-02-15 1293
 (00:58:59) Public opinion is generated by mass media, which is itself influenced by money, advertisers, billionaires like [[Jeff Bezos]] who owns the *[[Washington Post]]* and Elon Musk who owns [[Twitter]], and organizations like the [[Anti-Defamation League|ADL]].
@@ -663,10 +663,10 @@
 (00:51:20) [[Nicholas J. Fuentes]] asserted that Elon Musk's platform [[Twitter]] has a zero-tolerance policy for anti-Semitism and bans phrases like "from the river to the sea," but has no comparable treatment for anti-white rhetoric.
 
 ### AF 2024-02-13 1291
-(48:32:89) Elon Musk visited [[City of Auschwitz|Auschwitz]] with [[Ben Shapiro]] and stated he is "aspirationally [[Jewish]]."
+(48:32:89) Elon Musk visited [[Auschwitz]] with [[Ben Shapiro]] and stated he is "aspirationally [[Jewish]]."
 
 ### AF 2024-02-13 1291
-(52:49:04) Elon Musk began banning accounts opposed to [[Israel]] on [[Twitter]] following his visit to [[City of Auschwitz|Auschwitz]].
+(52:49:04) Elon Musk began banning accounts opposed to [[Israel]] on [[Twitter]] following his visit to [[Auschwitz]].
 
 ### AF 2024-02-07 1288
 (01:19:18) [[Nicholas J. Fuentes]] cited a tweet from Elon Musk stating opposition to illegal immigration but acceptance of legal immigration.
@@ -675,19 +675,19 @@
 (00:35:39) Elon Musk and [[Ben Shapiro]] attended the [[Europe|European]] [[Jewish]] Convention, where they denied the existence of a "[[Jews|world Jewry]]" while advocating for support for [[Israel]].
 
 ### AF 2024-01-30 1285
-(11:05:40) Elon Musk visited [[City of Auschwitz|Auschwitz]] with [[Ben Shapiro]].
+(11:05:40) Elon Musk visited [[Auschwitz]] with [[Ben Shapiro]].
 
 ### AF 2024-01-27 1284
 (01:14:33) [[Donald Trump]] was impressed with [[Nicholas J. Fuentes]] during a dinner at [[Mar-a-Lago]], where [[Nicholas J. Fuentes]] discussed Elon Musk's acquisition of [[Twitter]], [[Truth Social]], and [[Ron DeSantis]].
 
 ### AF 2024-01-25 1282
-(01:56:00) [[Ron DeSantis]] attended a dinner in [[Israel]] with [[Sheldon Adelson|Miriam Adelson]] and other major [[Jewish]] donors shortly before announcing his presidential campaign, which he launched with the support of [[David Sacks]] and Elon Musk.
+(01:56:00) [[Ron DeSantis]] attended a dinner in [[Israel]] with [[Miriam Adelson]] and other major [[Jewish]] donors shortly before announcing his presidential campaign, which he launched with the support of [[David Sacks]] and Elon Musk.
 
 ### AF 2024-01-23 1281
-(05:20:520) Elon Musk traveled to [[City of Auschwitz|Auschwitz]] with [[Ben Shapiro]], where he wore a yarmulke and participated in an event focused on combating anti-Semitism.
+(05:20:520) Elon Musk traveled to [[Auschwitz]] with [[Ben Shapiro]], where he wore a yarmulke and participated in an event focused on combating anti-Semitism.
 
 ### AF 2024-01-23 1281
-(05:46:300) Following his visit to [[City of Auschwitz|Auschwitz]], Elon Musk announced that [[Twitter]] would intensify its efforts to combat anti-Semitism on the platform.
+(05:46:300) Following his visit to [[Auschwitz]], Elon Musk announced that [[Twitter]] would intensify its efforts to combat anti-Semitism on the platform.
 
 ### AF 2024-01-19 1280
 (36:20:42) Elon Musk banned the phrase "from the river to the sea" on [[Twitter]]/[[Twitter|X]], labeling it genocidal rhetoric, a standard not applied when [[Benjamin Netanyahu|Bibi]] used similar language.
@@ -729,7 +729,7 @@
 (00:01:17) Elon Musk was embroiled in a significant controversy regarding antisemitism.
 
 ### AF 2023-12-09 1260
-(00:15:27) [[Nicholas J. Fuentes]] framed a conflict between Elon Musk and [[Disney|Disney]] and the [[Anti-Defamation League|ADL]] over a free and open internet.
+(00:15:27) [[Nicholas J. Fuentes]] framed a conflict between Elon Musk and [[Disney]] and the [[Anti-Defamation League|ADL]] over a free and open internet.
 
 ### AF 2023-12-02 1255
 (00:29:42) [[Nicholas J. Fuentes]] took particular offense at the song "Rich Men North of Richmond" for blaming successful white people like [[Donald Trump]] and Elon Musk, whom he views as the cognitive elite and entrepreneurs who could help their people, instead of blaming [[Jews]] or other groups.
@@ -786,7 +786,7 @@
 (01:01:29) By 2023, platforms like [[Rumble Inc.|Rumble]] and Elon Musk's [[Twitter]] allowed figures expressing pro-white opinions to remain online, and canceled individuals often remained employed within conservative networks.
 
 ### AF 2023-10-19 1238
-(00:44:07) Elon Musk participated in a [[Twitter]] Space with [[the President]] of [[Israel]] and [[Ben Shapiro]], where he promised to visit the [[City of Auschwitz|Auschwitz]]-Birkenau concentration camp.
+(00:44:07) Elon Musk participated in a [[Twitter]] Space with [[the President]] of [[Israel]] and [[Ben Shapiro]], where he promised to visit the [[Auschwitz]]-Birkenau concentration camp.
 
 ### AF 2023-10-17 1236
 (01:22:40) Media entities including Elon Musk and [[Fox News]] are controlled by forces aligned with [[Israel]]'s strategic interests.
@@ -813,7 +813,7 @@
 (01:26:40) During the [[Twitter]] Space, Elon Musk stated he was "aspirationally [[Jewish]]," believed he might be "ethnically [[Jewish]]," and claimed to have more than twice as many [[Jewish]] friends as non-[[Jewish]] friends.
 
 ### AF 2023-09-29 1226
-(01:28:40) A rabbi invited Elon Musk to visit the [[City of Auschwitz|Auschwitz]] concentration camp to understand the severity of anti-Semitism; after initially declining, Musk later accepted the invitation.
+(01:28:40) A rabbi invited Elon Musk to visit the [[Auschwitz]] concentration camp to understand the severity of anti-Semitism; after initially declining, Musk later accepted the invitation.
 
 ### AF 2023-09-29 1226
 (01:29:40) Elon Musk agreed to allow programmers from one of the [[Jewish]] groups to examine [[Twitter]]'s algorithm and moderation software.
@@ -825,7 +825,7 @@
 (01:33:40) [[Nicholas J. Fuentes]] contrasted his own censorship with Elon Musk's public appeasement of [[Jewish]] leaders, noting Musk's $250 billion net worth and control of major companies like Tesla, SpaceX, and [[Twitter]].
 
 ### AF 2023-09-29 1226
-(01:35:40) [[Nicholas J. Fuentes]] observed that videos depicting [[black]] crime in cities like [[City of Philadelphia|Philadelphia]] and [[City of Chicago|Chicago]] appear primarily on [[Twitter]] and [[TikTok]], owned by Elon Musk and a [[China|Chinese]] company respectively, but not on [[Instagram]], [[Google|YouTube]], or [[Facebook]].
+(01:35:40) [[Nicholas J. Fuentes]] observed that videos depicting [[black]] crime in cities like [[Philadelphia]] and [[Chicago]] appear primarily on [[Twitter]] and [[TikTok]], owned by Elon Musk and a [[China|Chinese]] company respectively, but not on [[Instagram]], [[Google|YouTube]], or [[Facebook]].
 
 ### AF 2023-09-27 1224
 (00:31:00) Elon Musk was accused by the "[[Twitter|X]] out anti-Semitism" campaign of turning [[Twitter|X]] into a hotbed of anti-[[Jewish]] hatred and of personally engaging in anti-Semitism.
@@ -855,7 +855,7 @@
 (02:52:20) [[Nicholas J. Fuentes]] pointed out a contradiction in Elon Musk's policy, noting that while [[Twitter]] claims it will only ban unlawful content, it continues to enforce bans for "hate speech" and "anti-Semitism," which are not illegal.
 
 ### AF 2023-09-13 1215
-(04:44:64) Elon Musk refused a [[Ukraine|Ukrainian]] request to extend [[Starlink]] satellite coverage to enable a drone attack on the [[Russian]] naval fleet in [[City of Sevastopol|Sevastopol]], citing a desire to avoid escalation toward nuclear war.
+(04:44:64) Elon Musk refused a [[Ukraine|Ukrainian]] request to extend [[Starlink]] satellite coverage to enable a drone attack on the [[Russian]] naval fleet in [[Sevastopol]], citing a desire to avoid escalation toward nuclear war.
 
 ### AF 2023-09-13 1215
 (05:13:66) The story about Elon Musk thwarting the [[Ukraine|Ukrainian]] attack emerged in a biography by [[Walter Isaacson]] during the same week Elon Musk was publicly feuding with the [[Anti-Defamation League|ADL]].
@@ -1038,7 +1038,7 @@
 (00:55:41) [[Nicholas J. Fuentes]] cited the historical treatment of kulaks in [[Russia]] and the Holodomor in [[Ukraine]] under communist regimes as examples of why retreating from political struggle is impossible, arguing that the political battle comes for everyone, from farmers to billionaires like Elon Musk.
 
 ### AF 2023-08-25 1204
-(01:17:04) [[Nicholas J. Fuentes]] claimed that major donors like [[Ken Griffin]] and [[Sheldon Adelson|Miriam Adelson]], institutions like [[The Wall Street Journal|Wall Street]], and influencers like Elon Musk had backed [[Ron DeSantis]]'s failed primary challenge against [[Donald Trump]].
+(01:17:04) [[Nicholas J. Fuentes]] claimed that major donors like [[Ken Griffin]] and [[Miriam Adelson]], institutions like [[The Wall Street Journal|Wall Street]], and influencers like Elon Musk had backed [[Ron DeSantis]]'s failed primary challenge against [[Donald Trump]].
 
 ### AF 2023-08-25 1204
 (01:17:04) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] posted his mugshot on [[Twitter]] after his booking, and Elon Musk quote-tweeted it.
@@ -1518,7 +1518,7 @@
 (01:56:14) [[Nicholas J. Fuentes]] compared cryptocurrency, Elon Musk's acquisition of [[Twitter]], social media, gun control, and elections as parts of a broader assault on dissent.
 
 ### AF 2022-04-29 0987
-(00:00:00) [[Nicholas J. Fuentes]] noted that Elon Musk's acquisition of [[Twitter]] prompted the [[United States]] and the [[Europe|European Union]] to quickly propose new laws aimed at countering his free speech plans for the platform.
+(00:00:00) [[Nicholas J. Fuentes]] noted that Elon Musk's acquisition of [[Twitter]] prompted the [[United States]] and the [[European Union]] to quickly propose new laws aimed at countering his free speech plans for the platform.
 
 ### AF 2022-04-28 0986
 (00:09:35) [[Nicholas J. Fuentes]] expressed impatience to get his banned [[Twitter]] account back following Elon Musk's acquisition of the company.
@@ -1527,7 +1527,7 @@
 (00:00:00) [[Nicholas J. Fuentes]] began his nightly broadcast, announcing the show's featured story would be the ongoing developments surrounding Elon Musk's acquisition of [[Twitter]].
 
 ### AF 2022-04-27 0985
-(00:29:58) The [[Europe|European Union]] passed new laws forcing major technology companies to censor content categorized as misinformation and hate speech, coinciding with Elon Musk's purchase of [[Twitter]].
+(00:29:58) The [[European Union]] passed new laws forcing major technology companies to censor content categorized as misinformation and hate speech, coinciding with Elon Musk's purchase of [[Twitter]].
 
 ### AF 2022-04-27 0985
 (01:47:28) An article in [[The New Yorker]] argued that the health of the internet and democracy was too significant to leave to one man, referencing Elon Musk's control of [[Twitter]].
@@ -1539,7 +1539,7 @@
 (02:00:01) [[Nicholas J. Fuentes]] stated that Elon Musk's acquisition of [[Twitter]] represented a challenge to the ruling regime's monopoly on information control, which he described as more valuable than [[Twitter]] itself for influencing public thought, consumption, and voting.
 
 ### AF 2022-04-27 0985
-(02:06:09) [[Nicholas J. Fuentes]] concluded that free speech on [[Twitter]] under Elon Musk would face significant external resistance from [[state]] actors, citing the [[Europe|European Union]]'s new law as evidence of a global pressure campaign against open discourse.
+(02:06:09) [[Nicholas J. Fuentes]] concluded that free speech on [[Twitter]] under Elon Musk would face significant external resistance from [[state]] actors, citing the [[European Union]]'s new law as evidence of a global pressure campaign against open discourse.
 
 ### AF 2022-04-26 0984
 (07:59:86) Elon Musk purchased [[Twitter]] for $44 billion, taking the company private with the stated intention of transforming it into a platform for free speech.
@@ -1587,7 +1587,7 @@
 (50:35:80) [[Nicholas J. Fuentes]] stated that Elon Musk's acquisition of [[Twitter]] took the platform out of the hands of the establishment and started a national conversation about free speech.
 
 ### AF 2022-04-26 0984
-(55:16:55) [[Nicholas J. Fuentes]] toasted Elon Musk's "total Aryan victory" in acquiring [[Twitter]] and linked it to a chain of victories including [[Donald Trump]]'s election and the [[City of Charlottesville|Charlottesville rally]].
+(55:16:55) [[Nicholas J. Fuentes]] toasted Elon Musk's "total Aryan victory" in acquiring [[Twitter]] and linked it to a chain of victories including [[Donald Trump]]'s election and the [[Charlottesville rally]].
 
 ### AF 2022-04-26 0984
 (02:01:26) [[Nicholas J. Fuentes]] concurred with a viewer's "Forbes most epic list" ranking [[Vladimir Putin|Putin]] first, Elon Musk second, and [[Trump]] third, stating they were all "cut from the same cloth."
@@ -1891,3 +1891,201 @@
 
 ### AF 2017-10-05 0025
 (01:58:58) Elon Musk founded SpaceX with the goal of establishing a human colony on [[Mars]] as a "plan B" should [[artificial intelligence]] threaten humanity on [[Earth]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(01:18:54) Many individuals [[who]] worked with Elon and subsequently entered government through Doge (an apparent government initiative) also had previous affiliations with [[Palantir Technologies|Palantir]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:19:00) Many of the people [[who]] worked with Elon Musk and entered the government through DOGE previously worked with [[Palantir Technologies|Palantir]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:42) [[Nicholas J. Fuentes]] identified [[JD Vance]], [[David Sacks]], Elon Musk, and [[a16z|Andreessen Horowitz]] as key components of the tech money that formed the real 2024 coalition.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:18) [[Peter Thiel]], Elon Musk, [[David Sacks]], and [[Tucker Carlson]] persuaded [[Donald Trump|Trump]] to nominate [[JD Vance]] for the [[vice]] presidency.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:20:50) [[David Sacks]] maintained close relationships with Elon Musk and [[Peter Thiel]], having [[known]] [[Peter Thiel]] for 35 years as part of the “[[Peter Thiel|PayPal]] mafia.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:30:26) [[David Sacks]] ran Elon Musk’s political operation and donated to [[JD Vance]] in 2022, as did [[Peter Thiel]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(00:10:40) [[Nicholas J. Fuentes]] stated that many people [[who]] worked with Elon Musk and entered the government through DOGE had worked with [[Palantir Technologies|Palantir]], and that now DOGE is finished, [[Palantir Technologies|Palantir]] is "just getting started."
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:02:24) [[Nicholas J. Fuentes]] noted that in 2024, [[Jeff Bezos]], Elon Musk, and [[Mark Zuckerberg]] were at the inauguration, unlike in 2016.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:02:58) [[Nicholas J. Fuentes]] claimed that the [[American Israel Public Affairs Committee|Israel lobby]], Elon Musk, and [[Timothy Mellon|Tim Mellon]] contributed massive amounts of money to [[Donald Trump]]'s 2024 campaign, and that small-dollar donations decreased from 60% to 30% of his fundraising.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(10:36:940) [[Nicholas J. Fuentes]] stated that many people [[who]] worked with Elon Musk and came into the government through the Department of Government Efficiency (DOGE) had previously worked with [[Palantir Technologies|Palantir]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(09:57:02) Many individuals [[who]] worked with Elon Musk and entered the government through a division [[known]] as Doge previously worked with [[Palantir Technologies|Palantir]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(10:40:47) Many of the people [[who]] worked with Elon Musk and entered the government through the Department of Government Efficiency (Doge) had previously worked with [[Palantir Technologies|Palantir]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:26:31:66) Many people [[who]] worked with Elon Musk and entered the government through Doge worked with [[Palantir Technologies|Palantir]], which [[Nicholas J. Fuentes]] said "seems to be just getting started" now that Doge is finished.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:50:21) After [[Donald Trump]] was shot in the ear, [[Tucker Carlson]], Elon Musk, and [[Peter Thiel]] called [[Donald Trump]] and encouraged him to select [[JD Vance]] as his nominee.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:28:43) [[Nicholas J. Fuentes]] discussed the different receptions given to [[Nick Shirley]] and [[Tyler Olivera]] for their investigative work, stating that [[Nick Shirley]] was promoted by figures like Elon Musk and [[Kari Lake]] for exposing fraud among [[Somalia|Somali]] immigrants in [[Minneapolis]], while [[Tyler Olivera]] was banned on [[Patreon]] for his similar expose on ultra-orthodox [[Jews]] in [[Lakewood, New Jersey]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:33:04) [[Nicholas J. Fuentes]] argued that the campaign by figures like [[Nick Shirley]] and Elon Musk to expose fraud by [[Somalia|Somali]] immigrants was a diversion to stop people from talking about [[American Israel Public Affairs Committee|AIPAC]] and [[Israel]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:05:00) [[Nicholas J. Fuentes]] stated that [[Palantir Technologies|Palantir]] is an [[Artificial Intelligence|AI]] data analytics company that works with four federal agencies, including people [[who]] came into the government through "Doge" with Elon Musk.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:00:46) [[Nicholas J. Fuentes]] recalled the "exuberance" felt on election night in November 2024 and when Elon Musk "did the Roman salute" at a victory rally, contrasting it with the current negative feelings about the administration.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(15:00:54) [[Nicholas J. Fuentes]] cited the optimism from [[Donald Trump]]'s election night victory in 2024, the inauguration, and Elon Musk's gesture at a victory rally as a stark contrast to the current negative sentiment.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(10:35:82) [[Nicholas J. Fuentes]] stated that many people [[who]] worked with Elon Musk and came into the government through DOGE worked with [[Palantir Technologies|Palantir]], and now that DOGE is finished, [[Palantir Technologies|Palantir]] seems to be just getting started.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:32:00) [[Nicholas J. Fuentes]] stated that Elon Musk, [[Jeff Bezos]], and [[Mark Zuckerberg]] were all at the inauguration because they are all working for the same agenda of foreign labor, globalization, free trade, and wars for [[Israel]], and are all in the [[Jeffrey Epstein|Epstein]] files.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(00:09:10) [[Nicholas J. Fuentes]] claimed that many people [[who]] worked with Elon Musk and entered the government through [[Doge]] had previously worked with [[Palantir Technologies|Palantir]], and that with [[Doge]] finished, [[Palantir Technologies|Palantir]] appears to be "just getting started."
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:08:44) Many individuals [[who]] worked with Elon Musk and entered the government through the Department of Government Efficiency (DOGE) previously worked with [[Palantir Technologies|Palantir]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:20:17) [[Nicholas J. Fuentes]] characterized [[JD Vance]] as a puppet of [[Peter Thiel]] and Elon Musk.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(10:38:00) [[Nicholas J. Fuentes]] claimed that many of the people [[who]] worked with Elon Musk and came into the government through the Department of Government Efficiency (Doge) previously worked with [[Palantir Technologies|Palantir]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(18:56:00) [[Nicholas J. Fuentes]] repeated his claim that the people [[who]] worked with Elon Musk through Doge worked with [[Palantir Technologies|Palantir]].
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:07:32.020) [[Nicholas J. Fuentes]] called for investigations into [[Howard Lutnick]], [[Les Wexner]], [[Steve Bannon]], Elon Musk, [[Donald Trump]], [[Ronald Lauder]], and [[Leon Black]] for their connections to [[Jeffrey Epstein]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(10:40:00) Individuals [[who]] worked with Elon Musk and joined the government through the [[Department of Government Efficiency]] ([[Department of Government Efficiency|DOGE]]) had previously worked with [[Palantir Technologies|Palantir]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:09:31) [[Peter Thiel]], Elon Musk, and [[Tucker Carlson]] pleaded with [[Donald Trump]] to make [[JD Vance|J.D. Vance]] his [[vice]] presidential nominee in 2024.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:02:07) [[Nicholas J. Fuentes]] stated that people [[who]] worked with Elon Musk and entered the government through [[Department of Government Efficiency|DOGE]] previously worked with [[Palantir Technologies|Palantir]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:29:30) Elon Musk provided $275 million to [[Donald Trump]]'s 2024 campaign.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:46:39) [[Nicholas J. Fuentes]] claimed that the plan for [[JD Vance]] was to secure contracts for SpaceX, [[OpenAI]], [[Palantir Technologies|Palantir]], and to give [[Israel]] bombs, in addition to building a "charter [[city]] in Greenland."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:10:17.010) [[Nicholas J. Fuentes]] demanded a full investigation into all individuals named in the files, including [[Howard Lutnick]], Elon Musk, [[Donald Trump]], [[William Jefferson Clinton|Bill Clinton]], [[Hillary Clinton]], and [[Bill Gates]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:18:50.000) [[Nicholas J. Fuentes]] stated that people [[who]] worked with Elon Musk through the [[Doge]] also worked with [[Palantir Technologies]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:18:31) Multiple messages between Elon Musk and [[Jeffrey Epstein]] showed the two comparing schedules to meet in [[State of Florida|Florida]] or the [[Caribbean]] between 2012 and 2014.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:23:38) Elon Musk visited the [[White House]] with a [[black]] eye, which was his last visit to the [[White House|Oval Office]], and occurred a week before [[Israel]] bombed [[Iran]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:23:50) Elon Musk posted on [[Twitter]] that the reason [[Donald Trump]] would not release the [[Jeffrey Epstein]] files is because [[Donald Trump|Trump]] is in them and knows it.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:29:26) [[Nicholas J. Fuentes]] argued that it is the obligation of the representative government, including the [[Federal Bureau of Investigation|FBI]] and the [[U.S. Department of Justice|DOJ]], to investigate the accusations in the [[Jeffrey Epstein]] files against [[Howard Lutnick]], [[Bill Gates]], Elon Musk, [[Richard Branson]], [[Steve Bannon]], and [[Donald Trump]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:33:40) [[Nicholas J. Fuentes]] argued that the connections of [[Howard Lutnick]], [[Bill Gates]], and Elon Musk to [[Jeffrey Epstein]] imply not just a sex crime but political corruption and a nefarious political operation.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:34:22) [[Nicholas J. Fuentes]] argued that if [[Miriam Adelson]], [[Israel]], and Elon Musk can pull [[Donald Trump]]'s strings because they contribute money, and if [[Donald Trump|Trump]] employs [[Kash Patel]] and [[Pam Bondi]], they cannot possibly investigate the [[Jeffrey Epstein|Epstein]] affair.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:38:21) [[Nicholas J. Fuentes]] argued that the first war with [[Iran]] was bookended by intrigue about the [[Jeffrey Epstein]] files, pointing out that Elon Musk crashed out with a [[black]] eye about [[Jeffrey Epstein|Epstein]] a week before the war, the files were buried the day after [[Benjamin Netanyahu]] visited the [[White House]], and the files were released when the [[United States]] was "locked and loaded" for a second war with [[Iran]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(00:10:40) [[Nicholas J. Fuentes]] said that many of the people [[who]] worked with Elon Musk and entered the government through the [[Department of Government Efficiency]] ([[Department of Government Efficiency|DOGE]]) came from [[Palantir Technologies|Palantir]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:18:57) [[Nicholas J. Fuentes]] repeated that many people [[who]] worked with Elon Musk at [[Department of Government Efficiency|DOGE]] worked with [[Palantir Technologies|Palantir]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(10:40:00) Individuals [[who]] worked with Elon Musk and entered government through the [[Department of Government Efficiency]] ([[Department of Government Efficiency|DOGE]]) previously worked with [[Palantir Technologies]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:07:52) The [[Central Intelligence Agency|CIA]] and [[Israel Defense Forces|Mossad]] armed protests in [[Iran]], which were embellished by the media and assisted by Elon Musk's [[White House|Starlink]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:52:51) [[Griffin|Ken Griffin]], [[William Ackman|Bill Ackman]], Elon Musk, [[Timothy Mellon|Tim Mellon]], [[San Francisco Bay Area|Silicon Valley]], and [[The Wall Street Journal|Wall Street]] bankers got involved in the 2024 election campaign.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:05:25) [[Nicholas J. Fuentes]] described [[Benjamin Netanyahu]], Elon Musk, [[a16z|Andreessen Horowitz]], [[Griffin|Ken Griffin]], [[Marc Andreessen|Mark Andreessen]], [[Timothy Mellon|Tim Mellon]], [[Miriam Adelson]], and [[Mark Levin]] as "happy as a fucking clam" with the [[Donald Trump|Trump]] administration.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:06:23) [[Nicholas J. Fuentes]] stated that ultra-wealthy individuals including [[Benjamin Netanyahu]], Elon Musk, [[Marc Andreessen|Mark Andreessen]], [[Griffin|Ken Griffin]], [[Timothy Mellon|Tim Mellon]], [[Miriam Adelson]], and [[Mark Levin]] are receiving personal phone calls from [[Donald Trump]] and directing his policy decisions.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(00:10:40) [[Nicholas J. Fuentes]] stated that many people [[who]] worked with Elon and entered the government through [[Department of Government Efficiency|DOGE]] have worked with [[Palantir Technologies|Palantir]], and that with [[Department of Government Efficiency|DOGE]] finished, [[Palantir Technologies|Palantir]] is now “just getting started.”
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:11:50) [[Nicholas J. Fuentes]] argued that Western media's atrocity propaganda, combined with Elon Musk's SpaceX [[White House|Starlink]] satellites and [[Twitter|X]] platform, is being used by the [[Central Intelligence Agency|CIA]] and NGOs to foment, amplify, and create a pretext for the [[United States]] to intervene in [[Iran]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:56:38) [[Nicholas J. Fuentes]] claimed that Elon Musk's [[Department of Government Efficiency]] ([[Department of Government Efficiency|DOGE]]) did not cut spending but instead made hiring and firing decisions in [[the Pentagon]], securing military contracts for his associates.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:57:34) [[Nicholas J. Fuentes]] claimed that [[JD Vance]]'s fundraising and connections with [[Peter Thiel]] and Elon Musk were designed to funnel money into defense contractors and to use [[Artificial Intelligence|AI]] software to ingest data from government agencies.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:09:38) [[Nicholas J. Fuentes]] accused [[Sriram Krishnan]], [[David Sacks]], Elon Musk, and [[Vivek Ramaswamy]] of telling white people they are not entitled to their own [[country]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:29:04) [[Nicholas J. Fuentes]] demanded that [[JD Vance]] provide "a firm answer" on whether he will support an "immigration moratorium," whether he will "restrain [[Israel]]," and what his relationship is with [[Peter Thiel]] and Elon Musk.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:32:26) [[Nicholas J. Fuentes]] claimed that [[Tucker Carlson]], [[Turning Point USA]], and Elon Musk are all telling the public that the decision for the 2028 [[Republican Party|Republican]] nominee has already been made: [[JD Vance]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:49:39) [[Nicholas J. Fuentes]] argued that the administration is working for people like Elon Musk, [[who]] is "worth $600 billion," and not for everyday people.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(00:10:37) [[Nicholas J. Fuentes]] noted that many individuals [[who]] worked with Elon Musk and entered the government through [[Department of Government Efficiency|DOGE]] previously worked with [[Palantir Technologies|Palantir]], and that with [[Department of Government Efficiency|DOGE]]'s conclusion, [[Palantir Technologies|Palantir]] is expanding its role.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:29:06:46) Elon Musk tweeted that [[Nicholas J. Fuentes]] is a "[[fed]]" (a federal informant or operative).
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:29:34:80) [[Candace Owens]] joined Elon Musk in calling [[Nicholas J. Fuentes]] a [[fed]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:29:37:50) [[Nicholas J. Fuentes]] stated that he "ratioed" Elon Musk on [[Twitter|X]]/[[Twitter]], getting 100,000 likes on his reply compared to Elon Musk's 10,000 likes.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:41:29) [[Nicholas J. Fuentes]] argued that he receives more retweets than Elon Musk because Elon Musk tweets thousands of times a day with inane content, while he has a "cult-like [following] in politics."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:43:41) [[Nicholas J. Fuentes]] claimed that the coordinated attacks against him follow a "full spectrum" playbook, where critics have called him a [[Democratic Party|Democrat]] for not voting for [[Donald Trump]], a "[[Jews|Jew]] hater" for criticizing [[Israel]], a racist for criticizing [[black]] people, a "[[fed]]" by Elon Musk, and now claim his engagement is fake.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:51:55) Elon Musk called [[Nicholas J. Fuentes]] a "[[fed]]" on the same day the [[Network Contagion Research Institute]] (NCRI) report was pushed.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:53:19) [[Nicholas J. Fuentes]] argued that Elon Musk calling him a "[[fed]]" is ironic because SpaceX is a defense contractor whose [[White House|Starlink]] program is a secret weapon for the [[U.S. Department of Defense|United States military]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:54:06) [[Nicholas J. Fuentes]] claimed that when Elon Musk brought [[Department of Government Efficiency|DOGE]] to the [[White House]], the personnel came from [[Palantir Technologies|Palantir]] and brought [[Palantir Technologies|Palantir]] contracts with them to departments including the [[United States Department of Education|Department of Education]], the [[Treasury Department]], and the [[Social Security|Social Security Administration]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:59:40) [[Candace Owens]] joined the pile-on after Elon Musk called [[Nicholas J. Fuentes]] a "[[fed]]."

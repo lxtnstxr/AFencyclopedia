@@ -12,4 +12,7 @@
 (01:53:39) During the first [[Republican Party|GOP]] primary debate in August 2015, [[Megyn Kelly]] asked [[Donald Trump]] about past derogatory comments he had made about women, to which [[Donald Trump]] replied, "only Rosie O'Donnell."
 
 ### AF 2018-08-07 0216
-(01:26:16) [[Lucian Wintrich]] stated that one reason he loved [[Donald Trump]] was that [[Donald Trump|the president's]] tweets, such as calling [[LeBron James]] and [[Don Lemon]] "stupid" or insulting Rosie O'Donnell, made the people he hated angry.
+(01:26:16) [[Lucian Wintrich]] stated that one reason he loved [[Donald Trump]] was that [[the president's]] tweets, such as calling [[LeBron James]] and [[Don Lemon]] "stupid" or insulting Rosie O'Donnell, made the people he hated angry.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:46.300) [[Donald Trump]] criticized [[Megyn Kelly]] for her "nastily" posed question about Rosie O'Donnell.

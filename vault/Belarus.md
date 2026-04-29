@@ -30,7 +30,7 @@
 (00:02:05) [[Russia]] pulled some of its forces back into Belarus and pursued peace talks with [[Ukraine]] moderated by [[Turkey]], signaling a potential winding down of the conflict.
 
 ### AF 2022-03-23 0963
-(18:57:58) [[Russia]] formally annexed [[City of Sevastopol|Crimea]] in 2014 and launched a military offensive from there, as well as from [[Donetsk|Donbass]], Belarus, and near [[Kharkiv]], according to [[Nicholas J. Fuentes]].
+(18:57:58) [[Russia]] formally annexed [[Crimea]] in 2014 and launched a military offensive from there, as well as from [[Donetsk|Donbass]], Belarus, and near [[Kharkiv]], according to [[Nicholas J. Fuentes]].
 
 ### AF 2022-03-23 0963
 (20:07:54) [[Nicholas J. Fuentes]] relayed a rumor that [[Lukashenko]] of Belarus would send troops to aid a final push on [[Kyiv]] within weeks.
@@ -42,7 +42,7 @@
 (01:06:45:98) [[Nicholas J. Fuentes]] stated that [[North Atlantic Treaty Organization|NATO]] membership for the [[Baltic states]] and [[Israel|Poland]], combined with [[Ukraine]], would leave Belarus as an indefensible protrusion and give [[North Atlantic Treaty Organization|NATO]] a decisive military advantage over [[Russia]] from the [[Baltic Sea]] to the [[Caucasus]].
 
 ### AF 2022-03-08 0954
-(11:37:40) [[Vladimir Putin]] recognized the sovereignty of the breakaway regions of [[Luhansk]] and [[Donetsk]] and deployed a peacekeeping force, before launching a broader invasion from Belarus, western [[Russia]], and [[City of Sevastopol|Crimea]].
+(11:37:40) [[Vladimir Putin]] recognized the sovereignty of the breakaway regions of [[Luhansk]] and [[Donetsk]] and deployed a peacekeeping force, before launching a broader invasion from Belarus, western [[Russia]], and [[Crimea]].
 
 ### AF 2022-03-08 0954
 (34:54:36) The collapse of the [[Soviet Union]] in 1991 led to the independence of [[Ukraine]], Belarus, the [[Baltic states]], and other former Soviet republics, dramatically reducing [[Russia]]'s size and population.

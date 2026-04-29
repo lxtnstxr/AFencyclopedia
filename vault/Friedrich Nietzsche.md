@@ -21,7 +21,7 @@
 (00:36:01) [[Nicholas J. Fuentes]] criticized the pagan caller's description of Nietzsche as a "perspectivist" as a profoundly dumb misreading used to dilute the philosopher's ideas.
 
 ### AF 2018-02-20 0112
-(04:04:26) [[Nicholas J. Fuentes]] listed his top philosophers as Nietzsche, [[Thomas Aquinas]], [[Aristotle]], [[Plato]], [[Thomas Hobbes]], [[Rousseau]], [[City of St. Augustine|St. Augustine]], [[Kant]], and [[Roger Scruton]].
+(04:04:26) [[Nicholas J. Fuentes]] listed his top philosophers as Nietzsche, [[Thomas Aquinas]], [[Aristotle]], [[Plato]], [[Thomas Hobbes]], [[Rousseau]], [[St. Augustine]], [[Kant]], and [[Roger Scruton]].
 
 ### AF 2018-02-09 0105
 (00:33:52) Friedrich Nietzsche wrote about the [[concept]] of the "last man" in his book *Thus Spoke Zarathustra*, which [[Nicholas J. Fuentes]] argued describes the modern [[Reddit]] user.
@@ -30,7 +30,7 @@
 (24:56:89) Friedrich Nietzsche announced the "death of God" in "Thus Spoke Zarathustra," a [[concept]] [[Nicholas J. Fuentes]] linked to modern existential despair.
 
 ### AF 2017-12-18 0071
-(01:12:50) [[Nicholas J. Fuentes]] agreed that the alt-right needs to read [[Christianity|Christian]] authors like [[G.K. Chesterton]] and [[G.K. Chesterton|C.S. Lewis]] to understand [[Christianity]]'s significance, noting that alt-right reading lists prominently feature [[Heidegger]], Nietzsche, and [[Guillaume Faye]] but exclude [[Christianity|Christian]] thinkers.
+(01:12:50) [[Nicholas J. Fuentes]] agreed that the alt-right needs to read [[Christianity|Christian]] authors like [[G.K. Chesterton]] and [[C.S. Lewis]] to understand [[Christianity]]'s significance, noting that alt-right reading lists prominently feature [[Heidegger]], Nietzsche, and [[Guillaume Faye]] but exclude [[Christianity|Christian]] thinkers.
 
 ### AF 2017-10-03 0023
 (00:51:00) [[Nicholas J. Fuentes]] discussed Friedrich Nietzsche's concepts of master and slave morality, arguing that [[Christianity]] does not oppress masters but democracy does.

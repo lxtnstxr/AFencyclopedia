@@ -66,7 +66,7 @@
 (00:04:20) [[Peter Thiel]] provided $15 million to [[JD Vance]]'s [[U.S. Congress|Senate]] campaign and, alongside David Sacks and [[Elon Musk]], convinced [[Donald Trump]] to select [[JD Vance]] as his vice presidential nominee.
 
 ### AF 2024-10-14 1405
-(02:08:58) [[Donald Trump]] owes his political resurgence to major pro-[[Israel]] donors, including [[Sheldon Adelson|Miriam Adelson]], [[Jeffrey Yass]], [[Isaac Perlmutter]], and David Sacks, who funded his campaign.
+(02:08:58) [[Donald Trump]] owes his political resurgence to major pro-[[Israel]] donors, including [[Miriam Adelson]], [[Jeffrey Yass]], [[Isaac Perlmutter]], and David Sacks, who funded his campaign.
 
 ### AF 2024-10-11 1404
 (00:59:00) [[Donald Trump]] announced the green card policy for foreign graduates after attending a fundraiser at the home of David Sacks in [[San Francisco Bay Area|Silicon Valley]], where he received maximum contributions from tech executives.
@@ -117,7 +117,7 @@
 (01:01:51) [[JD Vance]] convinced [[San Francisco Bay Area|Silicon Valley]] donors like David Sacks and [[Jacob Helberg]] to donate to [[Donald Trump]] by suggesting they could "buy into" the next administration.
 
 ### AF 2024-06-25 1345
-(48:58:96) [[Fox News]], owned by [[Fox News|News Corp]] which is controlled by [[Lacklin]] and [[Rupert Murdoch]], personal friends of [[Benjamin Netanyahu|Bibi]], does not regularly cover the influence of donors like [[Jacob Helberg]], David Sacks, [[William Ackman|Bill Ackman]], the [[American Israel Public Affairs Committee|AIPAC]], or [[Sheldon Adelson|Miriam Adelson]].
+(48:58:96) [[Fox News]], owned by [[Fox News|News Corp]] which is controlled by [[Lacklin]] and [[Rupert Murdoch]], personal friends of [[Benjamin Netanyahu|Bibi]], does not regularly cover the influence of donors like [[Jacob Helberg]], David Sacks, [[William Ackman|Bill Ackman]], the [[American Israel Public Affairs Committee|AIPAC]], or [[Miriam Adelson]].
 
 ### AF 2024-06-24 1344
 (49:52:95) [[Donald Trump]] made the green card remarks on the All In podcast hosted by David Sacks and other [[San Francisco Bay Area|Silicon Valley]] CEOs, who had just raised $12 million for him at a fundraiser.
@@ -144,7 +144,7 @@
 (48:55:13) David Sacks, [[Elon Musk]], and [[Peter Thiel]] were all part of the [[Peter Thiel|PayPal]] mafia.
 
 ### AF 2024-01-25 1282
-(01:56:00) [[Ron DeSantis]] attended a dinner in [[Israel]] with [[Sheldon Adelson|Miriam Adelson]] and other major [[Jewish]] donors shortly before announcing his presidential campaign, which he launched with the support of David Sacks and [[Elon Musk]].
+(01:56:00) [[Ron DeSantis]] attended a dinner in [[Israel]] with [[Miriam Adelson]] and other major [[Jewish]] donors shortly before announcing his presidential campaign, which he launched with the support of David Sacks and [[Elon Musk]].
 
 ### AF 2023-05-31 1169
 (02:02:04) [[Nicholas J. Fuentes]] alleged a network of Zionist influence connecting David Sacks, [[Dave Rubin]], [[Peter Thiel]], and [[Rumble Inc.|Rumble]], noting that the creator of Rubin's platform "Locals" was an [[Israel|Israeli]] spy and that [[Peter Thiel]] has connections to [[South Africa]], which supplied nuclear material to [[Israel]].
@@ -172,3 +172,72 @@
 
 ### AF 2023-05-24 1165
 (01:29:59) [[Elon Musk]] and David Sacks, both immigrants from [[South Africa]] and [[Rhodesia]] respectively, had voting histories that included support for [[Barack Obama]], [[Hillary Clinton]], and [[Joe Biden]], rather than [[Donald Trump]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:42) [[Nicholas J. Fuentes]] identified [[JD Vance]], David Sacks, [[Elon Musk]], and [[a16z|Andreessen Horowitz]] as key components of the tech money that formed the real 2024 coalition.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:02:30) David Sacks, the [[Artificial Intelligence|AI]] czar in the [[White House]], became the first administration official to come out against the war, stating that the [[United States]] needed to bring the war in [[Iran]] to a close.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:02:48) David Sacks's term as [[Artificial Intelligence|AI]] czar expired; he then became the chairman of the National Science and Technology Council.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:04:26) David Sacks was identified as a [[Jews|Jewish]] figure [[who]] had been in [[Peter Thiel]]'s orbit since 1992 when they attended [[Stanford University]] together and co-wrote a book.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:08) [[Peter Thiel]] provided $15 million in funding for [[JD Vance]]'s [[U.S. Congress|Senate]] campaign, while David Sacks gave $1 million.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:18) [[Peter Thiel]], [[Elon Musk]], David Sacks, and [[Tucker Carlson]] persuaded [[Donald Trump|Trump]] to nominate [[JD Vance]] for the [[vice]] presidency.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:24:08) [[Tucker Carlson]], [[Joe Kent]], David Sacks, and [[JD Vance]] were identified as being against the war not because they are against [[Israel]], but because they are against the war itself and against [[Benjamin Netanyahu]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:32:03) [[Nicholas J. Fuentes]] criticized [[Whitney Webb]] for speculating on [[Jimmy Dore]]'s show that [[Joe Kent]]'s resignation was part of a plan to "groom far-right terrorists for pre-crime," instead of understanding the simple political operation involving David Sacks and [[Peter Thiel]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:37:42) [[Nicholas J. Fuentes|Fuentes]] declared that he saw the [[JD Vance]] operation (involving David Sacks and [[Joe Kent]]) coming from "6 million miles away."
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:20:13) [[Nicholas J. Fuentes]] reported that a shadow effort was underway to rescue [[JD Vance]]’s reputation, noting that David Sacks was the first [[White House]] official to protest the war.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:20:38) [[Nicholas J. Fuentes]] identified David Sacks as a close confidant of [[JD Vance]] [[who]] would be [[JD Vance]]’s chief of staff if he became [[president]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:20:50) David Sacks maintained close relationships with [[Elon Musk]] and [[Peter Thiel]], having [[known]] [[Peter Thiel]] for 35 years as part of the “[[Peter Thiel|PayPal]] mafia.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:26:14) David Sacks was the first [[White House]] official to say the war should end, and [[Joe Kent]] resigned his post at the [[Director of National Intelligence|DNI]] and interviewed with [[Tucker Carlson]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:29:59) David Sacks had [[known]] [[Peter Thiel]] since 1992 and was part of the [[Peter Thiel|PayPal]] merger of Confinity and [[Twitter|X]].com.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:30:26) David Sacks ran [[Elon Musk]]’s political operation and donated to [[JD Vance]] in 2022, as did [[Peter Thiel]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:32:10) 1789 Capital was conceived at the Rockbridge Network, a venture capital firm run by [[JD Vance]], where [[Peter Thiel]], [[Tucker Carlson]], and David Sacks had spoken.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:40:43) David Sacks came out against the war with [[Iran]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:03:02) [[Nicholas J. Fuentes]] stated that David Sacks, the A.I. czar in [[the White House]], was the first member of the [[Donald Trump|Trump]] government to criticize the war.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:03:21) [[Nicholas J. Fuentes]] described David Sacks as a close personal friend of [[Peter Thiel]] since 1992 and a close confidant of [[JD Vance]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:05:12) [[Nicholas J. Fuentes]] identified a nexus of people opposing the war—David Sacks, [[Tucker Carlson]], and [[Joe Kent]]—all of whom have deep ties to [[JD Vance]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:01:55) [[Nicholas J. Fuentes]] accused [[JD Vance|J.D. Vance]] of being a creation of the "deep [[state]]" backed by [[Peter Thiel]], David Sacks, and [[Tucker Carlson]], and representing [[San Francisco Bay Area|Silicon Valley]] and the intelligence agencies.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:36:09) [[Donald Trump]] promised David Sacks that he would "staple green cards to diplomas."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:09:38) [[Nicholas J. Fuentes]] accused [[Sriram Krishnan]], David Sacks, [[Elon Musk]], and [[Vivek Ramaswamy]] of telling white people they are not entitled to their own [[country]].

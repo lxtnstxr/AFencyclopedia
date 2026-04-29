@@ -108,7 +108,7 @@
 (01:11:51) [[Antony Blinken]] and [[White House National Security Advisor Jake Sullivan|John Kirby]] of the National Security Council condemned the potential execution of the [[United States|American]] mercenaries, but [[Nicholas J. Fuentes]] argued international law permits it for mercenaries.
 
 ### AF 2022-04-05 0972
-(00:58:44) [[Nicholas J. Fuentes]] identified the beneficiaries of the war as the [[National Endowment for Democracy]], the [[United States|U.S.]] [[State Department]], the [[Council on Foreign Relations]], the [[Atlantic Council]], the National Security Council, the [[U.S. Department of Defense|Pentagon]], [[North Atlantic Treaty Organization|NATO]], and the [[Europe|European Union]].
+(00:58:44) [[Nicholas J. Fuentes]] identified the beneficiaries of the war as the [[National Endowment for Democracy]], the [[United States|U.S.]] [[State Department]], the [[Council on Foreign Relations]], the [[Atlantic Council]], the National Security Council, the [[U.S. Department of Defense|Pentagon]], [[North Atlantic Treaty Organization|NATO]], and the [[European Union]].
 
 ### AF 2022-03-08 0953
 (01:05:00) [[Nicholas J. Fuentes]] noted that [[Joe Kent]] is endorsed by [[Donald Trump]] and was tapped for a National Security Council role, questioning why [[Joe Kent|Kent]] would criticize divisiveness when [[Trump]] himself is divisive.
@@ -139,3 +139,12 @@
 
 ### AF 2018-04-05 0139
 (00:23:26) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] had failed to fill key administrative positions like the [[U.S. Department of Defense|Defense Department]], [[U.S. Department of State|State Department]], and National Security Council with loyalists, instead appointing bureaucrats [[who]] opposed him.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:06) [[Iran]]'s National Security Council officially confirmed the agreement, portraying it as a victory wherein the [[United States]] accepted [[Iran]]'s terms.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:10) [[Iran]]'s National Security Council confirmed the agreement, asserting that the [[United States]] had accepted [[Iran]]'s terms.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:08:03) [[Donald Trump]] has a close relationship with [[Peter Thiel]] and [[Palantir Technologies|Palantir]], and the suite of [[Peter Thiel|Thiel]] companies has become important to the [[U.S. Department of Defense|Department of Defense]] and the National Security Council.

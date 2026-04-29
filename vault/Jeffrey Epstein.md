@@ -778,19 +778,19 @@
 (00:27:19) [[Nicholas J. Fuentes]] planned to discuss a [[Project Veritas]] revelation that [[ABC News|ABC]] deliberately covered up a reporter's investigation into Jeffrey Epstein's connections in the [[United Kingdom]] and [[Los Angeles|Hollywood]].
 
 ### AF 2019-10-02 0471
-(00:48:49) [[Nicholas J. Fuentes]] accused the [[United States|U.S. government]], media, and [[big tech]] companies of colluding to suppress questions and investigation into events like the [[City of Las Vegas|Las Vegas]] shooting and the Jeffrey Epstein case.
+(00:48:49) [[Nicholas J. Fuentes]] accused the [[United States|U.S. government]], media, and [[big tech]] companies of colluding to suppress questions and investigation into events like the [[Las Vegas]] shooting and the Jeffrey Epstein case.
 
 ### AF 2019-10-02 0471
-(00:52:52) [[Nicholas J. Fuentes]] accused [[Mark Zuckerberg]], [[Google]], and [[Twitter|Jack Dorsey]] of cooperating with government and media interests to ban users [[who]] asked questions about events like the [[City of Las Vegas|Las Vegas]] shooting, [[Sandy Hook]], and Jeffrey Epstein.
+(00:52:52) [[Nicholas J. Fuentes]] accused [[Mark Zuckerberg]], [[Google]], and [[Twitter|Jack Dorsey]] of cooperating with government and media interests to ban users [[who]] asked questions about events like the [[Las Vegas]] shooting, [[Sandy Hook]], and Jeffrey Epstein.
 
 ### AF 2019-09-24 0468
-(28:07:36) [[Nicholas J. Fuentes]] characterized the sudden emergence of the [[Ukraine]] scandal in the news as artificial and astroturfed, comparing it to the memory-holing of the [[City of Las Vegas|Las Vegas]] shooting and the Jeffrey Epstein case.
+(28:07:36) [[Nicholas J. Fuentes]] characterized the sudden emergence of the [[Ukraine]] scandal in the news as artificial and astroturfed, comparing it to the memory-holing of the [[Las Vegas]] shooting and the Jeffrey Epstein case.
 
 ### AF 2019-09-20 0466
 (00:55:00) [[Nicholas J. Fuentes]] connected the funding of climate science to the late financier Jeffrey Epstein, [[who]] had donated millions to institutions like [[Harvard University]], [[Massachusetts Institute of Technology|MIT]], and [[Stanford University]], suggesting a corrupt nexus between science, politics, and elite pedophile networks.
 
 ### AF 2019-09-11 0459
-(05:24:28) [[Nicholas J. Fuentes]] pointed to the Jeffrey Epstein case, the [[City of Las Vegas|Las Vegas]] shooting, and declassified plans like Operation Northwoods as evidence that government complicity in events like [[September 11 attacks|9/11]] was within the realm of possibility.
+(05:24:28) [[Nicholas J. Fuentes]] pointed to the Jeffrey Epstein case, the [[Las Vegas]] shooting, and declassified plans like Operation Northwoods as evidence that government complicity in events like [[September 11 attacks|9/11]] was within the realm of possibility.
 
 ### AF 2019-09-09 0457
 (01:55:09) [[Nicholas J. Fuentes]] referenced investigative articles by [[Mint Press News]] about Jeffrey Epstein's ties to [[Israel Defense Forces|Mossad]] and the [[Central Intelligence Agency|CIA]].
@@ -799,7 +799,7 @@
 (01:43:32) [[Nicholas J. Fuentes]] recounted an incident where someone at a [[Republican Party|College Republicans]] meeting dismissed the Jeffrey Epstein case as a conspiracy theory.
 
 ### AF 2019-08-29 0451
-(00:30:59) Jeffrey Epstein was indicted for child sex trafficking before his death in jail on August 10th, 2019, a death officially ruled a suicide by the medical examiner. (00:33:04) Jeffrey Epstein was [[Jews|Jewish]]. (00:33:50) Jeffrey Epstein's criminal case was officially dismissed by Judge [[Richard Berman]] on August 29th, 2019, citing his death. (00:34:24) Judge [[Richard Berman]] allowed accusers of Jeffrey Epstein to deliver victim impact statements in court on August 27th, 2019, even though the accused was not present. (00:35:04) [[State of Florida|Florida]] prosecutors previously offered Jeffrey Epstein a plea deal without input from his accusers years prior to the 2019 case. (00:35:57) Jeffrey Epstein's private plane was [[known]] as the "Lolita Express." (00:57:55) [[Kim Kardashian]] announced a new album by [[Kanye West]] titled "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," scheduled for release on September 27th, 2019. (01:07:06) A comprehensive new study published in *Science* magazine concluded there is no single "gay gene," with same-sex sexual behavior influenced by many genetic variants and environmental factors. (01:18:11) Only ten [[Democratic Party|Democratic]] candidates qualified for the third 2020 presidential primary debate on September 12th in [[City|Houston]]: [[Joe Biden]], [[Bernie Sanders]], [[Elizabeth Warren]], [[Kamala Harris]], [[Peter Buttigieg|Pete Buttigieg]], [[Andrew Yang]], [[Cory Booker]], [[Beto O'Rourke]], [[Julian Castro]], and [[Amy Klobuchar]]. (01:18:59) [[Tulsi Gabbard]] and billionaire activist [[Tom Steyer]] failed to qualify for the September 2019 [[Democratic Party|Democratic]] debate, with Gabbard needing two more qualifying polls and [[Tom Steyer|Steyer]] needing one. (01:21:04) [[Democratic Party|Democratic]] candidates [[Kirsten Gillibrand]], [[John Hickenlooper]], [[Jay Inslee]], [[Seth Moulton]], and [[Eric Swalwell]] dropped out of the 2020 presidential race by late August 2019. (01:22:28) [[Joe Biden]] maintained a double-digit lead in most national and state polls for the [[Democratic Party|Democratic]] nomination through August 2019, despite attacks from rivals and personal scandals. (01:25:58) [[Elizabeth Warren]] was rising in the polls as the main competitor to [[Joe Biden]] for the [[Democratic Party|Democratic]] nomination by late August 2019, while [[Kamala Harris]]'s support was fading and [[Peter Buttigieg|Pete Buttigieg]] had failed to surge. (01:26:37) [[Nicholas J. Fuentes]] predicted that if [[Joe Biden]] won the [[Democratic Party|Democratic]] nomination, the contest for his running mate would likely be between [[Kamala Harris]] and [[Elizabeth Warren]]. (01:29:12) [[Donald Trump]] was co-opted by the deep state within two years of his presidency, according to [[Nicholas J. Fuentes]], transforming from an unconventional outsider into a figure virtually indistinguishable from establishment [[Republican Party|Republicans]] like [[Mitt Romney]], [[Ted Cruz]], and [[Marco Rubio]]. (01:31:14) [[Barack Obama]]'s presidency failed to end the forever wars or stop deficit spending, despite his anti-establishment "hope and change" rhetoric, paralleling [[Donald Trump]]'s experience according to [[Nicholas J. Fuentes]]. (01:33:04) Jeffrey Epstein was about to give up information on the [[United Kingdom|British]] Royal Family, the [[Israel|Israeli government]], [[Los Angeles|Hollywood]] celebrities, and [[Bill Clinton]] before he was murdered in jail, according to [[Nicholas J. Fuentes]]. (01:34:36) [[Nicholas J. Fuentes]] argued that the powers that be killed Jeffrey Epstein in a transparent manner to send a message of intimidation and demonstrate their capability to silence anyone, even with public knowledge. (01:39:27) The media's ability to distract the public from major events like the Jeffrey Epstein case or the [[City of Las Vegas|Las Vegas]] mass shooting demonstrates a population that lacks the agency to achieve reform, according to [[Nicholas J. Fuentes]]. (01:48:55) [[Nicholas J. Fuentes]] argued that the only enduring "white pill" or source of hope is the belief that "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," transcending the temporal power of figures like Jeffrey Epstein.
+(00:30:59) Jeffrey Epstein was indicted for child sex trafficking before his death in jail on August 10th, 2019, a death officially ruled a suicide by the medical examiner. (00:33:04) Jeffrey Epstein was [[Jews|Jewish]]. (00:33:50) Jeffrey Epstein's criminal case was officially dismissed by Judge [[Richard Berman]] on August 29th, 2019, citing his death. (00:34:24) Judge [[Richard Berman]] allowed accusers of Jeffrey Epstein to deliver victim impact statements in court on August 27th, 2019, even though the accused was not present. (00:35:04) [[State of Florida|Florida]] prosecutors previously offered Jeffrey Epstein a plea deal without input from his accusers years prior to the 2019 case. (00:35:57) Jeffrey Epstein's private plane was [[known]] as the "Lolita Express." (00:57:55) [[Kim Kardashian]] announced a new album by [[Kanye West]] titled "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," scheduled for release on September 27th, 2019. (01:07:06) A comprehensive new study published in *Science* magazine concluded there is no single "gay gene," with same-sex sexual behavior influenced by many genetic variants and environmental factors. (01:18:11) Only ten [[Democratic Party|Democratic]] candidates qualified for the third 2020 presidential primary debate on September 12th in [[City|Houston]]: [[Joe Biden]], [[Bernie Sanders]], [[Elizabeth Warren]], [[Kamala Harris]], [[Peter Buttigieg|Pete Buttigieg]], [[Andrew Yang]], [[Cory Booker]], [[Beto O'Rourke]], [[Julian Castro]], and [[Amy Klobuchar]]. (01:18:59) [[Tulsi Gabbard]] and billionaire activist [[Tom Steyer]] failed to qualify for the September 2019 [[Democratic Party|Democratic]] debate, with Gabbard needing two more qualifying polls and [[Tom Steyer|Steyer]] needing one. (01:21:04) [[Democratic Party|Democratic]] candidates [[Kirsten Gillibrand]], [[John Hickenlooper]], [[Jay Inslee]], [[Seth Moulton]], and [[Eric Swalwell]] dropped out of the 2020 presidential race by late August 2019. (01:22:28) [[Joe Biden]] maintained a double-digit lead in most national and state polls for the [[Democratic Party|Democratic]] nomination through August 2019, despite attacks from rivals and personal scandals. (01:25:58) [[Elizabeth Warren]] was rising in the polls as the main competitor to [[Joe Biden]] for the [[Democratic Party|Democratic]] nomination by late August 2019, while [[Kamala Harris]]'s support was fading and [[Peter Buttigieg|Pete Buttigieg]] had failed to surge. (01:26:37) [[Nicholas J. Fuentes]] predicted that if [[Joe Biden]] won the [[Democratic Party|Democratic]] nomination, the contest for his running mate would likely be between [[Kamala Harris]] and [[Elizabeth Warren]]. (01:29:12) [[Donald Trump]] was co-opted by the deep state within two years of his presidency, according to [[Nicholas J. Fuentes]], transforming from an unconventional outsider into a figure virtually indistinguishable from establishment [[Republican Party|Republicans]] like [[Mitt Romney]], [[Ted Cruz]], and [[Marco Rubio]]. (01:31:14) [[Barack Obama]]'s presidency failed to end the forever wars or stop deficit spending, despite his anti-establishment "hope and change" rhetoric, paralleling [[Donald Trump]]'s experience according to [[Nicholas J. Fuentes]]. (01:33:04) Jeffrey Epstein was about to give up information on the [[United Kingdom|British]] Royal Family, the [[Israel|Israeli government]], [[Los Angeles|Hollywood]] celebrities, and [[Bill Clinton]] before he was murdered in jail, according to [[Nicholas J. Fuentes]]. (01:34:36) [[Nicholas J. Fuentes]] argued that the powers that be killed Jeffrey Epstein in a transparent manner to send a message of intimidation and demonstrate their capability to silence anyone, even with public knowledge. (01:39:27) The media's ability to distract the public from major events like the Jeffrey Epstein case or the [[Las Vegas]] mass shooting demonstrates a population that lacks the agency to achieve reform, according to [[Nicholas J. Fuentes]]. (01:48:55) [[Nicholas J. Fuentes]] argued that the only enduring "white pill" or source of hope is the belief that "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," transcending the temporal power of figures like Jeffrey Epstein.
 
 ### AF 2019-08-28 0450
 (00:09:41) An investigation into the death of Jeffrey Epstein found that footage from at least one camera outside his prison cell was unusable due to an unexplained glitch, while another nearby camera captured clear video.
@@ -880,7 +880,7 @@
 (02:45:46) Copies of Jeffrey Epstein's [[black]] book, containing high-profile names like the [[Rothschilds]], [[Donald Trump]], and [[William Jefferson Clinton|Bill Clinton]], had been circulating online since at least 2006.
 
 ### AF 2019-08-12 0438
-(02:46:94) [[Nicholas J. Fuentes]] compared the public forgetting of the Jeffrey Epstein case to the public forgetting of the 2017 [[City of Las Vegas|Las Vegas]] mass shooting, where the [[Federal Bureau of Investigation|FBI]] concluded the investigation without determining a motive.
+(02:46:94) [[Nicholas J. Fuentes]] compared the public forgetting of the Jeffrey Epstein case to the public forgetting of the 2017 [[Las Vegas]] mass shooting, where the [[Federal Bureau of Investigation|FBI]] concluded the investigation without determining a motive.
 
 ### AF 2019-08-12 0438
 (02:48:50) [[Nicholas J. Fuentes]] argued that the warden of the Metropolitan Correctional Center where Jeffrey Epstein died, Lamine N'Diaye, was an unqualified diversity hire.
@@ -953,3 +953,600 @@
 
 ### AF 2019-07-08 0420
 (02:28:53) [[Nicholas J. Fuentes]] claimed the [[The Daily Wire|Daily Wire]] published an article advising people not to look into the Jeffrey Epstein case because it would hurt [[Donald Trump]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:55) The merchandise store featured a new spring collection including a Jeffrey Epstein white quarter zip, which was popular.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:43:55.800) [[Nicholas J. Fuentes]] referenced the release of the Jeffrey Epstein files, after which [[JD Vance]] did not tweet for two weeks.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:11:38) [[Nicholas J. Fuentes]] accused the [[Donald Trump|Trump]] administration of covering up the Epstein files and prosecuting a war in [[Iran]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(15:02:03) [[Nicholas J. Fuentes]] stated that the Epstein situation has become an "albatross" and an unforced error for the administration.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:02:52:68) [[Nicholas J. Fuentes]] stated that the interview was removed because [[Tucker Carlson]] said that the [[president]] of [[Israel]], [[Isaac Herzog]], was on Epstein Island.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:41:41) [[Nicholas J. Fuentes]] stated his disagreement with [[Dave Smith]] for saying that [[Person|Michael Tracy]] should be killed for his position on Jeffrey Epstein.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(42:54:00) [[Nicholas J. Fuentes]] reported that [[Pam Bondi]] appeared at a hearing and was interrogated about the Jeffrey Epstein files, specifically about releasing unredacted documents and investigating the people named in them.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(45:36:00) [[Nicholas J. Fuentes]] announced that the show would also cover [[Howard Lutnick]], [[who]] he said is named many times in the released Jeffrey Epstein files.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(45:46:00) [[Nicholas J. Fuentes]] stated that [[Howard Lutnick]] was a friend of Jeffrey Epstein and lied about it.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(46:11:00) [[Nicholas J. Fuentes]] claimed that [[Howard Lutnick]] maintained a friendship with Jeffrey Epstein long after Epstein was charged and convicted, and that [[Howard Lutnick|Lutnick]] brought his entire family, including his children, to Epstein Island.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:43:06:00) [[Nicholas J. Fuentes]] reported that [[Pam Bondi]] was interrogated over the Jeffrey Epstein files before the [[House Judiciary Committee]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:45:36:00) [[Nicholas J. Fuentes]] repeated that [[Howard Lutnick]] is named many times in the Jeffrey Epstein files and lied about his friendship.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:46:42:00) [[Nicholas J. Fuentes]] repeated that [[Howard Lutnick]] brought his entire family to Epstein Island.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:47:09:00) [[Nicholas J. Fuentes]] repeated that the [[White House]] is standing by [[Howard Lutnick]] despite his connection to Jeffrey Epstein.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:12:28:00) [[Nicholas J. Fuentes]] reported that people are demanding access to all the Jeffrey Epstein files and accountability.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:12:43:00) [[Nicholas J. Fuentes]] stated that the [[U.S. Department of Justice|United States Department of Justice]] has identified six people likely incriminated in connection with Jeffrey Epstein.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:14:52:00) [[Nicholas J. Fuentes]] stated that Jeffrey Epstein was a sex trafficker [[who]] groomed underage girls potentially for blackmail, connected to the [[British royal family]], foreign governments, [[Israel|Israeli]] intelligence, billionaires, and elite members of [[United States|American]] public and private life.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:15:19:00) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] is connected to the Jeffrey Epstein scandal, and many members of his cabinet are also connected.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:33:48:00) [[Nicholas J. Fuentes]] stated that [[William Jefferson Clinton|Bill Clinton]] was on the [[Lolita Express]] and that [[Howard Lutnick]] invited Jeffrey Epstein to a [[Hillary Clinton]] fundraiser.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:38:43:00) [[Nicholas J. Fuentes]] described [[Pam Bondi]]'s performance as an "evil wicked farce," using [[Donald Trump]]'s playbook in defense of Jeffrey Epstein, [[Les Wexner]], and "[[Jews|world Jewry]]."
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:38:07) [[Nicholas J. Fuentes]] stated that [[Howard Lutnick]] was questioned in a [[U.S. Congress|Senate]] committee about his connections to Jeffrey Epstein.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:38:10) [[Nicholas J. Fuentes]] asserted that [[Howard Lutnick]], a friend of [[Donald Trump]] and the Commerce Secretary, maintained a correspondence with Jeffrey Epstein and that [[Howard Lutnick|Lutnick]]'s entire family visited Epstein's island long after Epstein was convicted of sex crimes.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:04:14.780) [[Nicholas J. Fuentes]] stated that the [[U.S. Department of Justice|DOJ]] has acknowledged the existence of "six unnamed collaborators" with Jeffrey Epstein [[who]] are "likely incriminated."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:07:32.020) [[Nicholas J. Fuentes]] called for investigations into [[Howard Lutnick]], [[Les Wexner]], [[Steve Bannon]], [[Elon Musk]], [[Donald Trump]], [[Ronald Lauder]], and [[Leon Black]] for their connections to Jeffrey Epstein.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:09:54.670) [[Nicholas J. Fuentes]] stated that the [[Donald Trump|Trump]] administration "engaged in an active deception and a cover-up" regarding the Jeffrey Epstein files.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:40:00:00) [[Nicholas J. Fuentes]] began a segment on Jeffrey Epstein, promising to map out what is "really going on."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:40:00:00) [[Nicholas J. Fuentes]] argued that a myth of Jeffrey Epstein has been created, portraying him as a "cultist, a true pedophile, trafficking children not only for sex, but for cannibalism, for science experiments, [[time]] travel, psychic abilities," which he said has no bearing in reality.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:40:47:00) [[Nicholas J. Fuentes]] argued that the "myth" of Jeffrey Epstein serves to "dilute or divert attention from or overshadow the real Jeffrey Epstein."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:41:05:00) [[Nicholas J. Fuentes]] argued that the real Jeffrey Epstein can be summarized as a "[[Jews|Jewish]] fixer" operating at the highest levels of business, finance, and government, moving through the [[Jews|Jewish]] elite to solve problems, move money, and dispense favors.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:41:48:00) [[Nicholas J. Fuentes]] said that Jeffrey Epstein was an operative for "[[Jews|Jewish]] society, of [[Jews|world Jewry]], trans-nationally."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:42:39:00) [[Nicholas J. Fuentes]] said he was making a "necessary contribution" to the discourse on Jeffrey Epstein because the one word not being used in connection with him is "[[Jews|Jewish]]."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:45:22:00) [[Nicholas J. Fuentes]] stated that he had been controversial for saying that Jeffrey Epstein was "not a true pedophile" because the girls he preyed upon were aged 14 to 17, and that this was relevant to understanding Epstein's function.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:46:55:00) [[Nicholas J. Fuentes]] said that Jeffrey Epstein was trafficking vulnerable women for prostitution.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:47:38:00) [[Nicholas J. Fuentes]] argued that people are fixating on the most extraordinary and "uncorroborated" claims in the Jeffrey Epstein files, such as ritual abuse, cannibalism, and torture and murder.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:48:28:00) [[Nicholas J. Fuentes]] said that many of the most viral claims surrounding Jeffrey Epstein involve "basic forgeries using [[artificial intelligence]]," transcription errors, and data corruption.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:49:41:00) [[Nicholas J. Fuentes]] said the fixation on these claims tends to support a theory that Jeffrey Epstein was a "cult-like, Satanic religious figure" engaged in an "occult cabal," a claim he argued is a diversion.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:52:27:00) [[Nicholas J. Fuentes]] said another viral email from Jeffrey Epstein about "30 between six and seven at 9 a.m." for hot yoga was interpreted as evidence of trafficking 30 children, but actually referred to a yoga studio located on 30th Street between 6th and 7th Street in [[New York|New York City]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:54:13:00) [[Nicholas J. Fuentes]] said an email from Jeffrey Epstein reading "we have a yummy 19 year old" was corrupted to display as "yummy =9 years old," leading to a false viral claim of a nine-year-old victim.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:55:40:00) [[Nicholas J. Fuentes]] said he and other people like [[Michael Tracy]] and [[Richard Hanania]] are trying to separate fact from fiction in the Jeffrey Epstein files.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:57:31:00) [[Nicholas J. Fuentes]] characterized the viral narrative of Jeffrey Epstein as a "conspiracy theory" and a "hoax," creating a consensus opinion that Epstein is a "satanic pedophile running the government."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:01:00:00) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein was a "connector" and a "nexus for business, intelligence, government" and was at the "center of elite society."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:05:06:00) Jeffrey Epstein was an [[Israel|Israeli]] spy [[who]] worked for [[Israel Defense Forces|Mossad]], but [[Nicholas J. Fuentes]] argued this characterization is too broad.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:06:48:00) [[Benjamin Netanyahu|Netanyahu]] said on [[Twitter]] that Jeffrey Epstein did not work for the [[state]] of [[Israel]], arguing that Epstein's connections were to [[Benjamin Netanyahu|Netanyahu]]'s political rival, [[Ehud Barak]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:08:11:00) The *[[The Jerusalem Post|Times of Israel]]* reported that [[Benjamin Netanyahu|Netanyahu]] said the "unusual close relationship" between former Prime Minister [[Ehud Barak]] and Jeffrey Epstein proves that Epstein did not work for [[Israel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:09:15:00) The [[United States|US]] [[U.S. Department of Justice|Justice Department]] released millions of internal documents related to Jeffrey Epstein that revealed his ties to [[Ehud Barak]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:10:40:00) [[Benjamin Netanyahu|Netanyahu]] used the allegation that Jeffrey Epstein worked with [[Ehud Barak]] to suggest that Epstein's ties were to the "[[Israel|Israeli]] left."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:13:13:00) *[[Jacobin Magazine]]* looked at more than 1,000 documents from the latest trove and identified more than 60 instances between September 2010 and March 2019 in which [[Ehud Barak]] and Jeffrey Epstein arranged to meet face-to-face, including in [[New York|New York City]], [[State of Florida|Florida]], [[Boston]], [[Paris]], and [[Little St. James]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:13:40:00) At least seven of the meetings between Jeffrey Epstein and [[Ehud Barak]] took place while [[Ehud Barak]] was serving as the Minister of Defense for [[Israel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:14:55:00) Jeffrey Epstein had been revealed to have worked with [[Ehud Barak]] to broker security agreements and arms sales on behalf of [[Israel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:15:33:00) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein was an operative working with [[Israel|Israel's]] military ([[Israel Defense Forces|IDF]]), not necessarily [[Israel Defense Forces|Mossad]] in particular.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:16:30:00) Jeffrey Epstein and [[Ehud Barak]] worked together on arms contracts, surveillance contracts, and intelligence contracts to foreign governments and to [[San Francisco Bay Area|Silicon Valley]], including deals with [[Palantir Technologies|Palantir]] and in [[Western Africa|West Africa]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:17:10:00) [[Nicholas J. Fuentes]] argued that the Jeffrey Epstein files show that the distinctions between the political left and right in [[Israel]] are "distinctions without a difference," as [[Ehud Barak]], a left-wing politician, was the head of [[Israel|Israeli]] military intelligence.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:21:00:00) Jeffrey Epstein introduced [[Ehud Barak]] to [[Peter Thiel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:21:34:00) Jeffrey Epstein introduced [[Ehud Barak]] to [[Peter Thiel]] and tried to get [[Ehud Barak|Barak]] to invest in [[Peter Thiel|Thiel]]'s company, [[Palantir Technologies|Palantir]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:27:11:00) Jeffrey Epstein's vast sums of money came mostly from two clients: [[Leon Black]] and [[Ariane de Rothschild]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:27:17:00) [[Leon Black]] told a publication that Jeffrey Epstein was "almost like a [[James Bond]] villain."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:27:59:00) In 1997, [[Leon Black]] and his wife put Jeffrey Epstein on the board of directors of their family foundation.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:28:15:00) Jeffrey Epstein introduced [[Leon Black]] to several young women, some of whom later accused [[Black]] of abusing them.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:28:44:00) Jeffrey Epstein paid [[Sherry Pearson]] for massages and arranged for her to meet [[Leon Black]] in Epstein's townhouse, where [[Leon Black]] allegedly raped her.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:29:00:00) [[Leon Black]] paid Jeffrey Epstein a total of $170 million, making him Epstein's greatest source of income after 2012.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:29:17:00) The runner-up to [[Leon Black]] as Jeffrey Epstein's source of income was [[Ariane de Rothschild]], [[who]] paid Epstein at least $15 million.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:29:44:00) Jeffrey Epstein connected [[Leon Black]] with [[Bill Gates]] and [[Steve Bannon]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:30:37:00) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein's cover story was that he was a "brilliant math genius" and expert with financial instruments and tax laws, but that he was actually a "fixer."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:31:30:00) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein was a fixer [[who]] introduced people to women and then used that as blackmail, or provided women to billionaires as one of his many services.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:32:44:00) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein being a "[[Jews|Jewish]] financier" [[who]] knew his clients' financial and sexual crimes gave him leverage to demand large payments.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:39:55:00) [[Nicholas J. Fuentes]] argued that while the public is talking about "cannibalism," "Baal," and "satanic sex cult rituals" regarding Jeffrey Epstein, the real network involving [[Leon Black]] and [[Ehud Barak]] is happening in plain sight.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:43:19:00) The second big benefactor of Jeffrey Epstein was [[Les Wexner]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:43:40:00) Jeffrey Epstein's only major client for some 20 years was [[Les Wexner]], [[who]] founded a conglomerate that owned [[Victoria's Secret]], [[Bath & Body Works]], [[Abercrombie & Fitch]], and [[Lane Bryant]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:44:20:00) [[Les Wexner]] gave Jeffrey Epstein power of attorney and sold him a luxurious [[City|Manhattan]] townhouse for one dollar.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:44:38:00) [[Les Wexner]] and Jeffrey Epstein had a falling out and [[Les Wexner]] said he fired Epstein in 2007.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:45:12:00) [[Nicholas J. Fuentes]] argued that [[Leon Black]] and [[Les Wexner]] likely contributed over $500 million, possibly upwards of $700 million, to Jeffrey Epstein.Here is the chronological knowledge log from the provided transcript, processed according to your specifications.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:46:43) Jeffrey Epstein served on the board of the [[Wexner Foundation]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:50:55) [[Ronald Lauder]] was deeply involved with Jeffrey Epstein.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:51:07) [[Ronald Lauder]] appeared more than 900 times in the set of Jeffrey Epstein-related files released by the [[U.S. Department of Justice|DOJ]] at the end of January.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:51:36) Assistants for [[Ronald Lauder]] and Jeffrey Epstein emailed frequently to discuss the arrangement of meals and phone calls, and the two were often looped into these email chains.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:52:04) In a 2017 message, an assistant for Jeffrey Epstein mentioned to [[Ronald Lauder]]'s assistant that Epstein wanted to see two years of tax returns from Lauder.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:52:40) Documents showed that Jeffrey Epstein may have played a role in [[Ronald Lauder]]'s art-related dealings with [[Leon Black]], another major art collector.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:53:40) [[Les Wexner]] was Jeffrey Epstein's benefactor [[who]] gave him his start, opened his checkbook, gave him the [[New York]] townhouse, and gave him legitimacy and access to his Rolodex.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:55:00) Jeffrey Epstein received hundreds of millions of dollars from [[Leon Black]] and [[Les Wexner]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:56:36) [[Nicholas J. Fuentes]] argued that the fees Jeffrey Epstein charged his clients were so out of the ordinary that Epstein was either not really a money manager or was something more, particularly being paid for criminal activity or having leverage over his clients.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:58:31) [[Nicholas J. Fuentes]] questioned the myth that Jeffrey Epstein was a genius, noting that the basis of his skill as a tax wizard would be mathematical ability.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:59:36) Jeffrey Epstein was hired at the Dalton School in the 1970s by a man named [[Donald Barr]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:59:53) [[Donald Barr]] is the father of [[Bill Barr]], [[who]] was [[Donald Trump]]'s attorney general in his first term and was the head of the [[U.S. Department of Justice|Department of Justice]] in 2019 when Jeffrey Epstein died.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:00:21) [[Donald Barr]], the headmaster of the Dalton School [[who]] hired Jeffrey Epstein as a math teacher, was a member of the OSS and was born into a [[Jews|Jewish]] family before eventually converting to [[Catholic Church|Catholicism]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:01:23) [[Alan Greenberg]], a high-level executive at [[Bear Stearns]], had children [[who]] attended the Dalton School where Jeffrey Epstein tutored them privately, and through this connection Epstein was able to get into [[Bear Stearns]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:01:35) Jeffrey Epstein used his position at [[Bear Stearns]] to pitch himself to [[Les Wexner]] as a financial analyst.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:02:14) [[Nicholas J. Fuentes]] stated that Jeffrey Epstein was a creation of [[Jews|Jewish]] higher society in finance, government, and the arts.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:03:37) Jeffrey Epstein leveraged his relationship with [[Les Wexner]] into a relationship with [[Leon Black]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:04:11) Jeffrey Epstein did arms deals and surveillance deals with [[Ehud Barak]] in Unit 8,200.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:04:19) Jeffrey Epstein did art deals with [[Ronald Lauder]] and [[Leon Black]] and the [[Metropolitan Museum of Art]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:04:27) Jeffrey Epstein did deals with [[Peter Thiel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:04:31) [[Leon Black]]'s son [[Ben Black]] was introduced to [[Woody Allen]] by Jeffrey Epstein because the film producers behind [[Woody Allen]] were [[Jews|Jewish]] [[Los Angeles|Hollywood]] producers.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:05:01) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein is not a satanic pedophile occultist and that the real story is that he was part of a [[Jews|Jewish]] political intelligence financial network.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:06:09) Files released from the [[U.S. Department of Justice|DOJ]] revealed that Jeffrey Epstein had a big relationship with [[Peter Thiel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:06:34) By 2014, Jeffrey Epstein took an interest in [[Palantir Technologies|Palantir]] and suggested to [[Ehud Barak]] that he speak with [[Peter Thiel]] about an advisory role at the company.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:06:47) Jeffrey Epstein was scheduled to meet with [[Peter Thiel]] several times in 2014 and had started emailing him for investment advice.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:07:09) [[Peter Thiel]] advised Jeffrey Epstein to hold off on investing in [[Spotify]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:07:16) Jeffrey Epstein invested $40 million in one of [[Peter Thiel]]'s venture capital firms, [[Valar Ventures]], across two separate transactions, and Epstein's estate still possessed these holdings, which were worth about $170 million as of last summer.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:07:44) Jeffrey Epstein tried to get [[Ehud Barak]] a board position at [[Palantir Technologies|Palantir]], which is involved in many government departments and agencies since [[Donald Trump]] got into office.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:10:05) Jeffrey Epstein invested money with [[Peter Thiel]] and tried to introduce [[Ehud Barak]] to [[Peter Thiel|Thiel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:15:52) [[Nicholas J. Fuentes]] described Jeffrey Epstein as a "[[Jews|Jewish]] fixer" [[who]] was born in [[United States|America]] but dealt with multiple countries, including the [[United Kingdom|British]], [[Ehud Barak]] in [[Israel]], [[United States|Americans]], and the right and left.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:17:09) Jeffrey Epstein had connections to the arts because [[Jews|Jewish]] billionaires finance major art museums and [[Los Angeles|Hollywood]] movies.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:17:21) Jeffrey Epstein had connections to finance because [[Jews|Jewish]] billionaires run the major private equity firms, venture firms, and banks.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:17:58) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein's connections to the [[Israel|Israeli]] security [[state]] and his participation in the pro-[[Israel]] political cause were driven by his [[Jews|Jewish]] identity, not love of pedophilia or worship of Satan.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:27:53) [[Benjamin Black]], the son of Jeffrey Epstein's number two benefactor [[Leon Black]], was heading up the [[Development Finance Corporation]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:00) The nominee for chairman of the [[Federal Reserve]] is the son-in-law of [[Ronald Lauder]], for whom Jeffrey Epstein laundered money by purchasing art with [[Leon Black]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:56) [[Peter Thiel]] has a financial interest in [[JD Vance|J.D. Vance]] and was an acolyte of Jeffrey Epstein's.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:31:12) When asked about his connections to Jeffrey Epstein on [[The Joe Rogan Experience|Joe Rogan]], [[Peter Thiel]] pushed the lie that Epstein was a financial genius.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:31:37) [[Donald Trump]]'s attorney general, [[Bill Barr]], had jurisdiction over the prison where Jeffrey Epstein killed himself in 2019.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:47:58) Epstein files have exposed [[Howard Lutnick]], [[Peter Thiel]], [[Reid Hoffman]], "the [[Israel|Israelis]]," and [[Donald Trump]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:49:43) In July 2025, [[Donald Trump]] told supporters [[who]] wanted the Epstein files, "I don't want your vote."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:28:34) [[Nicholas J. Fuentes]] characterized Jeffrey Epstein as a mercenary or intelligence operative, probably working very closely for [[Israel]] in furtherance of its goals.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:28:58) [[Nicholas J. Fuentes]] claimed that Jeffrey Epstein, in his career as a mercenary, used his connections to [[Victoria's Secret]] and other modeling agencies to groom and traffic underage girls for sex, either for his own gratification or to blackmail powerful people.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:30:00) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein is just the tip of the iceberg, and that there are other people exactly like him in society.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:52:05) [[Nicholas J. Fuentes]] noted that it is now popular to be an anti-Semite and to make jokes about Jeffrey Epstein, which he framed as the opposite end of the spectrum from when saying "[[Jews]] suck" was considered shocking.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:00:55) [[Nicholas J. Fuentes]] summarized the [[known]] story of Jeffrey Epstein, starting with his conviction in the late 2000s for sex trafficking, his sweetheart plea deal negotiated by [[Alan Dershowitz]] and [[Alex Acosta]], his mysterious death in prison, and the speculation that he was killed for his secrets.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:01:29) [[Nicholas J. Fuentes]] summarized the theory that Jeffrey Epstein was working for the [[Israel|Israelis]], trafficking underage girls to get powerful people compromised on tape so that he could be their handler on behalf of [[Israel]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:08:34) [[Nicholas J. Fuentes]] cited an exchange between Jeffrey Epstein and [[Ehud Barak]] where Epstein says to tell the [[Qatar|Qataris]] that he is not [[Israel Defense Forces|Mossad]], but concluded that it is not conclusive evidence.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:27:56) [[Nicholas J. Fuentes]] cited a post by Ryan Dawson that included an [[Artificial Intelligence|AI]]-edited image of a [[little]] girl tied up next to Jeffrey Epstein.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:30:24) [[Nicholas J. Fuentes]] addressed a third claim from the files: that Jeffrey Epstein "tied young girls, aged 11 to 13, spread out on the floor, burned them with a magnifying glass."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:33:38) [[Nicholas J. Fuentes]] addressed a fourth claim: a photo of Jeffrey Epstein with a "[[little]] girl in his lap," posted by Ryan Dawson.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:34:20) [[Nicholas J. Fuentes]] clarified that the man in the photo is [[Glenn Dubin]] and that the girl is his daughter, Jeffrey Epstein's goddaughter.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:36:43) [[Nicholas J. Fuentes]] read from an [[Federal Bureau of Investigation|FBI]] interview with a victim [[who]] described Jeffrey Epstein as "an awesome man."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:43:14) [[Nicholas J. Fuentes]] clarified that he is not trying to defend Jeffrey Epstein, minimize his crimes, or exonerate him.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:43:36) [[Nicholas J. Fuentes]] stated his view that Jeffrey Epstein was an "evil man" [[who]] committed "evil" acts of grooming teenage girls, ages 14 to 17, for erotic massages and sex.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:47:48) [[Nicholas J. Fuentes]] stated that [[OnlyFans]] is in the same business as Jeffrey Epstein.Here is the chronological knowledge log derived from the provided transcript.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:47:55) [[Nicholas J. Fuentes]] argued that [[Los Angeles|Hollywood]] operates in the same business as Jeffrey Epstein by exploiting individuals for profit.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:48:00) [[Nicholas J. Fuentes]] argued that public interest in Jeffrey Epstein stems not from the commission of a sex crime, but because the perpetrator was likely an intelligence operative.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:48:41) [[Nicholas J. Fuentes]] argued that investigators must be "very precise and rigorous and truthful" in evaluating information about Jeffrey Epstein, rejecting [[Artificial Intelligence|AI]]-edited images, misleading information, and transcription errors as admissible evidence.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:49:10) [[Nicholas J. Fuentes]] stated that evidence from 2006, including hundreds of witness interviews and thousands of potential victims in [[State of Florida|Florida]], shows no record of physical coercion by Jeffrey Epstein, meaning women were not being beaten or killed.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:49:55) [[Nicholas J. Fuentes]] described the method of Jeffrey Epstein and [[Ghislaine Maxwell]] as using women to recruit young girls, as women are less threatening to potential victims.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:50:00) [[Ghislaine Maxwell]] acted as an accomplice to Jeffrey Epstein by recruiting young girls for massages under the guise of a glamorous life, offering money and connections to [[Victoria's Secret]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:51:40) [[Nicholas J. Fuentes]] described Jeffrey Epstein's grooming process as a progression from a normal first massage to showing his penis and asking the girl to take off her top on subsequent visits.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:52:00) [[Nicholas J. Fuentes]] stated that Jeffrey Epstein's girlfriends were part of a "harem" that was shared, trafficked, and prostituted out to other men.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:52:20) [[Nicholas J. Fuentes]] rejected allegations that Jeffrey Epstein and [[George W. Bush]] disemboweled and ate the intestines of a young girl in a satanic ritual, stating there is no evidence for it and the documents are faulty.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:53:19) [[Nicholas J. Fuentes]] described Jeffrey Epstein's operation as throwing parties to lure powerful men, using an email where he stated "nobody over the age of 25" to indicate that young girls were part of the attraction.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:54:46) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein trafficked young girls as his "in" to powerful networks, using the promise of sexual favors to endear himself to or blackmail politicians, bankers, and other elites.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:55:17) [[Les Wexner]] set up Jeffrey Epstein with [[Victoria's Secret]] as a pipeline to access models, according to [[Nicholas J. Fuentes]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:55:29) [[Nicholas J. Fuentes]] stated that organized crime controls prostitution, and that Jeffrey Epstein's island and compounds functioned as mob-run brothels designed to control the girls and, by extension, the powerful men [[who]] visited them.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:56:29) [[Nicholas J. Fuentes]] compared Jeffrey Epstein's "I'll make you a model" recruitment tactic to [[Harvey Weinstein]]'s "I'll make you a movie star" method of exploiting women.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:57:40) [[Nicholas J. Fuentes]] stated that the released files of Jeffrey Epstein repeatedly reveal overt and constant references to "[[Jews]]" and "Goyim," including statements that "Goyim are ridiculous," "Goyim toil with their hands," and "[[Jews]] are smart" and "move money."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:58:45) [[Nicholas J. Fuentes]] claimed that the files show Jeffrey Epstein self-identified as a [[Jews|Jew]], was not religious or kosher, and was a "complete degenerate hedonist."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:59:00) [[Nicholas J. Fuentes]] stated that Jeffrey Epstein knew business leaders and government officials in [[Israel]], the [[United Kingdom]], and the [[United States]], including people at [[JPMorgan Chase & Co.|JP Morgan]], [[Yale Law School|Yale University]], and individuals such as [[Reid Hoffman]], [[Peter Thiel]], and [[Marc Andreessen]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:59:29) [[Nicholas J. Fuentes]] described Jeffrey Epstein as a "[[Jews|Jewish]] [[patriot]]" [[who]] believed [[Jews]] were smarter and worked together while "Goyim" were stupid and subhuman.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:00:07) [[Leon Black]] of [[Apollo Global Management]] and [[Les Wexner]] of [[Victoria's Secret]], described by [[Nicholas J. Fuentes]] as "[[Jews|Jewish]] patriots for [[Israel]]," provided Jeffrey Epstein with more than $500 million of his fortune, along with a [[house]], a jet, and an island.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:03:00) [[Nicholas J. Fuentes]] described Jeffrey Epstein as a "[[Jews|Jewish]] [[patriot]]" [[who]] used his harem to either endear himself to or blackmail powerful people, such as [[Bill Gates]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:04:52) [[Nicholas J. Fuentes]] alleged that [[Nelson Rockefeller]] helped Jeffrey Epstein gain entry into the [[Trilateral Commission]] and the [[Bilderberg Group]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:05:24) [[Nicholas J. Fuentes]] claimed that Jeffrey Epstein was a fraud [[who]] did not know what he was talking about, as evidenced by an interview with [[Steve Bannon]] where he misattributed a quote to [[Aristotle]], and that his success came from being "given a boost by his fellow [[Jews|Jew]]."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:06:00) [[Nicholas J. Fuentes]] alleged that a "backend" security vulnerability was created in [[America's]] elite by [[Israel]] through people like [[Nelson Rockefeller]] and the [[Rothschild family]], [[who]] gave Jeffrey Epstein his fortune, crib, and models.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:10:07) [[Nicholas J. Fuentes]] played a clip from [[Candace Owens]]' show, which had 1.1 million views, to illustrate a divide in how the Jeffrey Epstein case is being discussed.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:28:12) [[Nicholas J. Fuentes]] stated that Jeffrey Epstein is a [[Jews|Jew]] connected to [[Israel]], and that [[Benjamin Netanyahu|Bibi]] is in a coalition with people [[who]] believe in a "greater [[Israel]]," aiming to build the Third Temple.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:30:07) [[Nicholas J. Fuentes]] rejected the "Khazarian mafia" theory propagated by [[Candace Owens]] as a distraction from the real story of Jeffrey Epstein being a [[Jews|Jew]] in the service of [[Israel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:04:37.800) [[Nicholas J. Fuentes]] reported that three million files related to Jeffrey Epstein were released on that day.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:04:45.460) [[Nicholas J. Fuentes]] asserted that [[Donald Trump|Trump]] possesses all the Jeffrey Epstein files at the [[U.S. Department of Justice|DOJ]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:04:49.380) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] does not want to release the Jeffrey Epstein files.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:05:43.120) [[Nicholas J. Fuentes]] reported that the released files include emails from Jeffrey Epstein that appear legitimate.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:10:00.000) [[Nicholas J. Fuentes]] named [[Thomas Massie]] for his role in getting the government to release the Jeffrey Epstein files.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:13:38) [[Nicholas J. Fuentes]] stated that the [[U.S. Department of Justice|DOJ]] declassified approximately 50% of the files on the Jeffrey Epstein case after a seven-to-eight-month cover-up from the highest levels of government.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:14:49) [[Nicholas J. Fuentes]] reported that the released Jeffrey Epstein files include emails, tips to the [[Federal Bureau of Investigation|FBI]], images, and news reports, totaling three million documents.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:15:10) [[Nicholas J. Fuentes]] noted that the files contain correspondence between Jeffrey Epstein and [[Ghislaine Maxwell]] and tips containing unsubstantiated claims of crimes by [[Donald Trump]], including allegations of torture, murder, and sex abuse.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:16:18) [[U.S. Department of Justice|The DOJ]] released the largest batch of Jeffrey Epstein files to date, including 3 million pages, 2,000 videos, and 180,000 images.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:16:40) [[Nicholas J. Fuentes]] reported that at least 4,500 documents in the Jeffrey Epstein files mentioned [[Donald Trump]], including an [[Federal Bureau of Investigation|FBI]] summary of more than a dozen public tips involving [[Donald Trump|Trump]] and Epstein.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:17:14) Jeffrey Epstein drafted notes to and about [[Bill Gates]] in 2013, suggesting [[Bill Gates|Gates]] engaged in extramarital sex and that Epstein helped him acquire drugs for sex with [[Russian Federation|Russian]] girls and facilitated a rendezvous with married women.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:17:36) [[The Gates Foundation]] called the allegations in the Jeffrey Epstein emails regarding [[Bill Gates]] "absolutely absurd and completely false."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:17:46) [[Howard Lutnick]], the [[U.S. Department of Commerce|Commerce Secretary]], was revealed by the files to have planned a visit to Jeffrey Epstein's island in 2012, despite having previously stated he severed ties with Epstein around 2005.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:18:14) A 2013 email exchange between [[Richard Branson]] and Jeffrey Epstein suggested the pair had a familiar relationship built around their shared interest in women.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:18:31) Multiple messages between [[Elon Musk]] and Jeffrey Epstein showed the two comparing schedules to meet in [[State of Florida|Florida]] or the [[Caribbean]] between 2012 and 2014.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:22:10) [[Pam Bondi]] said the Jeffrey Epstein files were on her desk and ready to go, but they were still not released.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:22:31) [[Donald Trump]] asked the [[Federal Bureau of Investigation|FBI]] if his name appeared in the Jeffrey Epstein files, and the [[Federal Bureau of Investigation|FBI]] spent hundreds of hours finding every mention, totaling thousands of mentions.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:22:51) [[Donald Trump]] denied asking the [[Federal Bureau of Investigation|FBI]] to look for his name in the Jeffrey Epstein files, calling that a lie.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:23:50) [[Elon Musk]] posted on [[Twitter]] that the reason [[Donald Trump]] would not release the Jeffrey Epstein files is because [[Donald Trump|Trump]] is in them and knows it.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:24:22) The day before [[Benjamin Netanyahu]]'s visit to the [[White House]], the [[U.S. Department of Justice|DOJ]] published a memo stating that the Jeffrey Epstein case was closed, that there were no files to release, and that there was no sex trafficking ring.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:24:27) [[Nicholas J. Fuentes]] characterized the [[U.S. Department of Justice|DOJ]]'s memo stating the Jeffrey Epstein case was closed as a cover-up.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:25:41) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] told his supporters that if they were interested in the Jeffrey Epstein files, they were "idiots" and "fake supporters."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:27:12) [[Marjorie Taylor Greene]] resigned after the bill to release the Jeffrey Epstein files passed, and did so after receiving death threats.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:28:37) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] lied about the existence of the Jeffrey Epstein files, their contents, and their treatment, and that the government pulled out every procedural stop to prevent their release.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:29:26) [[Nicholas J. Fuentes]] argued that it is the obligation of the representative government, including the [[Federal Bureau of Investigation|FBI]] and the [[U.S. Department of Justice|DOJ]], to investigate the accusations in the Jeffrey Epstein files against [[Howard Lutnick]], [[Bill Gates]], [[Elon Musk]], [[Richard Branson]], [[Steve Bannon]], and [[Donald Trump]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:30:43) [[Republican Party|House Republicans]] attempted to make the Jeffrey Epstein files a partisan issue by compelling [[William Jefferson Clinton|Bill Clinton]] and [[Hillary Clinton]] to testify about them.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:31:08) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein was pimping out underage girls to blackmail his clients, and that the sex trafficking was a crime committed in furtherance of extortion.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:33:40) [[Nicholas J. Fuentes]] argued that the connections of [[Howard Lutnick]], [[Bill Gates]], and [[Elon Musk]] to Jeffrey Epstein imply not just a sex crime but political corruption and a nefarious political operation.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:36:55) [[Nicholas J. Fuentes]] argued that the Jeffrey Epstein files are hanging over [[Donald Trump]]'s head like a dagger, and that if [[Donald Trump|Trump]] does not bring the [[United States]] to war with [[Iran]] or play ball with the [[Israel]] lobby and billionaires, the dagger will fall.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:38:21) [[Nicholas J. Fuentes]] argued that the first war with [[Iran]] was bookended by intrigue about the Jeffrey Epstein files, pointing out that [[Elon Musk]] crashed out with a [[black]] eye about Epstein a week before the war, the files were buried the day after [[Benjamin Netanyahu]] visited the [[White House]], and the files were released when the [[United States]] was "locked and loaded" for a second war with [[Iran]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:40:04) [[Nicholas J. Fuentes]] asked what is in the other three million unreleased Jeffrey Epstein files and [[who]] possesses them, suggesting they might be in [[Rishon LeZion|Tel Aviv]] or in the possession of [[Ehud Barak]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:40:37) [[Nicholas J. Fuentes]] stated that the Jeffrey Epstein story is ultimately about sexual abuse in the service of political compromise and blackmail.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:08:46:84) [[Nicholas J. Fuentes]] argued that left-wing pundits have bundled criticism of [[Israel]], Jeffrey Epstein, and [[Jews]] with left-wing ideology, creating a perception that all left-wing positions are pro-[[Palestine|Palestinian]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:40:06:780) [[Nicholas J. Fuentes]] noted that it is the birthday of Jeffrey Epstein.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:33:10) [[Nicholas J. Fuentes]] defended his statement that Jeffrey Epstein is "cool," explaining that being an evil mastermind with a private island and jet is objectively cool, just like [[Adolf Hitler|Hitler]]'s empire was cool.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:08:17) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein was "not a pedophile" because his victims were aged 14 to 17, claiming that pedophilia is defined as sex with children before the age of sexual maturity.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:21:12) [[Nicholas J. Fuentes]] called Jeffrey Epstein a "baller ass nigga" and a criminal, but argued that the claims of satanic abuse and ritualistic pedophilia were fabricated by [[Virginia Giuffre]], whom he called a serial fabulist.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:21:47) [[Nicholas J. Fuentes]] stated that what was proven in court about Jeffrey Epstein was that the victims were between the ages of 14 and 17, and that this was "evil."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:21:57) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein's crimes were evil but were not "ritualistic, pedophilic, satanic abuse."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:22:41) [[Nicholas J. Fuentes]] argued that Jeffrey Epstein's operation was a "blackmail ring" that targeted girls on the cusp of legal age, using sex to blackmail powerful people.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:23:37) [[Nicholas J. Fuentes]] claimed that claims about Jeffrey Epstein have gotten "crazier and crazier" and that [[Virginia Giuffre]] made up stories about triplets for the devil.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:41:15) [[Nicholas J. Fuentes]] stated that the victims of Jeffrey Epstein being aged 14 to 17 means it is not pedophilia, but that a 27-year-old having sex with a 13-year-old would be.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:30:34) [[Nicholas J. Fuentes]] argued that the problem with Jeffrey Epstein was not sex trafficking, but that he was "a [[Jews|Jewish]] spy" working with [[Israel|Israeli]] intelligence.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:12:35) [[Nicholas J. Fuentes]] read that the [[The New York Times|New York Times]] reported [[Ben Shapiro]] called [[Steve Bannon]] a "P.R. flak for Jeffrey Epstein."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:30:49) [[Nicholas J. Fuentes]] noted that the Epstein files were released "because [[U.S. Congress|Congress]] made you release them."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:13:13) [[Nicholas J. Fuentes]] introduced his show, noting it was a slow news day and that the last big story was the Jeffrey Epstein files and [[Marjorie Taylor Greene]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:18:55) [[Nicholas J. Fuentes]] stated that his [[Rumble Inc.|Rumble]] channel for the past three months has been about [[Venezuela]], Epstein, [[Marjorie Taylor Greene]], [[Larry Ellison]], and the [[Heritage Foundation]].

@@ -6,7 +6,7 @@
 
 
 ### AF 2022-01-06 0930
-(01:29:57) [[Nicholas J. Fuentes]] argued that the American Revolution started with subterfuge, guerrilla warfare, and violence, and that the right needed to have more stomach for such struggles instead of disavowing events like [[City of Charlottesville|Charlottesville]] and [[January 6th Attack|January 6th]].
+(01:29:57) [[Nicholas J. Fuentes]] argued that the American Revolution started with subterfuge, guerrilla warfare, and violence, and that the right needed to have more stomach for such struggles instead of disavowing events like [[Charlottesville]] and [[January 6th Attack|January 6th]].
 
 ### AF 2020-09-16 0682
 (11:16:320) [[Nicholas J. Fuentes]] questioned why there were surveys specifically on "[[United States Holocaust Memorial Museum|Holocaust]] knowledge" but not on knowledge of other historical events like [[September 11 attacks|9/11]], [[World War II]], the [[Cold War]], the American Revolution, or the [[Civil War]].

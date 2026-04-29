@@ -22,7 +22,7 @@
 (46:21:48) [[Nicholas J. Fuentes]] read from an Antiwar.com article stating that [[Israel|Israeli]] Defense Minister Benny Gantz notified [[United States|U.S]]. officials in [[Washington D.C.|Washington, D.C.]] that he ordered the [[Israel Defense Forces|IDF]] to prepare to attack [[Iran]].
 
 ### AF 2021-12-14 0922
-(46:44:56) [[Nicholas J. Fuentes]] reported that Benny Gantz made these remarks on the sidelines of a conference in [[City of Miami|Miami]], [[State of Florida|Florida]].
+(46:44:56) [[Nicholas J. Fuentes]] reported that Benny Gantz made these remarks on the sidelines of a conference in [[Miami]], [[State of Florida|Florida]].
 
 ### AF 2021-12-14 0922
 (01:03:01:98) [[Nicholas J. Fuentes]] stated that [[Israel]]'s Benny Gantz came to [[United States|America]], which gives [[Israel]] $3.8 billion a year, and told the [[United States|U.S. government]] when they would be attacking [[Iran]].

@@ -11,7 +11,7 @@
 (06:22:00) [[Israel]]'s regional objectives, according to [[Nicholas J. Fuentes]], included rolling back [[Iran]]'s proxies: Hamas in [[Gaza Strip|Gaza]], [[Hezbollah]] in [[Lebanon]], the [[Houthis]] in [[Yemen]], the [[Iran|IRGC]] in [[Syria]], and [[Shiite|Shiite militias]] in [[Iraq]].
 (08:31:00) [[Donald Trump]] had made a concerted effort to bring the war in [[Gaza Strip|Gaza]] to an end, offering a [[U.S]].-backed peace proposal mediated by [[Qatar]], to which Hamas was reportedly favorable before the [[Israel|Israeli]] strike.
 ### AF 2025-09-26 1572
-(01:07:53) [[Nicholas J. Fuentes]] read from a [[The New York Times]] article stating [[Benjamin Netanyahu]] ruled out a [[Palestinian state]] and vowed to finish the war against Hamas, calling recognition of [[Gaza Strip|Palestine]] "disgraceful."
+(01:07:53) [[Nicholas J. Fuentes]] read from a [[The New York Times]] article stating [[Benjamin Netanyahu]] ruled out a [[Palestinian state]] and vowed to finish the war against Hamas, calling recognition of [[Palestine]] "disgraceful."
 ### AF 2025-10-01 1575
 (06:14:56) [[Benjamin Netanyahu|Netanyahu]]'s modifications to the [[Gaza Strip|Gaza]] peace deal potentially poisoned it, making it unacceptable to Hamas and prolonging the war indefinitely.
 (26:27:86) [[Benjamin Netanyahu|Netanyahu]] agreed to a [[United States]]-backed deal to end the war in [[Gaza Strip|Gaza]], which had buy-in from neighboring Arab nations but unclear acceptance from Hamas.
@@ -264,7 +264,7 @@
 (00:22:44) [[Iran]] was identified as a [[state]] sponsor of terrorism primarily for its funding of [[Hezbollah]] and Hamas, organizations defined by opposition to [[Israel]].
 
 ### AF 2018-09-25 0247
-(03:46:00) [[Nicholas J. Fuentes]] argued that [[Iran]]'s support for groups like Hamas, [[Hezbollah]], and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Gaza Strip|Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
+(03:46:00) [[Nicholas J. Fuentes]] argued that [[Iran]]'s support for groups like Hamas, [[Hezbollah]], and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
 
 ### AF 2018-05-14 0163
 (00:29:05) [[Iran]] provides support to [[Hezbollah]] on [[Israel]]'s northern border and to Hamas in the [[Gaza Strip]].
@@ -291,7 +291,7 @@
 (01:20:31) [[Nicholas J. Fuentes]] reported that [[Palestinian]] [[White House|President]] [[Mahmoud Abbas]] warned the [[United States Embassy in Jerusalem|U.S. embassy]] move would destroy the peace process and announced three days of rage, while the [[Palestinian]] Islamist group Hamas threatened a second intifada.
 
 ### AF 2017-11-10 0051
-(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], Hamas and [[Palestinian Islamic Jihad]] in [[Gaza Strip|Palestine]], and the [[state]] of [[Qatar]].
+(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], Hamas and [[Palestinian Islamic Jihad]] in [[Palestine]], and the [[state]] of [[Qatar]].
 
 ### AF 2017-11-09 0050
 (12:52:00) In July, [[Saudi Arabia]] led a boycott of [[Qatar]] after [[Qatar|Qatari]] news media reported the Emir praising [[Iran]] as a great Islamic power and calling Hamas a good ally.
@@ -301,3 +301,201 @@
 
 ### AF 2017-10-11 0029
 (00:35:04) [[Wilt Chamberlain|Will Chamberlain]] referenced books detailing how [[Israel]] infiltrated Hamas and other groups, arguing this demonstrates the value of its intelligence capabilities.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:57:09.780) The [[Heritage Foundation]]'s "Project Esther" initiative asserts that students engaged in pro-[[Palestine|Palestinian]] protests and activism support Hamas, an [[organization]] designated as a foreign terrorist group by the [[United States]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:50.200) [[Qasem Soleimani]] developed and established the Axis of Resistance, which includes Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(00:57:05) [[Nicholas J. Fuentes]] identified the [[Heritage Foundation]] as the creator of the initiative "Project Esther," which labels pro-[[Palestine|Palestinian]] student protesters as supporters of Hamas.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:52) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the axis of resistance, including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(00:57:12) The [[Heritage Foundation]] stated in its initiative, Project Esther, that students participating in pro-[[Palestine|Palestinian]] protests are supporting Hamas, a group designated by the [[United States]] as a foreign terrorist [[organization]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:01:52) [[Qasem Soleimani]] was the architect of the axis of resistance, which includes Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:01:50) [[Nicholas J. Fuentes]] stated that the shadow war culminated in January 2020 in the assassination of [[Qasem Soleimani]], whom he described as the architect of the Axis of Resistance, including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:01:44) [[Nicholas J. Fuentes]] claimed that the shadow war with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], [[who]] he described as the architect of the "axis of resistance" including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:05:34) [[Nicholas J. Fuentes]] repeated his claim that Project Esther designates pro-[[Palestine|Palestinian]] students as supporting Hamas, subjecting them to visa revocations, frozen bank accounts, and the denial of constitutional rights.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:39:11) [[Nicholas J. Fuentes]] stated that the Canary Mission is part of Project Esther, an initiative by the [[Heritage Foundation]] that considers pro-[[Palestine|Palestinian]] student activism to be support for Hamas, subjecting participants to visa revocations, frozen bank accounts, and asset seizures.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:57:14.060) [[Nicholas J. Fuentes]] stated that the [[Heritage Foundation]]'s initiative, Project Esther, defines pro-[[Palestine|Palestinian]] protests as supporting Hamas, a [[United States|U.S]].-designated foreign terrorist [[organization]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:01:50.160) [[Nicholas J. Fuentes]] identified [[Qasem Soleimani]] as the architect of the axis of resistance, which he listed as including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:48:51.000) [[Nicholas J. Fuentes]] stated that [[Israel]] needs to topple the [[Government of Iran|Iranian government]] to stop [[Iran]]'s support for militias like [[Hezbollah]] and Hamas.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:01:44:710) [[Nicholas J. Fuentes]] stated that the situation culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he called the architect of the Axis of Resistance, including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:16:53) [[Israel]] provoked [[Iran]] by assassinating [[Ismail Haniyeh]], the political leader of Hamas, in [[Tehran]], [[Iran]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:57:12) The [[Heritage Foundation]]’s initiative, titled “[[Project Esther]],” states that students participating in pro-[[Palestine|Palestinian]] protests and activism are supporting Hamas, a group designated by the [[United States]] as a foreign terrorist [[organization]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:56) [[Qasem Soleimani]] was the architect of the Axis of Resistance, including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:04:00) [[Nicholas J. Fuentes]] stated that the Canary Mission was part of "Project Esther," an initiative by the [[Heritage Foundation]] that designates pro-[[Palestine|Palestinian]] activists as supporters of terrorism, subjecting them to visa revocations, asset seizures, and a denial of constitutional rights.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:08:11) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the "Axis of Resistance," which includes Hamas and [[Hezbollah]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(57:05:90) [[Nicholas J. Fuentes]] stated that the Canary Mission is part of an initiative created by the [[Heritage Foundation]] titled Project Esther, which claims that pro-[[Palestine|Palestinian]] students are supporting Hamas and subject to visa revocation and asset seizures.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:01:56:62) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the Axis of Resistance, including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:05:27.000) [[Nicholas J. Fuentes]] reported that the [[Heritage Foundation]]'s initiative, titled Project Esther, states that students participating in pro-[[Palestine|Palestinian]] protests and activism are supporting Hamas, a group designated by the [[United States]] as a foreign terrorist [[organization]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:10:07.270) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the Axis of Resistance, including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:52:24) [[Israel]] has defeated Hamas, [[Hezbollah]], and [[Bashar al-Assad]], and removed the [[Iran|Revolutionary Guard]] from [[Syria]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(00:57:04) An initiative created by the [[Heritage Foundation]] titled Project Esther classified student participants in pro-[[Palestine|Palestinian]] protests and activism as supporters of Hamas.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:00:32) [[Nicholas J. Fuentes]] argued that [[Qasem Soleimani]] was the architect of the "Axis of Resistance," building Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:55:20) [[Nicholas J. Fuentes]] stated that in the [[Heritage Foundation]]'s initiative, titled Project Esther, they assert that students participating in pro-[[Palestine|Palestinian]] protests are supporting Hamas, a group designated as a foreign terrorist [[organization]] by the [[United States]], and are therefore subject to visa revocation, frozen bank accounts, asset seizures, and denial of constitutional rights.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:59:53) [[Nicholas J. Fuentes]] stated that the shadow war with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], [[who]] was the architect of the Axis of Resistance including Hamas and [[Hezbollah]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(57:04:00) [[Nicholas J. Fuentes]] stated that the Canary Mission is part of "Project Esther," an initiative by the [[Heritage Foundation]] that claims pro-[[Palestine|Palestinian]] students are supporting Hamas and are subject to visa revocation, asset seizures, and denial of constitutional rights.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:02:00:00) [[Nicholas J. Fuentes]] claimed that [[Qasem Soleimani]] built the "axis of resistance," including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:57:12) [[Nicholas J. Fuentes]] claimed that the [[Heritage Foundation]]'s initiative, Project Esther, states that pro-[[Palestine|Palestinian]] students in the [[United States]] are supporting Hamas and are subject to visa revocation, frozen bank accounts, asset seizures, and a denial of constitutional rights.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:00:35) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom [[Nicholas J. Fuentes|Fuentes]] described as the architect of the "axis of resistance" including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:54:00) [[Qasem Soleimani]] was the architect of the "Axis of Resistance," which included Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:05:18:00) [[Nicholas J. Fuentes]] said this initiative was created by [[Heritage Foundation|The Heritage Foundation]] through "Project Esther," which states that pro-[[Palestine|Palestinian]] students are supporting Hamas and are subject to visa revocation, frozen bank accounts, and asset seizures.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:08:00) [[Qasem Soleimani]] was the architect of the "Axis of Resistance," which included Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:04:06) [[Nicholas J. Fuentes]] reported that under an initiative titled "Project Esther," the [[Heritage Foundation]] classified pro-[[Palestine|Palestinian]] student protesters as supporting Hamas, subjecting them to visa revocations, asset seizures, and the denial of constitutional rights.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:42) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in the assassination of [[Qasem Soleimani]] in January 2020, whom he described as the architect of the axis of resistance including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(00:57:14) [[Nicholas J. Fuentes]] reported that the [[Heritage Foundation]]'s "Project Esther" classifies pro-[[Palestine|Palestinian]] student activists as supporters of Hamas, a foreign terrorist [[organization]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:50) [[Nicholas J. Fuentes]] recounted that by January 2020, the shadow war with [[Iran]] culminated in the assassination of [[Qasem Soleimani]], the architect of the "Axis of Resistance" including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:05:31) [[Nicholas J. Fuentes]] repeated the claim that the [[Heritage Foundation]]'s "Project Esther" classifies pro-[[Palestine|Palestinian]] student activists as supporting Hamas, a foreign terrorist [[organization]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:13:55.000) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the Axis of Resistance, including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:16:30.000) [[Nicholas J. Fuentes]] stated that the [[Canary Mission]] initiative was created by the [[Heritage Foundation]] as part of Project Esther, which labels pro-[[Palestine|Palestinian]] activists as supporters of Hamas.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(00:57:12) [[Nicholas J. Fuentes]] said that the [[Heritage Foundation]]'s initiative, Project Esther, states that pro-[[Palestine|Palestinian]] students are supporting Hamas, a designated foreign terrorist [[organization]] subject to visa revocation and asset seizure.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:59) [[Nicholas J. Fuentes]] credited [[Qasem Soleimani]] as the architect of the "Axis of Resistance," including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:10:16) [[Nicholas J. Fuentes]] repeated that [[Qasem Soleimani]] was the architect of the Axis of Resistance including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:03:03) [[Nicholas J. Fuentes]] argued that after [[October 7th Attack|October 7th]], [[United States|American]] [[Jews]] saw [[the left]] sympathize with [[Palestine|Palestinians]] and even Hamas, which alienated them and made them more right-wing.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(57:09:87) The [[Heritage Foundation]]’s Project Esther labels pro-[[Palestine|Palestinian]] student protesters as supporters of Hamas, subjecting them to visa revocation, asset seizure, and denial of constitutional rights.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(01:01:50:33) [[Donald Trump]] assassinated [[Qasem Soleimani]], the architect of the axis of resistance of Hamas, [[Hezbollah]], and the [[Houthis]], in January 2020.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(00:57:12) In the [[Heritage Foundation]]'s initiative, titled Project Esther, they stated that students participating in pro-[[Palestine|Palestinian]] protests and activism are supporting Hamas.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:01:50) The shadow war between the [[United States]] and [[Iran]] culminated by January 2020 in the assassination of [[Qasem Soleimani]], [[who]] was the architect of the axis of resistance (Hamas, [[Hezbollah]], the [[Houthis]]).
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(57:06:020) [[Nicholas J. Fuentes]] reported that Project Esther, an initiative by the [[Heritage Foundation]], states that students involved in pro-[[Palestinian]] protests are considered to be supporting Hamas and are subject to visa revocation and asset seizures.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(00:57:05) [[Nicholas J. Fuentes]] stated that the Canary Mission is part of an initiative by the [[Heritage Foundation]] called Project Esther, which classifies pro-[[Palestinian]] student activism as support for Hamas, subjecting activists to visa revocations, frozen bank accounts, and asset seizures.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:01:44) [[Nicholas J. Fuentes]] stated that the war with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], the architect of the Axis of Resistance including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(00:57:05) The [[Heritage Foundation]] created an initiative titled Project Esther, which argued that students participating in pro-[[Palestinian]] protests are supporting Hamas and are thus subject to revocation of visas, frozen bank accounts, asset seizures, and the denial of constitutional rights.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:01:49) The [[United States]] assassinated [[Qasem Soleimani]] in January 2020, [[who]] [[Nicholas J. Fuentes]] described as the architect of the axis of resistance, including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:56:50) [[Nicholas J. Fuentes]] described how [[Israel]] has systematically dismantled [[Iran]]'s proxy network since [[October 7th Attack|October 7th]], including confronting Hamas in [[Gaza Strip|Gaza]], compelling [[Hezbollah]] to surrender in [[Lebanon]], and collapsing the [[Bashar al-Assad|Assad]] regime in [[Syria]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:01:55) [[Nicholas J. Fuentes]] described the [[Gaza Strip|Gaza]] ceasefire in September 2025 as meaningless, noting that Hamas has refused to disarm and [[Israel]] wants to lure [[Palestinian]] refugees into a zone they control and then kill them.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:57:08) [[Nicholas J. Fuentes]] stated that Project Esther, an initiative from the [[Heritage Foundation]], designates pro-[[Palestinian]] students as supporters of Hamas, subjecting them to visa revocations, frozen bank accounts, asset seizures, and denial of constitutional rights.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:37) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he described as the architect of the "axis of resistance" (Hamas, [[Hezbollah]], the [[Houthis]]).
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(00:56:57) [[Nicholas J. Fuentes]] stated that Project Esther classifies pro-[[Palestinian]] students as supporting Hamas, a foreign terrorist [[organization]], subjecting them to visa revocation, frozen bank accounts, and asset seizures.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:22) [[Nicholas J. Fuentes]] stated that the [[United States]] and [[Iran]] are in a "shadow war" that culminated in the January 2020 assassination of [[Qasem Soleimani]], whom he described as the architect of the axis of resistance including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(00:57:40) [[Nicholas J. Fuentes]] reported that the Canary Mission is part of a [[Heritage Foundation]] initiative called "Project Esther," which labels pro-[[Palestinian]] student activism as support for Hamas, leading to visa revocations and asset seizures.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:07:42) [[Nicholas J. Fuentes]] reported that the [[Heritage Foundation]]'s Project Esther labels pro-[[Palestinian]] activism as support for Hamas, leading to visa revocations and asset seizures.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:12:13) [[Nicholas J. Fuentes]] stated that [[Qasem Soleimani]] was the architect of the "axis of resistance" including Hamas, [[Hezbollah]], and the [[Houthis]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(00:57:14) [[Nicholas J. Fuentes]] reported that Project Esther designates pro-[[Palestinian]] students as supporters of Hamas, making them subject to visa revocation, asset seizure, and denial of constitutional rights.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:01:44:81) [[Nicholas J. Fuentes]] stated that the shadow war with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he described as the architect of the axis of resistance including Hamas, [[Hezbollah]], and the [[Houthis]].

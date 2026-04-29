@@ -30,7 +30,7 @@
 (01:11:40) [[Nicholas J. Fuentes]] argued that media organizations like [[ABC News]], Wikipedia, [[Google]], and content moderation teams on [[Facebook]] and [[Twitter]] form an interconnected system run by far-left radicals to smear and deplatform political opponents.
 
 ### AF 2020-06-08 0616
-(40:27:79) According to Wikipedia, at least 200 cities imposed curfews, 27 states and [[Washington D.C.|Washington, D.C.]] activated over 74,000 [[U.S. Department of Defense|National Guard]] personnel, at least 11,000 people were arrested, and riots in [[City of Minneapolis|Minneapolis]] alone caused an estimated $55 million in damage.
+(40:27:79) According to Wikipedia, at least 200 cities imposed curfews, 27 states and [[Washington D.C.|Washington, D.C.]] activated over 74,000 [[U.S. Department of Defense|National Guard]] personnel, at least 11,000 people were arrested, and riots in [[Minneapolis]] alone caused an estimated $55 million in damage.
 
 ### AF 2020-05-21 0610
 (01:07:09) [[Mona Charen]] grew up in a [[Jews|Jewish]] household and is [[known]] for her pro-[[Israel]] views, according to her Wikipedia [[page]].

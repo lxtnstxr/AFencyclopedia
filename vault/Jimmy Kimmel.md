@@ -45,4 +45,4 @@
 (00:16:23) [[Nicholas J. Fuentes]] claimed that media figures like [[Stephen Colbert]] and Jimmy Kimmel, networks like [[MSNBC]] and [[Warner Bros. Discovery|CNN]], and social media companies would mobilize against [[Donald Trump]] if he acted aggressively.
 
 ### AF 2017-10-03 0023
-(00:11:40) Late-night hosts including [[Stephen Colbert]], Jimmy Kimmel, [[Conan O'Brien]], [[Seth Meyers]], and [[Trevor Noah]] advocated for gun control in their monologues after the [[City of Las Vegas|Las Vegas]] shooting.
+(00:11:40) Late-night hosts including [[Stephen Colbert]], Jimmy Kimmel, [[Conan O'Brien]], [[Seth Meyers]], and [[Trevor Noah]] advocated for gun control in their monologues after the [[Las Vegas]] shooting.

@@ -18,7 +18,7 @@
 (00:11:50) [[Kamala Harris]] cited Bob Woodward's reporting to claim [[Mike Pence]] and [[Donald Trump]] knew the severity of COVID-19 in January but told the public to "remain calm" instead of warning them.
 
 ### AF 2018-09-06 0234
-(01:20:20) [[Nicholas J. Fuentes]] dismissed as preposterous an excerpt from Bob Woodward's new book alleging [[Donald Trump|Trump]] laughed at [[City of Charlottesville|Charlottesville]] rally coverage and insulted [[Heather Heyer]].
+(01:20:20) [[Nicholas J. Fuentes]] dismissed as preposterous an excerpt from Bob Woodward's new book alleging [[Donald Trump|Trump]] laughed at [[Charlottesville]] rally coverage and insulted [[Heather Heyer]].
 
 ### AF 2018-09-05 0233
 (00:16:50) Bob Woodward's book alleged that [[James Mattis|Jim Mattis]] and [[James Mattis|John Kelly]] privately disparaged [[Donald Trump]] and worked to circumvent his decisions.

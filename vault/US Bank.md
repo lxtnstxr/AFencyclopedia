@@ -3,7 +3,7 @@
 
 
 ### AF 2022-08-16 1048
-(00:00:00) [[Nicholas J. Fuentes]] stated he has been banned from [[Bank of America]], U.S. Bank, [[Chase Bank]], and the airline [[Delta]] due to his political views and being doxed, and is planning to move from [[City of Chicago|Chicago]] to [[State of Florida|Florida]].
+(00:00:00) [[Nicholas J. Fuentes]] stated he has been banned from [[Bank of America]], U.S. Bank, [[Chase Bank]], and the airline [[Delta]] due to his political views and being doxed, and is planning to move from [[Chicago]] to [[State of Florida|Florida]].
 
 ### AF 2022-08-12 1046
 (01:10:00) [[Nicholas J. Fuentes]] stated he is banned from banking services at [[Bank of America]], U.S. Bank, and [[Chase Bank]], as well as from airlines like [[Delta]] and [[American Airlines]], and from payment processors like [[Peter Thiel|PayPal]] and [[Stripe]].

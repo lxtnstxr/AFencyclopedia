@@ -48,7 +48,7 @@
 (00:46:54) [[Nicholas J. Fuentes]] stated that [[Hunter Biden]] is "way cooler" than Don Jr., criticizing Don Jr. for dating [[Kimberly Guilfoyle]], who is older than [[Donald Trump]]'s wife, and for his association with [[Turning Point USA]].
 
 ### AF 2021-11-03 0906
-(01:18:50) [[Nicholas J. Fuentes]] announced plans to attend and disrupt the [[Turning Point USA]] "AmericaFest" event in [[City of Phoenix|Phoenix]], [[Arizona]] in December, where speakers included Donald Trump Jr. and [[Tucker Carlson]].
+(01:18:50) [[Nicholas J. Fuentes]] announced plans to attend and disrupt the [[Turning Point USA]] "AmericaFest" event in [[Phoenix]], [[Arizona]] in December, where speakers included Donald Trump Jr. and [[Tucker Carlson]].
 
 ### AF 2021-04-22 0797
 (01:59:11) [[Nicholas J. Fuentes]] responded to a critique of [[Donald Trump|Trump]] and Don Jr. for not explicitly talking about their white base, arguing that Don Jr. never fully understood the [[United States|America]] First message, so his actions don't prove no one can.
@@ -96,7 +96,7 @@
 (00:28:08) [[Nicholas J. Fuentes]] cited Donald Trump Jr. and [[Ivanka Trump]] attacking [[Joe Biden]] for his past socially conservative positions on same-sex marriage and women working as evidence that the [[Republican Party]] was becoming liberal.
 
 ### AF 2020-05-21 0610
-(01:21:28) [[Mona Charen]]'s article in [[The Bulwark]] described [[Nicholas J. Fuentes]] as a [[United States Holocaust Memorial Museum|Holocaust]]-denying figure [[who]] marched at the 2017 Unite the Right rally in [[City of Charlottesville|Charlottesville]] and whose group heckled speakers like [[Ben Shapiro]], [[Dan Crenshaw]], and Donald Trump Jr..
+(01:21:28) [[Mona Charen]]'s article in [[The Bulwark]] described [[Nicholas J. Fuentes]] as a [[United States Holocaust Memorial Museum|Holocaust]]-denying figure [[who]] marched at the 2017 Unite the Right rally in [[Charlottesville]] and whose group heckled speakers like [[Ben Shapiro]], [[Dan Crenshaw]], and Donald Trump Jr..
 
 ### AF 2020-05-13 0604
 (01:18:20) [[Nicholas J. Fuentes]] stated that the "[[Groyper]]" meme and associated movement gained national reach through events dubbed "[[Groyper]] Wars," which involved confronting figures like Donald Trump Jr..
@@ -177,4 +177,4 @@
 (01:44:60) [[Nicholas J. Fuentes]] speculated that the divorce between Donald Trump Jr. and [[Vanessa Trump]] likely included a non-disclosure agreement, minimizing its potential political impact on [[Donald Trump]].
 
 ### AF 2018-01-03 0078
-(00:54:580) Donald Trump Jr. and many figures within the [[Republican Party]] establishment publicly criticized [[Steven Crowder|Steve Bannon]] following the release of the controversial excerpts.
+(00:54:580) Donald Trump Jr. and many figures within the [[Republican Party]] establishment publicly criticized [[Steve Bannon]] following the release of the controversial excerpts.

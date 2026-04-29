@@ -7,7 +7,7 @@
 (48:30:88) [[Nicholas J. Fuentes]] noted instances of violence by [[Israel|Israeli]] counter-protesters at UCLA and harassment by an [[Israel|Israeli]] professor, which did not receive condemnation from the [[White House]] or lead to expulsions.
 
 ### AF 2024-05-02 1327
-(00:35:20) [[Nicholas J. Fuentes]] reported that pro-[[Gaza Strip|Palestine]] encampments and protests had spread from [[Columbia|Columbia University]] to campuses across the [[United States]], including UCLA, where police arrested over 100 people.
+(00:35:20) [[Nicholas J. Fuentes]] reported that pro-[[Palestine]] encampments and protests had spread from [[Columbia|Columbia University]] to campuses across the [[United States]], including UCLA, where police arrested over 100 people.
 
 ### AF 2024-04-01 1312
 (01:12:46) [[Nicholas J. Fuentes]] claimed his followers confronted [[Donald Trump Jr.]] at a [[Turning Point USA]] event at UCLA, asking about support for mass migration and the presence of gay speakers.
@@ -58,7 +58,7 @@
 (00:09:44) [[Charlie Kirk]] and [[Donald Trump Jr.]] are scheduled to speak at UCLA on Sunday, followed by [[Charlie Kirk]] at the [[University of Florida]] on Tuesday and at [[North Carolina State University]] with [[Lara Trump]] on Wednesday.
 
 ### AF 2019-11-07 0494
-(00:22:58) [[Donald Trump Jr.]]'s appearance at a [[Turning Point USA]] event at UCLA will involve heightened security similar to airport screenings due to his status as [[Donald Trump|the president's]] son.
+(00:22:58) [[Donald Trump Jr.]]'s appearance at a [[Turning Point USA]] event at UCLA will involve heightened security similar to airport screenings due to his status as [[the president's]] son.
 
 ### AF 2019-11-06 0493
 (18:24:85) [[Charlie Kirk]] and [[Donald Trump Jr.]] were scheduled for an event at UCLA on Sunday.

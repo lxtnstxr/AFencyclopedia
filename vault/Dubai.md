@@ -17,3 +17,6 @@
 
 ### AF 2020-01-07 0520
 (00:03:54) [[Iran]] stated it would not proceed with further attacks if the [[United States]] did not retaliate for the missile strikes, but threatened to strike [[Haifa]], [[Israel]] and Dubai, [[United Arab Emirates]] if the [[United States]] responded.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:14:23) [[Iran]] was bombing Dubai’s airports, hotels, and shopping malls, threatening the long-term viability of the [[United Arab Emirates|UAE]] and [[Saudi Arabia]] as states.

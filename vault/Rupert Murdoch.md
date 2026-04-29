@@ -35,7 +35,7 @@
 (01:19:59:620) Following [[Donald Trump]]'s 2016 victory, the credibility of the [[Republican Party|GOP]] establishment, [[National Review]], and [[Fox News]] was "in shambles," as the public chose [[Donald Trump]] over [[Fox News]] despite Rupert Murdoch's attempts to stop him.
 
 ### AF 2024-10-23 1411
-(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], [[Peter Thiel]], [[Alex Karp]], [[Thomas Klingenstein]], [[Alex Soros]], Rupert Murdoch, [[George Soros]], [[Sheldon Adelson|Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
+(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], [[Peter Thiel]], [[Alex Karp]], [[Thomas Klingenstein]], [[Alex Soros]], Rupert Murdoch, [[George Soros]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
 
 ### AF 2024-10-23 1411
 (01:26:19:970) [[Alex Soros]] funds the [[Open Society Foundations]], which supports "open borders," [[BLM]] prosecutors, and [[Compact Magazine]], while Rupert Murdoch supports [[News Corp]], [[Fox News]], and [[Benjamin Netanyahu|Bibi Netanyahu]]'s prime minister campaign.
@@ -68,10 +68,10 @@
 (59:28:48) [[Nicholas J. Fuentes]] stated that Rupert Murdoch allowed [[Benjamin Netanyahu|Netanyahu]] to stay at his condo in [[London]] and runs [[Fox News]], which was pro-[[Donald Trump|Trump]], then anti-[[Donald Trump|Trump]], then pro-[[Donald Trump|Trump]] again.
 
 ### AF 2024-09-02 1381
-(00:17:51) [[Nicholas J. Fuentes]] listed [[Sheldon Adelson]], [[William Ackman|Bill Ackman]], [[Sheldon Adelson|Miriam Adelson]], Jacob Helberg, [[American Israel Public Affairs Committee|AIPAC]], [[Ben Shapiro]], and Rupert Murdoch as examples of individuals and organizations working within this network.
+(00:17:51) [[Nicholas J. Fuentes]] listed [[Sheldon Adelson]], [[William Ackman|Bill Ackman]], [[Miriam Adelson]], Jacob Helberg, [[American Israel Public Affairs Committee|AIPAC]], [[Ben Shapiro]], and Rupert Murdoch as examples of individuals and organizations working within this network.
 
 ### AF 2024-06-25 1345
-(48:58:96) [[Fox News]], owned by [[Fox News|News Corp]] which is controlled by [[Lacklin]] and Rupert Murdoch, personal friends of [[Benjamin Netanyahu|Bibi]], does not regularly cover the influence of donors like [[Jacob Helberg]], [[David Sacks]], [[William Ackman|Bill Ackman]], the [[American Israel Public Affairs Committee|AIPAC]], or [[Sheldon Adelson|Miriam Adelson]].
+(48:58:96) [[Fox News]], owned by [[Fox News|News Corp]] which is controlled by [[Lacklin]] and Rupert Murdoch, personal friends of [[Benjamin Netanyahu|Bibi]], does not regularly cover the influence of donors like [[Jacob Helberg]], [[David Sacks]], [[William Ackman|Bill Ackman]], the [[American Israel Public Affairs Committee|AIPAC]], or [[Miriam Adelson]].
 
 ### AF 2024-05-02 1327
 (00:42:40) [[Nicholas J. Fuentes]] claimed that right-wing media and political institutions in the [[United States]] are controlled by [[Jews]] or Zionists, citing [[Fox News]] (owned by the Murdoch family), [[Breitbart News]] (founded by [[Andrew Breitbart]]), [[Prager University]], and [[The Daily Wire]] (run by [[Ben Shapiro]]).
@@ -98,7 +98,7 @@
 (00:37:03) [[Nicholas J. Fuentes]] speculated that at a minimum, [[Dick Carlson]] used "benign nepotism" by calling his friend Rupert Murdoch to get his son the slot, and at most, [[Tucker Carlson]] was "groomed from birth in an intelligence family to perform a role for the intelligence agencies."
 
 ### AF 2023-04-25 1152
-(01:03:03) [[Nicholas J. Fuentes]] speculated that [[Tucker Carlson]]'s firing probably had "something to do with [[Israel]]," given the connections between Rupert Murdoch, the [[Labor Party|Likud]] party, and [[Tucker Carlson|Carlson]]'s father, forming a "perfect triangle."
+(01:03:03) [[Nicholas J. Fuentes]] speculated that [[Tucker Carlson]]'s firing probably had "something to do with [[Israel]]," given the connections between Rupert Murdoch, the [[Likud]] party, and [[Tucker Carlson|Carlson]]'s father, forming a "perfect triangle."
 
 ### AF 2023-03-29 1137
 (01:11:50) A list of [[United States|American]] [[Jews]] who donated to [[Benjamin Netanyahu|Bibi]]'s campaigns included Rupert Murdoch, [[Sumner Redstone]], [[Sheldon Adelson]], and [[Paul Singer]].
@@ -129,3 +129,24 @@
 
 ### AF 2018-01-04 0079
 (00:08:07) [[Laura Loomer]] listed [[Jews|Jewish]] owners and CEOs of top media companies, including Rupert Murdoch of [[Fox News]], [[Jeff Zucker]] of [[Warner Bros. Discovery|CNN]], [[Brian Roberts]] of [[NBC News|NBC]], [[Murray Rosting]] of [[CBS News|CBS]], [[Bob Iger|Robert Iger]] of [[ABC News|ABC]], [[Arthur Sulzberger Jr.]] of [[The New York Times]], [[Mark Zuckerberg]] of [[Facebook]], and [[Richard Plepler]] of [[Warner Bros. Discovery|HBO]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:11:05) The [[The New York Post|New York Post]], a Rupert Murdoch-owned paper, reported that the only people [[who]] wanted [[JD Vance]] to negotiate with the [[Iran|Iranians]] were the [[Iran|Iranians]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:23:31) If [[JD Vance]] could end the war, [[Nicholas J. Fuentes]] stated that was a good thing, and noted that if [[Miriam Adelson]], Rupert Murdoch, and [[Mark Levin]] were against him, that was also a good thing for [[JD Vance|Vance]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:29:30) [[Nicholas J. Fuentes]] argued that the media supports the war in [[Iran]] because the people [[who]] own the media, such as Rupert Murdoch ([[Fox News|Fox]]) and [[Larry Ellison]] ([[Paramount Global|Paramount]], [[Warner Bros. Discovery|Warner Brothers]], [[Skydance Media|Skydance]], [[TikTok Inc.|TikTok]]), support it.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:34:11:23) [[Nicholas J. Fuentes]] described Rupert Murdoch as a close personal friend of [[Benjamin Netanyahu]], noting that [[Benjamin Netanyahu|Netanyahu]] stays in Murdoch's London condo and that Murdoch donated to [[Benjamin Netanyahu|Netanyahu]]'s re-election campaign.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:34:41:31) [[Nicholas J. Fuentes]] claimed that the Network Contagion Research Institute report is boosted by [[The New York Post]], which is owned by the pro-[[Israel]] Rupert Murdoch.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:35:04:28) [[Nicholas J. Fuentes]] noted that [[Piers Morgan]] started his career at a Rupert Murdoch-owned publication and that *[[Piers Morgan]] Uncensored* debuted on a Murdoch-owned channel, and that Murdoch is an investor in the now-independent show.Here is the chronological knowledge log derived from the provided transcript.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:52:24) [[Nicholas J. Fuentes]] appeared on a show owned by Rupert Murdoch with [[Piers Morgan]], [[who]] attempted to attack him on the topics of [[Adolf Hitler]], [[the Holocaust]], and racism.

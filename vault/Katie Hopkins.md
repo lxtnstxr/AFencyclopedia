@@ -9,4 +9,4 @@
 (00:31:27) A caller reported that Katie Hopkins was arrested by [[South Africa|South African]] police for spreading racism.
 
 ### AF 2017-09-21 0015
-(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[City of Berkeley|Berkeley]] event that included [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], Katie Hopkins, [[Lucian Wintrich]], [[Mike Cernovich]], and [[Jordan Peterson]].
+(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[Berkeley]] event that included [[Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], Katie Hopkins, [[Lucian Wintrich]], [[Mike Cernovich]], and [[Jordan Peterson]].

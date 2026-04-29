@@ -2,14 +2,14 @@
 #country
 
 ### AF 2025-09-09 1563
-(08:08:00) [[France]], the United Kingdom, [[Canada]], [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Gaza Strip|Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
+(08:08:00) [[France]], the United Kingdom, [[Canada]], [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
 ### AF 2025-09-25 1571
 (00:47:57) At the [[United Nations]] General Assembly earlier in the week, [[France]] led a wave of recognition of [[Palestinian]] statehood, joined by [[Canada]], the United Kingdom, [[Australia]], and other countries.
 (01:06:18:29) The United Kingdom, [[Canada]], [[Portugal]], [[Australia]], and other countries followed [[France]] in recognizing [[Palestinian]] statehood.
 (01:06:54:67) These recognitions by major powers like [[France]] and the United Kingdom defy both [[Israel]] and the [[United States]].
 (01:07:06:79) At the [[United Nations]] last week, ten countries, including [[France]], the United Kingdom, [[Canada]], and [[Australia]], followed through and recognized a [[Palestinian]] state.
 ### AF 2025-09-26 1572
-(00:04:49) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu]]'s speech directly addressed efforts by [[France]], the United Kingdom, [[Canada]], and other countries to recognize [[Gaza Strip|Palestine]].
+(00:04:49) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu]]'s speech directly addressed efforts by [[France]], the United Kingdom, [[Canada]], and other countries to recognize [[Palestine]].
 (00:33:34) [[Nicholas J. Fuentes]] stated that the E3 countries—[[Germany]], [[France]], and the United Kingdom—convened with the [[International Atomic Energy Agency]] and determined [[Iran]] was not in compliance with the [[Joint Comprehensive Plan of Action]].
 ### AF 2025-09-30 1574
 (11:09:53) A massive military buildup was occurring in the [[Middle East]], with [[U.S. Department of Defense|U.S. military]] aircraft moving into [[Qatar]] and [[Al Udeid Air Base]], the United Kingdom deploying assets, and a [[U.S.]] carrier moving into the [[Mediterranean Sea]].
@@ -36,19 +36,19 @@
 (01:04:18) The common situation in the United Kingdom involves adult males from [[African continent|Africa]] or the [[Middle East]] preying on native populations, leading to rapes, muggings, murders, and abuse of children.
 
 ### AF 2025-08-26 1557
-(01:12:20) The situation in the [[United States]] is compared to [[Europe]], with [[Afghanistan|Afghans]], [[Pakistan|Pakistanis]], and Muslims in the United Kingdom; Venezuelans and Salvadorians in [[New York]], [[State of Texas|Texas]], or [[State of California|California]]; and [[India|Indians]] and [[China|Chinese]] in [[City of Seattle|Seattle]] and [[City of Portland|Portland]].
+(01:12:20) The situation in the [[United States]] is compared to [[Europe]], with [[Afghanistan|Afghans]], [[Pakistan|Pakistanis]], and Muslims in the United Kingdom; Venezuelans and Salvadorians in [[New York]], [[State of Texas|Texas]], or [[State of California|California]]; and [[India|Indians]] and [[China|Chinese]] in [[Seattle]] and [[Portland]].
 
 ### AF 2025-08-20 1552
-(00:45:40) [[Volodymyr Zelenskyy]] traveled to [[Washington D.C.]] accompanied by the heads of state of major [[Europe|European]] [[NATO]] allies, including [[Donald Trump|the president]] of [[France]], the prime minister of the United Kingdom, the prime minister of [[Italian Republic|Italy]], [[Donald Trump|the president]] of [[Finland]], the head of the [[European Commission]], and the general secretary of [[NATO]].
+(00:45:40) [[Volodymyr Zelenskyy]] traveled to [[Washington D.C.]] accompanied by the heads of state of major [[Europe|European]] [[NATO]] allies, including [[the president]] of [[France]], the prime minister of the United Kingdom, the prime minister of [[Italian Republic|Italy]], [[the president]] of [[Finland]], the head of the [[European Commission]], and the general secretary of [[NATO]].
 
 ### AF 2025-08-12 1549
 (01:43:56) In 2015, [[Barack Obama]] brokered the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] with [[Iran]], involving [[France]], the United Kingdom, [[Germany]], [[Russian Federation|Russia]], and [[China]], which included [[International Atomic Energy Agency|IAEA]] monitoring and snapback sanctions.
 
 ### AF 2025-08-05 1545
-(02:46:66) [[France]], the United Kingdom, and [[Dominion of Canada|Canada]] moved to recognize [[Gaza Strip|Palestine]] at the next month's [[United Nations]] General Assembly, accelerating the timeline for a two-state solution.
+(02:46:66) [[France]], the United Kingdom, and [[Dominion of Canada|Canada]] moved to recognize [[Palestine]] at the next month's [[United Nations]] General Assembly, accelerating the timeline for a two-state solution.
 
 ### AF 2025-08-05 1545
-(46:57:37) [[France]], the United Kingdom, and [[Dominion of Canada|Canada]]'s move to recognize [[Gaza Strip|Palestine]] was meant to impose a diplomatic red line and heap consequences on [[Israel]] if it followed through with annexation plans.
+(46:57:37) [[France]], the United Kingdom, and [[Dominion of Canada|Canada]]'s move to recognize [[Palestine]] was meant to impose a diplomatic red line and heap consequences on [[Israel]] if it followed through with annexation plans.
 
 ### AF 2025-08-05 1545
 (47:54:37) [[Germany]], [[France]], and the United Kingdom gave [[Iran]] until August 31st to make a nuclear deal or face renewed sanctions, with the original [[Joint Comprehensive Plan of Action|JCPOA]] deadline set for October 1st.
@@ -63,7 +63,7 @@
 (00:30:40) At the September meeting of the [[United Nations]] General Assembly, the United Kingdom pledged to recognize [[Palestinian]] statehood, following a similar announcement by [[France]] the previous week.
 
 ### AF 2025-07-29 1541
-(01:01:00) [[Keir Starmer]] announced that the United Kingdom would move to recognize the state of [[Gaza Strip|Palestine]] in September at the [[United Nations]] General Assembly, a decision intended to pressure [[Israel]] to end the war in [[Gaza Strip|Gaza]] and commit to a two-state solution.
+(01:01:00) [[Keir Starmer]] announced that the United Kingdom would move to recognize the state of [[Palestine]] in September at the [[United Nations]] General Assembly, a decision intended to pressure [[Israel]] to end the war in [[Gaza Strip|Gaza]] and commit to a two-state solution.
 
 ### AF 2025-07-29 1541
 (01:18:40) [[Keir Starmer]] stated the United Kingdom would recognize a [[Palestinian]] state in September unless [[Israel]] took substantive steps to end the situation in [[Gaza Strip|Gaza]], agreed to a ceasefire, committed to a long-term sustainable peace delivering a two-state solution, and allowed the [[United Nations]] to restart aid supplies.
@@ -93,7 +93,7 @@
 (06:21:20) The United Kingdom, [[France]], and [[Germany]] have given [[Iran]] a 45-day deadline to take steps toward compliance with the nuclear deal, such as readmitting [[International Atomic Energy Agency]] inspectors or giving up enriched uranium stockpiles.
 
 ### AF 2024-10-22 1410
-(49:40:11) [[Iran]]'s population exceeds that of [[Germany]], the United Kingdom, and [[Government of France|France]].
+(49:40:11) [[Iran]]'s population exceeds that of [[Germany]], the United Kingdom, and [[France]].
 
 ### AF 2024-10-02 1398
 (05:49:31) [[Andrew Tate]], citing his upbringing in [[Luton]], England, stated that [[Muslims]] there are loyal to [[Islam]] above their loyalty to England or the government.
@@ -111,7 +111,7 @@
 (00:15:09) [[Nicholas J. Fuentes]] noted that the [[Reform Party]] in the United Kingdom, an anti-immigration alternative to the [[Conservative Party]], had leaders publicly stating "diversity is our strength."
 
 ### AF 2024-09-17 1390
-(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[Government of France|France]], and the United Kingdom. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[Donald Trump|the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Sheldon Adelson|Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Gaza Strip|Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[Donald Trump|the president]] of [[Israel]] after pro-[[Gaza Strip|Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
+(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[France]], and the United Kingdom. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[the president]] of [[Israel]] after pro-[[Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
 
 ### AF 2024-09-17 1390
 (01:57:01) [[Nicholas J. Fuentes]] stated that while other white ethnicities like [[Italian Republic|Italians]], [[Scottish]], and English people can be good merchants, [[Jews]] possess a special, inborn talent for commerce.
@@ -210,34 +210,34 @@
 (02:17:50) [[Reactionary Reader]] thanked [[Nicholas J. Fuentes]] for being one of the only reasonable and accurate voices on the UK riots, as many in the dissident right lose their ability to think objectively due to passion.
 
 ### AF 2024-08-02 1366
-(32:03:74) In April, [[Iran]] retaliated for the consulate bombing by launching over 300 drones and ballistic missiles at [[Israel]], almost all of which were intercepted by the [[United States]], [[Government of France|France]], [[Jim Jordan|Jordan]], and the United Kingdom.
+(32:03:74) In April, [[Iran]] retaliated for the consulate bombing by launching over 300 drones and ballistic missiles at [[Israel]], almost all of which were intercepted by the [[United States]], [[France]], [[Jim Jordan|Jordan]], and the United Kingdom.
 
 ### AF 2024-07-26 1361
 (46:24:25) [[Israel]], with assistance from the [[United States]] and UK, carried out a major airstrike against a port in [[Yemen]], signaling an escalation of fighting against the [[Houthis]] rather than de-escalation.
 
 ### AF 2024-07-11 1353
-(00:10:25) [[Nicholas J. Fuentes]] stated that coverage of elections in [[Government of France|France]] and the United Kingdom was shelved in favor of prioritizing [[United States|American]] politics on his show.
+(00:10:25) [[Nicholas J. Fuentes]] stated that coverage of elections in [[France]] and the United Kingdom was shelved in favor of prioritizing [[United States|American]] politics on his show.
 
 ### AF 2024-07-11 1353
-(01:18:00) [[Nicholas J. Fuentes]] cited [[Giorgia Meloni]] in [[Italian Republic|Italy]], [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]], [[Marine Le Pen]] in [[Government of France|France]], and [[Nigel Farage]] in the United Kingdom as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
+(01:18:00) [[Nicholas J. Fuentes]] cited [[Giorgia Meloni]] in [[Italian Republic|Italy]], [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]], [[Marine Le Pen]] in [[France]], and [[Nigel Farage]] in the United Kingdom as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
 
 ### AF 2024-07-10 1352
-(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the United Kingdom, [[Government of France|France]], [[Hungary]], the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], [[Brazil]], [[Argentina]], and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
+(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the United Kingdom, [[France]], [[Hungary]], the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], [[Brazil]], [[Argentina]], and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
 
 ### AF 2024-07-10 1352
-(00:04:46) [[Nicholas J. Fuentes]] asserted that in [[Government of France|France]], the United Kingdom, and the [[United States]], center-right and left-wing parties routinely collaborate to prevent far-right parties from gaining power.
+(00:04:46) [[Nicholas J. Fuentes]] asserted that in [[France]], the United Kingdom, and the [[United States]], center-right and left-wing parties routinely collaborate to prevent far-right parties from gaining power.
 
 ### AF 2024-07-05 1349
-(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Sheldon Adelson|Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the United Kingdom, was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
+(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the United Kingdom, was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
 
 ### AF 2024-05-21 1332
 (00:41:21) [[Nicholas J. Fuentes]] described a transnational network of [[Jews]] operating in countries including [[Argentina]], [[Hungary]], the United Kingdom, [[Spain]], [[Brazil]], and [[Russia]], working to benefit [[Israel]] and international [[Jews|Jewry]] at the expense of their host nations.
 
 ### AF 2024-04-18 1321
-(00:35:00) The [[Iran|Iranian]] strike on [[Israel]] on April 13th involved over 300 drones and missiles launched from [[Iran]], [[Yemen]], [[Iraq]], and [[Syria]], with 94% intercepted by a coalition including the [[United States]], [[Government of France|France]], the United Kingdom, [[Jim Jordan|Jordan]], and [[Israel]].
+(00:35:00) The [[Iran|Iranian]] strike on [[Israel]] on April 13th involved over 300 drones and missiles launched from [[Iran]], [[Yemen]], [[Iraq]], and [[Syria]], with 94% intercepted by a coalition including the [[United States]], [[France]], the United Kingdom, [[Jim Jordan|Jordan]], and [[Israel]].
 
 ### AF 2024-04-15 1319
-(00:02:39) The [[United States]], the United Kingdom, [[Government of France|France]], and [[Jim Jordan|Jordan]] shot down nearly all of the missiles and drones launched by [[Iran]] and its proxies.
+(00:02:39) The [[United States]], the United Kingdom, [[France]], and [[Jim Jordan|Jordan]] shot down nearly all of the missiles and drones launched by [[Iran]] and its proxies.
 
 ### AF 2024-04-12 1318
 (40:43:930) A full-scale regional conflict originating from the [[Gaza Strip]] could involve [[Israel]], the [[United States]], and the United Kingdom against [[Iran]] and its proxy forces in [[Lebanon]], [[Iraq]], [[Syria]], and [[Yemen]], potentially drawing in [[Saudi Arabia]], the [[Gulf states]], and [[Turkey]].
@@ -246,16 +246,16 @@
 (29:16:280) The return of [[Jews]] to the United Kingdom with [[William of Orange]] from [[Amsterdam]], the previous global hegemon, influenced control over the British government.
 
 ### AF 2025-12-06 1609
-(03:39:54) The [[United States]] is insulated from major great powers like Britain, [[Germany]], [[Government of France|France]], [[Russia]], and [[China]] by the Atlantic and Pacific oceans.
+(03:39:54) The [[United States]] is insulated from major great powers like Britain, [[Germany]], [[France]], [[Russia]], and [[China]] by the Atlantic and Pacific oceans.
 
 ### AF 2025-12-05 1608
-(00:59:53) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[Government of France|France]], the United Kingdom, the [[United States]], and the [[Europe|European Union]] to restrict [[Iran]]'s uranium enrichment.
+(00:59:53) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]] to restrict [[Iran]]'s uranium enrichment.
 
 ### AF 2025-12-05 1608
-(02:08:10) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[Government of France|France]], the United Kingdom, the [[United States]], and the [[Europe|European Union]] to restrict [[Iran]]'s uranium enrichment.
+(02:08:10) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]] to restrict [[Iran]]'s uranium enrichment.
 
 ### AF 2025-12-05 1608
-(03:16:28) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[Government of France|France]], the United Kingdom, the [[United States]], and the [[Europe|European Union]] to restrict [[Iran]]'s uranium enrichment.
+(03:16:28) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]] to restrict [[Iran]]'s uranium enrichment.
 
 ### AF 2024-03-26 1309
 (01:17:280) Social media speculation following the [[Moscow]] attack suggested potential involvement by [[Israel|Israeli]] intelligence, given the historical relationship between [[Israel]] and [[Islamic State of Iraq and Syria|ISIS]], or by [[United States|American]] or British intelligence.
@@ -267,25 +267,25 @@
 (00:59:53) The [[United States]], joined by the United Kingdom and [[Australia]], launched missile and airstrikes against [[Houthis|Houthi]] targets in [[Yemen]] on Thursday, Friday, and again on Tuesday.
 
 ### AF 2023-12-23 1266
-(00:41:16) The [[United States]], the United Kingdom, and [[Government of France|France]] were exploring ways to convince [[Hezbollah]] to pull back from the border to prevent a full-blown conflict.
+(00:41:16) The [[United States]], the United Kingdom, and [[France]] were exploring ways to convince [[Hezbollah]] to pull back from the border to prevent a full-blown conflict.
 
 ### AF 2023-12-09 1260
-(00:08:51) [[Nicholas J. Fuentes]] stated that countries like [[Government of France|France]], the United Kingdom, and [[Germany]] had banned pro-[[Gaza Strip|Palestine]] protests and threatened to revoke visas of pro-[[Gaza Strip|Palestine]] activists.
+(00:08:51) [[Nicholas J. Fuentes]] stated that countries like [[France]], the United Kingdom, and [[Germany]] had banned pro-[[Palestine]] protests and threatened to revoke visas of pro-[[Palestine]] activists.
 
 ### AF 2023-11-09 1246
 (00:57:46) [[Vivek Ramaswamy]] proposed increasing [[United States|U.S]]. naval capacity by at least 20% over the next several years to meet AUKUS agreement standards with [[Australia]] and the United Kingdom.
 
 ### AF 2023-10-23 1240
-(00:13:19) Governments in England and [[Government of France|France]] began deporting individuals for expressing support for [[Hamas]].
+(00:13:19) Governments in England and [[France]] began deporting individuals for expressing support for [[Hamas]].
 
 ### AF 2023-10-23 1240
-(00:16:49) [[Rishi Sunak]]'s government in the United Kingdom and [[Emmanuel Macron]]'s government in [[Government of France|France]] announced plans to deport [[Islam|Muslims]] who support [[Hamas]].
+(00:16:49) [[Rishi Sunak]]'s government in the United Kingdom and [[Emmanuel Macron]]'s government in [[France]] announced plans to deport [[Islam|Muslims]] who support [[Hamas]].
 
 ### AF 2023-10-14 1235
-(00:04:00) [[Nicholas J. Fuentes]] reported that [[Government of France|France]] had banned pro-[[Gaza Strip|Palestine]] demonstrations and the United Kingdom was considering deporting individuals who praised [[Hamas]].
+(00:04:00) [[Nicholas J. Fuentes]] reported that [[France]] had banned pro-[[Palestine]] demonstrations and the United Kingdom was considering deporting individuals who praised [[Hamas]].
 
 ### AF 2023-10-14 1235
-(01:03:08) [[Nicholas J. Fuentes]] reported that [[Government of France|France]] banned all pro-[[Gaza Strip|Palestine]] protests and the United Kingdom planned to deport foreign students and workers who praised [[Hamas]] or committed "anti-Semitic acts."
+(01:03:08) [[Nicholas J. Fuentes]] reported that [[France]] banned all pro-[[Palestine]] protests and the United Kingdom planned to deport foreign students and workers who praised [[Hamas]] or committed "anti-Semitic acts."
 
 ### AF 2023-10-14 1235
 (01:09:50) [[Nicholas J. Fuentes]] stated that media coverage became uniformly pro-[[Israel]] with no dissent tolerated, and that supporting [[Hamas]] could result in deportation from the United Kingdom or termination from [[MSNBC]], whereas debate over "white genocide" was allowed.
@@ -297,10 +297,10 @@
 (00:26:54) The [[United States]] lit up the [[Joe Biden|White House]] in the colors of the [[Israel|Israeli]] flag, as did [[Germany]] with the Brandenburg Gate and the United Kingdom at Downing Street.
 
 ### AF 2023-10-05 1230
-(00:18:10) [[Nicholas J. Fuentes]] compared [[Alternative for Germany]] to other right-wing [[Europe|European]] parties like the [[National Rally|National Front]] in [[Government of France|France]], [[UK Independence Party|UKIP]] in the United Kingdom, the [[BNP]], and [[Lega|Lega Nord]] in [[Italian Republic|Italy]].
+(00:18:10) [[Nicholas J. Fuentes]] compared [[Alternative for Germany]] to other right-wing [[Europe|European]] parties like the [[National Rally|National Front]] in [[France]], [[UK Independence Party|UKIP]] in the United Kingdom, the [[BNP]], and [[Lega|Lega Nord]] in [[Italian Republic|Italy]].
 
 ### AF 2023-10-05 1230
-(00:26:49) [[Nicholas J. Fuentes]] stated that Western democracies are fine with center-right leaders like [[Emmanuel Macron]] in [[Government of France|France]], [[Rishi Sunak]] in the United Kingdom, or [[Mitt Romney]] and [[John McCain]] in the [[United States]], but treat specific right-wing, anti-immigration candidates as a threat to democracy.
+(00:26:49) [[Nicholas J. Fuentes]] stated that Western democracies are fine with center-right leaders like [[Emmanuel Macron]] in [[France]], [[Rishi Sunak]] in the United Kingdom, or [[Mitt Romney]] and [[John McCain]] in the [[United States]], but treat specific right-wing, anti-immigration candidates as a threat to democracy.
 
 ### AF 2023-09-21 1221
 (01:00:24:48) [[Nicholas J. Fuentes]] stated that political dissidents in [[Russia]] are treated as heroes and given platforms in the [[Kanye West|West]], while dissidents in the United Kingdom or [[United States]] face government-backed reputational and financial attacks.
@@ -321,16 +321,16 @@
 (00:08:32) [[Nicholas J. Fuentes]] criticized [[Rishi Sunak]], the Prime Minister of the United Kingdom, as a "three feet tall [[India|Indian]] guy."
 
 ### AF 2023-08-08 1198
-(01:02:36) [[Nicholas J. Fuentes]] raised the possibility that white [[United States|Americans]] might eventually have to "go back to [[Europe]]," but noted that [[Europe|European]] homelands like England, [[Government of France|France]], and [[Germany]] are also being "colonized" through immigration.
+(01:02:36) [[Nicholas J. Fuentes]] raised the possibility that white [[United States|Americans]] might eventually have to "go back to [[Europe]]," but noted that [[Europe|European]] homelands like England, [[France]], and [[Germany]] are also being "colonized" through immigration.
 
 ### AF 2023-08-01 1196
-(01:03:30) [[Nicholas J. Fuentes]] claimed that if [[Jews]] have their way, civilization in [[Europe]] will also end, leaving only [[China]] and [[Russia]] as civilized states in a future where the United Kingdom, [[Government of France|France]], [[United States|America]], [[Dominion of Canada|Canada]], and [[Australia]] become minority-white failed states.
+(01:03:30) [[Nicholas J. Fuentes]] claimed that if [[Jews]] have their way, civilization in [[Europe]] will also end, leaving only [[China]] and [[Russia]] as civilized states in a future where the United Kingdom, [[France]], [[United States|America]], [[Dominion of Canada|Canada]], and [[Australia]] become minority-white failed states.
 
 ### AF 2023-07-22 1190
-(05:04:76) The [[United States]] approved sending cluster munitions to [[Ukraine]] for use in its war against [[Russia]], a move criticized by over 100 countries and some [[North Atlantic Treaty Organization|NATO]] allies like [[Government of France|France]] and the United Kingdom. (05:45:58)
+(05:04:76) The [[United States]] approved sending cluster munitions to [[Ukraine]] for use in its war against [[Russia]], a move criticized by over 100 countries and some [[North Atlantic Treaty Organization|NATO]] allies like [[France]] and the United Kingdom. (05:45:58)
 
 ### AF 2023-07-22 1190
-(07:13:72) [[Government of France|France]] and the United Kingdom voiced reservations about the [[United States]]' decision to send cluster munitions to [[Ukraine]]. (07:20:12)
+(07:13:72) [[France]] and the United Kingdom voiced reservations about the [[United States]]' decision to send cluster munitions to [[Ukraine]]. (07:20:12)
 
 ### AF 2023-07-22 1190
 (35:20:34) The United Kingdom, [[Dominion of Canada|Canada]], and [[Spain]] criticized the [[United States]]' decision to send cluster munitions to [[Ukraine]]. (35:26:00)
@@ -351,7 +351,7 @@
 (01:54:45) [[Nicholas J. Fuentes]] stated that the United Kingdom lost its status as the world's reserve currency in 1947 due to its obligations in [[Greece]] and [[Turkey]].
 
 ### AF 2023-05-26 1167
-(12:15:64) [[Nicholas J. Fuentes]] observed that historically, countries like [[Spain]], [[Government of France|France]], England, [[Russia]], [[Iran]], [[Arab Republic of Egypt|Egypt]], and [[Nicaragua]] with significant [[Jewish]] minorities eventually turned against them for similar reasons.
+(12:15:64) [[Nicholas J. Fuentes]] observed that historically, countries like [[Spain]], [[France]], England, [[Russia]], [[Iran]], [[Arab Republic of Egypt|Egypt]], and [[Nicaragua]] with significant [[Jewish]] minorities eventually turned against them for similar reasons.
 
 ### AF 2023-04-20 1150
 (00:01:29) [[Nicholas J. Fuentes]] stated that [[TikTok Inc.|TikTok]] would begin censoring content that denies climate change, a move he characterized as an attempt to appease Western governments and avoid bans in the [[United States]], the United Kingdom, and [[Europe]].
@@ -360,7 +360,7 @@
 (00:09:35) [[Chuck Johnson|Charles Johnson]] promotes a theory that the [[Joe Biden|Biden]] regime represents a faction of the old [[United States|American]] ruling class in league with the "realm," an alliance of [[Australia]], the United Kingdom, and the [[United States]].
 
 ### AF 2023-03-11 1129
-(01:37:50) [[Nicholas J. Fuentes]] argued that [[World War II]] was ultimately won by [[Jewish]] interests, not the [[United States]], England, [[Government of France|France]], or [[Russia]], fundamentally reshaping Western society.
+(01:37:50) [[Nicholas J. Fuentes]] argued that [[World War II]] was ultimately won by [[Jewish]] interests, not the [[United States]], England, [[France]], or [[Russia]], fundamentally reshaping Western society.
 
 ### AF 2023-02-07 1117
 (57:57:34) [[Nicholas J. Fuentes]] advocated that the [[United States]] should be nicer to [[China]], [[Iran]], and [[Russia]], and meaner to [[Israel]], [[Germany]], and the United Kingdom.
@@ -423,7 +423,7 @@
 (01:17:92) Major protests occurred in [[Prague]], and citizens in [[Italian Republic|Italy]] and the United Kingdom refused to pay their energy bills.
 
 ### AF 2022-09-10 1058
-(22:21:04) [[Government of France|France]] and [[Germany]] have never been as hawkish towards [[Russia]] as the [[United States]] or United Kingdom due to their mutual economic interdependence on energy.
+(22:21:04) [[France]] and [[Germany]] have never been as hawkish towards [[Russia]] as the [[United States]] or United Kingdom due to their mutual economic interdependence on energy.
 
 ### AF 2022-09-10 1058
 (47:03:22) The sanctions and energy war were seen as posing a large risk to the United Kingdom and the [[United States]] in addition to [[Europe]].
@@ -480,10 +480,10 @@
 (00:07:12) [[The Guardian]], described as a mouthpiece for the United Kingdom government, had published an article acknowledging [[Vladimir Putin|Putin]] was winning the war in [[Ukraine]].
 
 ### AF 2022-04-21 0982
-(00:59:48) [[Nicholas J. Fuentes]] contended that the combined power of [[Russia]] and [[China]] now exceeds that of the [[United States]] alone, forcing the [[United States|US]] to rely on allies like [[Germany]], [[Government of France|France]], the United Kingdom, [[State of Japan|Japan]], and [[South Korea]] to maintain a balance of power.
+(00:59:48) [[Nicholas J. Fuentes]] contended that the combined power of [[Russia]] and [[China]] now exceeds that of the [[United States]] alone, forcing the [[United States|US]] to rely on allies like [[Germany]], [[France]], the United Kingdom, [[State of Japan|Japan]], and [[South Korea]] to maintain a balance of power.
 
 ### AF 2022-04-20 0981
-(01:01:40) [[Nicholas J. Fuentes]] asserted that the combined power of [[Russia]] and [[China]] now exceeds that of the [[United States]] alone, forcing [[Washington D.C.|Washington]] to rely on allies like [[Germany]], [[Government of France|France]], the United Kingdom, [[State of Japan|Japan]], and [[South Korea]] to maintain a balance.
+(01:01:40) [[Nicholas J. Fuentes]] asserted that the combined power of [[Russia]] and [[China]] now exceeds that of the [[United States]] alone, forcing [[Washington D.C.|Washington]] to rely on allies like [[Germany]], [[France]], the United Kingdom, [[State of Japan|Japan]], and [[South Korea]] to maintain a balance.
 
 ### AF 2022-04-12 0976
 (00:48:37) [[Nicholas J. Fuentes]] reported that British Foreign Secretary [[Liz Truss]] stated her government was working to verify the alleged chemical weapons use and would hold [[Vladimir Putin]] and his regime accountable.
@@ -492,7 +492,7 @@
 (01:03:01) [[Nicholas J. Fuentes]] reported that the United Kingdom vetoed a [[United Nations Security Council]] investigation into the alleged [[Bucha massacre]] in [[Ukraine]].
 
 ### AF 2022-04-06 0973
-(00:02:04) [[North Atlantic Treaty Organization|NATO]] countries, including the [[United States]], Britain, [[Government of France|France]], and [[Germany]], were engaged in a full-scale proxy war with [[Russia]] by providing military personnel and equipment to [[Ukraine]].
+(00:02:04) [[North Atlantic Treaty Organization|NATO]] countries, including the [[United States]], Britain, [[France]], and [[Germany]], were engaged in a full-scale proxy war with [[Russia]] by providing military personnel and equipment to [[Ukraine]].
 
 ### AF 2022-04-05 0972
 (00:49:57) [[Dmitry Peskov]] said [[Moscow]] wanted to discuss the [[Bucha]] allegations at a [[United Nations|UN]] Security Council meeting, but the call was stonewalled by the United Kingdom, which was presiding over the body at the [[time]].
@@ -507,19 +507,19 @@
 (00:42:47) [[Nicholas J. Fuentes]] dismissed the claim that [[Russia]] had lost 40,000 troops as ridiculous, arguing that [[Ukraine]] had not won any engagements, controlled no airspace, and had lost territory the size of the United Kingdom.
 
 ### AF 2022-03-21 0962
-(01:03:40:38) [[Volodymyr Zelenskyy|Volodymyr Zelensky]], after his election, signed an agreement bolstering ties with the [[United States]], threatened to re-arm [[Ukraine]] with nuclear weapons, and saw [[United States]] and British military assets operate near disputed [[City of Sevastopol|Crimea]]n and [[Donetsk|Donbass]] territories.
+(01:03:40:38) [[Volodymyr Zelenskyy|Volodymyr Zelensky]], after his election, signed an agreement bolstering ties with the [[United States]], threatened to re-arm [[Ukraine]] with nuclear weapons, and saw [[United States]] and British military assets operate near disputed [[Crimea]]n and [[Donetsk|Donbass]] territories.
 
 ### AF 2022-03-21 0962
 (01:29:51:49) [[Nicholas J. Fuentes]] cited [[Jeffrey Epstein]]'s connections to [[Los Angeles|Hollywood]], financiers, the British government, and [[Israel Defense Forces|Mossad]] as evidence of a network linking media, intelligence agencies, and elite pedophilia conspiracies within the "Iron Triangle" of control.
 
 ### AF 2022-03-08 0954
-(18:04:40) [[Joe Biden]] announced a ban on imports of [[Russian]] oil and fossil fuels, a move coordinated with the United Kingdom and the [[Europe|European Union]] to target the main artery of the [[Russian]] economy.
+(18:04:40) [[Joe Biden]] announced a ban on imports of [[Russian]] oil and fossil fuels, a move coordinated with the United Kingdom and the [[European Union]] to target the main artery of the [[Russian]] economy.
 
 ### AF 2022-03-08 0954
 (01:06:00:40) [[Volodymyr Zelenskyy|Volodymyr Zelensky]] addressed the UK [[House]] of Parliament, echoing [[Winston Churchill]]'s "we will fight them on the beaches" speech, a performance [[Nicholas J. Fuentes]] derided.
 
 ### AF 2022-03-01 0952
-(00:07:44) Along with 27 members of the [[Europe|European Union]], including [[Government of France|France]], [[Germany]], and [[Italian Republic|Italy]], and countries like the United Kingdom, [[Dominion of Canada|Canada]], [[State of Japan|Japan]], [[South Korea]], [[Australia]], [[New Zealand]], and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
+(00:07:44) Along with 27 members of the [[European Union]], including [[France]], [[Germany]], and [[Italian Republic|Italy]], and countries like the United Kingdom, [[Dominion of Canada|Canada]], [[State of Japan|Japan]], [[South Korea]], [[Australia]], [[New Zealand]], and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
 
 ### AF 2022-02-11 0945
 (00:18:14) The [[Atlantic Council]] is funded by the governments of the [[United Arab Emirates]] and the United Kingdom, [[Bank of America]], [[JPMorgan Chase]], [[Pfizer]], the [[United States Department of State]], the [[United States|United States Navy]], the [[United States|United States Army]], and [[North Atlantic Treaty Organization|NATO]].
@@ -534,13 +534,13 @@
 (00:39:38) [[Moderna]] CEO [[Stephanie Bancel]] said that due to declining vaccine efficacy, people who received a third shot may need a fourth injection after winter, with governments like the United Kingdom and [[South Korea]] already ordering fourth doses.
 
 ### AF 2021-12-20 0924
-(00:51:18) The [[Kingdom of the Netherlands|Netherlands]] entered a full lockdown until mid-January, closing all but essential shops and schools, and limiting home visitors, while [[Germany]] imposed a 14-day quarantine on all travelers from the United Kingdom, [[Denmark]], [[Norway]], and [[Government of France|France]].
+(00:51:18) The [[Kingdom of the Netherlands|Netherlands]] entered a full lockdown until mid-January, closing all but essential shops and schools, and limiting home visitors, while [[Germany]] imposed a 14-day quarantine on all travelers from the United Kingdom, [[Denmark]], [[Norway]], and [[France]].
 
 ### AF 2021-12-20 0924
-(00:52:24) [[Austria]] banned entry for unvaccinated travelers, [[Government of France|France]] banned travel from the United Kingdom, [[Ireland]] imposed an 8 p.m. curfew on hospitality venues, and [[Spain]] and [[Italian Republic|Italy]] were meeting to discuss new containment measures.
+(00:52:24) [[Austria]] banned entry for unvaccinated travelers, [[France]] banned travel from the United Kingdom, [[Ireland]] imposed an 8 p.m. curfew on hospitality venues, and [[Spain]] and [[Italian Republic|Italy]] were meeting to discuss new containment measures.
 
 ### AF 2021-12-16 0923
-(02:36:58) [[Nicholas J. Fuentes]] compared the potential utility of [[China]] and [[Russia]] to the [[United States|American]] dissident right to the assistance [[Government of France|France]] provided to the [[United States|American]] revolutionaries against Great Britain.
+(02:36:58) [[Nicholas J. Fuentes]] compared the potential utility of [[China]] and [[Russia]] to the [[United States|American]] dissident right to the assistance [[France]] provided to the [[United States|American]] revolutionaries against Great Britain.
 
 ### AF 2021-12-10 0920
 (00:17:26) Doctors in the United Kingdom stated a third booster shot was the best protection against the Omicron variant, according to a [[BBC]] report.
@@ -747,7 +747,7 @@
 (00:22:52) Other countries with high coronavirus case counts included [[Spain]] (57,786), [[Germany]] (44,000), [[Iran]] (29,400), [[France]] (29,000), [[Switzerland]] (close to 12,000), the United Kingdom (12,000), and [[South Korea]] (9,200).
 
 ### AF 2020-03-26 0573
-(00:29:20) A doctor in the United Kingdom, Neil [[City of St. Louis|Ferguson]], revised his coronavirus forecast to predict dramatically lower death counts after considering that many more mild or asymptomatic cases existed than were being reported.
+(00:29:20) A doctor in the United Kingdom, Neil [[Ferguson]], revised his coronavirus forecast to predict dramatically lower death counts after considering that many more mild or asymptomatic cases existed than were being reported.
 
 ### AF 2020-03-24 0571
 (27:00:270) The United Kingdom reported 8,000 coronavirus cases, a significant increase that included 1,500 new cases from the previous day.
@@ -762,7 +762,7 @@
 (00:04:20) [[Donald Trump]] announced a travel ban on [[Europe]], excluding the United Kingdom, and proposed fiscal stimulus measures in a televised address from the [[White House|Oval Office]].
 
 ### AF 2020-03-12 0563
-(02:06:02) [[Nicholas J. Fuentes]] stated he would probably have to postpone a planned spring trip to the United Kingdom and [[City of London|London]] due to the coronavirus pandemic.
+(02:06:02) [[Nicholas J. Fuentes]] stated he would probably have to postpone a planned spring trip to the United Kingdom and [[London]] due to the coronavirus pandemic.
 
 ### AF 2020-03-11 0562
 (01:06:04) [[Donald Trump]] announced new measures in his address, including a suspension of all travel from [[Europe]] for 30 days, with an exemption for the United Kingdom.
@@ -777,7 +777,7 @@
 (01:07:01) [[Nicholas J. Fuentes]], when told that the first thing a viewer saw in [[Rome]] was a man urinating in the street, retorted that a visitor to the United Kingdom would now see many mosques and Arabs.
 
 ### AF 2020-01-31 0537
-(00:15:10) [[Nicholas J. Fuentes]] announced that the United Kingdom had formally left the [[Europe|European Union]], fulfilling the 2016 Brexit referendum.
+(00:15:10) [[Nicholas J. Fuentes]] announced that the United Kingdom had formally left the [[European Union]], fulfilling the 2016 Brexit referendum.
 
 ### AF 2020-01-31 0537
 (00:23:54) [[Nicholas J. Fuentes]] drew a direct comparison between the populist mandates of Brexit in the United Kingdom and the election of [[Donald Trump]] in the [[United States]].
@@ -801,7 +801,7 @@
 (00:29:29) [[Donald Trump]] announced the [[United States]] would "immediately impose additional punishing economic sanctions" on [[Iran]] and called for the United Kingdom, [[Germany]], [[France]], [[Russia]], and [[China]] to abandon the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Joint Comprehensive Plan of Action|Iran nuclear deal]]).
 
 ### AF 2020-01-06 0519
-(00:18:51) In July 2015, [[Barack Obama]] concluded the [[Joint Comprehensive Plan of Action]], an agreement with [[Iran]], [[China]], [[France]], [[Germany]], [[Russia]], the United Kingdom, the [[United States]], and the [[Europe|European Union]] that limited [[Iran]]'s nuclear activities in exchange for reduced sanctions.
+(00:18:51) In July 2015, [[Barack Obama]] concluded the [[Joint Comprehensive Plan of Action]], an agreement with [[Iran]], [[China]], [[France]], [[Germany]], [[Russia]], the United Kingdom, the [[United States]], and the [[European Union]] that limited [[Iran]]'s nuclear activities in exchange for reduced sanctions.
 
 ### AF 2020-01-06 0519
 (00:34:56) On June 13, 2019, two oil tankers, the *Kokuka Courageous* and the *Front Altair*, were attacked near the Strait of Hormuz in the Gulf of Oman, with the [[United States]], [[Saudi Arabia]], the United Kingdom, and [[Germany]] blaming [[Iran]] for the incidents.
@@ -810,7 +810,7 @@
 (01:40:20) In the United Kingdom's multi-party system, nationalist parties like the [[BNP]] have failed to gain significant traction, unlike in [[Italian Republic|Italy]] where the nationalist [[Lega]] became the largest party.
 
 ### AF 2019-12-18 0516
-(02:10:29) [[Nicholas J. Fuentes]] listed the countries he represented in [[United Nations|Model UN]], including [[Peru]], the [[United States]], [[France]], the United Kingdom, [[Denmark]], [[Iraq]], [[Iran]], [[Gaza Strip|Palestine]], [[Saudi Arabia]], [[China]], [[Russia]], and [[South Korea]].
+(02:10:29) [[Nicholas J. Fuentes]] listed the countries he represented in [[United Nations|Model UN]], including [[Peru]], the [[United States]], [[France]], the United Kingdom, [[Denmark]], [[Iraq]], [[Iran]], [[Palestine]], [[Saudi Arabia]], [[China]], [[Russia]], and [[South Korea]].
 
 ### AF 2019-12-16 0514
 (00:03:25) [[Nicholas J. Fuentes]] discussed [[Boris Johnson]]'s recent landslide election victory in the United Kingdom, drawing comparisons to [[Donald Trump]]'s political fortunes.
@@ -870,7 +870,7 @@
 (00:43:57) [[Donald Trump|Trump]] unilaterally withdrew from the nuclear deal and re-imposed sanctions on [[Iran]], but [[France]], [[Germany]], the United Kingdom, [[Russia]], and [[China]] remained in the deal.
 
 ### AF 2019-08-13 0439
-(01:38:20) [[Nicholas J. Fuentes]] argued that Zionist militias like the [[Irgun]], led by [[Menachem Begin]], invented modern terrorist techniques such as bus bombings and suicide bombings in the 1930s and 1940s against Great Britain and Arab populations in [[Gaza Strip|Palestine]].
+(01:38:20) [[Nicholas J. Fuentes]] argued that Zionist militias like the [[Irgun]], led by [[Menachem Begin]], invented modern terrorist techniques such as bus bombings and suicide bombings in the 1930s and 1940s against Great Britain and Arab populations in [[Palestine]].
 
 ### AF 2019-08-09 0437
 (00:42:00) [[Nicholas J. Fuentes]] argued that taking away guns would not stop violence, as seen in the United Kingdom, and would leave people vulnerable to stabbings by immigrants.
@@ -906,7 +906,7 @@
 (01:18:15:140) A viewer from the United Kingdom commented that it was 2 a.m. there and his sleep schedule was messed up so he was watching live.
 
 ### AF 2019-05-27 0395
-(00:02:00) [[Nicholas J. Fuentes]] stated that nationalist parties in [[France]], [[Italian Republic|Italy]], [[Hungary]], and the United Kingdom performed well in the [[Europe|European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
+(00:02:00) [[Nicholas J. Fuentes]] stated that nationalist parties in [[France]], [[Italian Republic|Italy]], [[Hungary]], and the United Kingdom performed well in the [[European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
 
 ### AF 2019-05-15 0388
 (01:38:00) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] withdrew the [[United States]] from the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|Iran nuclear deal]]) negotiated by the [[Obama]] administration with [[Iran]], [[Russia]], [[China]], [[France]], the United Kingdom, and [[Germany]].
@@ -1002,7 +1002,7 @@
 (00:04:43) [[David Sherratt]] stated he was from Dorset in the [[south]] of England and spoke with a received pronunciation accent.
 
 ### AF 2018-07-20 0204
-(00:49:21) [[David Sherratt]], [[who]] is from England, challenged [[Nicholas J. Fuentes]]'s criticism of [[Europe]] as dangerous, noting [[Nicholas J. Fuentes]] had never been to [[City of London|London]].
+(00:49:21) [[David Sherratt]], [[who]] is from England, challenged [[Nicholas J. Fuentes]]'s criticism of [[Europe]] as dangerous, noting [[Nicholas J. Fuentes]] had never been to [[London]].
 
 ### AF 2018-07-20 0204
 (00:50:36) [[Nicholas J. Fuentes]] asked [[David Sherratt]] if he believed the United Kingdom was a better society now than in the 1890s, to which [[David Sherratt]] definitively agreed.
@@ -1014,7 +1014,7 @@
 (00:00:30) [[Donald Trump|Trump]] held a summit with [[Vladimir Putin|Putin]] in [[Helsinki]], the capital of [[Finland]], following a [[Europe|European]] trip that included stops in [[Brussels]] for a [[North Atlantic Treaty Organization|NATO]] summit, the United Kingdom, and [[Country of Scotland|Scotland]].
 
 ### AF 2018-07-13 0200
-(01:13:03) A caller from the United Kingdom mocked the "[[Donald Trump|Trump]] baby balloon" protest in [[City of London|London]], celebrating it as a victory over [[United States|American]] "smugness" from the 4th of July.
+(01:13:03) A caller from the United Kingdom mocked the "[[Donald Trump|Trump]] baby balloon" protest in [[London]], celebrating it as a victory over [[United States|American]] "smugness" from the 4th of July.
 
 ### AF 2018-07-13 0200
 (01:15:53) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] was the only politician [[who]] seemed to care about saving [[Europe]], while the caller lamented that the United Kingdom and [[Germany]] were led by women.
@@ -1023,7 +1023,7 @@
 (01:16:22) [[Nicholas J. Fuentes]] sarcastically told the British caller that the future of the United Kingdom was "very bright," as they would exchange empire and riches for eating crickets and dealing with dysentery, a reference to mass immigration.
 
 ### AF 2018-07-12 0199
-(00:30:38) [[Donald Trump]] traveled from [[Brussels]] to [[City of London|London]] to meet with [[Theresa May]] and was scheduled to meet the British monarch the following day before proceeding to [[Country of Scotland|Scotland]] and then [[Helsinki]].
+(00:30:38) [[Donald Trump]] traveled from [[Brussels]] to [[London]] to meet with [[Theresa May]] and was scheduled to meet the British monarch the following day before proceeding to [[Country of Scotland|Scotland]] and then [[Helsinki]].
 
 ### AF 2018-07-12 0199
 (01:15:54) Only five [[North Atlantic Treaty Organization|NATO]] member states—the [[United States]], [[Israel|Poland]], [[Estonia]], [[Greece]], and the United Kingdom—were meeting the 2% GDP defense spending [[target]] at the [[time]].
@@ -1068,13 +1068,13 @@
 (00:11:22) The signatories to the 2015 [[Joint Comprehensive Plan of Action|Iran nuclear deal]], the [[Joint Comprehensive Plan of Action]], included the P5 nations—[[United States]], [[Russia]], [[China]], [[France]], and the United Kingdom—as well as [[Germany]] and [[Iran]].
 
 ### AF 2018-05-08 0160
-(00:19:58) The United Kingdom, [[France]], the [[Europe|European Union]], and [[Germany]] issued a joint statement expressing regret and disappointment over the [[United States]]'s decision to withdraw from the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
+(00:19:58) The United Kingdom, [[France]], the [[European Union]], and [[Germany]] issued a joint statement expressing regret and disappointment over the [[United States]]'s decision to withdraw from the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
 
 ### AF 2018-05-08 0160
 (01:09:47) [[Nicholas J. Fuentes]] expressed sympathy for [[Peter Sweden]], whose parents left England after harassment and their dog was poisoned, citing it as an example of intolerable conditions for dissidents in [[Europe]].
 
 ### AF 2018-05-07 0159
-(32:34:20) The "Day for Freedom" free speech rally in [[City of London|London]] drew about 4,000 people and was organized in response to figures like [[Lauren Southern]], [[Martin Sellner]], and [[Brittany Pettibone]] being barred from the United Kingdom.
+(32:34:20) The "Day for Freedom" free speech rally in [[London]] drew about 4,000 people and was organized in response to figures like [[Lauren Southern]], [[Martin Sellner]], and [[Brittany Pettibone]] being barred from the United Kingdom.
 
 ### AF 2018-04-24 0151
 (00:35:51) A high court in the United Kingdom ruled that the parents of Alfie Evans, a toddler with a degenerative neurological disorder, could not travel to [[Rome]], [[Italian Republic|Italy]] to seek further medical treatment, and earlier authorized doctors to remove him from life support.
@@ -1131,7 +1131,7 @@
 (09:10:41) [[Nicholas J. Fuentes]] cited [[Germany]]'s protectionist policies overtaking free-trade Great Britain as the industrial powerhouse of [[Europe]] by the turn of the 20th century as historical support for tariffs.
 
 ### AF 2018-03-05 0118
-(01:06:20) [[Nicholas J. Fuentes]] argued that [[World War II]] began because Britain honored a defense pact with [[Israel|Poland]] after [[Germany]] attempted to retake the [[Germany|German]] [[city]] of [[City of Gdańsk|Danzig]], questioning if the resulting devastation was worth it.
+(01:06:20) [[Nicholas J. Fuentes]] argued that [[World War II]] began because Britain honored a defense pact with [[Israel|Poland]] after [[Germany]] attempted to retake the [[Germany|German]] [[city]] of [[Danzig]], questioning if the resulting devastation was worth it.
 
 ### AF 2018-02-15 0109
 (07:20:54) [[Nicholas J. Fuentes]] argued that individuals in [[Dominion of Canada|Canada]] and the United Kingdom face arrest for posting about [[Federal Bureau of Investigation|FBI]] crime statistics or [[Islam|Muslim]] rape gangs, while threats of school shootings are not acted upon with the same urgency.
@@ -1161,7 +1161,7 @@
 (00:30:29) [[Nicholas J. Fuentes]] proposed an "Anglo alliance" between former countries of the [[British Empire]]—[[Dominion of Canada|Canada]], the [[United States]], [[Australia]], [[India]], the United Kingdom, [[Ireland]], and [[South Africa]]—as the best future option, aligning nations along ethnic, cultural, and civilizational lines as predicted by scholars like [[Samuel Huntington|Samuel P. Huntington]] and [[Robert D. Kaplan]].
 
 ### AF 2017-12-22 0075
-(00:32:07) [[Nicholas J. Fuentes]] argued that the United Kingdom should turn away from the [[Europe|European Union]] and towards its former colonial holdings to form a solid Anglo alliance for the 21st century.
+(00:32:07) [[Nicholas J. Fuentes]] argued that the United Kingdom should turn away from the [[European Union]] and towards its former colonial holdings to form a solid Anglo alliance for the 21st century.
 
 ### AF 2017-12-22 0075
 (00:37:49) [[Nicholas J. Fuentes]] argued that proportional representation systems in countries like the United Kingdom and [[Germany]] allow for smaller fringe parties like [[UK Independence Party|UKIP]] or the [[Green Party]] to have a voice, whereas the [[United States|US]] system forces a choice between [[Republican Party|Republican]] and [[Democratic Party|Democratic]] machines.
@@ -1188,7 +1188,7 @@
 (02:58:830) The identitarian [[organization]] [[Generation Identity]] launched its United Kingdom division with a public banner display.
 
 ### AF 2017-10-23 0037
-(03:34:530) [[Generation Identity]]'s United Kingdom branch unveiled a banner with the message "Defend [[City of London|London]], Stop Islamization" as part of its launch.
+(03:34:530) [[Generation Identity]]'s United Kingdom branch unveiled a banner with the message "Defend [[London]], Stop Islamization" as part of its launch.
 
 ### AF 2017-10-23 0037
 (09:42:930) Activists from [[Generation Identity]]'s United Kingdom launch wore regular civilian clothing instead of uniforms to present a mainstream, accessible appearance.
@@ -1206,7 +1206,7 @@
 (01:05:25) [[Nicholas J. Fuentes]] stated that [[United States|America]]'s founders came from the wealthiest, most advanced [[Europe|European]] countries ([[Germany]], Britain, [[Spain]], [[France]]) and built a prosperous nation.
 
 ### AF 2017-09-22 0016
-(00:54:11) [[Nicholas J. Fuentes]] criticized the 1917 [[Balfour Declaration]], which promised a [[Jews|Jewish]] homeland in [[Gaza Strip|Palestine]], as illegitimate because Great Britain did not control the territory and its population was overwhelmingly non-[[Jews|Jewish]].
+(00:54:11) [[Nicholas J. Fuentes]] criticized the 1917 [[Balfour Declaration]], which promised a [[Jews|Jewish]] homeland in [[Palestine]], as illegitimate because Great Britain did not control the territory and its population was overwhelmingly non-[[Jews|Jewish]].
 
 ### AF 2017-09-22 0016
 (01:27:19) [[Nicholas J. Fuentes]] argued that [[World War III|World War I]] was an avoidable tragedy stemming from Britain's need to check the rising power of [[Germany]] in [[Europe]], a conflict that could have been resolved through diplomacy rather than war.
@@ -1219,3 +1219,129 @@
 
 ### AF 2017-09-15 0011
 (00:02:39) Prime Minister [[Theresa May]] ordered 1,000 military soldiers to patrol streets across the United Kingdom in response to the elevated terror threat.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:15.760) The [[United States]], under [[Barack Obama]], collaborated with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], and the United Kingdom, along with the [[European Union]], to implement a nuclear deal that restricted [[Iran]]'s uranium enrichment.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:00) Reports indicated that [[B-52]] bombers had flown past the United Kingdom en route to the [[Middle East]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:00:01) [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], and the United Kingdom to enforce the nuclear deal that restricts [[Iran|Iran's]] enrichment of uranium.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:58:55) If the [[United States]] lost the island operation and suffered 1,000 casualties, the response would be to escalate further, potentially involving a large coalition war with the United Kingdom, [[France]], [[Kurdistan|Kurds]], [[Saudi Arabia]], and the [[United Arab Emirates]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:09:50) The [[Royal Navy]] from the United Kingdom wanted to get involved in opening the [[Strait of Hormuz]], and [[France]] was considering involvement.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:10:26) [[Nicholas J. Fuentes]] speculated that the [[United States]] might solicit the United Kingdom and [[France]] to forcibly reopen the strait, allowing a small special forces unit to take over an island, thereby reestablishing [[United States|U.S]]. control and allowing an honorable withdrawal.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:00:01) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:59:54.980) [[Nicholas J. Fuentes]] traced the origins of the conflict with [[Iran]] to [[Barack Obama]]'s creation of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:59:57.940) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]] to enforce the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:08:18:870) [[Nicholas J. Fuentes]] again stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]], bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[United States]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(59:53:87) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, and brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], and the United Kingdom to enforce it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:08:11:15) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal) by bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], and the United Kingdom.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:59:59) [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[United States]] and the [[European Union]] to enforce a nuclear deal that restricts [[Iran]]'s enrichment of uranium.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:23) [[Nicholas J. Fuentes]] presented a timeline of [[United States|US]]-[[Iran]] relations, stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:02:33) [[Nicholas J. Fuentes]] reported that as of the [[Concept|State of the Union]], the [[United States]] is involved in a war with [[Iran]], with "half of our air power in the [[Middle East]]" and a squadron of [[F-22 Raptors]] deployed to the United Kingdom.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(15:02:31) [[Nicholas J. Fuentes]] noted that the [[United States]] is now in a war with [[Iran]] and has deployed F-22 Raptors to the United Kingdom.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(59:53:64) [[Nicholas J. Fuentes]] stated that before the 2016 election, [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal), bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[United States]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:08:27.930) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]] to enforce a nuclear deal restricting [[Iran]]'s uranium enrichment.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:19:20.650) [[Nicholas J. Fuentes]] observed that elites at [[World Economic Forum|Davos]], such as [[World Economic Forum|Klaus Schwab]], [[Larry Fink]], and [[Hillary Clinton]], are now saying there might be too many migrants, not because they were "red-pilled," but because the [[United States]] and United Kingdom are beginning to see technological unemployment.Here is the chronological knowledge log derived from the monologue of the video transcript.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:00:06) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(00:58:28) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal), bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[United States]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:58:02) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran|Iranian]] Nuclear Deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(59:57:00) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(59:53:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran]] Nuclear Deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:08:11:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran]] Nuclear Deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(00:59:53) [[Nicholas J. Fuentes]] described a timeline of events leading to the [[United States|US]]-[[Iran]] conflict, beginning with [[Barack Obama]] creating the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:08:11) [[Nicholas J. Fuentes]] described the timeline beginning with [[Barack Obama]] creating the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:59:00) [[Nicholas J. Fuentes]] stated that [[Jeffrey Epstein]] knew business leaders and government officials in [[Israel]], the United Kingdom, and the [[United States]], including people at [[JPMorgan Chase & Co.|JP Morgan]], [[Yale Law School|Yale University]], and individuals such as [[Reid Hoffman]], [[Peter Thiel]], and [[Marc Andreessen]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:10:30.000) [[Nicholas J. Fuentes]] named [[Barack Obama]] as the creator of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[Iran]], [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[European Union]], and the [[United States]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:00:01) [[Nicholas J. Fuentes]] said that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(59:53:74) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:00:10) [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]] to enforce a nuclear deal restricting [[Iran]]'s enrichment of uranium.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:48:40:010) [[Nicholas J. Fuentes]] stated that [[Jews]] say [[Israel]] has a right to exist as a [[Jews|Jewish]] [[country]], but believe white people are not entitled to a [[country]] such as [[France]], [[Italian Republic|Italy]], [[Germany]], England, or [[United States|America]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:00:16) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, the [[United States]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium, which made the [[Israel|Israelis]] “furious.”
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:00:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) alongside [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:59:42) [[Nicholas J. Fuentes]] provided a timeline of events leading to the conflict with [[Iran]], stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(00:59:49) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]] to restrict [[Iran]]'s uranium enrichment.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(00:59:45) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], and the United Kingdom to restrict [[Iran]]'s uranium enrichment, and that "the [[Israel|Israelis]] were furious."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:03:06) [[Nicholas J. Fuentes]] questioned [[Candace Owens]]'s obsession with [[France]] and her husband from the United Kingdom, and [[Tucker Carlson]]'s statements that [[Russian Federation|Russia]] is the [[United States|U.S]].'s closest ally.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:00:10) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]] together to enforce a nuclear deal restricting [[Iran]]'s uranium enrichment.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:08:11) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] to restrict [[Iran]]'s uranium enrichment, bringing in [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the United Kingdom, and the [[European Union]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:59:48) The father-in-law of [[Candace Owens]] is [[Lord Farmer]], [[who]] runs an [[organization]] for cooperation between [[Jews]] and [[Christianity|Christians]] in the United Kingdom and is the heir to a family that makes jewelry for the British crown.

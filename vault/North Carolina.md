@@ -461,7 +461,7 @@
 (54:38:94) The [[Democratic Party]]'s Super Tuesday presidential primary contests were scheduled for 14 states: [[State of California|California]], [[State of Texas|Texas]], North Carolina, [[State of Virginia|Virginia]], [[Massachusetts]], [[Minnesota]], [[State of Colorado|Colorado]], [[Tennessee]], [[Alabama]], [[State of Oklahoma|Oklahoma]], [[Kansas|Arkansas]], [[Utah]], [[State of Maine|Maine]], [[Vermont]], and the territory of [[American Samoa]].
 
 ### AF 2020-02-04 0539
-(01:20:40:93) [[Donald Trump]] recognized military spouse Amy Williams from [[City of Fort Bragg|Fort Bragg]], North Carolina, whose husband was on his fourth deployment, and then surprised her by having her husband, Sergeant First Class Townsend Williams, return from deployment in the gallery.
+(01:20:40:93) [[Donald Trump]] recognized military spouse Amy Williams from [[Fort Bragg]], North Carolina, whose husband was on his fourth deployment, and then surprised her by having her husband, Sergeant First Class Townsend Williams, return from deployment in the gallery.
 
 ### AF 2020-01-17 0527
 (00:31:00) The Dallas [[U.S. Immigration and Customs Enforcement|ICE]] Field Office led the nation with 16,900 arrests in fiscal year 2019, while the Atlanta Field Office, covering [[Country of Georgia|Georgia]], [[State of South Carolina|South Carolina]], and North Carolina, ranked second with 13,250 arrests.
@@ -501,3 +501,6 @@
 
 ### AF 2017-09-22 0016
 (00:36:01) [[Nicholas J. Fuentes]] commented on a planned "anti-Communist" rally in [[Charlotte]], North Carolina on December 27th, stating he was generally for rallies but that the situation could change.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:37:26:92) [[Brian McGinnis]], a [[United States Marine Corps]] veteran running for [[U.S. Congress|Senate]] in North Carolina for the [[Green Party]], was beat up by a [[United States|U.S]]. Senator for protesting the war in [[Iran]] at a [[U.S. Congress|Senate]] hearing.

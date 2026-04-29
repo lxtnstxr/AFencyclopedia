@@ -111,7 +111,7 @@
 (00:20:50) Pakistan is an ally of the [[United States]].
 
 ### AF 2021-05-18 0813
-(00:42:43) [[Nicholas J. Fuentes]] stated that ethnic conflict is an inevitable consequence of multiracial societies, citing examples like [[India]] and Pakistan, [[Israel]] and [[Gaza Strip|Palestine]], and [[Rwanda]].
+(00:42:43) [[Nicholas J. Fuentes]] stated that ethnic conflict is an inevitable consequence of multiracial societies, citing examples like [[India]] and Pakistan, [[Israel]] and [[Palestine]], and [[Rwanda]].
 
 ### AF 2021-03-22 0777
 (02:33:17) [[Nicholas J. Fuentes]] agreed with a viewer's argument that if countries like Pakistan and [[State of Japan|Japan]] are defined by their ethnic and cultural [[heritage]], then [[United States|America]] should also be understood as an expression of its [[Europe|European]] cultural roots, not merely "an idea."
@@ -150,7 +150,7 @@
 (00:41:18) [[Nicholas J. Fuentes]] argued for the importance of nuclear non-proliferation, using the [[India]]-Pakistan conflict as an example of why preventing the spread of nuclear weapons to unstable or adversarial states was in [[United States|America]]'s interest.
 
 ### AF 2019-08-01 0432
-(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steven Crowder|Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], Pakistan, [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[City of Kabul|Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
+(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], Pakistan, [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
 
 ### AF 2019-05-15 0388
 (02:29:00) [[Nicholas J. Fuentes]] stated that Pakistan's nuclear scientist [[A.Q. Khan]] was responsible for the proliferation of nuclear weapons technology to other countries, including [[Israel]].
@@ -244,3 +244,114 @@
 
 ### AF 2017-08-28 0003
 (06:33:24) [[Nicholas J. Fuentes]] stated that the nuclear scientist [[A.Q. Khan]] of Pakistan made it his mission to provide nuclear infrastructure to rogue states like [[North Korea]] to serve as a deterrent against superpowers like the [[United States]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:21.600) The conditions of the truce, as announced by [[Donald Trump]], required [[Iran]] to open the Strait to commercial shipping, while the [[United States]] and [[Iran]] would meet in Pakistan to negotiate a comprehensive peace deal.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:34:04.840) [[Iran]] and Pakistan stated they would not uphold a deal to open the Strait unless [[Israel]] ceased its attacks on [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:34:52.700) A negotiation meeting between the [[United States]] and [[Iran]] was scheduled for Saturday in Pakistan, with the [[United States]] delegation already present and prepared to meet.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:23:56.340) Approximately an hour and a half after the initial announcement, Pakistan and [[Iran]], [[who]] brokered and were party to the deal, presented a "very different version" of the ceasefire.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:24:13.600) Pakistan and [[Iran]] claimed the [[United States]] agreed to a 10-point plan, including [[Iran]]'s right to enrich uranium, the lifting of all primary and secondary sanctions, the removal of 40,000 [[United States]] troops from the [[region]], and an extension of the ceasefire to [[Israel]]'s war with [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:24:43.610) There were two conflicting versions of the ceasefire deal: the [[United States]]' version which focused on a pause in fighting and opening the Strait, and [[Iran]] and Pakistan's version which claimed a complete [[United States]] surrender to all [[Iran|Iranian]] demands, including a regional ceasefire and nuclear rights.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:25:54.320) Pakistan reiterated that the [[United States]] had agreed to a ceasefire in [[Lebanon]], contradicting [[Donald Trump]] and [[Benjamin Netanyahu|Netanyahu]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:34.920) The [[United States]] delegation, including [[JD Vance|J.D. Vance]], [[Steve Wittkoff|Steve Wittkopf]], and [[Jared Kushner]], is in Pakistan awaiting a scheduled meeting with representatives from [[Iran]] on Saturday, but [[Iran]] has not confirmed attendance and demands [[Israel]] commit to not attacking [[Lebanon]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:09:42) The ceasefire was facilitated by the diplomatic efforts of Pakistan and [[China]], which lobbied [[Iran]] to accept an agreement.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:10:11) Divergent interpretations of the agreement emerged, with [[Washington D.C.|Washington, D.C.]] and [[Israel]] holding a different understanding than Pakistan and [[Iran]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:17) Pakistan and [[Iran]] believed the agreement included a ceasefire in [[Lebanon]] between [[Israel]] and [[Hezbollah]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:58) Pakistan and [[Iran]] asserted that the agreement to open the [[Strait of Hormuz]] was contingent upon [[Israel]] ceasing its bombing of [[Lebanon]] and its conflict with [[Hezbollah]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:13:38) A bilateral meeting between [[Iran]] and the [[United States]] is scheduled for Friday in [[Islamabad]], Pakistan, assuming the ceasefire remains in effect.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:14:00) [[JD Vance]], in his capacity as [[Vice Media|Vice]] [[White House|President]], is slated to lead the [[United States]] delegation at the highest-level meeting with [[Iran|Iranian]] officials in 50 years, to be held in Pakistan.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:24:03) The [[president]] reported that a ceasefire agreement was reached with [[Iran]] after discussions with the Pakistani prime minister and other government officials.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:27:03) A two-week plan deferred military action to a later date, anticipating meetings with [[Iran]] in Pakistan to negotiate a long-term deal.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:34:38) [[Donald Trump]] announced the ceasefire on social media after Pakistan, acting as a mediator, urged him to retract his 8 PM deadline for [[Iran]] to comply with his demands.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:34:51) Pakistan proposed a two-week ceasefire during which [[Iran]] would allow unimpeded passage for oil, gas, and other vessels through the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:38) [[Benjamin Netanyahu]]'s statement contradicted an earlier one from Prime Minister [[Shehbaz Sharif]] of Pakistan.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:55) [[Iran]] accepted Pakistan's ceasefire proposal following intense diplomatic engagement by Pakistan.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:48:41) [[Iran]] rejected the latest peace proposal from [[Washington D.C.|Washington]], mediated by Pakistan, [[Turkey]], [[Saudi Arabia]], and [[Arab Republic of Egypt|Egypt]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:29:53) [[Donald Trump]] claimed that [[Iran]] begged for a deal and that the [[United States]] is holding off on escalating while waiting on negotiations mediated by Pakistan, [[Turkey]], [[Arab Republic of Egypt|Egypt]], and [[Saudi Arabia]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:27:26) Mediating countries, including [[Turkey]], [[Arab Republic of Egypt|Egypt]], and Pakistan, attempted to arrange a summit between representatives of [[Iran]] and the [[United States]] in [[Islamabad]], Pakistan.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:43:56) Pakistan, [[Arab Republic of Egypt|Egypt]], and [[Turkey]] attempted to put together a peace deal.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:14:14) [[Nicholas J. Fuentes]] stated that [[Turkey]], Pakistan, and [[Saudi Arabia]] were working to bring an [[Iran|Iranian]] delegation and the [[United States]] together for a meeting in Pakistan or [[Turkey]] later that week.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:15:02) [[Nicholas J. Fuentes]] reported that mediators were attempting to arrange a meeting in [[Islamabad]], Pakistan on Thursday within the next 48 hours.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:47:36) [[Nicholas J. Fuentes]] reported that [[Turkey]], Pakistan, and [[Saudi Arabia]] were attempting to arrange a bilateral negotiation between [[Iran]] and the [[United States]] in either [[Turkey]] or Pakistan.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:50:52) [[Nicholas J. Fuentes]] read from a [[The Wall Street Journal|Wall Street Journal]] report stating that mediators from [[Turkey]], [[Arab Republic of Egypt|Egypt]], and Pakistan were pushing for a meeting in the next 48 hours, but both sides remained far apart.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:18:36) [[Nicholas J. Fuentes]] assessed that reports of [[Turkey]], Pakistan, and [[Saudi Arabia]] acting as intermediaries to de-escalate the conflict with [[Iran]] were a "fiction" and "overhyped," stating those countries have "no influence" over the [[United States]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:41:55) [[Nicholas J. Fuentes]] reported that [[Iran]] is requesting that [[JD Vance]] be brought in to negotiate in Pakistan or [[Turkey]], rather than [[Steve Wittkoff|Steve Witkoff]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], Pakistan, [[India]], [[Kosovo]], [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:59:29) [[Nicholas J. Fuentes]] argued that if [[Iran]] gets a deal, they get sanctions relief, their currency recovers, their economy recovers, they rebuild infrastructure, and they can normalize relations with [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], Pakistan, and [[Turkey]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:28:32) The [[United States]] opened indirect talks with [[Iran]] only after an intense lobbying effort from [[Turkey]], [[Qatar]], Pakistan, the [[United Arab Emirates]], [[Oman]], [[Saudi Arabia]], and [[Arab Republic of Egypt|Egypt]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:21:53) [[Nicholas J. Fuentes]] identified [[Turkey]], [[Arab Republic of Egypt|Egypt]], [[Qatar]], [[Saudi Arabia]], Pakistan, the [[United Arab Emirates]], and [[Oman]] as countries lobbying the [[United States]] to make a deal with [[Iran]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:15) [[Nicholas J. Fuentes]] stated that a multilateral framework proposal for negotiations with [[Iran]] was put together by seven [[Islam|Muslim]]-majority countries, including [[Arab Republic of Egypt|Egypt]], [[Turkey]], the [[United Arab Emirates|UAE]], [[Qatar]], [[Saudi Arabia]], Pakistan, and [[Oman]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:21:47) [[Nicholas J. Fuentes]] claimed that in the minds of [[Donald Trump|Trump]] supporters, "3 million people have been deported and [[Donald Trump|Trump]] has ended eight wars," referencing wars like those between [[Thailand]] and [[Cambodia]], [[Rwanda]] and [[Republic of Congo|Congo]], and a skirmish between [[India]] and Pakistan.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:30:26:97) [[Nicholas J. Fuentes]] reported that the Network Contagion Research Institute published a new report claiming his ratio was "fake" and purchased through bot farms in [[Nigeria]], [[India]], and Pakistan.

@@ -54,7 +54,7 @@
 (09:33:26) [[BG Cumbie]] describes working on a new southern character named Burt Gunslinger, the leader of the NRA.
 
 ### AF 2018-03-30 0135
-(00:56:28) [[Nicholas J. Fuentes]] characterized the post-[[City of Parkland|Parkland]] generation of anti-gun activists as more openly radical than predecessors like [[Shannon Watts]] of [[Moms Demand Action]], willing to call the NRA "murderers of children," which he views as a tactical mistake that plays into the right's narrative about the slippery slope of gun control.
+(00:56:28) [[Nicholas J. Fuentes]] characterized the post-[[Parkland]] generation of anti-gun activists as more openly radical than predecessors like [[Shannon Watts]] of [[Moms Demand Action]], willing to call the NRA "murderers of children," which he views as a tactical mistake that plays into the right's narrative about the slippery slope of gun control.
 
 ### AF 2018-03-27 0132
 (00:41:37) [[Nicholas J. Fuentes]] argued that white people in [[United States|America]] were primarily responsible for defending the [[U.S. Constitution|Second Amendment]] through increased NRA membership, donations, and firearm purchases in response to gun control advocacy.
@@ -63,7 +63,7 @@
 (01:45:55) The National Rifle Association and the [[National Republican Congressional Committee]] invested heavily in [[Rick Saccone]]'s failed campaign in [[Commonwealth of Pennsylvania|Pennsylvania]].
 
 ### AF 2018-03-09 0122
-(00:03:47) [[Wayne LaPierre]], the head of the NRA, used the term "[[Europe|European]]-style socialist" at [[Conservative Political Action Conference|CPAC]] in reference to figures like [[George Soros]] and the leadership of the [[Europe|European Union]] and [[European Central Bank]].
+(00:03:47) [[Wayne LaPierre]], the head of the NRA, used the term "[[Europe|European]]-style socialist" at [[Conservative Political Action Conference|CPAC]] in reference to figures like [[George Soros]] and the leadership of the [[European Union]] and [[European Central Bank]].
 
 ### AF 2018-03-02 0117
 (00:20:46) [[Nicholas J. Fuentes]] noted that the NRA had met with [[Donald Trump]] and opposed new gun control measures, making a legislative vote unlikely.
@@ -72,4 +72,4 @@
 (00:12:01) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democratic]] activists and media were framing supporters of the [[U.S. Constitution|Second Amendment]] and the NRA as either desiring school shootings or insufficiently caring about children.
 
 ### AF 2018-02-15 0109
-(22:20:16) Following the [[City of Newtown|Sandy Hook]] shooting, [[Barack Obama]] addressed the nation, cried, and blamed the [[Republican Party|Republicans]] and the NRA for inaction.
+(22:20:16) Following the [[Sandy Hook]] shooting, [[Barack Obama]] addressed the nation, cried, and blamed the [[Republican Party|Republicans]] and the NRA for inaction.

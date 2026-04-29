@@ -9,4 +9,4 @@
 (00:44:13) [[Nicholas J. Fuentes]] read the [[CBS News|CBS]] article's justification for excluding white people, which stated that white households in Oakland on average make about three times as much annually as [[black]] households.
 
 ### AF 2020-07-20 0644
-(01:27:52) [[Donald Trump|President Trump]] threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[City of Chicago|Chicago]], [[New York|New York City]], [[City of Philadelphia|Philadelphia]], [[City|Detroit]], [[Baltimore]], and Oakland to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[City of Portland|Portland]], [[Oregon]].
+(01:27:52) [[Donald Trump|President Trump]] threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[Chicago]], [[New York|New York City]], [[Philadelphia]], [[City|Detroit]], [[Baltimore]], and Oakland to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[Portland]], [[Oregon]].

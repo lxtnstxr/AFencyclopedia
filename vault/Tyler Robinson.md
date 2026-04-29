@@ -69,3 +69,18 @@
 ### AF 2025-09-29 1573
 (02:35:28) Official evidence in the [[Charlie Kirk]] shooting case included Tyler Robinson's DNA on the roof, his fingerprints on the gun, and his grandfather's gun found near the scene.
 
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:34:10) All the evidence about [[Charlie Kirk]]'s assassination points to Tyler Robinson.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:34:24) Tyler Robinson's evidence includes discord logs, the murder weapon, security camera footage, and he turned himself in.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:51:03) [[Nicholas J. Fuentes]] referenced the joke that [[Charlie Kirk]] was an "indigo child" or an "[[Twitter|X]]-Man" [[who]] could read minds but was prevented from using his power Tyler Robinson's electromagnetic helmet.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:13:49) [[Nicholas J. Fuentes]] stated that without [[Candace Owens]]'s influence, the public would be focused on the evidence against Tyler Robinson, rather than on theories involving [[Brigitte Macron]], Egyptian planes, and [[Erika Frantz Kirk|Erica Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:19:14) [[Nicholas J. Fuentes]] sarcastically noted his surprise that a 21-year-old amateur Tyler Robinson was less professional in his operation than a conspirator would be.

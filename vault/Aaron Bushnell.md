@@ -12,10 +12,10 @@
 (00:19:940) On February 25, 2024, a 25-year-old [[United States]] Air Force service member, Aaron Bushnell of [[San Antonio, Texas]], self-immolated in front of the [[Israel|Israeli]] [[Embassy]] in [[Washington D.C.|Washington, D.C.]] in protest of [[United States]] support for [[Israel]]'s military campaign in the [[Gaza Strip]].
 
 ### AF 2024-02-27 1298
-(00:34:100) Aaron Bushnell stated he was protesting the [[Israel|Israeli]] occupation of [[Gaza Strip|Palestine]] and [[United States|America]]'s support for [[Israel]]'s war in the [[Gaza Strip]].
+(00:34:100) Aaron Bushnell stated he was protesting the [[Israel|Israeli]] occupation of [[Palestine]] and [[United States|America]]'s support for [[Israel]]'s war in the [[Gaza Strip]].
 
 ### AF 2024-02-27 1298
-(00:49:640) Aaron Bushnell live-streamed his self-immolation on [[Twitch]], wearing military fatigues and declaring he would "not be complicit in genocide" before dousing himself in liquid, lighting himself on fire, and yelling "Free [[Gaza Strip|Palestine]]" until he fell.
+(00:49:640) Aaron Bushnell live-streamed his self-immolation on [[Twitch]], wearing military fatigues and declaring he would "not be complicit in genocide" before dousing himself in liquid, lighting himself on fire, and yelling "Free [[Palestine]]" until he fell.
 
 ### AF 2024-02-27 1298
 (01:02:880) [[Nicholas J. Fuentes]] argued that major [[United States|American]] newspapers like the [[The New York Times|New York Times]], [[Los Angeles Times]], [[Washington Post]], and [[Fox News]] did not place the story of Aaron Bushnell's self-immolation on their front pages.

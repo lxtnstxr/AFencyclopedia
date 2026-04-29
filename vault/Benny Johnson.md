@@ -54,10 +54,10 @@
 (01:38:00) [[Nicholas J. Fuentes]] contrasted the creative culture of 2016, which included artists like [[Macintosh Plus]], with the current online culture, which he disparaged as being dominated by figures like [[Jack Posobiec]] and Benny Johnson and stale memes like the "OK" hand signal being labeled as white power.
 
 ### AF 2021-01-29 0751
-(01:16:00) [[Nicholas J. Fuentes]] stated that he, as a [[Catholic Church|Catholic]], white, "real [[United States|American]] patriot," was consistently called antisemitic by figures like [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], Benny Johnson, [[Sebastian Gorka]], the [[Zionist Organization of America]], [[Steven Crowder|Steve Bannon]], and [[Rudy Giuliani]] for discussing issues of [[Jews|Jewish]] influence.
+(01:16:00) [[Nicholas J. Fuentes]] stated that he, as a [[Catholic Church|Catholic]], white, "real [[United States|American]] patriot," was consistently called antisemitic by figures like [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], Benny Johnson, [[Sebastian Gorka]], the [[Zionist Organization of America]], [[Steve Bannon]], and [[Rudy Giuliani]] for discussing issues of [[Jews|Jewish]] influence.
 
 ### AF 2021-01-29 0751
-(04:33:00) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], white, [[United States|America]]-first patriot, he is consistently labeled antisemitic by [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], Benny Johnson, [[Sebastian Gorka]], the [[Zionist Organization of America]], [[Steven Crowder|Steve Bannon]], and [[Rudy Giuliani]], highlighting a fundamental conflict with [[American Jewish Committee|Jewish organizations]].
+(04:33:00) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], white, [[United States|America]]-first patriot, he is consistently labeled antisemitic by [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], Benny Johnson, [[Sebastian Gorka]], the [[Zionist Organization of America]], [[Steve Bannon]], and [[Rudy Giuliani]], highlighting a fundamental conflict with [[American Jewish Committee|Jewish organizations]].
 
 ### AF 2020-12-01 0726
 (01:58:24) [[Nicholas J. Fuentes]] claimed that the [[United States|America]] First team's top lineup, including [[Michelle]], himself, [[Scott]], [[Steve]], [[Vince]], [[Jake]], and [[Jaden]], is superior to [[Turning Point USA]]'s lineup of [[Charlie Kirk]], Benny Johnson, and [[Rob Smith]].
@@ -184,3 +184,6 @@
 
 ### AF 2019-04-01 0358
 (00:39:18) [[Nicholas J. Fuentes]] expressed a desire to have Benny Johnson on his campus to discuss winning the "meme war" in the 2020 election.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:31:52) [[Nicholas J. Fuentes]] advised Benny Johnson, [[Jack Posobiec]], and [[Blake Neff]] to simply call [[Candace Owens]] dumb, punch her "in her stupid big fat face metaphorically," and expose her with facts.

@@ -2,7 +2,7 @@
 #country
 
 ### AF 2025-09-09 1563
-(08:08:00) [[France]], the [[United Kingdom]], [[Canada]], Spain, [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Gaza Strip|Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
+(08:08:00) [[France]], the [[United Kingdom]], [[Canada]], Spain, [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
 ### AF 2025-09-25 1571
 (01:13:13:65) Spain has imposed an arms embargo on [[Israel]], and other countries are reviewing intelligence and security relationships.
 ### AF 2025-12-02 1607
@@ -10,7 +10,7 @@
 
 
 ### AF 2025-07-25 1539
-(01:09:49) Spain, [[Ireland]], and [[Norway]] recognized [[Gaza Strip|Palestine]] in 2024, but [[France]]'s decision is of a different order due to its status as a nuclear power, a permanent member of the [[United Nations Security Council]], and home to the largest [[Jewish]] and [[Muslim]] populations in Western [[Europe]].
+(01:09:49) Spain, [[Ireland]], and [[Norway]] recognized [[Palestine]] in 2024, but [[France]]'s decision is of a different order due to its status as a nuclear power, a permanent member of the [[United Nations Security Council]], and home to the largest [[Jewish]] and [[Muslim]] populations in Western [[Europe]].
 
 ### AF 2024-09-18 1391
 (01:02:55:28) [[Nicholas J. Fuentes]] stated that [[Belgium]], the [[Kingdom of the Netherlands|Netherlands]], [[Ireland]], and Spain have talked about suspending arms to [[Israel]], while [[Hungary]] remains a tried and true ally.
@@ -25,28 +25,28 @@
 (00:30:28) [[Nicholas J. Fuentes]] noted that mass immigration has only recently become a major issue causing civil unrest in Spain, [[Ireland]], and the [[United Kingdom]].
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in Spain, and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in Spain, and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 ### AF 2024-06-10 1341
-(00:42:00) Spain's centrist parties, the [[People's Party]] and the [[Socialists]], contained a far-right surge in the [[Europe|European Union]] elections, gaining two-thirds of the vote and a combined 42 of 61 available seats.
+(00:42:00) Spain's centrist parties, the [[People's Party]] and the [[Socialists]], contained a far-right surge in the [[European Union]] elections, gaining two-thirds of the vote and a combined 42 of 61 available seats.
 
 ### AF 2024-05-27 1335
-(00:15:29) [[Nicholas J. Fuentes]] cited reactions from "Western [[Jews]]" to [[Ireland]], Spain, and [[Norway]] recognizing [[Gaza Strip|Palestine]], which included fantasies about [[Ireland|Irish]] politicians being raped and killed and claims that all of Spanish culture is [[Jews]] laughing at them.
+(00:15:29) [[Nicholas J. Fuentes]] cited reactions from "Western [[Jews]]" to [[Ireland]], Spain, and [[Norway]] recognizing [[Palestine]], which included fantasies about [[Ireland|Irish]] politicians being raped and killed and claims that all of Spanish culture is [[Jews]] laughing at them.
 
 ### AF 2024-05-27 1335
 (00:44:32) [[Nicholas J. Fuentes]] reported that Spanish Foreign Minister [[José Manuel Albares]] would seek [[EU]] support for the [[International Court of Justice]] ruling and steps to ensure [[Israel]] respects its decisions.
 
 ### AF 2024-05-23 1334
-(00:04:57) [[Ireland]], [[Norway]], and Spain formally recognized the statehood of [[Gaza Strip|Palestine]], a move widely interpreted as a diplomatic rebuke against [[Israel]].
+(00:04:57) [[Ireland]], [[Norway]], and Spain formally recognized the statehood of [[Palestine]], a move widely interpreted as a diplomatic rebuke against [[Israel]].
 
 ### AF 2024-05-22 1333
-(17:20:12) Spain, [[Ireland]], and [[Norway]] formally recognized the statehood of [[Gaza Strip|Palestine]], a move characterized as a major rebuke of [[Israel]].
+(17:20:12) Spain, [[Ireland]], and [[Norway]] formally recognized the statehood of [[Palestine]], a move characterized as a major rebuke of [[Israel]].
 
 ### AF 2024-05-21 1332
 (00:41:21) [[Nicholas J. Fuentes]] described a transnational network of [[Jews]] operating in countries including [[Argentina]], [[Hungary]], the [[United Kingdom]], Spain, [[Brazil]], and [[Russia]], working to benefit [[Israel]] and international [[Jews|Jewry]] at the expense of their host nations.
 
 ### AF 2024-05-21 1332
-(01:45:07) [[Nicholas J. Fuentes]] acknowledged that Spain, [[Norway]], and [[Ireland]] had officially recognized [[Gaza Strip|Palestine]] as a state.
+(01:45:07) [[Nicholas J. Fuentes]] acknowledged that Spain, [[Norway]], and [[Ireland]] had officially recognized [[Palestine]] as a state.
 
 ### AF 2025-12-06 1609
 (03:24:40) [[Europe|European]] NGOs rescue Africans on small boats near [[Libya]] and transport them to [[Italian Republic|Italy]] or Spain.
@@ -55,7 +55,7 @@
 (01:06:00) [[Tucker Carlson]] conducted interviews with foreign leaders including [[Viktor Orbán]] in [[Hungary]], [[Santiago Abascal]] in Spain, [[Javier Milei]] in [[Argentina]], and [[Nayib Bukele]] in [[El Salvador]].
 
 ### AF 2024-02-08 1289
-(52:46:68) Right-wing parties in [[Europe]], such as [[Vox]] in Spain, the [[National Rally|National Front]] in [[Government of France|France]], and the [[Alternative for Germany|AfD]] in [[Germany]], are also sympathetic to [[Israel]].
+(52:46:68) Right-wing parties in [[Europe]], such as [[Vox]] in Spain, the [[National Rally|National Front]] in [[France]], and the [[Alternative for Germany|AfD]] in [[Germany]], are also sympathetic to [[Israel]].
 
 ### AF 2024-01-25 1282
 (01:13:00) [[Tucker Carlson]] traveled to [[Argentina]], [[Hungary]], Spain, and [[Dominion of Canada|Canada]] within seven months of launching his independent show, interviewing right-wing populist leaders like [[Javier Milei]] and [[Viktor Orbán]].
@@ -67,7 +67,7 @@
 (02:00:05) [[Nicholas J. Fuentes]] stated that [[Jews]] historically helped [[Islam|Muslims]] invade Spain, were privileged in [[Muslim Spain]] and the [[Ottoman Empire]], and in [[Europe]] were often used to suppress local populations.
 
 ### AF 2023-05-26 1167
-(12:15:64) [[Nicholas J. Fuentes]] observed that historically, countries like Spain, [[Government of France|France]], [[United Kingdom|England]], [[Russia]], [[Iran]], [[Arab Republic of Egypt|Egypt]], and [[Nicaragua]] with significant [[Jewish]] minorities eventually turned against them for similar reasons.
+(12:15:64) [[Nicholas J. Fuentes]] observed that historically, countries like Spain, [[France]], [[United Kingdom|England]], [[Russia]], [[Iran]], [[Arab Republic of Egypt|Egypt]], and [[Nicaragua]] with significant [[Jewish]] minorities eventually turned against them for similar reasons.
 
 ### AF 2023-04-01 1140
 (01:42:00) [[Nicholas J. Fuentes]] claimed that [[Jewish]] power historically moved from Spain to [[Amsterdam]], to [[Paris]], to [[London]], and then to [[New York]], and suggested its reign was now at an end.
@@ -82,7 +82,7 @@
 (00:00:15) Governments across [[Europe]] were considering or implementing hard lockdowns in countries including the [[Kingdom of the Netherlands|Netherlands]], [[Germany]], Spain, and [[Austria]] due to the spread of a new coronavirus variant, despite full vaccination and booster shot campaigns.
 
 ### AF 2021-12-20 0924
-(00:52:24) [[Austria]] banned entry for unvaccinated travelers, [[Government of France|France]] banned travel from the [[United Kingdom]], [[Ireland]] imposed an 8 p.m. curfew on hospitality venues, and Spain and [[Italian Republic|Italy]] were meeting to discuss new containment measures.
+(00:52:24) [[Austria]] banned entry for unvaccinated travelers, [[France]] banned travel from the [[United Kingdom]], [[Ireland]] imposed an 8 p.m. curfew on hospitality venues, and Spain and [[Italian Republic|Italy]] were meeting to discuss new containment measures.
 
 ### AF 2021-08-20 0860
 (03:10:37) [[Nicholas J. Fuentes]] called for solidarity among white ethnic groups, stating that [[Anglos]], [[Slavs]], [[Ireland|Irish]], [[Swedes]], [[Germany|Germans]], Spanish, and [[Portuguese]] all have great histories to preserve.
@@ -223,7 +223,13 @@
 (01:52:76) The regional government of [[Catalonia]] held a referendum on secession from Spain, which saw a 43% turnout with 90% of voters favoring independence, though the vote was criticized for procedural irregularities.
 
 ### AF 2017-10-04 0024
-(02:05:36) The central government of Spain in [[City of Madrid|Madrid]] deployed approximately 20 trucks of army troops to [[Catalonia]] in response to the secession crisis.
+(02:05:36) The central government of Spain in [[Madrid]] deployed approximately 20 trucks of army troops to [[Catalonia]] in response to the secession crisis.
 
 ### AF 2017-09-25 0017
 (01:05:25) [[Nicholas J. Fuentes]] stated that [[United States|America]]'s founders came from the wealthiest, most advanced [[Europe|European]] countries ([[Germany]], [[United Kingdom|Britain]], Spain, [[France]]) and built a prosperous nation.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:53.070) The presidents of [[France]] and Spain, along with other heads of [[state]], are demanding that [[Israel]] cease its war in [[Lebanon]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:55:34:960) [[Nicholas J. Fuentes]] stated that he was in Spain when [[Kanye West|Yay]] was making the song "Heil [[Adolf Hitler|Hitler]]" and that [[Kanye West|Yay]] said it was one of his top five songs of all [[time]].

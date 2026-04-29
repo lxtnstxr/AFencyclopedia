@@ -6,7 +6,7 @@
 
 
 ### AF 2018-03-30 0135
-(01:03:34) [[Nicholas J. Fuentes]] endorsed the Gun Owners of America and encouraged viewers to buy guns in response to the [[City of Parkland|Parkland]] activism.
+(01:03:34) [[Nicholas J. Fuentes]] endorsed the Gun Owners of America and encouraged viewers to buy guns in response to the [[Parkland]] activism.
 
 ### AF 2018-03-02 0117
 (00:24:37) [[Nicholas J. Fuentes]] recommended that viewers join Gun Owners of America for its effective advocacy and action alerts.

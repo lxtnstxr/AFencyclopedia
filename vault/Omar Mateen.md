@@ -6,7 +6,7 @@
 
 
 ### AF 2018-06-18 0182
-(53:48:65) [[Laura Loomer]] noted that Omar Mateen, the perpetrator of the [[City of Orlando|Orlando]] Pulse nightclub shooting, had a father [[who]] was a [[Federal Bureau of Investigation|FBI]] informant, a fact not revealed until two years after the attack.
+(53:48:65) [[Laura Loomer]] noted that Omar Mateen, the perpetrator of the [[Orlando]] Pulse nightclub shooting, had a father [[who]] was a [[Federal Bureau of Investigation|FBI]] informant, a fact not revealed until two years after the attack.
 
 ### AF 2018-03-26 0131
 (00:04:08) [[Nicholas J. Fuentes]] highlighted connections between several mass shootings and federal agents, noting that Omar Mateen's father was an [[Federal Bureau of Investigation|FBI]] informant, [[Stephen Paddock]] had three successive federal government jobs, [[David Hogg]]'s father is a retired [[Federal Bureau of Investigation|FBI]] agent, and the uncle of the [[Boston Bombers]] was married to the daughter of a [[Central Intelligence Agency|CIA]] agent.

@@ -27,3 +27,9 @@
 
 ### AF 2024-09-09 1385
 (01:31:32) Haitian refugees moved to Springfield, Ohio because manufacturing had returned to the city.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:35:44) The [[United States]] deployed a greater number of troops to central [[Iran]] than to domestic locations like Springfield, Ohio or [[Minneapolis|Minneapolis, Minnesota]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:21:50) [[Nicholas J. Fuentes]] asked if the [[Haiti|Haitians]] in Springfield, Ohio had been deported, noting that a story about them eating pets was a touchstone in the election but no removals had occurred.

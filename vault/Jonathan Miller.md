@@ -6,16 +6,16 @@
 
 
 ### AF 2023-02-09 1119
-(01:05:36) [[Nicholas J. Fuentes]] referenced an observation by John Miller that while [[Alexandria Ocasio-Cortez]] challenges [[Democratic Party|Democratic]] leadership and defends [[Antifa]] and [[Black Lives Matter]], [[Marjorie Taylor Greene]] capitulates to [[Mike Johnson|Kevin McCarthy]] and attacks the "real anti-Semites."
+(01:05:36) [[Nicholas J. Fuentes]] referenced an observation by John Miller that while [[Alexandria Ocasio-Cortez]] challenges [[Democratic Party|Democratic]] leadership and defends [[Antifa]] and [[Black Lives Matter]], [[Marjorie Taylor Greene]] capitulates to [[Kevin McCarthy]] and attacks the "real anti-Semites."
 
 ### AF 2022-06-21 1017
-(00:09:04) [[Tyler Russell]], [[Dalton Clodfelter]], [[Kai Schwemmer]], John Miller, [[Patrick Goy]], and [[Beardson]] are scheduled to attend the July 14th film premiere event in [[City of Las Vegas|Las Vegas]].
+(00:09:04) [[Tyler Russell]], [[Dalton Clodfelter]], [[Kai Schwemmer]], John Miller, [[Patrick Goy]], and [[Beardson]] are scheduled to attend the July 14th film premiere event in [[Las Vegas]].
 
 ### AF 2022-06-22 1016
-(00:06:18) [[Nicholas J. Fuentes]] stated that individuals including John Miller, [[Kai Clibbs]], Dalton, Tyler, Party Boy, and Beardson would attend the [[United States|America]] First documentary premiere in [[City of Las Vegas|Las Vegas]].
+(00:06:18) [[Nicholas J. Fuentes]] stated that individuals including John Miller, [[Kai Clibbs]], Dalton, Tyler, Party Boy, and Beardson would attend the [[United States|America]] First documentary premiere in [[Las Vegas]].
 
 ### AF 2022-05-10 0989
-(01:42:45:46) [[Nicholas J. Fuentes]], when asked about an accusation that he called John Miller a racial slur, gave a "no comment" but stated he loves [[Jason Miller|Miller]] and would be profusely apologetic if such an incident occurred, referencing a chaotic night at the "Meme Mansion" in [[City of Phoenix|Phoenix]].
+(01:42:45:46) [[Nicholas J. Fuentes]], when asked about an accusation that he called John Miller a racial slur, gave a "no comment" but stated he loves [[Jason Miller|Miller]] and would be profusely apologetic if such an incident occurred, referencing a chaotic night at the "Meme Mansion" in [[Phoenix]].
 
 ### AF 2022-02-14 0948
 (01:32:49) [[Nicholas J. Fuentes]] pointed out that the [[BBC]] documentary interviewed individuals like Vince and John Miller but excluded them from the final cut, which he suggested was to avoid complicating the white nationalist narrative.

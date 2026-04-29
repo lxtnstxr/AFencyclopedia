@@ -33,7 +33,7 @@
 (00:10:52) [[Nicholas J. Fuentes]] discussed the exposure of Pedro Gonzalez, a prominent [[Ron DeSantis]] supporter and writer at [[Chronicles]] magazine, by [[Breitbart News]] for anti-Semitic texts sent in 2019.
 
 ### AF 2023-06-30 1184
-(00:13:10) [[Nicholas J. Fuentes]] stated that Pedro Gonzalez had betrayed his previously held views to support [[Ron DeSantis]], whom he characterized as a hardcore supporter of [[Israel]] who had dined with [[Sheldon Adelson|Miriam Adelson]] to receive her blessing.
+(00:13:10) [[Nicholas J. Fuentes]] stated that Pedro Gonzalez had betrayed his previously held views to support [[Ron DeSantis]], whom he characterized as a hardcore supporter of [[Israel]] who had dined with [[Miriam Adelson]] to receive her blessing.
 
 ### AF 2023-06-30 1184
 (00:14:41) [[Nicholas J. Fuentes]] read from an apology by Pedro Gonzalez, in which Gonzalez described his past anti-Semitic views as stemming from a desire to transgress politically acceptable discourse and characterized them as a "mind virus."

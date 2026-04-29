@@ -63,7 +63,7 @@
 (00:05:15) [[Michael Avenatti]] previously represented Stormy Daniels in a case against [[Donald Trump]].
 
 ### AF 2018-08-21 0223
-(00:12:14) [[Michael Cohen]], a former lawyer and fixer for [[Donald Trump]], implicated [[Donald Trump|the president]] in a payoff to Stormy Daniels to silence an alleged affair.
+(00:12:14) [[Michael Cohen]], a former lawyer and fixer for [[Donald Trump]], implicated [[the president]] in a payoff to Stormy Daniels to silence an alleged affair.
 
 ### AF 2018-05-07 0159
 (15:37:20) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] was accused of misconduct based on a misinterpreted "locker room talk" conversation with [[Billy Bush]] from ten years prior and an alleged affair with Stormy Daniels.

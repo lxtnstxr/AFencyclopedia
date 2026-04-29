@@ -8,7 +8,10 @@
 
 
 ### AF 2023-05-09 1158
-(15:54:830) The [[Europe|European Union]] canceled its [[Europe]] Day diplomatic event in [[Israel]] due to the planned participation of the far-right minister Itamar Ben-Gvir, whose views were said to contradict [[EU]] values.
+(15:54:830) The [[European Union]] canceled its [[Europe]] Day diplomatic event in [[Israel]] due to the planned participation of the far-right minister Itamar Ben-Gvir, whose views were said to contradict [[EU]] values.
 
 ### AF 2023-05-09 1158
-(16:27:350) Itamar Ben-Gvir accused the [[Europe|European Union]] of "undiplomatic gagging" in response to the cancellation of the event.
+(16:27:350) Itamar Ben-Gvir accused the [[European Union]] of "undiplomatic gagging" in response to the cancellation of the event.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:27:14:82) [[Nicholas J. Fuentes]] claimed that [[Israel|Israeli]] ministers Itamar Ben-Gvir and [[Bezalel Smotrich]] believe in this project and have given speeches in front of podiums depicting a "Greater [[Israel]]."

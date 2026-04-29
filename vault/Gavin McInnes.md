@@ -51,10 +51,10 @@
 (00:10:09) [[The Ralph Retort]] or [[The Kill Stream]] hosted a debate featuring [[Ali Alexander]] and Gavin McInnes.
 
 ### AF 2022-11-04 1093
-(00:04:52) [[Nicholas J. Fuentes]] recounted that he started his show in February 2017 and attended the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally in August 2017, believing it would be a mainstream anti-immigration event featuring figures like [[Faith Goldy]], Gavin McInnis, and [[Samuel J. Hyde|Sam Hyde]].
+(00:04:52) [[Nicholas J. Fuentes]] recounted that he started his show in February 2017 and attended the [[Charlottesville]] "Unite the Right" rally in August 2017, believing it would be a mainstream anti-immigration event featuring figures like [[Faith Goldy]], Gavin McInnis, and [[Samuel J. Hyde|Sam Hyde]].
 
 ### AF 2022-11-03 1092
-(05:23:34) [[Nicholas J. Fuentes]] stated he was told that [[Faith Goldy]], Gavin McInnes, and [[Samuel J. Hyde|Sam Hyde]] would be at the [[City of Charlottesville|Charlottesville]] rally, leading him to believe it was a mainstream right-wing gathering.
+(05:23:34) [[Nicholas J. Fuentes]] stated he was told that [[Faith Goldy]], Gavin McInnes, and [[Samuel J. Hyde|Sam Hyde]] would be at the [[Charlottesville]] rally, leading him to believe it was a mainstream right-wing gathering.
 
 ### AF 2022-10-18 1080
 (01:05:54) [[Nicholas J. Fuentes]] stated that Gavin McInnes, who introduced him to many followers, does not agree with his views on [[Jewish]] influence or race.
@@ -180,7 +180,7 @@
 (00:07:20) [[Google|YouTube]] cited copyright infringement as the official reason for banning Gavin McInnes's channel, leading to speculation that [[Blaze Media|CRTV]] may have flagged his content after terminating his employment.
 
 ### AF 2018-12-10 0292
-(00:09:00) [[Nicholas J. Fuentes]] expressed personal satisfaction at Gavin McInnes's deplatforming, citing McInnes's past refusal to collaborate or signal-boost figures like himself and [[Jared Taylor]], and his attacks on attendees of the [[City of Charlottesville|Charlottesville rally]].
+(00:09:00) [[Nicholas J. Fuentes]] expressed personal satisfaction at Gavin McInnes's deplatforming, citing McInnes's past refusal to collaborate or signal-boost figures like himself and [[Jared Taylor]], and his attacks on attendees of the [[Charlottesville rally]].
 
 ### AF 2018-12-10 0292
 (00:10:40) [[Nicholas J. Fuentes]] criticized Gavin McInnes for using his platform to advance what he termed "basic bitch conservatism" instead of addressing issues like criticism of technology, egalitarianism, and the free market.
@@ -246,7 +246,7 @@
 (00:10:18) [[Blaze Media|CRTV]] continued to carry Gavin McInnes's show despite the [[Federal Bureau of Investigation|FBI]]'s classification of the [[Proud Boys]].
 
 ### AF 2018-11-02 0275
-(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[City of Charlottesville|Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], [[Milo Yiannopoulos]], [[Chuck Johnson]], and [[Andrew Anglin]], and later included Gavin McInnes.
+(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], [[Milo Yiannopoulos]], [[Chuck Johnson]], and [[Andrew Anglin]], and later included Gavin McInnes.
 
 ### AF 2018-10-18 0264
 (00:39:44) [[Alex Jones]] was banned from [[Twitter]] for harassing a journalist, while Gavin McInnes and [[Samuel J. Hyde|Sam Hyde]] also faced bans, contrasting with [[Louis Farrakhan]]'s ability to remain on the platform.
@@ -288,7 +288,7 @@
 (01:03:18:07) [[Nicholas J. Fuentes]] gave his opinion on Gavin McInnes, calling him funny but criticizing him for being pro-[[Israel]] and pro-gay marriage, and for never acknowledging him due to his controversial status.
 
 ### AF 2018-05-07 0159
-(36:59:00) [[Nicholas J. Fuentes]] cited hypocrisy, noting that [[Milo Yiannopoulos]] canceled an interview with him for being "too controversial," and Gavin McInnes told his [[Proud Boys]] to disavow the [[City of Charlottesville|Charlottesville]] rally.
+(36:59:00) [[Nicholas J. Fuentes]] cited hypocrisy, noting that [[Milo Yiannopoulos]] canceled an interview with him for being "too controversial," and Gavin McInnes told his [[Proud Boys]] to disavow the [[Charlottesville]] rally.
 
 ### AF 2018-05-07 0159
 (40:37:20) [[Nicholas J. Fuentes]] stated that figures like Gavin McInnes, [[Lauren Southern]], and [[Milo Yiannopoulos]] initially brought him into right-wing politics by discussing issues like [[Islam|Muslim]] demographic invasion and traditional gender roles, but had since "betrayed those very principles."
@@ -297,10 +297,16 @@
 (49:45:20) [[Nicholas J. Fuentes]] stated that while he disagrees with Gavin McInnes's pro-Zionist ideology, he does not think he is a bad [[person]] and supports a broader right-wing coalition.
 
 ### AF 2017-12-22 0075
-(00:51:11) [[Nicholas J. Fuentes]] credited [[Milo Yiannopoulos]] as one of the best things to happen to the alt-right for creating a funnel from mainstream conservative commentators like [[Ben Shapiro]] and [[Steven Crowder]] into the nationalist movement, a pathway also facilitated by figures like Gavin McInnes, [[Alex Jones]], and [[Paul Miller|Paul Joseph Watson]].
+(00:51:11) [[Nicholas J. Fuentes]] credited [[Milo Yiannopoulos]] as one of the best things to happen to the alt-right for creating a funnel from mainstream conservative commentators like [[Ben Shapiro]] and [[Steven Crowder]] into the nationalist movement, a pathway also facilitated by figures like Gavin McInnes, [[Alex Jones]], and [[Paul Joseph Watson]].
 
 ### AF 2017-12-22 0075
 (01:11:44) [[Nicholas J. Fuentes]] recounted his own path into the movement through [[Stefan Molyneux]] and Gavin McInnes, [[who]] bridged the gap to [[Jared Taylor]] and [[Richard Spencer]].
 
 ### AF 2017-10-31 0043
 (01:12:12) [[Nicholas J. Fuentes]] and a caller discussed the interview between Gavin McInnes and [[Milo Yiannopoulos]], with the caller noting it felt unserious compared to alt-right content, and [[Nicholas J. Fuentes]] jokingly suggested testing if McInnes was allowed to say "bug man" on air.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:55:30) [[Nicholas J. Fuentes]] listed his broadcast influences: [[Bill O'Reilly]], [[Greg Gutfeld]], [[John Stossel]], [[Samuel J. Hyde|Sam Hyde]], [[Donald Trump]], [[Alex Jones]], Gavin McInnes, and [[Milton Friedman]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:18:51) [[Nicholas J. Fuentes]] argued that the post-2016 conservative media ecosystem was a "gatekept closed system" for figures like [[Charlie Kirk]], [[Ben Shapiro]], and [[Prager University|PragerU]], while others like Gavin McInnes, [[Alex Jones]], and [[Samuel J. Hyde|Sam Hyde]] were "unpersoned" and "banned from everything."

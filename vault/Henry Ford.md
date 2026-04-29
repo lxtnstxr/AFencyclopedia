@@ -30,3 +30,9 @@
 
 ### AF 2018-02-28 0115
 (42:02:76) [[Nicholas J. Fuentes]] listed [[John D. Rockefeller]], [[Andrew Carnegie]], Henry Ford, and [[Charles Lindbergh]] as great [[United States|American]] industrialists and innovators whose [[heritage]] should be embraced.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:45:00) [[Nicholas J. Fuentes]] mocked the conspiracy theories, comparing them to a courtroom scene where a witness is called from purgatory, and stated that antisemitism “used to be smart” and was an elite club including [[Charles Lindbergh]], Henry Ford, [[Mel Gibson]], [[Richard Wagner]], and [[Adolf Hitler|Hitler]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:31:51) [[Nicholas J. Fuentes]] named [[George Washington]], Henry Ford, [[Charles Lindbergh]], [[Thomas Jefferson]], [[Abraham Lincoln]], and [[Frank Sinatra]] as examples of the "flesh and blood" people that constitute the [[United States]] of [[United States|America]].

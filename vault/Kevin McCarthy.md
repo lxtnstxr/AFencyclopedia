@@ -171,7 +171,7 @@
 (50:51:22) [[Matt Gaetz]] initiated the motion to vacate that led to the removal of Kevin McCarthy as [[Mike Johnson|Speaker of the House]] after McCarthy bypassed [[Republican Party|Republican]] negotiations to pass a spending bill with [[Democratic Party|Democratic]] votes.
 
 ### AF 2024-01-06 1274
-(00:07:08) [[Nicholas J. Fuentes]] argued that [[Destiny]] is unintelligent, citing his inability to locate [[Israel]] on a map, confusion over [[Donald Trump|the president]] of [[Turkey]], and ignorance about [[Genghis Khan]], the [[Bible]], and Kevin McCarthy.
+(00:07:08) [[Nicholas J. Fuentes]] argued that [[Destiny]] is unintelligent, citing his inability to locate [[Israel]] on a map, confusion over [[the president]] of [[Turkey]], and ignorance about [[Genghis Khan]], the [[Bible]], and Kevin McCarthy.
 
 ### AF 2024-01-05 1273
 (04:13:42) [[Nicholas J. Fuentes]] criticized [[Destiny]] for not knowing basic political facts, citing a clip where [[Destiny]] did not know who Kevin McCarthy was and initially confused him with [[Joseph McCarthy]].
@@ -252,7 +252,7 @@
 (00:33:33) [[Paul Gosar]]'s team canceled a fundraiser with [[Nicholas J. Fuentes]] at the last minute, went to the press to deny it was ever happening, and cited the need to "live to fight another day" due to pressure from Kevin McCarthy and the media.
 
 ### AF 2023-10-20 1239
-(00:35:19) [[Nicholas J. Fuentes]] questioned where [[Paul Gosar]] and [[Marjorie Taylor Greene]] were on the [[Israel]]-[[Gaza Strip|Gaza]] conflict, noting they had left the [[United States|America]] First movement while he had remained consistent on the border, Kevin McCarthy, and [[Israel]]-[[Gaza Strip|Palestine]].
+(00:35:19) [[Nicholas J. Fuentes]] questioned where [[Paul Gosar]] and [[Marjorie Taylor Greene]] were on the [[Israel]]-[[Gaza Strip|Gaza]] conflict, noting they had left the [[United States|America]] First movement while he had remained consistent on the border, Kevin McCarthy, and [[Israel]]-[[Palestine]].
 
 ### AF 2023-10-20 1239
 (00:36:23) [[Marjorie Taylor Greene]] voted for Kevin McCarthy and voted not to remove him, while [[Paul Gosar]] also voted for him.
@@ -306,7 +306,7 @@
 (01:14:32) [[Matt Gaetz]] stated he wanted [[Jim Jordan]] to replace Kevin McCarthy as Speaker, but [[Jim Jordan]] had previously declined the role in January 2023.
 
 ### AF 2023-10-04 1229
-(01:14:32) [[Nicholas J. Fuentes]] recounted that in 2021, [[Paul Gosar]] canceled a planned fundraiser with him in [[City of Phoenix|Phoenix]] after Kevin McCarthy implied threats over the event, with Gosar's team stating they needed to "live to fight another day."
+(01:14:32) [[Nicholas J. Fuentes]] recounted that in 2021, [[Paul Gosar]] canceled a planned fundraiser with him in [[Phoenix]] after Kevin McCarthy implied threats over the event, with Gosar's team stating they needed to "live to fight another day."
 
 ### AF 2023-10-04 1229
 (01:14:32) [[Nicholas J. Fuentes]] argued that [[Marjorie Taylor Greene]] made an early alliance with Kevin McCarthy to secure committee assignments and rehabilitate her image to pursue higher office, but failed to deliver substantive policy victories for her constituents.
@@ -634,3 +634,6 @@
 
 ### AF 2023-05-17 1162
 (01:44:86) Kevin McCarthy, as [[Mike Johnson|Speaker of the House]], had promised to release 40,000 hours of footage from the [[January 6th Attack|January 6th]] Capitol riot and to take action against federal law enforcement agencies.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:50:13) [[Frank Luntz]] was the former roommate of Kevin McCarthy, [[who]] was the [[Mike Johnson|Speaker of the House]] from 2022 until 2023.

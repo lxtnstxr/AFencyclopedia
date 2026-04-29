@@ -15,7 +15,7 @@
 (00:01:34) [[Nicholas J. Fuentes]] discovered a smear article about himself published on the Vice Snapchat division, written by former associate [[William Nardi]].
 
 ### AF 2018-04-02 0136
-(00:02:06) The Vice Snapchat article, titled "The Evolving Face of Hate," focused on the alt-right and the [[City of Charlottesville|Charlottesville]] rally.
+(00:02:06) The Vice Snapchat article, titled "The Evolving Face of Hate," focused on the alt-right and the [[Charlottesville]] rally.
 
 ### AF 2018-04-02 0136
 (00:03:02) [[William Nardi]] authored a Vice article titled "My Strange Rivalry with an Alt-Righter in College," which labeled [[Nicholas J. Fuentes]] a white supremacist, anti-Semite, and Islamophobe.

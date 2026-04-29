@@ -19,3 +19,9 @@
 
 ### AF 2017-11-06 0047
 (00:29:20) VOA News reported significant activity at one of [[North Korea]]'s nuclear testing sites based on satellite imagery.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:43:09) [[Tucker Carlson]]'s dad ran Voice of America for the [[Central Intelligence Agency|CIA]] and then was at the [[Foundation for Defensive Democracies]], the most pro-[[Israel]] think tank in [[Washington D.C.|DC]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:11) [[Dick Carlson]], father of [[Tucker Carlson]], ran Voice of America.

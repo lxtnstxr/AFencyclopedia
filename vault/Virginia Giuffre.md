@@ -13,3 +13,9 @@
 
 ### AF 2020-06-25 0629
 (02:10:15) [[Nicholas J. Fuentes]] stated he had no information about Virginia Roberts Giuffre naming [[Ehud Barak]] and Wes Lexler in a deposition related to the [[Jeffrey Epstein]] case.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:21:12) [[Nicholas J. Fuentes]] called [[Jeffrey Epstein]] a "baller ass nigga" and a criminal, but argued that the claims of satanic abuse and ritualistic pedophilia were fabricated by Virginia Giuffre, whom he called a serial fabulist.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:23:37) [[Nicholas J. Fuentes]] claimed that claims about [[Jeffrey Epstein]] have gotten "crazier and crazier" and that Virginia Giuffre made up stories about triplets for the devil.

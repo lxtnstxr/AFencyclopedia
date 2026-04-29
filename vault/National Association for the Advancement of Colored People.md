@@ -30,7 +30,7 @@
 (01:04:24:21) Major corporations including [[Bank of America Corporation|Bank of America]], [[Google]], [[Facebook]], [[Apple Inc.|Apple]], [[Amazon Inc.|Amazon]], [[Nike]], [[Uber]], and [[Google|YouTube]] issued statements of support, hashtags, and donations totaling millions of dollars to organizations like [[Black Lives Matter]], the NAACP, and the [[ACLU]].
 
 ### AF 2020-02-24 0553
-(01:25:28) A hypothetical film depicting a hero going into the [[south]] side of [[City of Chicago|Chicago]] to kill all gang bangers and drug dealers would be universally condemned and compared to *Birth of a Nation* by the NAACP.
+(01:25:28) A hypothetical film depicting a hero going into the [[south]] side of [[Chicago]] to kill all gang bangers and drug dealers would be universally condemned and compared to *Birth of a Nation* by the NAACP.
 
 ### AF 2019-11-11 0496
 (01:41:12) [[Nicholas J. Fuentes]] acknowledged that some [[Jews|Jewish people]] were instrumental in founding the NAACP but had not heard the spying allegation.

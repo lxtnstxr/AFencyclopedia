@@ -7,3 +7,6 @@
 
 ### AF 2017-11-27 0058
 (00:38:40) [[Prince Harry]] became engaged to his girlfriend [[Meghan Markle]], [[who]] became the first mixed-race [[person]] to join the British royal family.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:14:52:00) [[Nicholas J. Fuentes]] stated that [[Jeffrey Epstein]] was a sex trafficker [[who]] groomed underage girls potentially for blackmail, connected to the British royal family, foreign governments, [[Israel|Israeli]] intelligence, billionaires, and elite members of [[United States|American]] public and private life.

@@ -2,7 +2,7 @@
 #Unknown
 
 ### AF 2023-01-26 1113
-(00:39:40) [[Nicholas J. Fuentes]] called for discussions on specific, tangible issues like the [[Kennedy assassination]], the Holocaust, the [[September 11 attacks]], [[Jewish]] media ownership, and crime in [[City of Chicago|Chicago]], rather than abstract conversations.
+(00:39:40) [[Nicholas J. Fuentes]] called for discussions on specific, tangible issues like the [[Kennedy assassination]], the Holocaust, the [[September 11 attacks]], [[Jewish]] media ownership, and crime in [[Chicago]], rather than abstract conversations.
 
 
 ### AF 2018-12-17 0297

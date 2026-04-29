@@ -25,3 +25,6 @@
 
 ### AF 2018-04-20 0149
 (01:17:17) [[Nicholas J. Fuentes]] suggested that the [[United States]] missile strike on [[Syria]] the previous week was intended to give [[Donald Trump]] an upper hand in negotiations with [[North Korea]], a view he stated was echoed by analysts from CNBC, [[State of Japan|Japanese]], and [[China|Chinese]] press.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(00:53:10) [[Nicholas J. Fuentes]] stated that the [[Republican Party|RNC]] had given him a "copyright" or "intellectual property" complaint for live-streaming a past event, leading him to switch his coverage of the [[Concept|State of the Union]] to C-SPAN.

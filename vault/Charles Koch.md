@@ -121,7 +121,7 @@
 (00:12:00) [[Nicholas J. Fuentes]] noted that one of the facilities raided by [[U.S. Immigration and Customs Enforcement|ICE]] in [[State of Mississippi|Mississippi]] was owned by the Koch brothers, whom he described as proponents of mass immigration to fill their factories.
 
 ### AF 2019-06-11 0404
-(00:34:24) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] could not pass meaningful immigration or trade reform because [[Republican Party]] leaders like [[Paul Ryan]], [[Mitch McConnell]], and [[Mike Johnson|Kevin McCarthy]] were funded by big business interests like the Koch brothers.
+(00:34:24) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] could not pass meaningful immigration or trade reform because [[Republican Party]] leaders like [[Paul Ryan]], [[Mitch McConnell]], and [[Kevin McCarthy]] were funded by big business interests like the Koch brothers.
 
 ### AF 2019-05-20 0391
 (00:48:45) [[Nicholas J. Fuentes]] argued that major corporations like [[Burger King]], [[Disney]], and [[Goldman Sachs]], as well as donors like the Koch brothers, consistently promote left-wing social causes and mass immigration in pursuit of profit, aligning with progressive activists against nationalist politicians.
@@ -199,7 +199,7 @@
 (00:38:54) [[Nicholas J. Fuentes]] argued that commentators like [[Ben Shapiro]], [[Ted Cruz]], and [[Glenn Beck]] opposed [[Donald Trump]]'s tariffs because they were funded by interests like the Koch brothers [[who]] benefited from free trade and mass immigration.
 
 ### AF 2018-04-04 0138
-(15:54:970) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s foreign policy decisions, such as recognizing [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]], were influenced by the need to court donors like [[Sheldon Adelson]] and the Koch brothers for the 2018 midterm elections.
+(15:54:970) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s foreign policy decisions, such as recognizing [[Jerusalem]] as the capital of [[Israel]], were influenced by the need to court donors like [[Sheldon Adelson]] and the Koch brothers for the 2018 midterm elections.
 
 ### AF 2018-04-04 0138
 (16:17:830) [[Paul Ryan]] and [[Donald Trump]] were cited as needing to court major [[Republican Party|Republican]] donors, including [[Sheldon Adelson]] and the Koch brothers, for the 2018 midterm elections.
@@ -215,3 +215,6 @@
 
 ### AF 2017-08-31 0006
 (00:57:57) [[Nicholas J. Fuentes]] identified [[Cabot Phillips]] as the son of the head of [[Americans for Prosperity]], a group funded by the Koch brothers.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:20:16) The Quincy Institute, which [[Nicholas J. Fuentes]] described as an anti-war think tank funded by [[George Soros]] and the Koch brothers, was where [[JD Vance]] made this statement.

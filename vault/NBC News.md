@@ -79,13 +79,13 @@
 (01:04:41:110) [[Nicholas J. Fuentes]] continued reading an NBC News article stating that the [[Joe Biden|Biden administration]] used "declassified intelligence as part of an information war against [[Russia]]," even when the intelligence "wasn't rock solid," to keep [[Vladimir Putin]] "off balance."
 
 ### AF 2022-04-08 0974
-(01:06:05:610) [[United States]] officials, according to an NBC News article, acknowledged using "disinformation" or "information as a weapon" against [[Russia]], even with low confidence in its accuracy, to "preempt and disrupt the [[Government of Russia|Kremlin]]'s tactics," "complicate its military campaign," "undermine [[City of Moscow|Moscow]]'s propaganda," and "get inside [[Vladimir Putin]]'s head."
+(01:06:05:610) [[United States]] officials, according to an NBC News article, acknowledged using "disinformation" or "information as a weapon" against [[Russia]], even with low confidence in its accuracy, to "preempt and disrupt the [[Government of Russia|Kremlin]]'s tactics," "complicate its military campaign," "undermine [[Moscow]]'s propaganda," and "get inside [[Vladimir Putin]]'s head."
 
 ### AF 2019-06-26 0415
 (00:07:30) The first 2020 [[Democratic Party|Democratic]] presidential primary debate, featuring [[Cory Booker]], [[Julian Castro]], [[Elizabeth Warren]], [[Beto O'Rourke]], [[Amy Klobuchar]], [[Tim Ryan]], [[Bill de Blasio]], [[John Delaney]], [[Tulsi Gabbard]], and [[Jay Inslee]], was held on NBC and moderated by [[Chuck Todd]] and [[Rachel Maddow]].
 
 ### AF 2019-06-21 0412
-(00:47:47) [[Nicholas J. Fuentes]] stated that an NBC producer contacted him to appear on a panel to discuss the [[City of Charlottesville|Charlottesville rally]] and a mosque shooting, seeking a "white nationalist" perspective, but he declined the invitation.
+(00:47:47) [[Nicholas J. Fuentes]] stated that an NBC producer contacted him to appear on a panel to discuss the [[Charlottesville rally]] and a mosque shooting, seeking a "white nationalist" perspective, but he declined the invitation.
 
 ### AF 2019-04-25 0374
 (41:06:84) [[Sonny Perdue]] hired an agricultural lobbyist to advocate for more foreign workers within [[Jared Kushner]]'s immigration plan, according to NBC.
@@ -179,3 +179,24 @@
 
 ### AF 2017-10-13 0031
 (01:46:40) [[Donald Trump]]'s attempts to challenge multinational corporations like NBC are framed as a strongman counter to the managerial class, which [[Nicholas J. Fuentes]] views as a greater threat.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:24:05) [[Nicholas J. Fuentes]] reported official polling data from NBC News showing that 54% of registered voters disapprove of [[Donald Trump]]'s handling of the situation in [[Iran]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:24:40) The NBC News poll showed that an overwhelming 89% of [[Democratic Party|Democrats]] say the [[United States]] should not have struck [[Iran]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:25:18) The NBC News poll showed that 77% of all [[Republican Party|Republicans]] support the strikes, but a full 90% of self-identified [[Donald Trump|MAGA]] [[Republican Party|Republicans]] back them, compared to 54% of non-[[Donald Trump|MAGA]] [[Republican Party|Republicans]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:25:46) The NBC News poll found that two thirds of voters under 35 say the [[United States]] should not have struck [[Iran]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:09:45) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s administration was capitulating on mass deportations, citing a [[Donald Trump|Trump]] interview with NBC where he said [[U.S. Immigration and Customs Enforcement|Immigration and Customs Enforcement]] ([[U.S. Immigration and Customs Enforcement|ICE]]) needed a "softer touch" and was only focusing on criminals.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:04:42) [[The New York Times]], [[Warner Bros. Discovery|CNN]], and NBC ran daily coverage of the "kids in cages" narrative.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:33:00) NBC News reported that [[Israel]] proposed alternatives to a full military strike, such as assisting [[Iran|Iranians]] in getting around the communications shutdown, toughening economic sanctions, engaging in cyber attacks, or launching targeted strikes.

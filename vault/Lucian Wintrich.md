@@ -63,7 +63,7 @@
 (01:20:09) Lucian Wintrich suggested that [[Nicholas J. Fuentes]]'s "angry white boy mentality" and desire for racial separation were bred by constant media messages telling white people they are inherently bad.
 
 ### AF 2018-08-07 0216
-(01:26:16) Lucian Wintrich stated that one reason he loved [[Donald Trump]] was that [[Donald Trump|the president's]] tweets, such as calling [[LeBron James]] and [[Don Lemon]] "stupid" or insulting [[Rosie O'Donnell]], made the people he hated angry.
+(01:26:16) Lucian Wintrich stated that one reason he loved [[Donald Trump]] was that [[the president's]] tweets, such as calling [[LeBron James]] and [[Don Lemon]] "stupid" or insulting [[Rosie O'Donnell]], made the people he hated angry.
 
 ### AF 2018-08-07 0216
 (01:32:05) Lucian Wintrich announced he was developing new conservative media projects with investors and would be speaking at an unnamed [[Ivy League]] university in the fall.
@@ -99,7 +99,7 @@
 (00:03:34) Lucian Wintrich hosted a livestream the previous evening discussing the collapse of [[Milo Yiannopoulos]]'s planned "Free Speech Week" at [[Berkeley]].
 
 ### AF 2017-09-22 0016
-(00:04:32) Lucian Wintrich, appearing on a livestream with [[Ali Akbar]], argued that [[Milo Yiannopoulos]] had been bluffing about the viability of his [[Berkeley]] event, using the names of [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] to generate publicity without their confirmed participation.
+(00:04:32) Lucian Wintrich, appearing on a livestream with [[Ali Akbar]], argued that [[Milo Yiannopoulos]] had been bluffing about the viability of his [[Berkeley]] event, using the names of [[Steve Bannon]] and [[Ann Coulter]] to generate publicity without their confirmed participation.
 
 ### AF 2017-09-22 0016
 (00:05:46) Lucian Wintrich argued it was unethical for [[Milo Yiannopoulos]] to continue promoting his [[Berkeley]] event, knowing it would not happen, after the university had committed to spending a million dollars on security.
@@ -111,10 +111,10 @@
 (00:07:55) [[Ali Akbar]] criticized [[Nicholas J. Fuentes]]'s podcast and his friend [[James Allsup|James Alsup]] during a livestream with Lucian Wintrich, [[who]] defended [[Nicholas J. Fuentes]].
 
 ### AF 2017-09-21 0015
-(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[City of Berkeley|Berkeley]] event that included [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[Katie Hopkins]], Lucian Wintrich, [[Mike Cernovich]], and [[Jordan Peterson]].
+(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[Berkeley]] event that included [[Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[Katie Hopkins]], Lucian Wintrich, [[Mike Cernovich]], and [[Jordan Peterson]].
 
 ### AF 2017-09-21 0015
-(00:53:31) [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[James Damore]], and Lucian Wintrich all dropped out of [[Milo Yiannopoulos]]'s [[City of Berkeley|Berkeley]] free speech event, leaving only four confirmed speakers.
+(00:53:31) [[Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[James Damore]], and Lucian Wintrich all dropped out of [[Milo Yiannopoulos]]'s [[Berkeley]] free speech event, leaving only four confirmed speakers.
 
 ### AF 2017-09-21 0015
-(01:32:23) [[Milo Yiannopoulos]]'s failed [[City of Berkeley|Berkeley]] event placed [[Ann Coulter]], [[Steven Crowder|Steve Bannon]], [[Jordan Peterson]], and Lucian Wintrich in a bad position by listing them as speakers without their confirmation, generating negative press for them.
+(01:32:23) [[Milo Yiannopoulos]]'s failed [[Berkeley]] event placed [[Ann Coulter]], [[Steve Bannon]], [[Jordan Peterson]], and Lucian Wintrich in a bad position by listing them as speakers without their confirmation, generating negative press for them.

@@ -27,7 +27,7 @@
 (00:05:00) [[Nicholas J. Fuentes]] announced the renegotiation of the [[North American Free Trade Agreement|NAFTA]], resulting in a new trade deal [[known]] as the USMCA.
 
 ### AF 2018-10-01 0251
-(00:49:00) [[Nicholas J. Fuentes]] stated that the USMCA would impact [[United States]] trade policy with [[China]] and the [[Europe|European Union]].
+(00:49:00) [[Nicholas J. Fuentes]] stated that the USMCA would impact [[United States]] trade policy with [[China]] and the [[European Union]].
 
 ### AF 2018-10-01 0251
 (31:36:00) [[Donald Trump]] fulfilled a campaign promise by renegotiating the [[North American Free Trade Agreement|NAFTA]], replacing it with the USMCA.
@@ -51,7 +51,7 @@
 (38:19:00) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] achieved the USMCA through a brawling style of diplomacy involving threats of tariffs on [[Dominion of Canada|Canada]] and [[Mexico]].
 
 ### AF 2018-10-01 0251
-(39:24:00) [[Nicholas J. Fuentes]] stated that the successful renegotiation of [[North American Free Trade Agreement|NAFTA]] into the USMCA gave [[Donald Trump]] political capital and credibility for future negotiations with [[China]] and the [[Europe|European Union]].
+(39:24:00) [[Nicholas J. Fuentes]] stated that the successful renegotiation of [[North American Free Trade Agreement|NAFTA]] into the USMCA gave [[Donald Trump]] political capital and credibility for future negotiations with [[China]] and the [[European Union]].
 
 ### AF 2018-10-01 0251
 (41:35:00) [[Nicholas J. Fuentes]] argued that the USMCA and bilateral trade deals like the one with [[South Korea]] would hurt [[China]] economically and geopolitically by reorienting trade back towards [[United States|America]] and its allies.

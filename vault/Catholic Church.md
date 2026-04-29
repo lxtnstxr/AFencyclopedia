@@ -567,7 +567,7 @@
 (01:08:21) A viewer [[who]] was born Catholic said they could no longer support the Church due to its scandals, prompting [[Nicholas J. Fuentes]] to argue that faith in the Catholic Church is based on its truth as [[Jesus Christ|Christ]]'s church, not the conduct of its human members.
 
 ### AF 2018-09-21 0245
-(40:59:25) [[Nicholas J. Fuentes]] contrasted the enduring 2,000-year history and global evangelization of the Catholic Church in [[Rome]] with the [[Eastern Orthodox Church]], whose center in [[City of Istanbul|Constantinople]] fell and whose influence in [[Russia]] was later challenged by the [[Bolshevik Revolution]].
+(40:59:25) [[Nicholas J. Fuentes]] contrasted the enduring 2,000-year history and global evangelization of the Catholic Church in [[Rome]] with the [[Eastern Orthodox Church]], whose center in [[Constantinople]] fell and whose influence in [[Russia]] was later challenged by the [[Bolshevik Revolution]].
 
 ### AF 2018-09-21 0245
 (46:46:09) [[Nicholas J. Fuentes]] stated that mutually exclusive religions like Catholicism, [[Islam]], and [[The Church of Jesus Christ of Latter-day Saints|Mormonism]] cannot all be true, making relativistic coexistence difficult in an age of globalization and civilizational clash.
@@ -721,3 +721,18 @@
 
 ### AF 2018-05-07 0159
 (01:37:35:20) [[Nicholas J. Fuentes]] again rejected paganism as the religion of his ancestors, stating Catholicism is his ancestral faith and built modern [[Europe]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:18:57) [[Nicholas J. Fuentes]] described the Catholic interpretation of [[Judaism]] as a continuation of the Pharisaical sect that rejected [[Jesus Christ]], and whose subsequent history is a punishment for that rejection.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(02:48:13) [[Nicholas J. Fuentes]] recommended that individuals [[who]] are Protestant and attending a [[Jews|Zionist]] Protestant church should convert to Catholicism.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:09:34) [[Nicholas J. Fuentes]] cited Canon Law in the Catholic Church as setting the minimum age of marriage at 14 for women and 16 for men.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:43:41) [[Nicholas J. Fuentes]] encouraged his viewers to consider the Catholic Church and the gospel.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:18:54) [[Nicholas J. Fuentes]] stated that his convictions about [[Israel]], the Catholic Church, and "race realism" are all results of where the truth led him.

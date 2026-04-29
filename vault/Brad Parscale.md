@@ -9,7 +9,7 @@
 (00:16:59) [[Nicholas J. Fuentes]] blamed [[Jared Kushner]] and Brad Parscale for an incompetent campaign strategy that focused on pandering to [[black]] voters through policies like the First Step Act and historically [[black]] college funding.
 
 ### AF 2020-09-30 0692
-(01:14:55) A tension existed within [[Donald Trump]]'s 2020 campaign between the instincts of [[Donald Trump|the president]] and the advice of advisors like [[Jared Kushner]] and Brad Parscale.
+(01:14:55) A tension existed within [[Donald Trump]]'s 2020 campaign between the instincts of [[the president]] and the advice of advisors like [[Jared Kushner]] and Brad Parscale.
 
 ### AF 2020-09-22 0686
 (00:44:59) [[Nicholas J. Fuentes]] expressed concern that a potential second term for [[Donald Trump]] might revert to the less nationalist governance seen after the 2018 midterms, similar to the period influenced by [[Jared Kushner]] and Brad Parscale.

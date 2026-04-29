@@ -23,3 +23,15 @@
 
 ### AF 2021-01-07 0741
 (03:04:05) [[Nicholas J. Fuentes]] observed that leftists like Jimmy Dore were criticizing coming censorship and the "Temple of Democracy" line, noting that these communists were more on the side of the protesters than the [[Republican Party|GOP]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:32:03) [[Nicholas J. Fuentes]] criticized [[Whitney Webb]] for speculating on Jimmy Dore's show that [[Joe Kent]]'s resignation was part of a plan to "groom far-right terrorists for pre-crime," instead of understanding the simple political operation involving [[David Sacks]] and [[Peter Thiel]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:33:38) [[Nicholas J. Fuentes]] noted that Jimmy Dore and others had tweeted, falsely in his view, that [[Charlie Kirk]] would be opposing a strike on [[Iran]] if he were alive.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:40:18) [[Nicholas J. Fuentes]] criticized Jimmy Dore for taking the “Canis-Oans Kool-Aid,” noting that Dore invited him on his show but then canceled, saying he needed to research [[Nicholas J. Fuentes|Fuentes]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:40:38) [[Nicholas J. Fuentes]] stated that Jimmy Dore is now talking to a woman (the “Canis-Oans” figure) [[who]] is “totally insane” and pumping out “garbage” theories.

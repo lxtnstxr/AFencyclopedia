@@ -113,3 +113,12 @@
 
 ### AF 2018-03-28 0133
 (00:39:58) Roseanne Barr retweeted an article written by [[Nicholas J. Fuentes]] during the 2016 election, an action she repeated twice.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:55:08) [[Nicholas J. Fuentes]] said he gets the same feeling of hatred from [[Mark Levin]] and Roseanne Barr as he does from [[Hasan Piker]] and [[Ilhan Omar]], stating "they all hate [[us]]."
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:41:05) [[Mark Levin]] and Roseanne Barr are hateful people.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:41:57) Roseanne Barr yelled that others will beg for forgiveness.

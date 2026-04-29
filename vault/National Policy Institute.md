@@ -18,4 +18,4 @@
 (38:58:210) [[Nicholas J. Fuentes]] acknowledged that [[Richard Spencer]] had founded the alt-right movement and built institutions like the National Policy Institute, [[Radix Journal]], and [[AltRight.com]].
 
 ### AF 2017-10-19 0035
-(00:03:26) [[Nicholas J. Fuentes]] argued that the activism of [[Richard Spencer]] and the NPI lacked clearly defined short-term and long-term political objectives, making it difficult to evaluate whether events like the [[City of Gainesville|Gainesville]] speech were a net positive or negative for their movement.
+(00:03:26) [[Nicholas J. Fuentes]] argued that the activism of [[Richard Spencer]] and the NPI lacked clearly defined short-term and long-term political objectives, making it difficult to evaluate whether events like the [[Gainesville]] speech were a net positive or negative for their movement.

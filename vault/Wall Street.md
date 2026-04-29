@@ -10,7 +10,7 @@
 (15:00:63) [[Nicholas J. Fuentes]] claimed that the [[Republican Party]] cares about [[Israel]], AI, [[Silicon Valley]], oil and gas, billionaires, and Wall Street, and told them to "let [[William Ackman|Bill Ackman]] win your elections."
 (01:11:04:17) [[Nicholas J. Fuentes]] stated that Wall Street got its corporate tax cut and deregulation, and big agriculture got the [[Donald Trump|Trump]] administration to stop deporting illegal immigrant farmers and not take soda off food stamps.
 ### AF 2025-11-06 1593
-(21:26:21) [[Nicholas J. Fuentes]] stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Sheldon Adelson|Miriam Adelson]], and [[Mark Levin]] used their influence in Wall Street, [[Silicon Valley]], and politics to benefit themselves and [[Israel]] at the expense of [[United States|Americans]].
+(21:26:21) [[Nicholas J. Fuentes]] stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Miriam Adelson]], and [[Mark Levin]] used their influence in Wall Street, [[Silicon Valley]], and politics to benefit themselves and [[Israel]] at the expense of [[United States|Americans]].
 
 
 ### AF 2024-11-07 1419

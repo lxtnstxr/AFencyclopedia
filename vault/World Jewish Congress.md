@@ -36,7 +36,7 @@
 (14:33:58) [[Ronald Lauder]], as head of the World Jewish Congress, initiated a high-pressure campaign against the only three non-[[Jewish]] presidents of [[Ivy League|Ivy League universities]].
 
 ### AF 2023-12-12 1261
-(41:00:58) [[Ronald Lauder]] is [[Donald Trump|the president]] of the World Jewish Congress, which presides over [[Jewish]] groups and federations worldwide.
+(41:00:58) [[Ronald Lauder]] is [[the president]] of the World Jewish Congress, which presides over [[Jewish]] groups and federations worldwide.
 
 ### AF 2023-12-12 1261
 (47:22:94) [[Nicholas J. Fuentes]] pointed to the mobilization of the World Jewish Congress, [[Jewish]] billionaires, and [[U.S. Congress|Congress]] against non-[[Jewish]] [[Ivy League]] presidents as evidence of a conspiratorial network.
@@ -60,10 +60,25 @@
 (01:36:45) A [[British Broadcasting Corporation|BBC]] article reported that the World Jewish Congress was upset by a Polish Easter tradition where an effigy of Judas Iscariot, depicted with a big red nose, [[black]] hat, and Orthodox-style ringlets, is beaten and dragged through the streets.
 
 ### AF 2019-04-22 0371
-(01:39:21) The World Jewish Congress, founded in [[Geneva]] in 1936, is an international federation of [[Jews|Jewish]] communities and organizations with headquarters in [[New York|New York City]] and offices in [[Brussels]], [[City of Jerusalem|Jerusalem]], [[Paris]], [[City of Moscow|Moscow]], [[Buenos Aires]], and [[Geneva]].
+(01:39:21) The World Jewish Congress, founded in [[Geneva]] in 1936, is an international federation of [[Jews|Jewish]] communities and organizations with headquarters in [[New York|New York City]] and offices in [[Brussels]], [[Jerusalem]], [[Paris]], [[Moscow]], [[Buenos Aires]], and [[Geneva]].
 
 ### AF 2019-04-22 0371
 (01:39:26) [[The president]] of the World Jewish Congress is [[Ronald Lauder|Ronald S. Lauder]], heir to the [[Estée Lauder Companies]], and the chief executive officer is [[David de Rothschild]], head of the Rothschild banks in [[France]].
 
 ### AF 2018-04-25 0152
 (39:28:81) [[Nicholas J. Fuentes]] referenced the [[NXIVM]] scandal, a cult in [[New York|New York City]] that involved a sex ring and had donated money to [[Hillary Clinton]], noting the daughter of the head of the World Jewish Congress was involved.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:26:17) [[Ronald Lauder]], chairman of the World Jewish Congress, has a son-in-law [[who]] is the chair of the [[Federal Reserve]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:50:43) [[Ronald Lauder]] is the head of the World Jewish Congress.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:54:35) [[Ronald Lauder]] is the chair of the World Jewish Congress, gave $5 million to [[Donald Trump|Trump's]] [[Super PAC]], and his son-in-law is [[Donald Trump]]'s nominee to be the chair of the [[Federal Reserve]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:28) [[Ronald Lauder]] is the chair of the World Jewish Congress and the [[World Economic Forum]], succeeding [[Edgar Bronfman Sr.]]
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:46:05) [[Nicholas J. Fuentes]] identified the culprits as [[American Israel Public Affairs Committee|AIPAC]], the [[Anti-Defamation League|ADL]], and the World Jewish Congress, and the [[Israel|Jewish state]] of [[Israel]].

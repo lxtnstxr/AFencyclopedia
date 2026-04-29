@@ -16,3 +16,6 @@
 
 ### AF 2018-04-06 0140
 (00:37:32) Sean admitted to eating a "Lenny and Larry" cookie, defending it as a treat, while [[Nicholas J. Fuentes]] joked about his own diet of daily Burger King.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:51:03) [[Nicholas J. Fuentes]] mocked the genre of conspiracy content by predicting future installments for [[Ian Carroll]], such as "Red Lobster conspiracy" and "Burger King royal family sex ring."

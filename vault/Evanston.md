@@ -6,7 +6,7 @@
 
 
 ### AF 2020-08-10 0658
-(03:12:85) [[Nicholas J. Fuentes]] reported that a school district in Evanston, north of [[City of Chicago|Chicago]], announced a phased return to in-[[person]] instruction that would give priority to [[black]] and brown students, among other categories.
+(03:12:85) [[Nicholas J. Fuentes]] reported that a school district in Evanston, north of [[Chicago]], announced a phased return to in-[[person]] instruction that would give priority to [[black]] and brown students, among other categories.
 
 ### AF 2020-08-10 0658
 (08:55:39) [[Nicholas J. Fuentes]] cited a report stating that Evanston School District 65's reopening plan, titled "Reimagining Education," granted priority for in-[[person]] instruction to students receiving free or reduced lunch, [[black]] and brown students, and others.

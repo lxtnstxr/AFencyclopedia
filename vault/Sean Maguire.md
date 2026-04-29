@@ -15,3 +15,15 @@
 
 ### AF 2024-11-19 1421
 (01:29:15) Prominent figures like Sean Maguire of [[Sequoia Capital]], [[Marc Andreessen]] of [[a16z]], [[William Ackman]] of [[Apollo]], [[Jacob Helberg]], and [[Elon Musk]] shifted their support from the [[Democratic Party|Democrats]] to [[Donald Trump]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:01:04:36) [[Nicholas J. Fuentes]] cited Sean McGuire, a partner at Sequoia, as an example of a lifelong [[Democratic Party|Democrat]] from [[San Francisco Bay Area|San Francisco]] [[who]] became a [[Donald Trump|Trump]] supporter after [[October 7th Attack|October 7th]], 2023, because his wife and children are [[Israel|Israeli]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:01:04:36) [[Nicholas J. Fuentes]] stated that Sean McGuire only invests his venture capital in defense tech firms that are pro-[[Israel]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:03:11:68) [[Nicholas J. Fuentes]] repeated Sean McGuire's claim that the [[Democratic Party]] is the party of [[Nicholas J. Fuentes]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:05:21:74) [[Nicholas J. Fuentes]] argued that Sean McGuire became a [[Republican Party|Republican]] the day they put [[Israel first]], which was the same day he stopped being a [[Republican Party|Republican]] because they put [[United States|America]] last.

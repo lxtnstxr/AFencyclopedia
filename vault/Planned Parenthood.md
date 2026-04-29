@@ -21,7 +21,7 @@
 (05:36:240) [[Nicholas J. Fuentes]] commented that he had not seen the news about Planned Parenthood losing federal funding but said it was good to hear.
 
 ### AF 2019-05-07 0382
-(00:11:43) [[Brian Sims]], the first openly gay [[state]] legislator in [[Commonwealth of Pennsylvania|Pennsylvania]] history, harassed a group of teenage girls and their mother [[who]] were praying outside a Planned Parenthood clinic in [[City of Philadelphia|Philadelphia]].
+(00:11:43) [[Brian Sims]], the first openly gay [[state]] legislator in [[Commonwealth of Pennsylvania|Pennsylvania]] history, harassed a group of teenage girls and their mother [[who]] were praying outside a Planned Parenthood clinic in [[Philadelphia]].
 
 ### AF 2019-05-07 0382
 (00:13:23) [[Brian Sims]] offered $100 via his [[Periscope]] stream to anyone [[who]] could dox the teenage girls praying outside the Planned Parenthood clinic.

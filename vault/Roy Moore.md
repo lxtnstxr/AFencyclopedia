@@ -141,7 +141,7 @@
 (00:26:24) [[Nicholas J. Fuentes]] argued that Roy Moore's loss diminished [[Donald Trump]]'s political clout ahead of the 2018 midterms, creating an optical victory for [[Mitch McConnell]] and [[Paul Ryan]].
 
 ### AF 2017-12-13 0069
-(00:28:27) Following the sexual misconduct allegations against Roy Moore, [[Sean Hannity]] stated the decision was up to the people of [[Alabama]], and [[Steven Crowder|Steve Bannon]] said he would "bury" Moore if the allegations were true.
+(00:28:27) Following the sexual misconduct allegations against Roy Moore, [[Sean Hannity]] stated the decision was up to the people of [[Alabama]], and [[Steve Bannon]] said he would "bury" Moore if the allegations were true.
 
 ### AF 2017-12-13 0069
 (00:29:11) Betting markets like PredictIt gave Roy Moore an 80% chance of winning the Alabama [[Senate]] election, but their predictions fluctuated in real-[[time]] based on [[The New York Times]]' election needle.
@@ -219,13 +219,13 @@
 (11:05:10) [[Nicholas J. Fuentes]] planned to discuss the [[Senate]] election involving Roy Moore in [[Alabama]], [[Twitter]]'s de-verification of some of his friends, and the [[House]] tax reform bill that had just passed.
 
 ### AF 2017-11-16 0052
-(13:56:18) Roy Moore exemplified the insurgent [[Steven Crowder|Steve Bannon]] mindset that had drifted away from [[Donald Trump]] since he entered office, according to [[Nicholas J. Fuentes]].
+(13:56:18) Roy Moore exemplified the insurgent [[Steve Bannon]] mindset that had drifted away from [[Donald Trump]] since he entered office, according to [[Nicholas J. Fuentes]].
 
 ### AF 2017-11-16 0052
-(14:28:80) Roy Moore's primary victory against [[Luther Strange]] with the help of [[Steven Crowder|Steve Bannon]] was a seismic message to [[Mitch McConnell]] and establishment [[Republican Party|Republicans]] that [[Steven Crowder|Steve Bannon]] was serious, according to [[Nicholas J. Fuentes]].
+(14:28:80) Roy Moore's primary victory against [[Luther Strange]] with the help of [[Steve Bannon]] was a seismic message to [[Mitch McConnell]] and establishment [[Republican Party|Republicans]] that [[Steve Bannon]] was serious, according to [[Nicholas J. Fuentes]].
 
 ### AF 2017-11-16 0052
-(15:32:74) [[Nicholas J. Fuentes]] argued that if Roy Moore lost the general election, it would prove criticisms of [[Steven Crowder|Steve Bannon]]'s insurgent wing correct and demonstrate that the establishment and mainstream media still held sway.
+(15:32:74) [[Nicholas J. Fuentes]] argued that if Roy Moore lost the general election, it would prove criticisms of [[Steve Bannon]]'s insurgent wing correct and demonstrate that the establishment and mainstream media still held sway.
 
 ### AF 2017-11-16 0052
 (16:47:36) [[Nicholas J. Fuentes]] accused pundits like [[Ben Shapiro]], [[Jonah Goldberg]], and [[Bill Kristol]], along with [[Mitch McConnell]] and the [[Republican Party|Republican]] establishment, of hypocrisy for making the Roy Moore scandal about morals while ignoring similar allegations against their allies.
@@ -285,7 +285,7 @@
 (11:56:12) Following the scandal, Roy Moore and his [[Democratic Party|Democratic]] opponent were tied in polls for the Alabama [[Senate]] special election scheduled for December 12.
 
 ### AF 2017-11-10 0051
-(12:44:04) Roy Moore defeated [[Luther Strange]], the candidate supported by [[Mitch McConnell]] and [[Donald Trump]], in the [[Republican Party|Republican]] primary, with [[Steven Crowder|Steve Bannon]] and [[Breitbart News|Breitbart]] backing Moore's campaign.
+(12:44:04) Roy Moore defeated [[Luther Strange]], the candidate supported by [[Mitch McConnell]] and [[Donald Trump]], in the [[Republican Party|Republican]] primary, with [[Steve Bannon]] and [[Breitbart News|Breitbart]] backing Moore's campaign.
 
 ### AF 2017-11-10 0051
 (13:45:32) [[Laura Ingraham]] supported Roy Moore's [[Senate]] campaign.
@@ -303,10 +303,10 @@
 (47:42:00) Roy Moore held a double-digit lead over his [[Democratic Party|Democratic]] opponent, [[Doug Jones]], in the [[Alabama]] [[Senate]] race.
 
 ### AF 2017-11-09 0050
-(57:05:00) A viewer noted the [[City of Las Vegas|Las Vegas]] shooter and Roy Moore brandished the same make and model of gun, which [[Nicholas J. Fuentes]] called an interesting coincidence.
+(57:05:00) A viewer noted the [[Las Vegas]] shooter and Roy Moore brandished the same make and model of gun, which [[Nicholas J. Fuentes]] called an interesting coincidence.
 
 ### AF 2017-10-24 0038
-(08:30:34) [[Nicholas J. Fuentes]] suggested that [[Stephen Miller]]'s role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with [[Donald Trump]]'s own opposition, and that [[Donald Trump|the president's]] actions serviced the political ascendancy of [[Steven Crowder|Steve Bannon]] and Roy Moore in [[Alabama]].
+(08:30:34) [[Nicholas J. Fuentes]] suggested that [[Stephen Miller]]'s role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with [[Donald Trump]]'s own opposition, and that [[the president's]] actions serviced the political ascendancy of [[Steve Bannon]] and Roy Moore in [[Alabama]].
 
 ### AF 2017-10-18 0034
 (00:03:55) [[Paul Nehlen]] worked behind the scenes for Judge Moore's campaign and praised Moore for stating he would support [[Donald Trump]] as long as [[Donald Trump|Trump]] supported the [[U.S. Constitution|Constitution]].
@@ -318,7 +318,7 @@
 (00:39:18) [[Paul Nehlen]] praised Judge Moore for standing up for his beliefs and the [[U.S. Constitution|Constitution]] by refusing to comply with a federal order regarding same-sex marriage licenses.
 
 ### AF 2017-10-16 0032
-(02:26:10) [[Steven Crowder|Steve Bannon]] planned to run candidates against the [[Republican Party|GOP]] establishment in states including [[State of Nevada|Nevada]], [[Tennessee]], [[Alabama]], and [[Arizona]], and had already supported Roy Moore in the [[Alabama]] [[Republican Party|Republican]] primary against [[Luther Strange]].
+(02:26:10) [[Steve Bannon]] planned to run candidates against the [[Republican Party|GOP]] establishment in states including [[State of Nevada|Nevada]], [[Tennessee]], [[Alabama]], and [[Arizona]], and had already supported Roy Moore in the [[Alabama]] [[Republican Party|Republican]] primary against [[Luther Strange]].
 
 ### AF 2017-09-27 0019
 (00:00:14) Roy Moore won the Alabama special [[Senate]] election by 9% against the establishment-backed candidate, a victory celebrated by the [[America First]] movement.
@@ -330,7 +330,7 @@
 (02:14:46) [[Donald Trump]] held a rally in [[Huntsville]], [[Alabama]] to endorse [[Luther Strange]], but the [[state]]'s [[Republican Party|Republican]] electorate rejected his endorsement and voted overwhelmingly for Roy Moore.
 
 ### AF 2017-09-27 0019
-(02:15:58) The victory of Roy Moore demonstrated that the [[Republican Party|Republican]] base could support the [[Donald Trump|Trump]] agenda while rejecting [[Donald Trump|the president's]] specific endorsements, providing [[Donald Trump|Trump]] a potential excuse to avoid campaigning for establishment figures like [[Mitch McConnell]].
+(02:15:58) The victory of Roy Moore demonstrated that the [[Republican Party|Republican]] base could support the [[Donald Trump|Trump]] agenda while rejecting [[the president's]] specific endorsements, providing [[Donald Trump|Trump]] a potential excuse to avoid campaigning for establishment figures like [[Mitch McConnell]].
 
 ### AF 2017-09-27 0019
 (02:16:44) [[Nicholas J. Fuentes]] argued that Roy Moore's win showed primary challenges against incumbents were viable even when opposed by [[Donald Trump]], which would force the [[Republican Party]] establishment to spend heavily to defend formerly safe seats.
@@ -342,10 +342,10 @@
 (02:20:54) Roy Moore won the primary despite controversial statements about homosexuality and race, being outspent by [[Luther Strange]], and facing opposition from both [[Donald Trump]] and [[Mitch McConnell]].
 
 ### AF 2017-09-27 0019
-(02:33:09) [[Nicholas J. Fuentes]] claimed [[Steven Crowder|Steve Bannon]] left the [[White House]] not because he was fired, but to wage a "guerrilla media campaign" against the establishment from the outside, a move timed just before Roy Moore's victory in [[Alabama]].
+(02:33:09) [[Nicholas J. Fuentes]] claimed [[Steve Bannon]] left the [[White House]] not because he was fired, but to wage a "guerrilla media campaign" against the establishment from the outside, a move timed just before Roy Moore's victory in [[Alabama]].
 
 ### AF 2017-09-27 0019
-(02:34:50) [[Steven Crowder|Steve Bannon]] and [[Breitbart News|Breitbart]] played a crucial role in organizing for Roy Moore's victory in [[Alabama]], and [[Bannon]] subsequently planned similar primary challenges in [[State of Nevada|Nevada]], [[Arizona]], and [[Tennessee]].
+(02:34:50) [[Steve Bannon]] and [[Breitbart News|Breitbart]] played a crucial role in organizing for Roy Moore's victory in [[Alabama]], and [[Bannon]] subsequently planned similar primary challenges in [[State of Nevada|Nevada]], [[Arizona]], and [[Tennessee]].
 
 ### AF 2017-09-26 0018
 (01:11:01.390) [[Nicholas J. Fuentes]] commented that the retirement of [[Bob Corker]] and a potential Roy Moore win did not necessarily signal the end of the establishment [[Republican Party|GOP]], which still retained money and clout.

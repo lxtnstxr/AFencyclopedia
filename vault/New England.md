@@ -12,4 +12,4 @@
 (02:32:07) [[Nicholas J. Fuentes]] doubted there was a future for a "red New England," aside from possibly [[New Hampshire]], believing states like [[Massachusetts]], [[State of Maine|Maine]], [[Rhode Island]], and [[Vermont]] would remain [[Democratic Party|Democratic]].
 
 ### AF 2020-03-27 0574
-(01:47:44) When asked his favorite [[city]] besides [[City of Chicago|Chicago]], [[Nicholas J. Fuentes]] stated he really likes [[Manchester]] and [[Boston]], enjoys New England, but hates [[Washington D.C.|DC]] and [[City of Miami|Miami]].
+(01:47:44) When asked his favorite [[city]] besides [[Chicago]], [[Nicholas J. Fuentes]] stated he really likes [[Manchester]] and [[Boston]], enjoys New England, but hates [[Washington D.C.|DC]] and [[Miami]].

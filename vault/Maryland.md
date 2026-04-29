@@ -75,7 +75,7 @@
 (00:06:50) A 17-year-old shooter at Great Mills High School in Maryland injured a 16-year-old girl and a 14-year-old boy with a handgun before being engaged by a school resource officer [[who]] was also a SWAT officer.
 
 ### AF 2018-03-20 0128
-(00:08:20) [[Nicholas J. Fuentes]] contrasted the extensive media coverage of the February 14th [[City of Parkland|Parkland]], [[State of Florida|Florida]] shooting with the minimal coverage of the March 20th Great Mills High School shooting in Maryland.
+(00:08:20) [[Nicholas J. Fuentes]] contrasted the extensive media coverage of the February 14th [[Parkland]], [[State of Florida|Florida]] shooting with the minimal coverage of the March 20th Great Mills High School shooting in Maryland.
 
 ### AF 2018-03-20 0128
 (00:16:50) [[Nicholas J. Fuentes]] argued that the presence of an armed resource officer at Great Mills High School in Maryland prevented a higher casualty count, unlike the shooting at Stoneman Douglas High School in [[State of Florida|Florida]] where 17 people died.

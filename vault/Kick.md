@@ -25,3 +25,9 @@
 
 ### AF 2024-08-02 1366
 (01:07:01:53) [[Nicholas J. Fuentes]] stated that the present era features the freest speech on the Internet in approximately eight years, with platforms like [[Twitter|X]], [[TikTok]], [[Rumble Inc.|Rumble Inc]], and Kick causing older companies like [[Google|YouTube]] and [[Twitch]] to liberalize their guidelines.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:22:27) [[Nicholas J. Fuentes]] expressed that he likes [[Sneeko|Sneako]] and watches his streams on Kick.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:23:20) [[Nicholas J. Fuentes]] stated his plan is to take over Kick in 2026 with more gaming streams and commentary, asking [[Aidan Ross|Adin Ross]] for a partnership.

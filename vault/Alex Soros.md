@@ -21,7 +21,7 @@
 (01:10:04:830) [[Compact Magazine]], funded by Alex Soros, [[Peter Thiel]], and [[Thomas Klingenstein]], and supported by the [[Open Society Foundations]] and the [[Claremont Institute]], published [[Christopher Rufo]]'s call for censorship of "Groypers" for exposing [[Paul Singer]]'s "influence operation" at the [[Manhattan Institute]], accusing them of "poisoning the well" for the "post-establishmentarian right-wing consensus" with "anti-Semitism and racialism."
 
 ### AF 2024-10-23 1411
-(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], [[Peter Thiel]], [[Alex Karp]], [[Thomas Klingenstein]], Alex Soros, [[Rupert Murdoch]], [[George Soros]], [[Sheldon Adelson|Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
+(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], [[Peter Thiel]], [[Alex Karp]], [[Thomas Klingenstein]], Alex Soros, [[Rupert Murdoch]], [[George Soros]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
 
 ### AF 2024-10-23 1411
 (01:26:19:970) Alex Soros funds the [[Open Society Foundations]], which supports "open borders," [[BLM]] prosecutors, and [[Compact Magazine]], while [[Rupert Murdoch]] supports [[News Corp]], [[Fox News]], and [[Benjamin Netanyahu|Bibi Netanyahu]]'s prime minister campaign.

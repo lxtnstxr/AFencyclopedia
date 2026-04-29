@@ -12,7 +12,7 @@
 (00:30:30) The [[Israeli military]] and [[Benjamin Netanyahu]] stated the hospital blast resulted from a failed rocket launch by Palestinian Islamic Jihad, which the group denied.
 
 ### AF 2018-09-25 0247
-(03:46:00) [[Nicholas J. Fuentes]] argued that [[Iran]]'s support for groups like [[Hamas]], [[Hezbollah]], and Palestinian Islamic Jihad constituted funding for an asymmetrical uprising in [[Gaza Strip|Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
+(03:46:00) [[Nicholas J. Fuentes]] argued that [[Iran]]'s support for groups like [[Hamas]], [[Hezbollah]], and Palestinian Islamic Jihad constituted funding for an asymmetrical uprising in [[Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
 
 ### AF 2017-11-10 0051
-(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], [[Hamas]] and Palestinian Islamic Jihad in [[Gaza Strip|Palestine]], and the [[state]] of [[Qatar]].
+(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], [[Hamas]] and Palestinian Islamic Jihad in [[Palestine]], and the [[state]] of [[Qatar]].

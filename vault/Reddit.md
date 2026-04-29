@@ -75,7 +75,7 @@
 (06:55:40) The subreddit "Nicker Nation" associated with [[Nicholas J. Fuentes]] was quarantined by Reddit administrators for violating content policies.
 
 ### AF 2019-05-01 0378
-(01:46:180) A disgruntled individual [[who]] watched [[Warner Bros. Discovery|CNN]] and was active on Reddit and [[Facebook]] attempted to assassinate [[Steve Scalise]] and other [[Republican Party|Republican]] politicians at the [[City of Alexandria|Alexandria]] baseball diamond practice.
+(01:46:180) A disgruntled individual [[who]] watched [[Warner Bros. Discovery|CNN]] and was active on Reddit and [[Facebook]] attempted to assassinate [[Steve Scalise]] and other [[Republican Party|Republican]] politicians at the [[Alexandria]] baseball diamond practice.
 
 ### AF 2019-01-11 0311
 (43:26:00) [[Nicholas J. Fuentes]] referenced posts on [[8chan]], [[Stormfront]], and Reddit that he described as "very sick stuff."

@@ -54,7 +54,7 @@
 (00:09:03) [[Nicholas J. Fuentes]] argued that figures like [[Milo Yiannopoulos]] and [[Ben Shapiro]] achieved prominence through financial backing from billionaire families like the Mercer family.
 
 ### AF 2018-07-17 0202
-(00:09:29) [[Nicholas J. Fuentes]] stated that [[Milo Yiannopoulos]]'s career was launched after he became friends with [[Steven Crowder|Steve Bannon]] and received funding from the Mercer family.
+(00:09:29) [[Nicholas J. Fuentes]] stated that [[Milo Yiannopoulos]]'s career was launched after he became friends with [[Steve Bannon]] and received funding from the Mercer family.
 
 ### AF 2018-07-17 0202
 (00:11:17) [[Nicholas J. Fuentes]] reported that despite the controversy, the Mercer family gave [[Milo Yiannopoulos]] $15 million for a comeback, which failed after the debacle of "Free Speech Week" and a video with [[Richard Spencer]].

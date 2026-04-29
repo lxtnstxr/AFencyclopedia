@@ -16,3 +16,6 @@
 
 ### AF 2018-06-28 0190
 (01:12:59) [[Peter Fonda]] said that Barron Trump should be kidnapped and put in a cage with pedophiles to teach the [[Donald Trump|Trump]] administration a lesson.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(17:11:32) [[Nicholas J. Fuentes]] commented on individuals attending the speech, including Barron Trump, [[Melania Trump]], and [[JD Vance]].

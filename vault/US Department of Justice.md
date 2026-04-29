@@ -97,7 +97,7 @@
 (00:11:37) The United States Department of Justice lawsuit argued the [[State of Texas|Texas]] buoy barrier violated the federal Rivers and Harbors Appropriation Act, endangered migrants, hampered [[Customs and Border Protection|United States Border Patrol]] operations, and harmed diplomatic relations with [[Mexico]].
 
 ### AF 2023-09-07 1212
-(00:31:29) [[Nicholas J. Fuentes]] claimed the United States Department of Justice showed no interest in investigating or prosecuting individuals involved in [[Black Lives Matter]] riots that caused property destruction in cities like [[City of Minneapolis|Minneapolis]].
+(00:31:29) [[Nicholas J. Fuentes]] claimed the United States Department of Justice showed no interest in investigating or prosecuting individuals involved in [[Black Lives Matter]] riots that caused property destruction in cities like [[Minneapolis]].
 
 ### AF 2023-09-07 1212
 (00:31:53) [[Nicholas J. Fuentes]] stated the United States Department of Justice received billions in appropriations and hired hundreds of agents and lawyers to investigate the [[January 6th Attack|January 6th]] Capitol riot.
@@ -208,13 +208,13 @@
 (00:22:12) [[Stuart Rhodes]], the leader of the [[Oath Keepers]], was sentenced to 18 years in prison for his role in the [[January 6th Attack|January 6th]] Capitol riot, receiving the most severe sentence from the Department of Justice in its investigation.
 
 ### AF 2023-05-23 1164
-(02:44:30) [[Nicholas J. Fuentes]] referenced the case of [[Derek Chauvin]], noting that while daily murder rates in [[City of Chicago|Chicago]] rival wartime casualties, the DOJ and [[Federal Bureau of Investigation|FBI]] only intervened to charge an officer involved in a high-profile arrest death.
+(02:44:30) [[Nicholas J. Fuentes]] referenced the case of [[Derek Chauvin]], noting that while daily murder rates in [[Chicago]] rival wartime casualties, the DOJ and [[Federal Bureau of Investigation|FBI]] only intervened to charge an officer involved in a high-profile arrest death.
 
 ### AF 2023-05-06 1157
 (01:12:31) [[Donald Trump]] was simultaneously involved in multiple legal investigations, including those by the [[Manhattan]] District Attorney, the [[Fulton County]] District Attorney, the DOJ, and the ongoing civil rape trial.
 
 ### AF 2023-05-05 1156
-(00:24:00) Members of the far-right group [[Proud Boys]], including former leader [[Enrique Tarrio]], were convicted for their role in the [[January 6th Attack|January 6th]] Capitol riot, with four found guilty of seditious conspiracy and all five guilty of obstructing an official proceeding. (00:46:00) [[Enrique Tarrio]] was not in [[Washington D.C.|Washington, D.C.]] on [[January 6th Attack|January 6th]], having been arrested two days prior for burning a [[Black Lives Matter]] banner and on weapons charges. (00:48:00) Co-defendant [[Joe Biggs]], a [[United States|U.S]]. Army veteran and former broadcaster for [[Infowars]], was seen on video leading members of the [[Proud Boys]] around the Capitol on [[January 6th Attack|January 6th]]. (00:48:00) Co-defendant [[Zachary Rehl]], a former [[United States|U.S]]. Marine and leader of the [[City of Philadelphia|Philadelphia]] chapter of the [[Proud Boys]], was part of the group that stormed the Capitol building. (00:49:00) Co-defendant [[Dominic Pezzola]], a former Marine, was found not guilty of seditious conspiracy but was convicted of assaulting a police officer after taking a riot shield and smashing a window. (00:49:00) [[Dominic Pezzola]] testified in his own defense that he was acting alone on [[January 6th Attack|January 6th]] and had not met his co-defendants prior to that day. (00:53:00) [[Nicholas J. Fuentes]] argued that the convictions of the [[Proud Boys]] represent the regime's effort to eliminate opposition, comparing the defendants to participants in the Boston Tea Party and stating the government views them as terrorists. (01:04:00) [[Nicholas J. Fuentes]] stated that the [[Federal Bureau of Investigation|FBI]] and DOJ have a conviction rate over 95% and do not charge people unless they have an airtight case, implying the [[Proud Boys]] are unlikely to win on appeal. (01:05:00) [[Nicholas J. Fuentes]] advised against joining militias or breaking laws as a high-risk strategy, citing the prosecutions of the [[Proud Boys]] and [[Douglas Mackey|Ricky Vaughn]] as examples of the regime's pressure tactics. (01:05:00) [[Nicholas J. Fuentes]] stated that after [[January 6th Attack|January 6th]], 2021, many people decided political activism was "not worth it" due to the demonstrated brutality of the regime, leading to a change in tone. (01:08:00) [[Nicholas J. Fuentes]] argued that the only way to oppose the current regime is to ensure a favorable candidate wins the 2024 election, explicitly stating "not [[Joe Biden|Biden]], not [[Ron DeSantis|DeSantis]]."
+(00:24:00) Members of the far-right group [[Proud Boys]], including former leader [[Enrique Tarrio]], were convicted for their role in the [[January 6th Attack|January 6th]] Capitol riot, with four found guilty of seditious conspiracy and all five guilty of obstructing an official proceeding. (00:46:00) [[Enrique Tarrio]] was not in [[Washington D.C.|Washington, D.C.]] on [[January 6th Attack|January 6th]], having been arrested two days prior for burning a [[Black Lives Matter]] banner and on weapons charges. (00:48:00) Co-defendant [[Joe Biggs]], a [[United States|U.S]]. Army veteran and former broadcaster for [[Infowars]], was seen on video leading members of the [[Proud Boys]] around the Capitol on [[January 6th Attack|January 6th]]. (00:48:00) Co-defendant [[Zachary Rehl]], a former [[United States|U.S]]. Marine and leader of the [[Philadelphia]] chapter of the [[Proud Boys]], was part of the group that stormed the Capitol building. (00:49:00) Co-defendant [[Dominic Pezzola]], a former Marine, was found not guilty of seditious conspiracy but was convicted of assaulting a police officer after taking a riot shield and smashing a window. (00:49:00) [[Dominic Pezzola]] testified in his own defense that he was acting alone on [[January 6th Attack|January 6th]] and had not met his co-defendants prior to that day. (00:53:00) [[Nicholas J. Fuentes]] argued that the convictions of the [[Proud Boys]] represent the regime's effort to eliminate opposition, comparing the defendants to participants in the Boston Tea Party and stating the government views them as terrorists. (01:04:00) [[Nicholas J. Fuentes]] stated that the [[Federal Bureau of Investigation|FBI]] and DOJ have a conviction rate over 95% and do not charge people unless they have an airtight case, implying the [[Proud Boys]] are unlikely to win on appeal. (01:05:00) [[Nicholas J. Fuentes]] advised against joining militias or breaking laws as a high-risk strategy, citing the prosecutions of the [[Proud Boys]] and [[Douglas Mackey|Ricky Vaughn]] as examples of the regime's pressure tactics. (01:05:00) [[Nicholas J. Fuentes]] stated that after [[January 6th Attack|January 6th]], 2021, many people decided political activism was "not worth it" due to the demonstrated brutality of the regime, leading to a change in tone. (01:08:00) [[Nicholas J. Fuentes]] argued that the only way to oppose the current regime is to ensure a favorable candidate wins the 2024 election, explicitly stating "not [[Joe Biden|Biden]], not [[Ron DeSantis|DeSantis]]."
 
 ### AF 2023-04-27 1154
 (01:21:20) [[Nicholas J. Fuentes]] argued that the multiple investigations against [[Donald Trump]] in [[Manhattan]], [[Fulton County]], and by the DOJ constituted lawfare designed to drain his resources, [[time]], and political capital.
@@ -274,7 +274,7 @@
 (43:16:65) By the end of 2022, the Department of Justice discovered [[Joe Biden]] had classified documents from his vice presidency stored in multiple private locations, including a garage in [[Wilmington]].
 
 ### AF 2023-01-19 1110
-(54:49:67) The Department of Justice publicly announced its investigation into [[Joe Biden]]'s classified documents only after [[Mike Johnson|Kevin McCarthy]] was elected [[Mike Johnson|Speaker of the House]] and could appoint committee members, raising questions about the timing.
+(54:49:67) The Department of Justice publicly announced its investigation into [[Joe Biden]]'s classified documents only after [[Kevin McCarthy]] was elected [[Mike Johnson|Speaker of the House]] and could appoint committee members, raising questions about the timing.
 
 ### AF 2022-10-04 1071
 (01:04:06) [[Nicholas J. Fuentes]] stated that [[Google|YouTube]] froze $120,000 of [[Sneeko]]'s money in [[Google]] AdSense after banning his channels, and compared it to the $450,000 of his own funds frozen by the United States Department of Justice.
@@ -748,7 +748,7 @@
 (00:50:28) [[Nicholas J. Fuentes]] cited [[Donald Trump]]'s executive order directing the [[Federal Trade Commission|FTC]] and [[Federal Communications Commission|FCC]] to examine Section 230 and a DOJ antitrust investigation into [[big tech]] as meaningful actions against censorship, alongside planned troop reductions in [[Afghanistan]], [[Germany]], and [[South Korea]].
 
 ### AF 2020-07-28 0650
-(00:34:06) [[Nicholas J. Fuentes]] expressed frustration that [[Bill Barr|William Barr]]'s Department of Justice had not brought serious charges against rioters in [[City of Portland|Portland]] and [[City of Seattle|Seattle]] despite two months of unrest.
+(00:34:06) [[Nicholas J. Fuentes]] expressed frustration that [[Bill Barr|William Barr]]'s Department of Justice had not brought serious charges against rioters in [[Portland]] and [[Seattle]] despite two months of unrest.
 
 ### AF 2020-07-28 0650
 (00:35:40) [[Nicholas J. Fuentes]] cited a report from [[Revolver News]] claiming that sources within the DOJ said [[Bill Barr|William Barr]] was "eager to stop the protests but he is simply scared" of internal "swamp creature" resistance.
@@ -760,7 +760,7 @@
 (00:42:17) [[Nicholas J. Fuentes]] suggested the real obstacle to restoring order was "swamp creatures" and "left-wing sympathizers" within [[Bill Barr|William Barr]]'s own Department of Justice sabotaging efforts against [[Antifa]].
 
 ### AF 2020-07-23 0647
-(01:15:15) [[Michael Horowitz]], the Justice Department Inspector General, initiated an investigation into the conduct of federal police deployed in [[City of Portland|Portland]], [[Oregon]], following requests from congressional [[Democratic Party|Democrats]].
+(01:15:15) [[Michael Horowitz]], the Justice Department Inspector General, initiated an investigation into the conduct of federal police deployed in [[Portland]], [[Oregon]], following requests from congressional [[Democratic Party|Democrats]].
 
 ### AF 2020-06-25 0629
 (21:18:44) The United States Department of Justice called the [[Supreme Court of the United States|Supreme Court]]'s asylum decision an important victory for the enforcement of immigration laws.
@@ -926,3 +926,69 @@
 
 ### AF 2021-05-13 0000
 (00:04:56) The Justice Department intervened in the [[Arizona]] ballot audit, alleging that the process of auditing already-counted ballots constituted voter fraud and intimidation.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:41:17) The Department of Justice, under the new acting Attorney General, brought fraud charges against the [[Southern Poverty Law Center|SPLC]] for allegedly running a counterintelligence program.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:42:44) [[Nicholas J. Fuentes]] supported the DOJ investigation into the [[Southern Poverty Law Center|SPLC]], and wished for a broader attack on all left-wing activist groups and nonprofits, including investigations into their offshore bank accounts.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:54:38.750) [[Donald Trump]] has offered no help to [[Alex Jones]] in his second term regarding the "ridiculous lawsuit" and "ongoing witch hunt" from the Department of Justice and [[the left]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:12:43:00) [[Nicholas J. Fuentes]] stated that the United States Department of Justice has identified six people likely incriminated in connection with [[Jeffrey Epstein]].
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:02:17.620) [[Nicholas J. Fuentes]] argued that the public must take the suggestive content in the files and "demand that the justice department do a full investigation" because the DOJ is "in on all of it" and won't release true evidence.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:03:28.840) [[Nicholas J. Fuentes]] reported that [[Thomas Massie]] and [[Ro Khanna]] have pushed the DOJ to release unredacted files, leading to a concession where members of [[U.S. Congress|Congress]] can view the files unredacted but under supervision, without electronic devices, and with 24-hour notice.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:04:14.780) [[Nicholas J. Fuentes]] stated that the DOJ has acknowledged the existence of "six unnamed collaborators" with [[Jeffrey Epstein]] [[who]] are "likely incriminated."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:05:40.300) [[Nicholas J. Fuentes]] stated that he believes the DOJ has released "only half" of the 6 million files.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:08:38.650) [[Nicholas J. Fuentes]] reported that the DOJ has listed one of the six likely incriminated individuals as a billionaire from the [[United Arab Emirates]] named [[Ahmed Suleiman]].
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:10:40.720) [[Nicholas J. Fuentes]] questioned how the public can trust [[Pam Bondi]]'s DOJ to follow the [[Jeffrey Epstein|Epstein]] Transparency Act after they "covered up the files for a year and a half."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:51:07) [[Ronald Lauder]] appeared more than 900 times in the set of [[Jeffrey Epstein]]-related files released by the DOJ at the end of January.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:59:53) [[Donald Barr]] is the father of [[Bill Barr]], [[who]] was [[Donald Trump]]'s attorney general in his first term and was the head of the Department of Justice in 2019 when [[Jeffrey Epstein]] died.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:06:09) Files released from the DOJ revealed that [[Jeffrey Epstein]] had a big relationship with [[Peter Thiel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:04:45.460) [[Nicholas J. Fuentes]] asserted that [[Donald Trump|Trump]] possesses all the [[Jeffrey Epstein]] files at the DOJ.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:07:23.370) [[Nicholas J. Fuentes]] argued that the public release of the files necessitates a proper investigation by the [[Federal Bureau of Investigation|FBI]] and the DOJ.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:08:36.260) [[Nicholas J. Fuentes]] stated that the federal government lied to the public by claiming the files did not exist, recalling that in July the DOJ said the only remaining unreleased material was child sexual abuse material.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:13:38) [[Nicholas J. Fuentes]] stated that the DOJ declassified approximately 50% of the files on the [[Jeffrey Epstein]] case after a seven-to-eight-month cover-up from the highest levels of government.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:16:18) The DOJ released the largest batch of [[Jeffrey Epstein]] files to date, including 3 million pages, 2,000 videos, and 180,000 images.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:24:22) The day before [[Benjamin Netanyahu]]'s visit to the [[White House]], the DOJ published a memo stating that the [[Jeffrey Epstein]] case was closed, that there were no files to release, and that there was no sex trafficking ring.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:24:27) [[Nicholas J. Fuentes]] characterized the DOJ's memo stating the [[Jeffrey Epstein]] case was closed as a cover-up.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:29:26) [[Nicholas J. Fuentes]] argued that it is the obligation of the representative government, including the [[Federal Bureau of Investigation|FBI]] and the DOJ, to investigate the accusations in the [[Jeffrey Epstein]] files against [[Howard Lutnick]], [[Bill Gates]], [[Elon Musk]], [[Richard Branson]], [[Steve Bannon]], and [[Donald Trump]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:26:13) [[Nicholas J. Fuentes]] reported that the DOJ asked [[Minneapolis]] for their voting rolls and that the [[city]] refused.

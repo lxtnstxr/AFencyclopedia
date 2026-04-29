@@ -210,7 +210,7 @@
 (00:35:46) [[Nicholas J. Fuentes]] stated that he and Tucker Carlson squashed their feud, met face-to-face without asking permission from [[Mark Levin]], [[Ben Shapiro]], the [[Anti-Defamation League|ADL]], or the [[Zionist Organization of America]].
 (00:37:02) [[Nicholas J. Fuentes]] stated that after his interview with Tucker Carlson, [[Josh Hammer]] called for Tucker Carlson and [[Nicholas J. Fuentes]] to be "neutralized" in the *Daily Mail*.
 (00:38:06) [[Nicholas J. Fuentes]] accused [[Mark Levin]] and [[Josh Hammer]] of engaging in stochastic terrorism by stoking hatred and violence against him and Tucker Carlson, hoping some extremist would kill them.
-(00:38:46) [[Nicholas J. Fuentes]] stated that the [[Heritage Foundation]] initially appeared to distance itself from Tucker Carlson by removing his name from their website, but [[Donald Trump|the president]] later released a video forcefully denying this and supporting Tucker Carlson.
+(00:38:46) [[Nicholas J. Fuentes]] stated that the [[Heritage Foundation]] initially appeared to distance itself from Tucker Carlson by removing his name from their website, but [[the president]] later released a video forcefully denying this and supporting Tucker Carlson.
 (00:49:08) [[The president]] of the [[Heritage Foundation]], [[Kevin Roberts]], denounced a venomous coalition criticizing Tucker Carlson and stated that canceling him is not the answer, while also disagreeing with views of [[Nicholas J. Fuentes]].
 (00:50:12) The [[Republican Jewish Coalition]] condemned the [[Heritage Foundation]] and its president [[Kevin Roberts]] for his defense of Tucker Carlson and [[Nicholas J. Fuentes]].
 (01:17:33) [[Nicholas J. Fuentes]] argued that his rise and Tucker Carlson's stance are due to the [[Israel]] lobby driving the [[United States]] into another war in the Middle East, specifically wanting the [[United States|U.S]]. to fight [[Iran]], [[Lebanon]], and facilitate ethnic cleansing in [[Gaza Strip|Gaza]].
@@ -219,7 +219,7 @@
 (00:26:52) [[Nicholas J. Fuentes]] appeared on Tucker Carlson's show for an interview that was released one week prior.
 (01:07:56) [[Ben Shapiro]] accused Tucker Carlson of being an "ideological launderer" and "the most virulent super spreader of vile ideas in [[United States|America]]."
 (01:08:32) [[Nicholas J. Fuentes]] argued that the coordinated backlash against him and Tucker Carlson was fundamentally about [[Israel]]'s war in the [[Gaza Strip]], [[Lebanon]], [[Syria]], [[Iraq]], [[Yemen]], and [[Iran]], and the need for continued [[United States]] support.
-(01:09:14) [[Nicholas J. Fuentes]] stated that his interview with Tucker Carlson became the fourth most-viewed video on Carlson's channel, behind interviews with [[Vladimir Putin]], [[Donald Trump|the president]] of [[El Salvador]], and an exposé on the [[September 11 attacks]].
+(01:09:14) [[Nicholas J. Fuentes]] stated that his interview with Tucker Carlson became the fourth most-viewed video on Carlson's channel, behind interviews with [[Vladimir Putin]], [[the president]] of [[El Salvador]], and an exposé on the [[September 11 attacks]].
 (01:09:17) [[Kevin Roberts]], president of the [[Heritage Foundation]], released a video on Thursday defending Tucker Carlson's right to interview [[Nicholas J. Fuentes]], stating conservatives don't engage in cancel culture and have a right to criticize [[Israel]].
 (01:09:19) [[Ryan Newhouse]], chief of staff to [[Kevin Roberts]] at the [[Heritage Foundation]], was fired after reposting messages of support for Roberts's initial defense of Tucker Carlson.
 (01:09:23) [[Randy Fine]], speaking at the [[Republican Jewish Coalition]], called Tucker Carlson "the most dangerous anti-Semite in [[United States|America]]" and canceled a scheduled event with the [[Heritage Foundation]].
@@ -1201,7 +1201,7 @@
 (00:09:24) [[Nicholas J. Fuentes]] stated that attendee Tali Goldshaft, present at a [[The Free Press]] summit, reported that [[Bari Weiss]] pointed out [[JD Vance]] had yet to distance himself from Tucker Carlson.
 
 ### AF 2023-05-11 1160
-(00:26:08) [[Rashida Tlaib]] planned to host an event at the [[United States Capitol]] Visitor Center to commemorate the Nakba, the [[Palestinian]] term for the 1948 founding of [[Israel]] which translates to "catastrophe." (00:45:58) [[Mike Johnson|Kevin McCarthy]] canceled the event hosted by [[Rashida Tlaib]] and instead reserved the space to host a bipartisan discussion honoring the 75th anniversary of the [[United States]]-[[Israel]] relationship. (00:57:44) [[Mike Johnson|Kevin McCarthy]] decried [[Rashida Tlaib]]'s planned Nakba commemoration as anti-Semitic. (01:13:40) The [[Europe|European Union]]'s foreign policy chief stated that the war in [[Ukraine]] would end within days if [[United States]] military aid stopped. (01:13:40) The [[Europe|European Union]]'s foreign policy chief argued that without [[North Atlantic Treaty Organization|NATO]] and [[United States]] support, [[Ukraine]] would have to surrender to [[Russia]]. (01:22:02) [[Mike Johnson|Kevin McCarthy]], before the 2022 midterm elections, promised that a [[Republican Party|Republican]] [[House]] majority would not write a "blank check" for aid to [[Ukraine]]. (01:23:05) [[Mike Johnson|Kevin McCarthy]] became [[Mike Johnson|Speaker of the House]] in January 2023 after a battle over the speakership. (01:24:29) [[Mike Johnson|Kevin McCarthy]], speaking at a press conference in [[Jerusalem]], delivered a full-throated defense of [[United States]] aid to [[Ukraine]] and stated, "I support aid for [[Ukraine]]." (01:26:08) [[Mike Johnson|Kevin McCarthy]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] spoke by phone for the first [[time]] in April 2023. (01:32:32) [[Mike Johnson|Kevin McCarthy]] made a promise to release 40,000 to 45,000 hours of security footage from the [[United States Capitol]] on [[January 6th Attack|January 6th]] as a term of becoming Speaker. (01:33:02) Tucker Carlson aired a limited portion of the [[January 6th Attack|January 6th]] [[United States Capitol]] security footage. (01:33:09) [[Marjorie Taylor Greene]] helped broker the deal for [[Mike Johnson|Kevin McCarthy]] to become Speaker and later questioned on [[Twitter]] why the full [[January 6th Attack|January 6th]] footage had not been released. (01:38:36) [[Marjorie Taylor Greene]] was the first to strike a deal with [[Mike Johnson|Kevin McCarthy]] and dissuade the [[MAGA]] coalition in [[Congress]] from resisting his speakership. (02:20:42) [[Nicholas J. Fuentes]] stated he would vote for [[Donald Trump]], [[Kanye West|Ye]], [[Matt Gaetz]], and [[Paul Gosar]], but not for other [[Republican Party|Republican]] candidates. (02:23:44) [[Nicholas J. Fuentes]] argued that [[Israel]]'s founding in 1948 involved driving millions of [[Palestinians]] from their homes, with many massacres and destruction of villages. (02:48:24) [[Nicholas J. Fuentes]] characterized [[Rashida Tlaib]] as an Arab [[Islam|Muslim]] [[Democratic Party|Democrat]] and hardcore progressive who is anti-[[Israel]] because of its treatment of [[Palestinians]]. (02:59:54) [[Nicholas J. Fuentes]] characterized [[Mike Johnson|Kevin McCarthy]] as a white leader of the [[Republican Party]] who is pro-[[Israel]] and compromised by it. (03:14:38) [[Nicholas J. Fuentes]] stated that the [[Labor Party|Likud]] government under [[Benjamin Netanyahu|Netanyahu]] is right-wing, forming a basis for ideological affinity with [[United States|American]] conservatives. (03:47:04) [[Nicholas J. Fuentes]] positioned himself against the [[United States]] relationship with [[Israel]] but not on the side of progressive, anti-colonial [[Palestinian]] supporters. (04:12:26) [[Nicholas J. Fuentes]] argued that [[United States]] military aid, totaling nearly $200 billion, is the sole reason the war in [[Ukraine]] continues, preventing [[Russia]]'s victory. (04:14:74) [[Nicholas J. Fuentes]] claimed the [[Washington D.C.|Washington]] national security apparatus made a decision around May 2022 to provide unconditional support to [[Ukraine]], preventing the war's end. (04:46:58) [[Nicholas J. Fuentes]] stated that [[Mike Johnson|Kevin McCarthy]]'s promise of no "blank check" for [[Ukraine]] was broken, as aid continues unabated under his speakership. (05:09:12) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] risks a direct [[United States]]-[[Russia]] nuclear confrontation due to [[United States|American]] personnel and equipment involvement. (05:30:54) [[Nicholas J. Fuentes]] cited [[Mike Johnson|Kevin McCarthy]]'s reversal on [[Ukraine]] aid and failure to release [[January 6th Attack|January 6th]] footage as examples of broken promises to the [[Republican Party|Republican]] base. (06:42:46) [[Nicholas J. Fuentes]] referenced a mass shooting in [[State of Texas|Texas]] by a Mexican gunman, which media figures incorrectly linked to white supremacy by citing [[Nicholas J. Fuentes]] as an example of a Mexican white supremacist. (07:48:00) The [[State of Texas|Texas]] mall shooter mentioned [[Nicholas J. Fuentes]] by name in his journal, writing "What's going to happen when you have dozens, hundreds, or thousands of [[Nick]] Fuenteses running around?" (07:50:86) The [[State of Texas|Texas]] mall shooter's journal expressed hatred for white people and other Latino groups like [[Cubans]] and [[Puerto Rico|Puerto Ricans]]. (08:56:48) [[Nicholas J. Fuentes]] referenced the 2019 [[El Paso]] Walmart shooting, where the shooter's connection to an online manifesto was never firmly established. (09:12:90) [[Destiny]], a streamer, previously argued [[Nicholas J. Fuentes]] was not a Nazi but later stated a Mexican could be a Nazi like [[Nicholas J. Fuentes]] during coverage of the [[State of Texas|Texas]] shooting. (10:53:66) [[Nicholas J. Fuentes]] accused "liberal [[Jews|Jew]] types" of insinuating he was similar to the [[State of Texas|Texas]] mall shooter who mentioned him disparagingly. (12:44:54) [[Nicholas J. Fuentes]] claimed [[George Soros]] funds open society foundations to promote a global, multicultural world that benefits [[Jews|Jewish people]]. (13:00:42) [[Nicholas J. Fuentes]] argued that [[Jews]], having a historic animosity towards [[Europe|Europeans]] and [[Christianity]], benefit from and promote multiculturalism to avoid being identified as aliens in homogeneous societies. (13:48:18) [[Nicholas J. Fuentes]] stated that [[Jews]] comprised 1% of [[Gaza Strip|Palestine]]'s population at the turn of the 20th century and became a majority through settlement in the first half of the century. (14:13:50) [[Nicholas J. Fuentes]] characterized the political "squad"—including [[Rashida Tlaib]], [[Ilhan Omar]], and [[Alexandria Ocasio-Cortez (AOC)]]—as a brown, anti-colonial, Marxist new left that hates the historic [[United States|American]] nation. (14:30:68) [[Nicholas J. Fuentes]] stated that [[Alexandria Ocasio-Cortez (AOC)]] has [[Jewish]] ancestry, which he described as typical of new left leadership. (14:54:04) [[Nicholas J. Fuentes]] cited thinkers like [[Youram Hazony|Yoram Hazony]] and [[Costin Alamariu|Kostin Al-Amar]] for articulating a nationalist, pro-[[Israel]] ideology that positions [[Israel]] as a natural ally of Western nations against third-worldism. (15:31:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and [[Europe]] are bound by [[Christianity]], not a superficial "Western" or "Judeo-[[Christianity|Christian]]" identity constructed to include [[Israel]]. (16:02:42) [[Nicholas J. Fuentes]] proposed that the [[Holy Land]] should be administered by [[Christianity|Christians]] instead of [[Jews]] or [[Islam|Muslims]], restoring the [[Christianity|Christian]] control that existed prior to [[Islam|Muslim]] and [[Jewish]] rule.
+(00:26:08) [[Rashida Tlaib]] planned to host an event at the [[United States Capitol]] Visitor Center to commemorate the Nakba, the [[Palestinian]] term for the 1948 founding of [[Israel]] which translates to "catastrophe." (00:45:58) [[Kevin McCarthy]] canceled the event hosted by [[Rashida Tlaib]] and instead reserved the space to host a bipartisan discussion honoring the 75th anniversary of the [[United States]]-[[Israel]] relationship. (00:57:44) [[Kevin McCarthy]] decried [[Rashida Tlaib]]'s planned Nakba commemoration as anti-Semitic. (01:13:40) The [[European Union]]'s foreign policy chief stated that the war in [[Ukraine]] would end within days if [[United States]] military aid stopped. (01:13:40) The [[European Union]]'s foreign policy chief argued that without [[North Atlantic Treaty Organization|NATO]] and [[United States]] support, [[Ukraine]] would have to surrender to [[Russia]]. (01:22:02) [[Kevin McCarthy]], before the 2022 midterm elections, promised that a [[Republican Party|Republican]] [[House]] majority would not write a "blank check" for aid to [[Ukraine]]. (01:23:05) [[Kevin McCarthy]] became [[Mike Johnson|Speaker of the House]] in January 2023 after a battle over the speakership. (01:24:29) [[Kevin McCarthy]], speaking at a press conference in [[Jerusalem]], delivered a full-throated defense of [[United States]] aid to [[Ukraine]] and stated, "I support aid for [[Ukraine]]." (01:26:08) [[Kevin McCarthy]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] spoke by phone for the first [[time]] in April 2023. (01:32:32) [[Kevin McCarthy]] made a promise to release 40,000 to 45,000 hours of security footage from the [[United States Capitol]] on [[January 6th Attack|January 6th]] as a term of becoming Speaker. (01:33:02) Tucker Carlson aired a limited portion of the [[January 6th Attack|January 6th]] [[United States Capitol]] security footage. (01:33:09) [[Marjorie Taylor Greene]] helped broker the deal for [[Kevin McCarthy]] to become Speaker and later questioned on [[Twitter]] why the full [[January 6th Attack|January 6th]] footage had not been released. (01:38:36) [[Marjorie Taylor Greene]] was the first to strike a deal with [[Kevin McCarthy]] and dissuade the [[MAGA]] coalition in [[Congress]] from resisting his speakership. (02:20:42) [[Nicholas J. Fuentes]] stated he would vote for [[Donald Trump]], [[Kanye West|Ye]], [[Matt Gaetz]], and [[Paul Gosar]], but not for other [[Republican Party|Republican]] candidates. (02:23:44) [[Nicholas J. Fuentes]] argued that [[Israel]]'s founding in 1948 involved driving millions of [[Palestinians]] from their homes, with many massacres and destruction of villages. (02:48:24) [[Nicholas J. Fuentes]] characterized [[Rashida Tlaib]] as an Arab [[Islam|Muslim]] [[Democratic Party|Democrat]] and hardcore progressive who is anti-[[Israel]] because of its treatment of [[Palestinians]]. (02:59:54) [[Nicholas J. Fuentes]] characterized [[Kevin McCarthy]] as a white leader of the [[Republican Party]] who is pro-[[Israel]] and compromised by it. (03:14:38) [[Nicholas J. Fuentes]] stated that the [[Likud]] government under [[Benjamin Netanyahu|Netanyahu]] is right-wing, forming a basis for ideological affinity with [[United States|American]] conservatives. (03:47:04) [[Nicholas J. Fuentes]] positioned himself against the [[United States]] relationship with [[Israel]] but not on the side of progressive, anti-colonial [[Palestinian]] supporters. (04:12:26) [[Nicholas J. Fuentes]] argued that [[United States]] military aid, totaling nearly $200 billion, is the sole reason the war in [[Ukraine]] continues, preventing [[Russia]]'s victory. (04:14:74) [[Nicholas J. Fuentes]] claimed the [[Washington D.C.|Washington]] national security apparatus made a decision around May 2022 to provide unconditional support to [[Ukraine]], preventing the war's end. (04:46:58) [[Nicholas J. Fuentes]] stated that [[Kevin McCarthy]]'s promise of no "blank check" for [[Ukraine]] was broken, as aid continues unabated under his speakership. (05:09:12) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] risks a direct [[United States]]-[[Russia]] nuclear confrontation due to [[United States|American]] personnel and equipment involvement. (05:30:54) [[Nicholas J. Fuentes]] cited [[Kevin McCarthy]]'s reversal on [[Ukraine]] aid and failure to release [[January 6th Attack|January 6th]] footage as examples of broken promises to the [[Republican Party|Republican]] base. (06:42:46) [[Nicholas J. Fuentes]] referenced a mass shooting in [[State of Texas|Texas]] by a Mexican gunman, which media figures incorrectly linked to white supremacy by citing [[Nicholas J. Fuentes]] as an example of a Mexican white supremacist. (07:48:00) The [[State of Texas|Texas]] mall shooter mentioned [[Nicholas J. Fuentes]] by name in his journal, writing "What's going to happen when you have dozens, hundreds, or thousands of [[Nick]] Fuenteses running around?" (07:50:86) The [[State of Texas|Texas]] mall shooter's journal expressed hatred for white people and other Latino groups like [[Cubans]] and [[Puerto Rico|Puerto Ricans]]. (08:56:48) [[Nicholas J. Fuentes]] referenced the 2019 [[El Paso]] Walmart shooting, where the shooter's connection to an online manifesto was never firmly established. (09:12:90) [[Destiny]], a streamer, previously argued [[Nicholas J. Fuentes]] was not a Nazi but later stated a Mexican could be a Nazi like [[Nicholas J. Fuentes]] during coverage of the [[State of Texas|Texas]] shooting. (10:53:66) [[Nicholas J. Fuentes]] accused "liberal [[Jews|Jew]] types" of insinuating he was similar to the [[State of Texas|Texas]] mall shooter who mentioned him disparagingly. (12:44:54) [[Nicholas J. Fuentes]] claimed [[George Soros]] funds open society foundations to promote a global, multicultural world that benefits [[Jews|Jewish people]]. (13:00:42) [[Nicholas J. Fuentes]] argued that [[Jews]], having a historic animosity towards [[Europe|Europeans]] and [[Christianity]], benefit from and promote multiculturalism to avoid being identified as aliens in homogeneous societies. (13:48:18) [[Nicholas J. Fuentes]] stated that [[Jews]] comprised 1% of [[Palestine]]'s population at the turn of the 20th century and became a majority through settlement in the first half of the century. (14:13:50) [[Nicholas J. Fuentes]] characterized the political "squad"—including [[Rashida Tlaib]], [[Ilhan Omar]], and [[Alexandria Ocasio-Cortez (AOC)]]—as a brown, anti-colonial, Marxist new left that hates the historic [[United States|American]] nation. (14:30:68) [[Nicholas J. Fuentes]] stated that [[Alexandria Ocasio-Cortez (AOC)]] has [[Jewish]] ancestry, which he described as typical of new left leadership. (14:54:04) [[Nicholas J. Fuentes]] cited thinkers like [[Youram Hazony|Yoram Hazony]] and [[Costin Alamariu|Kostin Al-Amar]] for articulating a nationalist, pro-[[Israel]] ideology that positions [[Israel]] as a natural ally of Western nations against third-worldism. (15:31:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and [[Europe]] are bound by [[Christianity]], not a superficial "Western" or "Judeo-[[Christianity|Christian]]" identity constructed to include [[Israel]]. (16:02:42) [[Nicholas J. Fuentes]] proposed that the [[Holy Land]] should be administered by [[Christianity|Christians]] instead of [[Jews]] or [[Islam|Muslims]], restoring the [[Christianity|Christian]] control that existed prior to [[Islam|Muslim]] and [[Jewish]] rule.
 
 ### AF 2023-05-09 1159
 (00:52:45) Tucker Carlson announced he would relaunch his show on [[Twitter]], a platform he described as the last free speech space where everybody is allowed, despite [[Nicholas J. Fuentes]] noting his own ban from the site.
@@ -1333,7 +1333,7 @@
 (00:34:55) [[Nicholas J. Fuentes]] noted that Dick Carlson later joined the [[Institute for the Study of Terrorism and Political Violence]], and during his [[time]] at the [[Foundation for Defense of Democracies]], its board included former [[Central Intelligence Agency|CIA]] director [[James Woolsey]] and [[Jeane Kirkpatrick]].
 
 ### AF 2023-04-25 1152
-(00:35:15) [[Nicholas J. Fuentes]] reported that Dick Carlson now works as a lobbyist for the [[Hungary|Hungarian]] government of [[Viktor Orbán]], which is aligned with [[Israel|Israel's]] [[Labor Party|Likud]] party, as a registered foreign agent.
+(00:35:15) [[Nicholas J. Fuentes]] reported that Dick Carlson now works as a lobbyist for the [[Hungary|Hungarian]] government of [[Viktor Orbán]], which is aligned with [[Israel|Israel's]] [[Likud]] party, as a registered foreign agent.
 
 ### AF 2023-04-25 1152
 (00:35:29) [[Nicholas J. Fuentes]], citing the thread, stated that Tucker Carlson's "origin story" began in the 1980s when he traveled to [[Nicaragua]] during its [[civil war]] as a "freedom fighter for the [[United States|U.S]].-backed Contras," attending rallies for Contra-backed candidate [[Violeta Chamorro]].
@@ -1393,7 +1393,7 @@
 (01:01:01) [[Nicholas J. Fuentes]] suggested Tucker Carlson would now be "deployed in some other strategic place," possibly on [[Rumble Inc.|Rumble]], which is funded by [[Peter Thiel]] and connected to the [[Israel|Israeli]] company [[Locals]], and noted the [[NELK Boys]] had just been in [[Israel]] before interviewing Carlson.
 
 ### AF 2023-04-25 1152
-(01:03:03) [[Nicholas J. Fuentes]] speculated that Tucker Carlson's firing probably had "something to do with [[Israel]]," given the connections between [[Rupert Murdoch]], the [[Labor Party|Likud]] party, and Carlson's father, forming a "perfect triangle."
+(01:03:03) [[Nicholas J. Fuentes]] speculated that Tucker Carlson's firing probably had "something to do with [[Israel]]," given the connections between [[Rupert Murdoch]], the [[Likud]] party, and Carlson's father, forming a "perfect triangle."
 
 ### AF 2023-04-25 1152
 (01:03:50) [[Nicholas J. Fuentes]] observed a wider shakeup in the conservative media movement, citing [[Steven Crowder]] leaving [[Blaze Media]], [[James O'Keefe]] getting kicked out of [[Project Veritas]], [[Alex Jones]] being sued, and now Tucker Carlson being fired.
@@ -1411,7 +1411,7 @@
 (00:24:27) [[Nicholas J. Fuentes]] stated that Tucker Carlson has said white identity is evil, that he is pro-gay marriage, and that his father was an intelligence officer.
 
 ### AF 2023-04-18 1148
-(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as [[Tim Pool]], [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, Tucker Carlson being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Mike Johnson|Kevin McCarthy]], [[Matt Walsh]] making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling [[Blaze Media|The Blaze]] executives he loves [[Israel]].
+(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as [[Tim Pool]], [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, Tucker Carlson being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Kevin McCarthy]], [[Matt Walsh]] making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling [[Blaze Media|The Blaze]] executives he loves [[Israel]].
 
 ### AF 2023-04-06 1143
 (01:07:14) [[Nicholas J. Fuentes]] criticized figures like [[Marjorie Taylor Greene]], Tucker Carlson, and [[Alex Jones]] for not directing their audiences to become powerful, get involved in politics, or make money, but instead telling them to vote, subscribe, or laugh at the news.
@@ -1447,7 +1447,7 @@
 (20:37:10) [[Nicholas J. Fuentes]] questioned the value of figures like Tucker Carlson and the [[Claremont Institute]], stating they provide no advocacy for white identity, exposure of the "[[American Israel Public Affairs Committee|Jewish lobby]]," anti-white hatred, strong [[Christianity|Christian]] fervor, or social conservatism, instead focusing on trivial stories about [[Joe Biden]].
 
 ### AF 2023-04-04 1141
-(21:40:10) [[Nicholas J. Fuentes]] thanked Tucker Carlson and the [[Claremont Institute]] for "nothing" during pivotal events like Stop the Steal, the vaccine mandate, the [[City of Charlottesville|Charlottesville]] rally, and a young activist's controversy.
+(21:40:10) [[Nicholas J. Fuentes]] thanked Tucker Carlson and the [[Claremont Institute]] for "nothing" during pivotal events like Stop the Steal, the vaccine mandate, the [[Charlottesville]] rally, and a young activist's controversy.
 
 ### AF 2023-03-22 1133
 (01:52:12) [[Nicholas J. Fuentes]] accused Tucker Carlson of riding [[Donald Trump]]'s coattails to prominence after the political battles of 2016 and then making petty, critical remarks about [[Trump's]] achievements.
@@ -1462,7 +1462,7 @@
 (01:00:30) [[Nicholas J. Fuentes]] noted that figures like [[Elon Musk]], Tucker Carlson, and [[Darren Beattie|Derek Beatty]] rallied to the defense of [[Douglas Mackey]].
 
 ### AF 2023-03-11 1129
-(00:00:40) [[Mike Johnson|Kevin McCarthy]] provided over 40,000 hours of Capitol security footage from [[January 6th Attack|January 6th]] to Tucker Carlson for an exclusive report.
+(00:00:40) [[Kevin McCarthy]] provided over 40,000 hours of Capitol security footage from [[January 6th Attack|January 6th]] to Tucker Carlson for an exclusive report.
 
 ### AF 2023-03-11 1129
 (00:23:43) Pundits including Tucker Carlson, [[Matt Walsh]], and [[Ben Shapiro]] have pushed for [[Republican Party|Republican]] candidates other than [[Trump]], whom they view as too provocative and unelectable.
@@ -1480,7 +1480,7 @@
 (01:01:01) Tucker Carlson's Monday report on the [[January 6th Attack|January 6th]] tapes revealed that Officer [[Brian Sicknick]] was not killed by rioters and that [[Jacob Chansley]] (the Q Shaman) was escorted peacefully by [[United States Capitol Police|Capitol Police]].
 
 ### AF 2023-03-11 1129
-(01:03:09) [[Mike Johnson|Kevin McCarthy]] stated the full [[January 6th Attack|January 6th]] footage catalog would be published publicly, not just the excerpts given to Tucker Carlson.
+(01:03:09) [[Kevin McCarthy]] stated the full [[January 6th Attack|January 6th]] footage catalog would be published publicly, not just the excerpts given to Tucker Carlson.
 
 ### AF 2023-03-09 1127
 (01:42:00) [[Nicholas J. Fuentes]] criticized conservative influencers like [[John Doyle]], [[Matt Walsh]], and Tucker Carlson for relying on retrograde aesthetics and failing to offer a forward-thinking vision for the movement.
@@ -1573,7 +1573,7 @@
 (50:53:79) Tucker Carlson, [[Josh Hawley]], [[Ron DeSantis]], [[Mike Pompeo]], and [[Nikki Haley]] all advocate for a more hawkish foreign policy towards [[China]].
 
 ### AF 2023-01-24 1112
-(00:53:48) [[Nicholas J. Fuentes]] stated he is made to feel like "the bad guy" for demanding more from conservative leadership, such as opposing figures like [[Mike Johnson|Kevin McCarthy]] or rejecting Tucker Carlson's support for gay marriage or war with [[China]].
+(00:53:48) [[Nicholas J. Fuentes]] stated he is made to feel like "the bad guy" for demanding more from conservative leadership, such as opposing figures like [[Kevin McCarthy]] or rejecting Tucker Carlson's support for gay marriage or war with [[China]].
 
 ### AF 2023-01-19 1110
 (30:01:67) Tucker Carlson stated that "gay marriage is fine" and that the primary problem was transgender issues.
@@ -1582,7 +1582,7 @@
 (01:08:03) [[Nicholas J. Fuentes]] criticized Tucker Carlson for what he characterized as shilling for war with [[China]] and expressing acceptance of gay marriage during a segment on transgender issues.
 
 ### AF 2023-01-09 1104
-(00:41:14) [[Nicholas J. Fuentes]] criticized the [[Republican Party]]'s agenda as represented by [[Mike Johnson|Kevin McCarthy]], [[Ron DeSantis]], and Tucker Carlson, dismissing it as limited to "multiracial working class populism" and support for gay marriage and war with [[China]].
+(00:41:14) [[Nicholas J. Fuentes]] criticized the [[Republican Party]]'s agenda as represented by [[Kevin McCarthy]], [[Ron DeSantis]], and Tucker Carlson, dismissing it as limited to "multiracial working class populism" and support for gay marriage and war with [[China]].
 
 ### AF 2023-01-09 1104
 (01:05:43) [[Nicholas J. Fuentes]] pointed out that [[Sean Hannity]] conducted a one-hour interview with [[Caitlyn Jenner]] about immigration policy, while [[Kanye West|Ye]] was banned from [[Fox News]] and a Tucker Carlson documentary about him was scuttled.
@@ -1654,7 +1654,7 @@
 (00:16:17) [[Nicholas J. Fuentes]] described [[Curtis Yarvin]] as a [[Jewish]] intellectual, a recent guest on Tucker Carlson's show, and a favorite of [[Peter Thiel]].
 
 ### AF 2022-05-27 1003
-(01:36:53) Tucker Carlson faced demands to be taken off the air for promulgating replacement theory in the wake of the [[City of Buffalo|Buffalo]] shooting.
+(01:36:53) Tucker Carlson faced demands to be taken off the air for promulgating replacement theory in the wake of the [[Buffalo]] shooting.
 
 ### AF 2022-05-27 1003
 (07:08:87) [[Curtis Yarvin]] appeared on Tucker Carlson's show and stated he identifies as an "international [[Jews|Jew]]" who grew up on military bases because his father was a federal agent.
@@ -1669,13 +1669,13 @@
 (13:00:250) [[Nicholas J. Fuentes]] identified Tucker Carlson and [[Donald Trump]] as the two most influential right-wing figures in 21st-century [[United States|American]] history for pulling the conversation further to the right.
 
 ### AF 2022-05-18 0996
-(14:12:490) Tucker Carlson responded to the [[City of Buffalo|Buffalo]] shooting by criticizing identity politics in all forms, including white identity politics, a stance [[Nicholas J. Fuentes]] found disappointing.
+(14:12:490) Tucker Carlson responded to the [[Buffalo]] shooting by criticizing identity politics in all forms, including white identity politics, a stance [[Nicholas J. Fuentes]] found disappointing.
 
 ### AF 2022-05-17 0995
-(00:22:43) [[Nicholas J. Fuentes]] noted that a clip of an [[Asian]] man wearing an [[America First]] hat at a pro-abortion rally in [[City of Phoenix|Phoenix]], [[Arizona]], was featured on Tucker Carlson's [[Fox News]] program.
+(00:22:43) [[Nicholas J. Fuentes]] noted that a clip of an [[Asian]] man wearing an [[America First]] hat at a pro-abortion rally in [[Phoenix]], [[Arizona]], was featured on Tucker Carlson's [[Fox News]] program.
 
 ### AF 2022-05-17 0995
-(00:32:51) [[Nicholas J. Fuentes]] noted that media figures were drawing a link between the [[City of Buffalo|Buffalo]] shooter's ideology and commentators like himself, Tucker Carlson, and [[Matt Gaetz]], who also discuss "white genocide."
+(00:32:51) [[Nicholas J. Fuentes]] noted that media figures were drawing a link between the [[Buffalo]] shooter's ideology and commentators like himself, Tucker Carlson, and [[Matt Gaetz]], who also discuss "white genocide."
 
 ### AF 2022-05-13 0994
 (25:51:14) [[Dave Portnoy]] has interviewed [[Donald Trump]] and appears on shows like Tucker Carlson's, leading many to consider him a "bro" conservative.
@@ -1687,7 +1687,7 @@
 (00:13:02) [[Nicholas J. Fuentes]] identified Tucker Carlson and [[Donald Trump]] as the two most influential right-wing figures in 21st-century [[United States|America]], crediting them with pulling the national conversation further to the right.
 
 ### AF 2022-05-17 0993
-(00:14:15) Tucker Carlson responded to the [[City of Buffalo|Buffalo]] shooting by criticizing identity politics in all forms, including white identity politics, a statement [[Nicholas J. Fuentes]] suggested may have been influenced by pressure from [[Fox News]].
+(00:14:15) Tucker Carlson responded to the [[Buffalo]] shooting by criticizing identity politics in all forms, including white identity politics, a statement [[Nicholas J. Fuentes]] suggested may have been influenced by pressure from [[Fox News]].
 
 ### AF 2022-05-12 0991
 (00:25:56) [[Dave Portnoy]] has appeared on [[Fox News]] and Tucker Carlson's show and once interviewed [[Donald Trump]].
@@ -1777,7 +1777,7 @@
 (00:36:50) [[Pedro Gonzalez]] from Tucker Carlson's team liked [[Ann Coulter]]'s tweet declaring "[[Trump]] is so over" following [[Glenn Youngkin]]'s victory in [[State of Virginia|Virginia]].
 
 ### AF 2021-11-03 0906
-(01:18:50) [[Nicholas J. Fuentes]] announced plans to attend and disrupt the [[Turning Point USA]] "AmericaFest" event in [[City of Phoenix|Phoenix]], [[Arizona]] in December, where speakers included [[Donald Trump Jr.]] and Tucker Carlson.
+(01:18:50) [[Nicholas J. Fuentes]] announced plans to attend and disrupt the [[Turning Point USA]] "AmericaFest" event in [[Phoenix]], [[Arizona]] in December, where speakers included [[Donald Trump Jr.]] and Tucker Carlson.
 
 ### AF 2021-11-02 0905
 (00:06:26) [[Nicholas J. Fuentes]] mentioned that [[Elijah Schaffer]] was supposed to be on Tucker Carlson's show but his flight may have been canceled.
@@ -1828,7 +1828,7 @@
 (01:26:38:680) [[Nicholas J. Fuentes]] argued that the trend in conservative politics is shifting, with not only Tucker Carlson but also politicians like [[Paul Gosar]] and [[Wendy Rogers]] talking about "replacement migration."
 
 ### AF 2021-07-24 0847
-(01:27:08:180) [[Nicholas J. Fuentes]] contrasted the political climate after the [[City of Charlottesville|Charlottesville rally]] with the present, where figures like [[Paul Gosar]] and Tucker Carlson openly discuss replacement migration and anti-white attacks.
+(01:27:08:180) [[Nicholas J. Fuentes]] contrasted the political climate after the [[Charlottesville rally]] with the present, where figures like [[Paul Gosar]] and Tucker Carlson openly discuss replacement migration and anti-white attacks.
 
 ### AF 2021-07-24 0847
 (01:28:28:740) [[Nicholas J. Fuentes]] played a clip from two years ago of Tucker Carlson hosting [[Douglas MacArthur|Douglas McGregor]], who argued that demographic change in [[State of California|California]], driven by Latino immigration, was making it impossible for [[Republican Party|Republicans]] to win elections there.
@@ -1948,7 +1948,7 @@
 (00:23:32) [[Nicholas J. Fuentes]] stated that Tucker Carlson's monologue discussed how [[Hispanic|Hispanics]] replaced whites in [[Los Angeles]] and [[State of California|California]], transforming the state into a [[Democratic Party|Democratic]] stronghold.
 
 ### AF 2021-04-13 0791
-(00:24:11) [[Nicholas J. Fuentes]] identified the author of the *[[The New York Times|New York Times]]* "We Can Replace Them" column cited by Tucker Carlson as a [[Jews|Jewish]] woman and stated the article was written in response to the "[[Jews]] will not replace [[us]]" chant from the [[City of Charlottesville|Charlottesville]] rally.
+(00:24:11) [[Nicholas J. Fuentes]] identified the author of the *[[The New York Times|New York Times]]* "We Can Replace Them" column cited by Tucker Carlson as a [[Jews|Jewish]] woman and stated the article was written in response to the "[[Jews]] will not replace [[us]]" chant from the [[Charlottesville]] rally.
 
 ### AF 2021-04-13 0791
 (00:25:17) [[Nicholas J. Fuentes]] summarized that Tucker Carlson's monologue conveyed most of the arguments he makes on his own show, albeit without explicit emphasis on white replacement or [[Jews|Jewish]] power, though both concepts were hinted at.
@@ -2032,10 +2032,10 @@
 (00:04:09) [[Matt Gaetz]] appeared on Tucker Carlson's show to defend himself against allegations of trafficking an underage girl, claiming he was being extorted.
 
 ### AF 2021-03-25 0780
-(01:05:17) [[Nicholas J. Fuentes]] rejected the "multi-racial working class populist" political theory advocated by figures like Tucker Carlson and [[Steven Crowder|Steve Bannon]], arguing it was naive and could not paper over fundamental racial differences and resentments.
+(01:05:17) [[Nicholas J. Fuentes]] rejected the "multi-racial working class populist" political theory advocated by figures like Tucker Carlson and [[Steve Bannon]], arguing it was naive and could not paper over fundamental racial differences and resentments.
 
 ### AF 2021-03-24 0779
-(02:35:31) [[Nicholas J. Fuentes]] accused figures like Tucker Carlson and [[Steven Crowder|Steve Bannon]] of misdirecting rising white racial consciousness into "economic nationalism" rather than directly addressing what he termed a "white genocide."
+(02:35:31) [[Nicholas J. Fuentes]] accused figures like Tucker Carlson and [[Steve Bannon]] of misdirecting rising white racial consciousness into "economic nationalism" rather than directly addressing what he termed a "white genocide."
 
 ### AF 2021-03-24 0779
 (01:47:57) Tucker Carlson incorrectly stated that the election process worked following the 2020 presidential election, a claim [[Nicholas J. Fuentes]] disputed while maintaining a generally favorable view of him.
@@ -2323,13 +2323,13 @@
 (00:15:89) [[Nicholas J. Fuentes]] stated that his main story for the evening would be about his rival, Tucker Carlson, whose show on [[Fox News]] was once again under fire from advertisers.
 
 ### AF 2020-06-12 0620
-(00:50:61) [[Nicholas J. Fuentes]] reported that several advertisers, including [[Disney|Disney]] and [[Papa John's]], had pulled their advertisements from Tucker Carlson's show on [[Fox News]] in protest over his comments on [[Black Lives Matter]].
+(00:50:61) [[Nicholas J. Fuentes]] reported that several advertisers, including [[Disney]] and [[Papa John's]], had pulled their advertisements from Tucker Carlson's show on [[Fox News]] in protest over his comments on [[Black Lives Matter]].
 
 ### AF 2020-06-12 0620
 (01:40:44) [[Nicholas J. Fuentes]] reported that Tucker Carlson had cast doubt on the reasons behind the worldwide unrest following the death of [[George Floyd]], stating "this may be a lot of things... but it is definitely not about [[black]] lives."
 
 ### AF 2020-06-12 0620
-(01:41:15) [[Nicholas J. Fuentes]] listed [[Disney|Disney]], [[Papa John's]], [[Poshmark]], and [[T-Mobile]] as companies that had distanced themselves from advertising on Tucker Carlson's show following criticism from the watchdog group [[Sleeping Giants]].
+(01:41:15) [[Nicholas J. Fuentes]] listed [[Disney]], [[Papa John's]], [[Poshmark]], and [[T-Mobile]] as companies that had distanced themselves from advertising on Tucker Carlson's show following criticism from the watchdog group [[Sleeping Giants]].
 
 ### AF 2020-06-12 0620
 (01:41:56) [[Nicholas J. Fuentes]] quoted [[T-Mobile]] CEO [[Mike Sievert]]'s tweet saying "bye-bye, Tucker Carlson" in response to the advertiser pullout.
@@ -2470,7 +2470,7 @@
 (01:18:06) [[Nicholas J. Fuentes]] mentioned that Tucker Carlson had stated "stop aborting babies."
 
 ### AF 2019-09-06 0456
-(00:28:06) [[Nicholas J. Fuentes]] cited [[Steven Crowder|Steve Bannon]] and Tucker Carlson's proposal for the [[Republican Party]] to reinvent itself as a multi-ethnic working-class party as a potential, though unlikely, strategy for political survival.
+(00:28:06) [[Nicholas J. Fuentes]] cited [[Steve Bannon]] and Tucker Carlson's proposal for the [[Republican Party]] to reinvent itself as a multi-ethnic working-class party as a potential, though unlikely, strategy for political survival.
 
 ### AF 2019-09-06 0456
 (00:29:29) [[Nicholas J. Fuentes]] argued that if [[Donald Trump]] can institutionalize ideological shifts within the [[Republican Party]]—such as immigration restrictionism, protectionist trade policies, and non-interventionist foreign policy—it could set the stage for future candidates like [[Josh Hawley]], [[Ron DeSantis]], or Tucker Carlson.
@@ -2491,7 +2491,7 @@
 (00:13:28) Tucker Carlson argued that white supremacy was an unimportant issue, stating that economic concerns like the economy, suicides, and the drug epidemic were more significant.
 
 ### AF 2019-08-08 0436
-(00:13:49) Tucker Carlson characterized white supremacy and racial politics as tools used by the [[Democratic Party]] to divide people and distract from class conflict, an analysis [[Nicholas J. Fuentes]] noted was similar to [[Steven Crowder|Steve Bannon]]'s approach.
+(00:13:49) Tucker Carlson characterized white supremacy and racial politics as tools used by the [[Democratic Party]] to divide people and distract from class conflict, an analysis [[Nicholas J. Fuentes]] noted was similar to [[Steve Bannon]]'s approach.
 
 ### AF 2019-08-08 0436
 (00:15:02) [[Nicholas J. Fuentes]] noted that Tucker Carlson operated under limitations due to his platform on [[Fox News]] and the need to maintain advertisers.
@@ -2563,7 +2563,7 @@
 (00:19:37) [[Nicholas J. Fuentes]] was asked if he had considered having Tucker Carlson or [[Eric Trump]] as guests on his show.
 
 ### AF 2019-02-05 0325
-(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that [[Nicholas J. Fuentes]] characterized as a major disappointment and a strategic failure. (00:59:82) The address, which [[Nicholas J. Fuentes]] analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject [[Nicholas J. Fuentes]] identified as [[Donald Trump|the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on Tucker Carlson's program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to [[Nicholas J. Fuentes]]. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but [[Nicholas J. Fuentes]] noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for [[Israel]]. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which [[Nicholas J. Fuentes]] interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the [[Iran]] nuclear deal and framed [[Iran]]'s threats against [[Israel]] alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which [[Nicholas J. Fuentes]] characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) [[Nicholas J. Fuentes]] suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not [[Stephen Miller]], given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Israel]]. (58:38:24) [[Nicholas J. Fuentes]] speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
+(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that [[Nicholas J. Fuentes]] characterized as a major disappointment and a strategic failure. (00:59:82) The address, which [[Nicholas J. Fuentes]] analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject [[Nicholas J. Fuentes]] identified as [[the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on Tucker Carlson's program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to [[Nicholas J. Fuentes]]. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but [[Nicholas J. Fuentes]] noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for [[Israel]]. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which [[Nicholas J. Fuentes]] interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the [[Iran]] nuclear deal and framed [[Iran]]'s threats against [[Israel]] alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which [[Nicholas J. Fuentes]] characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) [[Nicholas J. Fuentes]] suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not [[Stephen Miller]], given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Israel]]. (58:38:24) [[Nicholas J. Fuentes]] speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
 
 ### AF 2019-02-01 0323
 (00:06:00) A caller expressed frustration that [[Donald Trump|Trump]]'s handling of a government shutdown might cause him to lose support from figures like Tucker Carlson.
@@ -2596,7 +2596,7 @@
 (00:26:28) [[Nicholas J. Fuentes]] mentioned that [[Ann Coulter]], Tucker Carlson, and [[Michelle Malkin]] had been publicly critical of [[Donald Trump]]'s handling of border wall funding.
 
 ### AF 2018-12-20 0300
-(00:44:51) [[Nicholas J. Fuentes]] stated that [[Ann Coulter]], [[Michelle Malkin]], and Tucker Carlson had publicly criticized [[Donald Trump]] over border wall funding, with [[Ann Coulter]] sacrificing her [[Twitter]] follow from [[Donald Trump|the president]].
+(00:44:51) [[Nicholas J. Fuentes]] stated that [[Ann Coulter]], [[Michelle Malkin]], and Tucker Carlson had publicly criticized [[Donald Trump]] over border wall funding, with [[Ann Coulter]] sacrificing her [[Twitter]] follow from [[the president]].
 
 ### AF 2018-12-18 0298
 (00:04:07) [[Nicholas J. Fuentes]] stated that if [[time]] permitted, he would also discuss Tucker Carlson being in hot water again at [[Fox News]], promising new insights beyond the usual narrative of left-wing advertiser boycotts.
@@ -2752,7 +2752,7 @@
 (00:14:59) [[Nicholas J. Fuentes]] claimed that [[Jared Holt]] of Right Wing Watch would likely attack Tucker Carlson for being praised by figures like himself.
 
 ### AF 2018-08-23 0225
-(00:33:52) [[Nicholas J. Fuentes]] read a tweet from [[Jared Holt]] stating that Tucker Carlson was responsible for "dropping explicit neo-Nazi white genocide propaganda into [[Donald Trump|the president's]] skull."
+(00:33:52) [[Nicholas J. Fuentes]] read a tweet from [[Jared Holt]] stating that Tucker Carlson was responsible for "dropping explicit neo-Nazi white genocide propaganda into [[the president's]] skull."
 
 ### AF 2018-07-20 0204
 (00:15:51) [[Nicholas J. Fuentes]] pointed to the popularity of figures like Tucker Carlson and [[Donald Trump]] as evidence that nationalist views are popular and only face suppression from institutions like [[Peter Thiel|PayPal]].
@@ -2795,3 +2795,531 @@
 
 ### AF 2017-10-18 0034
 (00:46:58) [[Paul Nehlen]] expressed admiration for Tucker Carlson, referencing Carlson's "Can't Stump the [[Donald Trump|Trump]]" segment.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:37:21.430) Earlier today, [[Donald Trump]] made a post on [[Cozy.tv|Truth Social]] criticizing [[Alex Jones]], [[Megyn Kelly|Megan Kelly]], Tucker Carlson, and [[Candace Owens]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:38:07.370) [[Donald Trump]] published a 500-word post on [[Cozy.tv|Truth Social]], condemning major [[Israel]]-critical and anti-war commentators like [[Alex Jones]], [[Candace Owens]], Tucker Carlson, and [[Megyn Kelly|Megan Kelly]], whom he referred to as "bankrupt," "crazy," and by other derogatory terms.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:29.710) All the individuals criticized by [[Donald Trump]] in his [[Cozy.tv|Truth Social]] post, including Tucker Carlson, [[Candace Owens]], [[Alex Jones]], and [[Megyn Kelly|Megan Kelly]], had previously voted for him.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:41.610) [[Nicholas J. Fuentes]] stated that he did not vote for [[Donald Trump]] and has not been disavowed by him, even after a dinner meeting and being discussed on Tucker Carlson's show.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:45:58.180) *[[The Wall Street Journal]]* reported that [[Donald Trump]] labeled Tucker Carlson, [[Megyn Kelly]], [[Candace Owens]], and [[Alex Jones]] as "losers and stupid people" in a 500-word [[Cozy.tv|Truth Social]] post on Thursday, accusing them of seeking publicity and saying anything for it.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:46:52.730) [[Donald Trump]]'s 500-word post on [[Cozy.tv|Truth Social]] launched a "devastating" attack on [[Alex Jones]], [[Megyn Kelly]], [[Candace Owens]], Tucker Carlson, and [[Marjorie Taylor Greene|Marjorie Greene]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:47:17.360) [[Donald Trump]] stated that Tucker Carlson, [[Megyn Kelly]], [[Candace Owens]], and [[Alex Jones]] had "low IQs" and were "stupid people" [[who]] had been "fighting" him for years.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:47:51.790) [[Donald Trump]] asserted that Tucker Carlson, [[Megyn Kelly]], [[Candace Owens]], and [[Alex Jones]] had been "thrown off television" and "lost their shows" because "nobody cares about them."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:02.590) [[Donald Trump]] claimed that Tucker Carlson, [[Megyn Kelly]], [[Candace Owens]], and [[Alex Jones]] were "nutjobs" and "troublemakers" [[who]] would "say anything necessary for some free and cheap publicity."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:13.080) [[Donald Trump]] declared that the views of Tucker Carlson, [[Megyn Kelly|Megan Kelly]], [[Candace Owens]], and [[Alex Jones]] were "the opposite of [[Donald Trump|MAGA]]."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:33.000) [[Donald Trump]] described Tucker Carlson as someone [[who]] "couldn't even finish college" and was "a broken man" after being fired from [[Fox News]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:06.090) Tucker Carlson reportedly "hates" [[Nicholas J. Fuentes]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:18.610) [[Alex Jones]], [[Megyn Kelly]], Tucker Carlson, and [[Candace Owens]] consistently supported and voted for [[Donald Trump]] for ten years.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:01:46.720) Tucker Carlson, [[Megyn Kelly|Megan Kelly]], and [[Candace Owens]], along with [[Alex Jones]], encouraged voters to support [[Donald Trump]] in 2024.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:03:07.620) In July 2024, Tucker Carlson attended the [[Republican Party|Republican National Committee]] convention and declared [[Donald Trump]] the "leader of our nation," despite not being [[president]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:03:37.890) Tucker Carlson now suggests that [[Donald Trump]] "might be the anti-[[Jesus Christ|Christ]]" and believes "nobody could go against [[Israel]]."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:05:59.420) [[Donald Trump]] is damaging the [[Donald Trump|MAGA]] movement by using [[Cozy.tv|Truth Social]] to declare that supporters of [[Mark Levin]] or his war in [[Iran]] are not [[Donald Trump|MAGA]], and that Tucker Carlson, [[Megyn Kelly|Megan Kelly]], [[Alex Jones]], [[Candace Owens]], and [[Marjorie Taylor Greene]] are "idiots."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:13:03.940) [[Donald Trump]], [[who]] advocated for "Golden Age, [[America First]], No New Wars, Mass Deportations," published a 500-word criticism of [[Megyn Kelly]], [[Candace Owens]], Tucker Carlson, [[Marjorie Taylor Greene]], and [[Alex Jones]] because they opposed a war with [[Iran]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:13:36.810) [[Nicholas J. Fuentes]] describes Tucker Carlson as a "full-blown [[Adolf Hitler|Hitler]] worshipper" and suggests his criticism of [[Israel]] and [[Jews]] is excessive.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:39.040) As of 2026, [[Donald Trump]]'s [[Donald Trump|MAGA]] movement advocates for war with [[Iran]], opposing the release of the [[Jeffrey Epstein|Epstein]] files, and supports figures like [[Mark Levin]], [[Laura Loomer]], and [[Lindsey Graham]] over Tucker Carlson, [[Candace Owens]], [[Megyn Kelly]], and [[Alex Jones]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:18:40) Key [[White House]] allies, including [[Marjorie Taylor Greene|Marjorie Greene]], Tucker Carlson, and [[Megyn Kelly]], openly criticize [[Donald Trump]] on a daily basis.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:26:03) Individuals such as [[Sneeko|Sneako]], Tucker Carlson, and [[Candace Owens]] are belatedly acknowledging [[Donald Trump]] as "the problem," particularly after the [[United States]] entered into war with [[Iran]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:27:37) Tucker Carlson described [[Donald Trump]] as the "anti-[[Jesus Christ|Christ]]," a realization that occurred two years into the administration.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:37:42) [[Nicholas J. Fuentes]] credited Tucker Carlson, [[Candace Owens]], and [[Dave Smith]] for now breaking from [[Donald Trump]], though "better late than never."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:46:56) Tucker Carlson's viral reaction to [[Donald Trump]]'s True Social post focused on disrespecting [[Islam]], which [[Nicholas J. Fuentes]] found to miss the primary issues of profanity, threats of civilian casualties, and mocking God on Easter.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:56:03) [[Mark Levin]] declared war on Tucker Carlson, [[JD Vance]], and [[Nicholas J. Fuentes]] in November.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(04:07:19) [[Nicholas J. Fuentes]] stated that the "biggest [[patriot]]" regarding the war was Tucker Carlson, for talking about the danger of war with [[Iran]] for years.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:56:24) Tucker Carlson is explicitly confronting [[American Israel Public Affairs Committee|Israel First]], according to [[Nicholas J. Fuentes]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:04:45) Tucker Carlson had [[known]] [[Peter Thiel]] since 1992, having met him in [[Washington D.C.]]
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:18) [[Peter Thiel]], [[Elon Musk]], [[David Sacks]], and Tucker Carlson persuaded [[Donald Trump|Trump]] to nominate [[JD Vance]] for the [[vice]] presidency.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:31) Tucker Carlson promoted [[JD Vance]]'s [[U.S. Congress|Senate]] campaign 45 times on [[Fox News]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:39) [[Buckley Carlson]], the son of Tucker Carlson, worked in [[JD Vance]]'s press office.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:07:13) [[Peter Thiel]] maxed out his campaign contribution for [[Joe Kent]]'s 2022 congressional run, and Tucker Carlson promoted [[Joe Kent|Kent]]'s campaign on his show.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:07:24) [[Joe Kent]] was in the [[Central Intelligence Agency|CIA]], Tucker Carlson's father was in the [[Central Intelligence Agency|CIA]], and [[Peter Thiel]] was identified as a [[Central Intelligence Agency|CIA]] contractor through his company [[Palantir Technologies|Palantir]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:23) [[JD Vance]]'s allies, including Tucker Carlson, were engaged in an operation to save [[JD Vance|Vance]] from culpability for the war by promoting him as the negotiator [[who]] would end it.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:17:14) [[Marco Rubio]] was identified as the new favorite of the [[Israel|Israelis]] and pro-[[Israel]] [[Jews]] because of Tucker Carlson's general anti-Semitism and his alliance with [[Nicholas J. Fuentes]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:17:38) [[Nicholas J. Fuentes]] stated he did not agree with Tucker Carlson's hatred of [[Jews]] because he is a [[Christianity|Christian]] and is against the [[concept]] of "blood guilt."
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:18:10) The [[Jews]] and [[Israel|Israelis]] were skeptical of [[JD Vance]] because of his connection to Tucker Carlson and Carlson's friendship with [[Nicholas J. Fuentes]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:19:02) [[Mark Levin]]'s comments were interpreted as a demand for [[JD Vance]] to fire [[Buckley Carlson]] and disavow Tucker Carlson and the Gropers, or lose [[Jews|Jewish]] backing.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:20:11) The [[JD Vance|Vance]] faction, including [[Costin Alamariu|Bronze Age Pervert]] (despite being [[Jews|Jewish]]), Tucker Carlson, and a faction from within the [[Central Intelligence Agency|CIA]], was against the war because they believed it would hurt [[JD Vance|Vance]]'s chances.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:22:33) [[Nicholas J. Fuentes]] stated that he went on Tucker Carlson's show to extend an olive branch and convince him not to hate [[Jews|Jewish people]] just because they are [[Jews|Jewish]], but that Carlson would not listen.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:24:08) Tucker Carlson, [[Joe Kent]], [[David Sacks]], and [[JD Vance]] were identified as being against the war not because they are against [[Israel]], but because they are against the war itself and against [[Benjamin Netanyahu]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:24:57) Tucker Carlson, when interviewed by [[Piers Morgan]] in [[Saudi Arabia]], would not commit to a position on whether foreign aid to [[Israel]] should be cut.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:25:16) The faction represented by Tucker Carlson and [[JD Vance]] was described as not believing that the hardliners in [[Israel]] are a faction of the regime that wants the [[United States]] to do more than is in its interest, to the detriment of focusing on [[China]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:25:56) Tucker Carlson, [[JD Vance]], [[Peter Thiel]], and [[Steve Bannon]] were identified as [[China]] hawks.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:26:48) [[Peter Thiel]], Tucker Carlson, and the broader faction were described as incidentally critical of [[Israel]] because [[Israel|Israeli]] hardliners wanted the [[United States]] to fight [[Iran]] and not [[China]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:21:06) [[Joe Kent]], whom [[Nicholas J. Fuentes]] described as funded by [[Peter Thiel]], appeared on Tucker Carlson’s show, a show funded by [[JD Vance]]’s Rockbridge Network, which also spawned 1789 [[United States Capitol|Capitol]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:22:42) [[Nicholas J. Fuentes]] accused the media of fabricating the story that [[Iran]] wanted [[JD Vance]] as a negotiator, suggesting it was copied from Tucker Carlson and the Rockbridge Network.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:23:40) [[Nicholas J. Fuentes]] stated that Tucker Carlson’s father, [[Joe Kent]], and [[Peter Thiel]] all had connections to the [[Central Intelligence Agency|CIA]], and that [[JD Vance]] worked for [[Peter Thiel]], a [[Central Intelligence Agency|CIA]] contractor.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:25:38) [[Nicholas J. Fuentes]] distinguished ordinary people from figures like [[JD Vance]], Tucker Carlson, [[Peter Thiel]], and [[Joe Kent]], claiming these individuals were not having epiphanies but were operatives engaged in a political power play.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:25:56) [[Buckley Carlson]], Tucker Carlson’s son, worked in [[JD Vance]]’s press office.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:26:14) [[David Sacks]] was the first [[White House]] official to say the war should end, and [[Joe Kent]] resigned his post at the [[Director of National Intelligence|DNI]] and interviewed with Tucker Carlson.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:27:42) [[Mark Levin]] said at the [[Republican Jewish Coalition]] in November that if [[JD Vance]] did not disavow Tucker Carlson and [[Nicholas J. Fuentes]], [[Jews]] would make decisions about 2028.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:00) Tucker Carlson said he consulted [[Peter Thiel]] before making major life decisions.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:24) [[Buckley Carlson]], Tucker Carlson’s son, worked in [[JD Vance]]’s office.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:30) [[Joe Kent]] received money from [[Peter Thiel]] in 2022 and was promoted by Tucker Carlson.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:36) Tucker Carlson retaliated against [[Nicholas J. Fuentes]] with [[Max Blumenthal]] because [[Nicholas J. Fuentes]] and “the Gropers” made [[Joe Kent]] lose his election.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:32:04) 1789 Capital gave Tucker Carlson $15 million to fund the [[Tucker Carlson Network]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:32:10) 1789 Capital was conceived at the Rockbridge Network, a venture capital firm run by [[JD Vance]], where [[Peter Thiel]], Tucker Carlson, and [[David Sacks]] had spoken.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:35:36) [[Joe Kent]] did a two-hour show with Tucker Carlson and avoided mentioning [[Jews]], attributing the war to “neocons” and [[Benjamin Netanyahu]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:40:48) [[Joe Kent]] was interviewed by Tucker Carlson after his resignation.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:06:58) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] has used his political capital to bludgeon people [[who]] critique him, such as Tucker Carlson, [[Megyn Kelly|Meghan Kelly]], [[Marjorie Taylor Greene]], and [[Thomas Massie]], thereby preventing them from taking the baton.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:05:09) [[Nicholas J. Fuentes]] described [[Israel]] as having so much control over the government that "[[America First]]" is actually "[[American Israel Public Affairs Committee|Israel First]]," and criticized Tucker Carlson for wanting to "slam the door" on him and [[his movement]] after they paved the way by getting banned and slandered.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:48:55) [[Nicholas J. Fuentes]] reported that [[Joe Kent]] went on Tucker Carlson's show for a 90-minute or two-hour interview.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:49:20) [[Nicholas J. Fuentes]] criticized Tucker Carlson for putting the interview with [[Joe Kent]] behind a paywall of $6 on his website, calling the act "a [[little]] bit [[Jews|Jewish]]."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:54:58) [[Nicholas J. Fuentes]] stated that Tucker Carlson claimed he knew for a fact that [[Erika Frantz Kirk|Erika Kirk]] was being followed by Egyptian planes, but that someone later paid for the same data, found it was bogus because [[Candace Owens]] entered the data incorrectly, and the story was never spoken of again.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:56:22) [[Nicholas J. Fuentes]] accused Tucker Carlson and [[Joe Kent]] of intentionally engaging in sensationalism by making vague implications of a conspiracy and a cover-up regarding the [[Charlie Kirk]] assassination.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:58:37) [[Nicholas J. Fuentes]] reported that Tucker Carlson said the [[Central Intelligence Agency|CIA]] is reading his text messages to the [[Government of Iran|Iranian government]] and that he is going to be charged under [[Foreign Agents Registration Act|FARA]] as an undisclosed lobbyist for the [[Iran|Iranian regime]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:59:53) [[Nicholas J. Fuentes]] speculated that the purpose of Tucker and [[Joe Kent|Kent]]'s media blitz might be to get ahead of the investigation.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:00:56) [[Nicholas J. Fuentes]] presented two possible explanations for the charges against Tucker and [[Joe Kent|Kent]]: that they are being punished by the deep [[state]] for opposing the war, or that they got caught and are becoming martyrs to get ahead of it.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:01:56) [[Nicholas J. Fuentes]] noted that Tucker Carlson rolls with foreign governments, describing [[Muhammad bin Zayed]], the [[president]] of the [[United Arab Emirates|UAE]], as the "wisest man in the world" in Tucker's opinion.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:04:29) [[Nicholas J. Fuentes]] noted that Buckley Carlson, Tucker's son, works for [[JD Vance]] in his press office.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:05:12) [[Nicholas J. Fuentes]] identified a nexus of people opposing the war—[[David Sacks]], Tucker Carlson, and [[Joe Kent]]—all of whom have deep ties to [[JD Vance]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:07:53) [[Nicholas J. Fuentes]] stated that he does not trust [[Joe Kent]] or Tucker Carlson, noting that [[Joe Kent]] as recently as 2024 was saying the [[United States|U.S]]. should give [[Israel]] foreign aid and bomb [[Iran]]'s nukes.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:08:27) [[Nicholas J. Fuentes]] pointed out that Tucker's dad was in the [[Central Intelligence Agency|CIA]], [[Joe Kent]] is in the [[Central Intelligence Agency|CIA]], [[Peter Thiel]] is a [[Central Intelligence Agency|CIA]] contractor, and that [[JD Vance]] was recruited out of [[Yale Law School]], a recruiting ground for the [[Central Intelligence Agency|CIA]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:09:07) [[Nicholas J. Fuentes]] described the interview between Tucker Carlson and [[Joe Kent]] as a staged performance, not a real conversation.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:52:30) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] is holding back progress on anti-war sentiment, and that people [[who]] are against the war, like [[Marjorie Taylor Greene]], [[Thomas Massie]], and Tucker Carlson, are being ostracized and destroyed by him.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:20:04.250) [[Nicholas J. Fuentes]] referenced [[Kurt Mills]], editor of [[American Conservative Magazine|The American Conservative]], and Tucker Carlson as being bullish on the [[Donald Trump|Trump]] administration because they thought their associates in [[the Pentagon]] and [[U.S. National Security Council|National Security Council]] would steer it in a more "based" direction.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:42:23.520) [[Nicholas J. Fuentes]] mocked [[Dan Caldwell]], referring to him as a fired "restrainer" [[who]] cried about it on Tucker Carlson's show.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:24:22) [[Nicholas J. Fuentes]] reported that Patrick Casey had said Tucker Carlson is "smuggling [[Islam]] into the [[United States|American]] right wing."
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:38:42) [[Nicholas J. Fuentes]] praised Tucker Carlson for keeping his message focused on opposing the war in [[Iran]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:40:00:81) A truckload of Tucker Carlson's alp nicotine pouches (375,000 pouches) was stolen from a facility in [[Los Angeles]] using false credentials and a fake GPS system.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:40:52:27) [[Nicholas J. Fuentes]] noted that the theft of Tucker Carlson's nicotine pouches occurred between Carlson's interview with [[Mike Huckabee]] and the beginning of the war in [[Iran]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:41:05:51) Tucker Carlson offered a $100,000 bounty for information leading to the culprit behind the theft of his nicotine pouches.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:47:09:53) [[Nicholas J. Fuentes]] stated he is not calling for the extermination of [[Israel]], and that he is starting to understand what Tucker Carlson means about being against "blood guilt."
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(04:14:07:62) [[Nicholas J. Fuentes]] commented on a clip from Tucker Carlson's show where Carlson discussed the attempt to rebuild the Third Temple and invade [[Iran]], laughing about it, noting a reference to Emperor Julian the Apostate being killed while invading [[Iran]] in 363 [[Anti-Defamation League|AD]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:47:05) Tucker Carlson encouraged [[Donald Trump]] to nominate [[JD Vance]] as his running mate in the previous year, stating that [[JD Vance]] would serve as "assassination insurance."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:48:48) Tucker Carlson was the only [[person]] [[who]] went to [[the White House]] on February 23rd to try to discourage [[Donald Trump]] from taking the [[United States]] to war.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:50:21) After [[Donald Trump]] was shot in the ear, Tucker Carlson, [[Elon Musk]], and [[Peter Thiel]] called [[Donald Trump]] and encouraged him to select [[JD Vance]] as his nominee.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:13:31) Tucker Carlson claims that the war has nothing to do with [[Judaism]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:13:39) [[Nicholas J. Fuentes]] said that Tucker Carlson is incorrect, as the war is "this [[Jews|Jewish]] war of aggression by the [[Israel|Jewish state]] for greater [[Israel]]."
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:43:09) Tucker Carlson's dad ran [[Voice of America]] for the [[Central Intelligence Agency|CIA]] and then was at the [[Foundation for Defensive Democracies]], the most pro-[[Israel]] think tank in [[Washington D.C.|DC]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:02:14:44) [[Nicholas J. Fuentes]] announced that the featured story of the evening would be Tucker Carlson's interview with [[Mike Huckabee]], noting that the original interview was removed because Tucker Carlson made a potentially libelous allegation against the [[president]] of [[Israel]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:02:52:68) [[Nicholas J. Fuentes]] stated that the interview was removed because Tucker Carlson said that the [[president]] of [[Israel]], [[Isaac Herzog]], was on [[Jeffrey Epstein|Epstein Island]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:03:19:44) [[Nicholas J. Fuentes]] stated that the "biggest aspect" of the Tucker-[[Huckabee]] interview was a claim regarding "Greater [[Israel]]."
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:03:46:92) [[Nicholas J. Fuentes]] credited Tucker Carlson with exposing the "Greater [[Israel]] project" and flipping the narrative about [[Israel]]'s right to exist on its head.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:06:07:29) [[Nicholas J. Fuentes]] stated that Tucker Carlson asked [[Huckabee]] if [[Israel]] had a claim to the whole [[Middle East]], given its biblical right to exist.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:08:07:89) [[Nicholas J. Fuentes]] praised Tucker Carlson for doing a "phenomenal job" in the interview, calling it a massive victory and an important refinement of the conversation about [[Israel]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:09:07:52) [[Nicholas J. Fuentes]] identified what he considered a serious mistake in the Tucker-[[Huckabee]] interview: Tucker questioned whether the modern-day people of [[Israel]] [[who]] claim to be the same [[Jews]] from the Old Testament are, in fact, the same people with the same ancestry.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:10:09:90) [[Nicholas J. Fuentes]] stated that Tucker Carlson said that [[Benjamin Netanyahu]] and other Ashkenazi [[Jews]] from central and [[Europe|Eastern Europe]] are not Middle Easterners but from [[Israel|Poland]], implying they are not the "real [[Jews]]" and may not have a claim to the land.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:15:27:60) [[Nicholas J. Fuentes]] praised Tucker Carlson for shining a spotlight on the "perverse situation" of [[Huckabee]] being a [[Christianity|Christian]] [[Jews|Zionist]] [[who]] worships [[Israel]] and the [[Israel|Jewish state]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:04:55:50) [[Nicholas J. Fuentes]] stated that Tucker Carlson flipped the "right to exist" argument on its head by pressing [[Huckabee]] on where that right comes from.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:05:12:57) [[Nicholas J. Fuentes]] reported that [[Huckabee]] first cited international law, but Carlson countered by pointing out that [[Israel]] constantly breaks international law.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:06:56:02) [[Nicholas J. Fuentes]] stated that Tucker Carlson pointed out that the biblical land grant from God in Genesis gives [[Israel]] the right to everything from the [[Nile River]] in [[Arab Republic of Egypt|Egypt]] to the [[Euphrates River]] in [[Syria]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:27:52:53) [[Nicholas J. Fuentes]] moved to the other part of Tucker's interview that he disliked: the questioning of the Jewishness of [[Israel]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:30:50:50) [[Nicholas J. Fuentes]] stated that some people, including Tucker Carlson, attack the continuity of the [[Jews|Jewish people]], asking if the modern [[Jews]] in [[Israel]] are really the beneficiaries of that biblical land grant.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:32:26:42) [[Nicholas J. Fuentes]] stated that Tucker Carlson questioned the continuity of the [[Jews|Jewish people]] by saying that [[Benjamin Netanyahu|Netanyahu]] is Polish and asking what he has to do with the Bible.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:33:28:60) [[Nicholas J. Fuentes]] read a quote from an article stating that Tucker Carlson questioned whether modern [[Jews]] were the same nation as [[Jews]] in the biblical era.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:35:03:56) [[Nicholas J. Fuentes]] characterized Tucker Carlson's questioning of [[Jews|Jewish]] [[heritage]] as a "reckless disregard for the truth" and "almost a lie."
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:42:57:92) [[Nicholas J. Fuentes]] stated that Tucker Carlson says the problem is neocons, not [[Jews]], and that he once sat face-to-face with him and argued that Judaism has nothing to do with [[Israel]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:50:10:81) [[Nicholas J. Fuentes]] characterized the interview as "very good" in some ways and "deeply flawed" in others, stating that Tucker Carlson's contention with him is that he wants to keep the conversation on [[Benjamin Netanyahu|Netanyahu]] and neocons rather than "the bigger issue."
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:53:50:11) [[Nicholas J. Fuentes]] stated that the narrative that [[Benjamin Netanyahu|Netanyahu]] is Polish is false and deceptive, and that it is being promoted by [[Alexander Dugin]], [[Candace Owens]], Tucker Carlson, and [[Ian Carroll]], which he characterized as seeming "very [[Russian Federation|Russian]]" and beneficial to Orthodox [[Jews]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:32:37) Tucker Carlson called [[Nicholas J. Fuentes]] an antisemite in an interview with [[Doug Wilson]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:33:09) [[Nicholas J. Fuentes]] described the difference between himself and Tucker Carlson as Tucker Carlson saying the problem is the [[Israel|Israeli government]] doing things he does not like, while his problem is that [[Jews]] have too much power over a [[Christianity|Christian]] nation.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:53:47) [[Nicholas J. Fuentes]] claimed that Tucker Carlson invited him on his show in October and then portrayed him as a "complete freak" [[who]] hates women, which [[Nicholas J. Fuentes]] said was an angle to bait him.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:24:48) [[Nicholas J. Fuentes]] referred to Tucker Carlson as a "fad" and "an untrustworthy piece of shit," and stated he has never had a dealing with [[Steve Bannon]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:20:33) [[Nicholas J. Fuentes]] criticized Tucker Carlson for promoting [[JD Vance]], noting that Carlson's son works for [[JD Vance|Vance]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:09:31) [[Peter Thiel]], [[Elon Musk]], and Tucker Carlson pleaded with [[Donald Trump]] to make [[JD Vance|J.D. Vance]] his [[vice]] presidential nominee in 2024.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:01:55) [[Nicholas J. Fuentes]] accused [[JD Vance|J.D. Vance]] of being a creation of the "deep [[state]]" backed by [[Peter Thiel]], [[David Sacks]], and Tucker Carlson, and representing [[San Francisco Bay Area|Silicon Valley]] and the intelligence agencies.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:04) [[Peter Thiel]], Tucker Carlson, and [[Central Intelligence Agency|CIA]] connected individuals planned for [[JD Vance]] to become the [[Republican Party|Republican]] nominee for [[president]] in 2028.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:11) [[Dick Carlson]], father of Tucker Carlson, ran [[Voice of America]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:59:01) Tucker Carlson asked [[Nicholas J. Fuentes]] not to talk about his father, [[Dick Carlson]], during his appearance on Carlson's show.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:59:14) Tucker Carlson texted [[Nicholas J. Fuentes]] after their dinner and show, praising the conversation, but then subsequently criticized [[Nicholas J. Fuentes|Fuentes]] on other programs, stating he wanted to expose him as an antisemite.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:00:57) Tucker Carlson previously stated on a radio show that he was a "trust fund kid" [[who]] was "loaded."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:02:10) Tucker Carlson's show has been promoting conspiracy theories about aliens, psychics, remote viewing, and chemtrails.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:02:46) Tucker Carlson hosted a guest [[who]] claimed the [[Central Intelligence Agency|CIA]] hired a psychic to use remote viewing to see aliens working with the military inside an [[Alaska]] base, and that the psychic was killed by a [[Central Intelligence Agency|CIA]] heart attack gun.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:03:49) [[Nicholas J. Fuentes]] stated that his father was not in the [[Central Intelligence Agency|CIA]] and that his best friends are not in the [[Central Intelligence Agency|CIA]], in contrast to Tucker Carlson.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:42:40) [[Nicholas J. Fuentes]] criticized other "red-pilled anti-Semites" like Tucker Carlson, Ian Carroll, and [[Candace Owens]] for using the refrain "it's not [[Jews]], it's Zionists" or "it's not [[Israel]], it's the [[Likud|Likud party]]."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:20:25.130) [[Nicholas J. Fuentes]] reported that [[The Young Turks|Cenk Uygur]] appeared on Tucker Carlson's show for two hours to discuss [[Israel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:20:47.560) [[Nicholas J. Fuentes]] characterized [[The Young Turks|Cenk Uygur]] and Tucker Carlson as repeatedly stating that their criticism of [[Israel]] is confined to its government and has nothing to do with [[Israel]], [[Jews]], or Judaism.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:55:31.660) [[Nicholas J. Fuentes]] questioned why Tucker Carlson interviewed [[Kevin Spacey]] and is best friends with [[Max Blumenthal]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:05:05.310) [[Nicholas J. Fuentes]] criticized Tucker Carlson for sitting down with [[The Young Turks|Cenk Uygur]], stating "they are the enemy."
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(28:37:00) [[Nicholas J. Fuentes]] argued that people like Tucker Carlson are wrong to call the deaths of such protesters a "tragedy," as it allows [[the left]] to put "handcuffs on [[U.S. Immigration and Customs Enforcement|ICE]]" and stop deportations permanently.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:36:27:80) [[Nicholas J. Fuentes]] criticized Tucker Carlson for traveling to [[Qatar]], [[Russian Federation|Russia]], and [[Serbia]] instead of staying in [[United States|America]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:24:07) [[Nicholas J. Fuentes]] stated that [[Dave Smith]], like Tucker Carlson, believes one can separate [[Jews|Jewish]] identity from neoconservatism.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:33:35) [[Nicholas J. Fuentes]] argued that Tucker Carlson and [[Candace Owens]] are "in on it" and have been "deployed" by the system because they are allowed on platforms like [[Google|YouTube]], [[Spotify]], and [[Apple Inc.|Apple]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:34:20) [[Nicholas J. Fuentes]] stated that he is banned from all major social media platforms, including [[Google|YouTube]] and [[Spotify]], while Tucker Carlson and [[Candace Owens]] are promoted.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:30:58) [[Nicholas J. Fuentes]] criticized Tucker Carlson for flirting with [[the left]] via [[Ana Kasparian]], stating that Kasparian is a socialist left-winger in favor of transgender ideology and mass migration and is not a friend.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:04:31) [[Jeffrey Sachs]] and [[Max Blumenthal]] make appearances on [[Judge Napolitano]] and Tucker Carlson.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:33:16) Tucker Carlson called the shooting of the woman a tragedy.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:44:39) [[Nicholas J. Fuentes]] expressed that he likes [[James Fishback]], finding him smart, well-spoken, and funny after seeing him on Tucker Carlson.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:20:59) [[Nicholas J. Fuentes]] claimed that once the censorship receded, the most popular shows became Tucker Carlson, [[Candace Owens]], and [[Nicholas J. Fuentes|Nick Fuentes]], asserting that people have an appetite for "white identity."
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:49:20) [[Nicholas J. Fuentes]] stated that Tucker Carlson brought him onto his show to gain credibility and then "pitch something" that suggests "[[Jews]] are not the problem" and "non-white immigration isn't the problem."
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:16:54) [[Nicholas J. Fuentes]] accused [[JD Vance]] and Tucker Carlson of lying about not knowing what [[Palantir Technologies|Palantir]] is, and warned that there is a "loaded gun pointed at the [[Republican Party|GOP]]" to fix the [[country]] or get "blown away in 28."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:09:28) [[Nicholas J. Fuentes]] stated that [[Ben Shapiro]] gave a speech calling out Tucker Carlson, [[Candace Owens]], [[Daryl Cooper]], [[Steve Bannon]], [[Megyn Kelly]], [[Andrew Tate]], and [[Alex Jones]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:12:10) [[Nicholas J. Fuentes]] read from a [[The New York Times|New York Times]] article which reported that [[Ben Shapiro]] bemoaned "frauds and grifters" and called Tucker Carlson's interview with him a "moral imbecility."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:20:41) [[Nicholas J. Fuentes]] read an excerpt from Tucker Carlson's speech responding to [[Ben Shapiro]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:21:25) [[Nicholas J. Fuentes]] quoted Tucker Carlson as saying he is not an anti-Semite because it is immoral in his religion.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:21:40) [[Nicholas J. Fuentes]] paraphrased Tucker Carlson as saying "we don't consider people in terms of the groups to which they belong" but as individuals.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:22:26) [[Nicholas J. Fuentes]] argued that Tucker Carlson gave the "blood guilt speech."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:31:43) [[Nicholas J. Fuentes]] paraphrased Tucker Carlson's speech as arguing that anti-white hatred is as bad as anti-Semitism and that white people have been under attack.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:33:14) [[Nicholas J. Fuentes]] summarized Tucker Carlson's argument as saying "identity politics are the one thing that will destroy the [[country]]."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:33:31) [[Nicholas J. Fuentes]] contrasted [[Ben Shapiro]] and Tucker Carlson's speeches, saying [[Ben Shapiro|Shapiro]] defended his people while Carlson defended himself from accusations.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:34:29) [[Nicholas J. Fuentes]] called Tucker Carlson's speech a 20-minute defense against being an anti-Semite.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:41:23) [[Nicholas J. Fuentes]] criticized Tucker Carlson for telling white people to "pump the brakes" on identity politics.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:43:54) [[Nicholas J. Fuentes]] criticized Tucker Carlson for telling people to "calm down" and "be complacent" about the destruction of the [[country]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:32:26) [[Nicholas J. Fuentes]] claimed that Tucker Carlson, [[Turning Point USA]], and [[Elon Musk]] are all telling the public that the decision for the 2028 [[Republican Party|Republican]] nominee has already been made: [[JD Vance]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:12:46) [[Nicholas J. Fuentes]] reported that Tucker Carlson appeared on Judge [[Andrew Napolitano]]'s show that morning and said he was told by a member of [[U.S. Congress|Congress]] that [[the White House]] briefed [[U.S. Congress|Congress]] they were going to war with [[Venezuela]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:41:01) [[Nicholas J. Fuentes]] stated that anyone [[who]] was pro-[[Donald Trump|Trump]] can "never be trusted again," including Tucker Carlson and [[Candace Owens]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:47:34) [[Nicholas J. Fuentes]] claimed Tucker Carlson and [[Candace Owens]] are not hurting after telling people to vote for [[Donald Trump|Trump]]; rather, they are "making more money than ever," with Tucker having bought a new [[house]] and [[Candace Owens]] being unable to contain her joy.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:54:30) [[Nicholas J. Fuentes]] criticized Tucker Carlson for uploading a video about the feud in which he failed to give a strong opinion and instead said he loves everyone involved.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:55:54) [[Nicholas J. Fuentes]] argued that Tucker Carlson's "Mr. Smith Goes to [[Washington D.C.|Washington]] shtick" is cowardice, as he is a multimillionaire with friends in the [[Central Intelligence Agency|CIA]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:57:12) [[Nicholas J. Fuentes]] stated that Tucker Carlson's best friend [[Joe Kent]] is a [[Central Intelligence Agency|CIA]] officer, and that Tucker Carlson is in favor of [[Peter Thiel]], [[who]] is a [[Central Intelligence Agency|CIA]] contractor.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:57:44) [[Nicholas J. Fuentes]] criticized Tucker Carlson for acting like a regular [[person]] while being worth $50 million, citing an example of Tucker Carlson bringing his dog to a [[Turning Point USA]] event.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:00:00) [[Nicholas J. Fuentes]] criticized Tucker Carlson for buying a [[house]] in [[Qatar]] and saying he can travel anywhere because he's an [[United States|American]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:02:37) [[Nicholas J. Fuentes]] stated that Tucker Carlson and [[Candace Owens]] are "detrimental" and "liars of a different variety."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:03:06) [[Nicholas J. Fuentes]] questioned [[Candace Owens]]'s obsession with [[France]] and her husband from the [[United Kingdom]], and Tucker Carlson's statements that [[Russian Federation|Russia]] is the [[United States|U.S]].'s closest ally.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:16:54) [[Nicholas J. Fuentes]] stated that Tucker Carlson is "no dummy" and is "dishonest," but conceded that he is smarter than many give him credit for.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:07:53) [[Nicholas J. Fuentes]] described a clip of Tucker Carlson on [[Theo Von]]'s podcast where he said "I'm not racist because the most [[United States|American]] people are [[blacks]]" as hilarious.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:32:45) [[Nicholas J. Fuentes]] threatened to expose [[Candace Owens]]'s husband and donors, giving her the "Tucker Carlson treatment."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:30:23:89) [[Nicholas J. Fuentes]] reported that after his interview with Tucker Carlson, *[[Piers Morgan]] Uncensored* held panel discussions about him for approximately seven shows while he was not allowed to speak.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:24:39:04) [[Nicholas J. Fuentes]] described [[Piers Morgan]]'s left-wing flavor of universalism and Tucker Carlson's right-wing flavor as a "false dialectic," arguing that "the real tidal wave is identity."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:56:55) Tucker Carlson collaborated on [[The Grayzone]] hit piece against [[Nicholas J. Fuentes]] by calling [[Michelle Malkin]] to ask about [[Nicholas J. Fuentes]]'s relationships with [[Kanye West]] and [[Donald Trump]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:20) [[Joe Kent]], a [[Central Intelligence Agency|CIA]] officer and friend of Tucker Carlson, lost his 2022 congressional race because [[Nicholas J. Fuentes]] campaigned against him.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:43) Tucker Carlson's father ran [[White House|Voice of America]] for the [[Central Intelligence Agency]] ([[Central Intelligence Agency|CIA]]), and Tucker Carlson is "tight with [[Hungary]] and [[Russian Federation|Russia]]."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:16:07) [[Nicholas J. Fuentes]] contrasted his financial situation with that of Tucker Carlson (worth $50 million) and [[Piers Morgan]] (worth $100 million), stating that the controversy is a game for them but a matter of life for his family.

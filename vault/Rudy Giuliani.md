@@ -24,10 +24,10 @@
 (01:35:620) Rudy Giuliani and the [[Anti-Defamation League|ADL]] referred to [[Nicholas J. Fuentes]]'s followers as the "[[Nicholas J. Fuentes|Groyper]] Army," a term [[Nicholas J. Fuentes]] states was never used by the movement itself, which has no official membership, chapters, or uniforms.
 
 ### AF 2021-01-29 0751
-(01:16:00) [[Nicholas J. Fuentes]] stated that he, as a [[Catholic Church|Catholic]], white, "real [[United States|American]] patriot," was consistently called antisemitic by figures like [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], [[Sebastian Gorka]], the [[Zionist Organization of America]], [[Steven Crowder|Steve Bannon]], and Rudy Giuliani for discussing issues of [[Jews|Jewish]] influence.
+(01:16:00) [[Nicholas J. Fuentes]] stated that he, as a [[Catholic Church|Catholic]], white, "real [[United States|American]] patriot," was consistently called antisemitic by figures like [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], [[Sebastian Gorka]], the [[Zionist Organization of America]], [[Steve Bannon]], and Rudy Giuliani for discussing issues of [[Jews|Jewish]] influence.
 
 ### AF 2021-01-29 0751
-(04:33:00) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], white, [[United States|America]]-first patriot, he is consistently labeled antisemitic by [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], [[Sebastian Gorka]], the [[Zionist Organization of America]], [[Steven Crowder|Steve Bannon]], and Rudy Giuliani, highlighting a fundamental conflict with [[American Jewish Committee|Jewish organizations]].
+(04:33:00) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], white, [[United States|America]]-first patriot, he is consistently labeled antisemitic by [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], [[Sebastian Gorka]], the [[Zionist Organization of America]], [[Steve Bannon]], and Rudy Giuliani, highlighting a fundamental conflict with [[American Jewish Committee|Jewish organizations]].
 
 ### AF 2021-01-08 0742
 (02:20:18) Rudy Giuliani mistakenly referenced [[Nicholas J. Fuentes]] in a podcast, incorrectly claiming [[Nicholas J. Fuentes|Fuentes]] believed the [[United States Capitol|Capitol]] siege was a setup, when [[Nicholas J. Fuentes|Fuentes]] had actually argued the opposite.
@@ -45,7 +45,7 @@
 (00:54:58) [[Donald Trump]]'s campaign announced that state legislatures in [[Commonwealth of Pennsylvania|Pennsylvania]], [[Arizona]], and [[State of Michigan|Michigan]] would begin holding public hearings on the 2020 election, with Rudy Giuliani stating it was in everyone's interest to have a full vetting of irregularities.
 
 ### AF 2020-11-04 0716
-(01:45:31) [[Eric Trump]] and Rudy Giuliani held a press conference in [[City of Philadelphia|Philadelphia]] that was not covered by major television networks or their [[Google|YouTube]] live streams.
+(01:45:31) [[Eric Trump]] and Rudy Giuliani held a press conference in [[Philadelphia]] that was not covered by major television networks or their [[Google|YouTube]] live streams.
 
 ### AF 2020-10-29 0712
 (00:56:26) Rudy Giuliani described a money laundering scheme where $16 million from [[Ukraine]] was routed through [[Latvia]] and [[Cyprus]], with $3 million eventually reaching [[Hunter Biden]] as disguised board fees, which [[Victor Shokin]] was investigating before his removal.

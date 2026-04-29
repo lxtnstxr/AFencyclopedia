@@ -6,13 +6,13 @@
 
 
 ### AF 2022-10-20 1082
-(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[City of Chicago|Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[City of Miami|Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], Cleveland, [[City of Philadelphia|Philadelphia]], and [[City of Minneapolis|Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
+(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], Cleveland, [[Philadelphia]], and [[Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
 
 ### AF 2021-03-24 0779
 (01:50:02) In Cleveland, a long-[[time]] [[Democratic Party|Democrat]] mayor barred police from vehicle pursuits in 2012, leading to an out-of-control increase in violent crime and carjackings as criminals face no consequences.
 
 ### AF 2020-11-03 0715
-(00:06:33) [[Nicholas J. Fuentes]] assessed that early voting patterns showed strong [[Republican Party|Republican]] turnout in [[State of Florida|Florida]] and [[Arizona]], with [[Democratic Party|Democrat]] turnout underperforming in cities like [[City of Philadelphia|Philadelphia]] and Cleveland.
+(00:06:33) [[Nicholas J. Fuentes]] assessed that early voting patterns showed strong [[Republican Party|Republican]] turnout in [[State of Florida|Florida]] and [[Arizona]], with [[Democratic Party|Democrat]] turnout underperforming in cities like [[Philadelphia]] and Cleveland.
 
 ### AF 2020-07-30 0651
 (00:27:50) [[Donald Trump]] ordered the deployment of federal agents to Cleveland, [[Milwaukee]], and [[City|Detroit]] as part of an expansion of federal law enforcement presence in cities.

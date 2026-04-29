@@ -159,7 +159,7 @@
 (27:01:27) [[Michael Cohen]] pleaded guilty to eight charges and was cooperating with the Mueller probe into [[Russian]] collusion.
 
 ### AF 2018-08-22 0224
-(29:52:25) Mueller's role was to collect information and compile a report for the [[House of Representatives]], not to indict or prosecute [[Donald Trump|the president]].
+(29:52:25) Mueller's role was to collect information and compile a report for the [[House of Representatives]], not to indict or prosecute [[the president]].
 
 ### AF 2018-08-21 0223
 (00:08:20) The Mueller special counsel investigation, originally focused on [[Russian]] collusion in the [[2016 election]], secured indictments against [[Paul Manafort]] for financial crimes predating the campaign.
@@ -264,7 +264,7 @@
 (00:12:50) [[George Papadopoulos]] attempted to set up a meeting between [[Vladimir Putin]] and [[Donald Trump]] through contacts in the [[Russian]] government, which was documented in emails obtained by the Mueller probe.
 
 ### AF 2017-10-30 0042
-(00:14:26) Robert Mueller's investigation had produced no evidence incriminating [[Donald Trump]], [[Steven Crowder|Steve Bannon]], or anyone in the [[Kanye West|West]] Wing after nearly 12 months.
+(00:14:26) Robert Mueller's investigation had produced no evidence incriminating [[Donald Trump]], [[Steve Bannon]], or anyone in the [[Kanye West|West]] Wing after nearly 12 months.
 
 ### AF 2017-10-30 0042
 (00:17:34) [[Chuck Schumer]] and [[Nancy Pelosi]] called for an outside investigation into Robert Mueller's probe and warned of swift [[Senate]] action if [[Donald Trump]] dismissed Robert Mueller.

@@ -84,4 +84,4 @@
 (00:47:02) Caller C. Dubb brought up [[WWE]]'s lucrative contract with [[Saudi Arabia]], which excludes women and became controversial after the killing of journalist Jamal Khashoggi, noting the difficulty of canceling such intertwined business deals.
 
 ### AF 2018-10-11 0259
-(01:42:36) [[Nicholas J. Fuentes]] discussed the disappearance of [[Saudi Arabia|Saudi]] journalist Jamal Khashoggi, a columnist for the [[Washington Post]] and critic of the [[Saudi Arabia|Saudi]] government, [[who]] entered the [[Saudi Arabia|Saudi]] consulate in [[City of Istanbul|Istanbul]], [[Turkey]], and never left.
+(01:42:36) [[Nicholas J. Fuentes]] discussed the disappearance of [[Saudi Arabia|Saudi]] journalist Jamal Khashoggi, a columnist for the [[Washington Post]] and critic of the [[Saudi Arabia|Saudi]] government, [[who]] entered the [[Saudi Arabia|Saudi]] consulate in [[Istanbul]], [[Turkey]], and never left.

@@ -75,7 +75,7 @@
 (00:28:52) [[Donald Trump]] blasted the congressional [[January 6th Attack|January 6th]] inquiry as a "kangaroo court" designed to distract from the failures of [[Democratic Party|Democratic]] governance, according to a report from the BBC.
 
 ### AF 2022-06-02 1006
-(00:37:54) [[Nicholas J. Fuentes]] recalled an interview with NBC after the [[City of Charlottesville|Charlottesville]] rally, where the interviewer asserted that right-wing violence has caused more casualties than [[Islam|Muslim]] terrorism since September 12, 2001.
+(00:37:54) [[Nicholas J. Fuentes]] recalled an interview with NBC after the [[Charlottesville]] rally, where the interviewer asserted that right-wing violence has caused more casualties than [[Islam|Muslim]] terrorism since September 12, 2001.
 
 ### AF 2022-05-26 1002
 (44:00:56) NBC News reported that initial information from [[State of Texas|Texas]] law enforcement about the shooter being "pinned down" and wearing body armor was incorrect.
@@ -99,7 +99,7 @@
 (00:40:29) [[Nicholas J. Fuentes]] claimed that [[Warner Bros. Discovery|CNN]], NBC, [[CBS News|CBS]], the [[The New York Times|New York Times]], and the [[Washington Post]] were all "regime media" pushing the narrative of the "regime's war in [[Ukraine]]."
 
 ### AF 2022-03-23 0963
-(28:27:46) [[Nicholas J. Fuentes]] read from a BBC article summarizing [[Russian]] demands into two categories: non-controversial terms like [[Ukraine|Ukrainian]] neutrality and more difficult issues involving the status of [[Donetsk|Donbass]] and [[City of Sevastopol|Crimea]].
+(28:27:46) [[Nicholas J. Fuentes]] read from a BBC article summarizing [[Russian]] demands into two categories: non-controversial terms like [[Ukraine|Ukrainian]] neutrality and more difficult issues involving the status of [[Donetsk|Donbass]] and [[Crimea]].
 
 ### AF 2022-02-14 0948
 (00:45:26) In spring 2020, [[Louis Theroux]] and the BBC contacted [[Nicholas J. Fuentes]] to participate in a documentary, assuring him it would not be a hit piece like the [[Paramount Global|MTV]] project and would focus on Generation Z and online culture.
@@ -135,7 +135,7 @@
 (00:08:06) A widespread cultural phenomenon emerged in 2021 where crowds at sporting events, including a [[NASCAR]] race, chanted "Fuck [[Joe Biden]]," which was subsequently mischaracterized by an NBC reporter on-air as the crowd chanting "Let's Go Brandon."
 
 ### AF 2021-09-24 0883
-(00:40:40) ABC News reported that two newly arrived [[Afghanistan|Afghan]] refugees at [[City of Fort McCoy|Fort McCoy]] were federally indicted, with [[Barlu Nouri]] charged with attempting to engage in a sexual act with a minor and [[Mohammed Haroon Imaad]] charged with assaulting his spouse by strangulation.
+(00:40:40) ABC News reported that two newly arrived [[Afghanistan|Afghan]] refugees at [[Fort McCoy]] were federally indicted, with [[Barlu Nouri]] charged with attempting to engage in a sexual act with a minor and [[Mohammed Haroon Imaad]] charged with assaulting his spouse by strangulation.
 
 ### AF 2021-09-23 0882
 (00:36:57) [[Nicholas J. Fuentes]] read a report from the BBC detailing that protesters in [[Melbourne]] threw urine at reporters and that police used rubber bullets and pepper spray to disperse crowds.
@@ -153,7 +153,7 @@
 (00:30:04) A BBC report indicated that hate crimes against [[black]] and Asian people were skyrocketing in the [[United States]], with 55% of the past year's approximately 3,000 reported incidents attributed to white people.
 
 ### AF 2021-08-31 0870
-(01:00:02) [[Nicholas J. Fuentes]] stated he would not care about the reported rise in hate crimes even if the BBC data were true, citing larger problems like murders and carjackings in [[City of Chicago|Chicago]].
+(01:00:02) [[Nicholas J. Fuentes]] stated he would not care about the reported rise in hate crimes even if the BBC data were true, citing larger problems like murders and carjackings in [[Chicago]].
 
 ### AF 2021-08-31 0870
 (41:25:54) A BBC report found that [[United States|U.S.]] hate crimes hit a 12-year high in 2020, with over 10,000 incidents reported and [[black]] [[United States|Americans]] being the most targeted group.
@@ -174,7 +174,7 @@
 (01:08:25) [[Lisa Shaw]], a BBC Radio Newcastle presenter, died at age 44 in May from blood clots in the brain after developing headaches a week after her first dose of the [[AstraZeneca]] vaccine.
 
 ### AF 2021-08-21 0861
-(00:28:00) [[Nicholas J. Fuentes]] reported that the BBC and other major Western media outlets were leading with dramatic, sympathetic coverage of the evacuation crisis in [[City of Kabul|Kabul]].
+(00:28:00) [[Nicholas J. Fuentes]] reported that the BBC and other major Western media outlets were leading with dramatic, sympathetic coverage of the evacuation crisis in [[Kabul]].
 
 ### AF 2021-08-20 0860
 (01:28:50) [[Nicholas J. Fuentes]] suggested [[OnlyFans]] may have banned porn due to child pornography on its platform or fear of regulation, referencing a BBC exposé.
@@ -183,7 +183,7 @@
 (00:15:03) A BBC summary of the [[IPCC]] report stated that humanity's damaging impact on the climate is a "statement of fact," with ongoing emissions risking the breach of a key temperature limit in just over a decade and a potential two-meter sea-level rise by 2100.
 
 ### AF 2021-08-14 0857
-(41:57:00) [[Nicholas J. Fuentes]] cited a BBC report that the first [[United States|U.S]]. troops were arriving to help evacuate staff as the [[Afghanistan|Taliban]] captured [[Pul-e-Alam]], a provincial capital 80 kilometers from [[City of Kabul|Kabul]].
+(41:57:00) [[Nicholas J. Fuentes]] cited a BBC report that the first [[United States|U.S]]. troops were arriving to help evacuate staff as the [[Afghanistan|Taliban]] captured [[Pul-e-Alam]], a provincial capital 80 kilometers from [[Kabul]].
 
 ### AF 2021-08-14 0857
 (44:50:00) [[Nicholas J. Fuentes]] read a BBC report detailing life under the [[Afghanistan|Taliban]] in the 1990s, including women forced to wear burkas, restricted education for girls, and brutal public punishments, which he sarcastically said "sounds kind of nice."
@@ -361,3 +361,6 @@
 
 ### AF 2017-08-29 0004
 (00:03:30) The media, including [[Fox News]], [[Warner Bros. Discovery|CNN]], ABC, and [[CBS News|CBS]], coordinated a narrative framing [[Hurricane Harvey]] as the first major leadership test for [[Donald Trump|President Trump]] in an effort to assign him responsibility for the storm's devastation.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:23:01) [[Nicholas J. Fuentes]] reported that the military had identified a sleeper cell activation code emitted by an [[Iran|Iranian]] intelligence source, according to [[CBS News]] or ABC News.

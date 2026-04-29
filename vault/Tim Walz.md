@@ -47,7 +47,7 @@
 (03:16:30) A false rumor spread that [[JD Vance]] wrote in his book *Hillbilly Elegy* about having sex with a couch, a claim Tim Walz referenced during his vice presidential nomination acceptance speech.
 
 ### AF 2024-08-06 1368
-(00:20:46) [[Kamala Harris]] selected Tim Walz, the governor of [[Minnesota|Minnesota]], as her vice presidential running mate, announcing the choice in a joint speech.
+(00:20:46) [[Kamala Harris]] selected Tim Walz, the governor of [[Minnesota]], as her vice presidential running mate, announcing the choice in a joint speech.
 
 ### AF 2024-08-06 1368
 (00:41:34) [[Kamala Harris]]'s vice presidential selection process reportedly narrowed to [[Mark Kelly]], a senator from [[Arizona]], and [[Josh Shapiro]], the governor of [[Commonwealth of Pennsylvania|Pennsylvania]], before ultimately choosing Tim Walz.
@@ -56,7 +56,7 @@
 (01:03:12) Tim Walz previously served in the [[U.S. Department of Defense|National Guard]] and worked as a social studies teacher and football coach before his political career.
 
 ### AF 2024-08-06 1368
-(01:03:40) As governor, Tim Walz enacted policies including free college tuition for low-income students, free school meals, legalized marijuana, and protections for transgender people in [[Minnesota|Minnesota]].
+(01:03:40) As governor, Tim Walz enacted policies including free college tuition for low-income students, free school meals, legalized marijuana, and protections for transgender people in [[Minnesota]].
 
 ### AF 2024-08-06 1368
 (01:04:18) Tim Walz holds an A-plus rating from the [[National Rifle Association|NRA]] and has been described as a left-wing populist with appeal to rural and working-class voters in the Midwest.
@@ -72,3 +72,12 @@
 
 ### AF 2021-06-03 0822
 (00:53:08) [[Minnesota]] Governor Tim Walz acknowledged during a news conference that there were conversations about respecting the nature of [[George Floyd]] Square while also reopening public infrastructure.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:45:11.750) [[Nicholas J. Fuentes]] argued that [[Kamala Harris]]'s 2024 presidential campaign attempted to adopt [[Donald Trump|Trump]]'s cultural appeal by picking Tim Walz as her running mate, branding him as "a white football coach from the Midwest," and selling a camouflage hat as "their version of a [[Donald Trump|MAGA]] hat."
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:29:39) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] had a phone call with Governor Tim Walz and Mayor [[Jacob Frey]] of [[Minneapolis]] during which [[Donald Trump|Trump]] agreed to de-escalate the situation.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:27:22) [[Nicholas J. Fuentes]] stated that Tim Walz was not running for reelection because of the cover-up in [[Minneapolis]].

@@ -57,10 +57,10 @@
 (00:50:50) [[Nicholas J. Fuentes]] said the final straw for the House Freedom Caucus was [[Marjorie Taylor Greene]]'s public fight with [[Lauren Boebert]], where she called her a "bitch" and doubled down on the insult to the press.
 
 ### AF 2023-01-14 1107
-(00:02:00) A small contingent of approximately 20 members of the House Freedom Caucus, led by [[Matt Gaetz]], resisted [[Mike Johnson|Kevin McCarthy]]'s bid to become [[Mike Johnson|Speaker of the House]].
+(00:02:00) A small contingent of approximately 20 members of the House Freedom Caucus, led by [[Matt Gaetz]], resisted [[Kevin McCarthy]]'s bid to become [[Mike Johnson|Speaker of the House]].
 
 ### AF 2022-11-15 1099
-(02:02:12) [[Nicholas J. Fuentes]] reported that members of the House Freedom Caucus, including [[Andy Biggs]] and [[Bob Good]], planned to challenge [[Mike Johnson|Kevin McCarthy]] for the nomination, arguing he did not have the 218 votes needed to win the speakership on the [[House]] floor.
+(02:02:12) [[Nicholas J. Fuentes]] reported that members of the House Freedom Caucus, including [[Andy Biggs]] and [[Bob Good]], planned to challenge [[Kevin McCarthy]] for the nomination, arguing he did not have the 218 votes needed to win the speakership on the [[House]] floor.
 
 ### AF 2018-01-09 0082
 (02:02:48) [[Mark Meadows]], chairman of the House Freedom Caucus, stated that the two-phase immigration plan proposed by [[Donald Trump]] was a non-starter.

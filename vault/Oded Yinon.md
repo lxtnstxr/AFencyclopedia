@@ -22,3 +22,6 @@
 
 ### AF 2018-04-18 0148
 (00:15:00) [[Nicholas J. Fuentes]] referenced a plan by Oded Yinon from the 1980s for [[Israel]] to see the nations around it disintegrate into a "mosaic of tribal fiefdoms" to eliminate threats.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:43:12) [[Nicholas J. Fuentes]] cited a grand strategy for [[Israel]] from the 1980s by Oded Yinon, which called for toppling powerful Arab and Islamist dictators, dismembering all states, and fracturing them along ethnic and sectarian lines.

@@ -6,4 +6,4 @@
 
 
 ### AF 2019-06-20 0411
-(02:16:47) [[Nicholas J. Fuentes]] recounted being contacted by an NBCUniversal producer to appear on a panel defending white nationalism, focusing on events like the [[City of Charlottesville|Charlottesville]] rally and the [[New York|Christchurch]] mosque shooting.
+(02:16:47) [[Nicholas J. Fuentes]] recounted being contacted by an NBCUniversal producer to appear on a panel defending white nationalism, focusing on events like the [[Charlottesville]] rally and the [[New York|Christchurch]] mosque shooting.

@@ -13,5 +13,5 @@
 (15:00:63) [[Nicholas J. Fuentes]] claimed that the [[Republican Party]] cares about [[Israel]], AI, Silicon Valley, oil and gas, billionaires, and [[Wall Street]], and told them to "let [[William Ackman|Bill Ackman]] win your elections."
 (01:10:52:47) [[Nicholas J. Fuentes]] claimed that Silicon Valley got what it wanted in terms of artificial intelligence and defense contracts, with [[Palantir Technologies|Palantir]] and [[Elon Musk]]'s people brought into the [[U.S. Department of Defense|Department of Defense]] and [[U.S. National Security Council|National Security Council]].
 ### AF 2025-11-06 1593
-(21:26:21) [[Nicholas J. Fuentes]] stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Sheldon Adelson|Miriam Adelson]], and [[Mark Levin]] used their influence in [[Wall Street]], Silicon Valley, and politics to benefit themselves and [[Israel]] at the expense of [[United States|Americans]].
+(21:26:21) [[Nicholas J. Fuentes]] stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Miriam Adelson]], and [[Mark Levin]] used their influence in [[Wall Street]], Silicon Valley, and politics to benefit themselves and [[Israel]] at the expense of [[United States|Americans]].
 

@@ -82,3 +82,6 @@
 
 ### AF 2017-11-09 0050
 (08:05:00) [[Nicholas J. Fuentes]] advised viewers to prepare for potential disaster by buying water, non-perishable food, and moving money into assets like gold or Bitcoin due to growing global instability.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:47:37) [[Nicholas J. Fuentes]] identified several failures of the [[Donald Trump|Trump]] administration: the [[Artificial Intelligence|AI]] regulation moratorium, forcing [[China|Chinese]] students and [[India|Indian]] H-1B workers into the [[country]], bombing [[Iran]] twice, the ongoing [[Ukraine]] war, a terrible job market, a software industry decline, and Bitcoin being down 50%.

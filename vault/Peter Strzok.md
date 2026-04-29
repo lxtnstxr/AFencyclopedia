@@ -30,7 +30,7 @@
 (01:18:36) New text messages emerged in the Peter Strzok saga that potentially implicated [[Barack Obama]].
 
 ### AF 2018-01-29 0096
-(11:06:10) [[Nicholas J. Fuentes]] connected the memo's release to the previous week's news that the [[Federal Bureau of Investigation|FBI]] announced it was missing 50,000 text messages between agents Peter Strzok and [[Lisa Page]] from December 2016 to May 2017, allegedly related to a "secret society" conspiring against [[Donald Trump|the president]].
+(11:06:10) [[Nicholas J. Fuentes]] connected the memo's release to the previous week's news that the [[Federal Bureau of Investigation|FBI]] announced it was missing 50,000 text messages between agents Peter Strzok and [[Lisa Page]] from December 2016 to May 2017, allegedly related to a "secret society" conspiring against [[the president]].
 
 ### AF 2018-01-23 0092
 (00:48:27) Peter Strzok and [[Lisa Page]] were involved in missing text messages from December 2016 to May 2017 that the [[Federal Bureau of Investigation|FBI]] could not locate.

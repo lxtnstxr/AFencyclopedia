@@ -6,7 +6,7 @@
 
 
 ### AF 2019-05-01 0378
-(01:21:440) [[Venezuela]], under both Hugo Chávez and [[Nicolás Maduro]], was accused of not adhering to international drug control commitments and of supporting the [[FARC]] in [[Columbia|Colombia]].
+(01:21:440) [[Venezuela]], under both Hugo Chávez and [[Nicolás Maduro]], was accused of not adhering to international drug control commitments and of supporting the [[FARC]] in [[Colombia]].
 
 ### AF 2019-05-01 0378
 (01:28:400) The [[United States]] historically had a friendly relationship with [[Venezuela]] until Hugo Chávez began aligning with [[Fidel Castro]] and [[Saddam Hussein]].

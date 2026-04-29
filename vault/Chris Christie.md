@@ -141,7 +141,7 @@
 (00:16:57) Chris Christie claimed [[Donald Trump]] failed on immigration, building only 52 miles of wall and failing to get [[Mexico]] to pay for it.
 
 ### AF 2023-09-27 1225
-(00:27:56) A moderator asked Chris Christie about using [[United States|U.S.]] attorneys to prosecute crimes in cities where local prosecutors won't, citing looters taking over the streets of [[City of Philadelphia|Philadelphia]].
+(00:27:56) A moderator asked Chris Christie about using [[United States|U.S.]] attorneys to prosecute crimes in cities where local prosecutors won't, citing looters taking over the streets of [[Philadelphia]].
 
 ### AF 2023-09-27 1225
 (00:28:01) Chris Christie cited his experience running the [[United States|U.S.]] Attorney's office in [[New Jersey]], where he set records for prosecutions, and promised to appoint an attorney general to bring cities back under control.

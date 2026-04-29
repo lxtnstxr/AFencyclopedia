@@ -265,3 +265,21 @@
 
 ### AF 2018-11-21 0286
 (00:02:04) [[Nicholas J. Fuentes]] watched an episode of [[Ben Shapiro]]'s Sunday Special featuring Joe Rogan, which auto-played after an episode with [[Tucker Carlson]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:31:12) When asked about his connections to [[Jeffrey Epstein]] on Joe Rogan, [[Peter Thiel]] pushed the lie that [[Jeffrey Epstein|Epstein]] was a financial genius.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:45:33:860) [[Nicholas J. Fuentes]] stated that billionaires including [[Jamie Dimon]], [[Larry Fink]], and podcasters like Joe Rogan are saying the deportations are too brutal.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:47:28:640) [[Nicholas J. Fuentes]] stated that Joe Rogan is not a nativist or a white nationalist and would turn against the deportation policy.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:02:43) Joe Rogan complained on his podcast about [[U.S. Immigration and Customs Enforcement|ICE]] ([[U.S. Immigration and Customs Enforcement]]) operations, stating they were acting like "the Gestapo" and "the [[Nazi Party|Nazis]]."
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:20:54) Joe Rogan endorsed [[Donald Trump]] on the [[eve]] of the 2024 election.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:52:59) [[Nicholas J. Fuentes]] stated that Joe Rogan, [[Tim Dillon]], and [[Vaughn|Theo Vaughn]] are not "far-right ideologues" but are "anti-woke" and voted against the [[Democratic Party|Democrats]] because of the nomination of [[Kamala Harris]].

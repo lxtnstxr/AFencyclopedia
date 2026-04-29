@@ -150,7 +150,7 @@
 (01:16:57) Following the death of [[Ruth Bader Ginsburg]], several [[Republican Party|Republican]] senators, including [[Lisa Murkowski]] of [[Alaska]], [[Susan Collins]] of [[State of Maine|Maine]], and [[Chuck Grassley]] of Iowa, stated they would not vote to confirm a replacement before the election.
 
 ### AF 2020-09-16 0682
-(08:25:380) Following the [[City of Miami|Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in Iowa, appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[City of Phoenix|Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
+(08:25:380) Following the [[Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in Iowa, appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
 
 ### AF 2020-09-15 0681
 (01:08:10:92) [[Nicholas J. Fuentes]] offered best wishes to [[Lauren Witzke]], a [[U.S. Senate]] candidate from [[Delaware]], noting she had previously hosted him for an event in Iowa.
@@ -201,10 +201,10 @@
 (02:33:52) [[Nicholas J. Fuentes]] stated that [[Joe Biden]] possesses aggressive, physically imposing "[[Lyndon B. Johnson|LBJ]] energy," exemplified by an incident where he refused to take a picture with an Iowa [[Democratic Party|Democrat]] [[who]] said he was voting for someone else.
 
 ### AF 2020-02-24 0553
-(00:55:54) [[Nicholas J. Fuentes]] claimed a majority of [[Democratic Party|Democrats]] in Iowa, [[New Hampshire]], and [[State of Nevada|Nevada]] supported [[Health and Human Services|Medicare]] for All, which was fueling [[Bernie Sanders]]' primary success but would fail in a general election.
+(00:55:54) [[Nicholas J. Fuentes]] claimed a majority of [[Democratic Party|Democrats]] in Iowa, [[New Hampshire]], and [[State of Nevada|Nevada]] supported [[Medicare]] for All, which was fueling [[Bernie Sanders]]' primary success but would fail in a general election.
 
 ### AF 2020-02-24 0553
-(01:27:48) [[Nicholas J. Fuentes]] stated that his schedule had been nonstop since a [[City of Miami|Miami]] event on September 28th, including appearances at Politicon, in [[State of Florida|Florida]], at SAS, in Iowa for a speech, on the Milo show, in [[City of Phoenix|Phoenix]], in [[Boston]], and during the "Kruyper Wars."
+(01:27:48) [[Nicholas J. Fuentes]] stated that his schedule had been nonstop since a [[Miami]] event on September 28th, including appearances at Politicon, in [[State of Florida|Florida]], at SAS, in Iowa for a speech, on the Milo show, in [[Phoenix]], in [[Boston]], and during the "Kruyper Wars."
 
 ### AF 2020-02-20 0551
 (00:18:25) The [[State of Nevada|Nevada]] [[Democratic Party|Democratic]] caucus planned to use the same phone app that caused major delays and errors in the Iowa caucus.
@@ -358,3 +358,6 @@
 
 ### AF 2017-10-24 0038
 (01:04:64) [[Nicholas J. Fuentes]] cited the 2016 election as evidence for his strategy, noting that [[Donald Trump]] won by securing the votes of white blue-collar workers in [[Wisconsin]], [[State of Michigan|Michigan]], [[State of Ohio|Ohio]], Iowa, and [[North Carolina]], which prevented policies like the [[Trans-Pacific Partnership|TPP]] trade deal, higher taxes, nationalized healthcare, and the legalization of millions of illegal immigrants.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:41:39) [[Nicholas J. Fuentes]] argued that white populations outside of a "handful" of people in [[Appalachian|Appalachia]], Iowa, and the [[Dakotas]] are nearly extinct.

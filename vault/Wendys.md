@@ -12,7 +12,7 @@
 (00:42:18) The [[Georgia Bureau of Investigation]] stated that police were called to a Wendy's in [[Atlanta]] after reports that [[Rayshard Brooks]]' car was blocking the drive-thru, where he subsequently failed a sobriety test.
 
 ### AF 2020-05-28 0615
-(00:50:33) Rioters in [[City of Minneapolis|Minneapolis]] looted and burned a [[Target]] store, a [[Cub Foods]] supermarket, a Wendy's, and an [[AutoZone]].
+(00:50:33) Rioters in [[Minneapolis]] looted and burned a [[Target]] store, a [[Cub Foods]] supermarket, a Wendy's, and an [[AutoZone]].
 
 ### AF 2018-09-15 0240
 (50:43:42) [[Nicholas J. Fuentes]] prefers [[McDonald's]] over Wendy's, citing the taste of the McDouble with extra ketchup, pickle, and diced onions.

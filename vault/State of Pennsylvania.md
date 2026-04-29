@@ -4,7 +4,7 @@
 ### AF 2024-07-31 1364
 (08:56:29) [[Joe Biden]] dropped out of the presidential race and was replaced by [[Kamala Harris]], whose numbers were described as phenomenal, causing [[Donald Trump]]'s swing-state lead to evaporate in all but Pennsylvania and [[North Carolina]].
 
-(41:36:51) In 2016, [[Donald Trump]] flipped [[Wisconsin|Wisconsin]], [[State of Michigan|Michigan]], and Pennsylvania by appealing to and turning out white voters, abandoning the conventional [[Republican Party|Republican]] playbook of appealing to minority demographics.
+(41:36:51) In 2016, [[Donald Trump]] flipped [[Wisconsin]], [[State of Michigan|Michigan]], and Pennsylvania by appealing to and turning out white voters, abandoning the conventional [[Republican Party|Republican]] playbook of appealing to minority demographics.
 
 ### AF 2024-07-26 1361
 (01:41:25) [[Nicholas J. Fuentes]] described how the loss of industry in towns across Pennsylvania, [[State of Ohio|Ohio]], [[India|Indiana]], and [[West Virginia]] led to a collapsed tax base, depression, addiction, and social decay, not merely a lack of individual effort.

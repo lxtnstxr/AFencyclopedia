@@ -11,7 +11,7 @@
 (15:24:85) Chance the Rapper tweeted "[[black]] people don't have to vote for [[Democratic Party|Democrats]]," a statement [[Nicholas J. Fuentes]] described as the knockout punch in a coordinated cultural message.
 
 ### AF 2018-04-25 0152
-(16:17:45) Chance the Rapper, [[who]] is from [[City of Chicago|Chicago]], added to the discourse by stating that [[black]] people are not obligated to vote for [[Democratic Party|Democrats]].
+(16:17:45) Chance the Rapper, [[who]] is from [[Chicago]], added to the discourse by stating that [[black]] people are not obligated to vote for [[Democratic Party|Democrats]].
 
 ### AF 2018-04-25 0152
 (20:05:65) Chance the Rapper tweeted that [[Kanye West]] was doing well before stating that [[black]] people do not have to vote for [[Democratic Party|Democrats]].

@@ -69,7 +69,7 @@
 (00:02:22) The mass shootings cited as pretext for [[Joe Biden]]'s executive actions took place in [[Atlanta]], [[Boulder]], and Orange County.
 
 ### AF 2021-04-01 0784
-(00:35:51) [[Nicholas J. Fuentes]] described a mass shooting in Orange County, [[State of California|California]], at a real estate office where four people, including a nine-year-old boy, were killed by a gunman identified as Aminadab Gaxiola Gonzalez, a 44-year-old [[Hispanic]] man from [[City of Fullerton|Fullerton]].
+(00:35:51) [[Nicholas J. Fuentes]] described a mass shooting in Orange County, [[State of California|California]], at a real estate office where four people, including a nine-year-old boy, were killed by a gunman identified as Aminadab Gaxiola Gonzalez, a 44-year-old [[Hispanic]] man from [[Fullerton]].
 
 ### AF 2021-03-18 0774
 (01:56:11) [[Nicholas J. Fuentes]] noted that the [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) featured sitting Congressman [[Paul Gosar]], former Congressman [[Steven King|Steve King]], and commentator [[Michelle Malkin]] as speakers at the Hilton in Orlando.
@@ -114,7 +114,7 @@
 (00:09:30) [[Nicholas J. Fuentes]] announced he was considering live-streaming and reacting to a [[Donald Trump]] campaign rally in Orlando, [[State of Florida|Florida]] scheduled for the following day.
 
 ### AF 2019-01-25 0318
-(00:21:40) [[Warner Bros. Discovery|CNN]] reported that the government shutdown caused flight delays at major airports in [[New York]], [[State of New Jersey|New Jersey]], [[City of Philadelphia|Philadelphia]], Orlando, and [[Atlanta]] due to staffing shortages at air traffic control centers.
+(00:21:40) [[Warner Bros. Discovery|CNN]] reported that the government shutdown caused flight delays at major airports in [[New York]], [[State of New Jersey|New Jersey]], [[Philadelphia]], Orlando, and [[Atlanta]] due to staffing shortages at air traffic control centers.
 
 ### AF 2018-06-18 0182
 (53:48:65) [[Laura Loomer]] noted that [[Omar Mateen]], the perpetrator of the Orlando Pulse nightclub shooting, had a father [[who]] was a [[Federal Bureau of Investigation|FBI]] informant, a fact not revealed until two years after the attack.

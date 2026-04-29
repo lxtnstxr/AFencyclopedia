@@ -57,7 +57,7 @@
 (41:15:46) The [[Twitter]] thread named [[Matt Taibbi|Matt Tiabbi]], [[John Garvey]], [[George Skakel]], [[Joseph Barton]], [[Steve Alembic|Steve Alembich]], [[Tom O'Hara]], and [[Barry Hinckley]] as board members and C-suite officers involved in the action against James O'Keefe.
 
 ### AF 2022-09-22 1065
-(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], [[Jared Holt]], James O'Keefe, [[Heal Turn]], [[Richard Spencer]], the alt-right, [[City of Charlottesville|Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
+(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], [[Jared Holt]], James O'Keefe, [[Heal Turn]], [[Richard Spencer]], the alt-right, [[Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
 
 ### AF 2021-12-21 0925
 (00:39:38) At the [[Turning Point USA]] [[United States|America]] Fest conference, James O'Keefe performed a dance routine and musical, while [[Benny Johnson]] compared libertarianism to movies like *Home Alone* and *Star Wars*.
@@ -69,7 +69,7 @@
 (02:15:41) [[Nicholas J. Fuentes]] criticized James O'Keefe as "not really a team player" and "a little bit selfish," arguing that exposing [[Warner Bros. Discovery|CNN]] bias is a waste of resources since it is already widely [[known]].
 
 ### AF 2020-09-28 0690
-(00:51:00) [[Nicholas J. Fuentes]] cited a report by James O'Keefe and [[Project Veritas]] alleging a ballot harvesting operation in [[Minnesota]] linked to [[Ilhan Omar]]'s brother, [[Liban Mohamed]], and [[City of Minneapolis|Minneapolis]] [[city]] council member [[Jamal Osman]].
+(00:51:00) [[Nicholas J. Fuentes]] cited a report by James O'Keefe and [[Project Veritas]] alleging a ballot harvesting operation in [[Minnesota]] linked to [[Ilhan Omar]]'s brother, [[Liban Mohamed]], and [[Minneapolis]] [[city]] council member [[Jamal Osman]].
 
 ### AF 2019-06-25 0414
 (00:00:23) [[Project Veritas Action|Project Veritas]], an [[organization]] run by James O'Keefe, released a report alleging bias at [[Google]], which was subsequently removed from [[Google|YouTube]].

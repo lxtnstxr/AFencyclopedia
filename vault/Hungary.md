@@ -36,31 +36,31 @@
 (01:04:47:08) [[Nicholas J. Fuentes]] described the intricate logistics required for the pager attack: shipping from Asia to Hungary, smuggling, creating a shell company, sourcing nitroglycerin, manual labor, and re-shipment to [[Lebanon]].
 
 ### AF 2024-07-10 1352
-(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the [[United Kingdom]], [[Government of France|France]], Hungary, the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], [[Brazil]], [[Argentina]], and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
+(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the [[United Kingdom]], [[France]], Hungary, the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], [[Brazil]], [[Argentina]], and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of Hungary, the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of Hungary, the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 ### AF 2024-07-09 1351
 (00:51:22) [[Nicholas J. Fuentes]] argued [[Saurabh Sharma]]'s speech was really about defending [[Israel]], not [[El Salvador]] or Hungary, as [[Israel]] receives the most global condemnation.
 
 ### AF 2024-06-10 1341
-(00:39:00) [[Viktor Orbán]]'s [[Fidesz]] party in Hungary had its worst performance in a [[Europe|European Union]] election since the [[country]] joined the bloc twenty years ago.
+(00:39:00) [[Viktor Orbán]]'s [[Fidesz]] party in Hungary had its worst performance in a [[European Union]] election since the [[country]] joined the bloc twenty years ago.
 
 ### AF 2024-05-23 1334
-(01:01:13) [[Austria]] and Hungary blocked the [[Europe|European Union]] from adopting a unified, more critical stance towards [[Israel]] following the war in the [[Gaza Strip]].
+(01:01:13) [[Austria]] and Hungary blocked the [[European Union]] from adopting a unified, more critical stance towards [[Israel]] following the war in the [[Gaza Strip]].
 
 ### AF 2024-05-23 1334
 (01:19:75) The government of [[Viktor Orbán]] in Hungary maintained a close political alignment with [[Benjamin Netanyahu]] and the [[Likud]] party in [[Israel]].
 
 ### AF 2024-05-22 1333
-(17:36:22) Within the [[Europe|European Union]], only [[Austria]] and Hungary refused to condemn [[Israel]]'s conduct in the war in [[Gaza Strip|Gaza]], preventing a unified [[EU]] position shift.
+(17:36:22) Within the [[European Union]], only [[Austria]] and Hungary refused to condemn [[Israel]]'s conduct in the war in [[Gaza Strip|Gaza]], preventing a unified [[EU]] position shift.
 
 ### AF 2024-05-22 1333
-(18:14:20) [[Viktor Orbán]]'s government in Hungary was one of only two governments in the [[Europe|European Union]] defending [[Israel]]'s conduct in the war.
+(18:14:20) [[Viktor Orbán]]'s government in Hungary was one of only two governments in the [[European Union]] defending [[Israel]]'s conduct in the war.
 
 ### AF 2024-05-22 1333
-(19:00:00) The [[Likud]] party in [[Israel]] maintains a strong influence over the governments of [[Austria]] and Hungary, which blocked a broader [[Europe|European Union]] course correction on [[Israel]].
+(19:00:00) The [[Likud]] party in [[Israel]] maintains a strong influence over the governments of [[Austria]] and Hungary, which blocked a broader [[European Union]] course correction on [[Israel]].
 
 ### AF 2024-05-21 1332
 (00:41:21) [[Nicholas J. Fuentes]] described a transnational network of [[Jews]] operating in countries including [[Argentina]], Hungary, the [[United Kingdom]], [[Spain]], [[Brazil]], and [[Russia]], working to benefit [[Israel]] and international [[Jews|Jewry]] at the expense of their host nations.
@@ -72,7 +72,7 @@
 (01:45:10:01) [[Viktor Orbán]]'s government in Hungary signed a deal with the [[Israel|Israeli]] lithium company [[Xtrolite]].
 
 ### AF 2024-02-14 1292
-(00:18:29) [[Nicholas J. Fuentes]] noted that Hungary and the [[Czech Republic]] vetoed an anti-[[Israel]] action in the [[Europe|European Union]], which he attributed to right-wing governments in [[Europe|Eastern Europe]] being "totally in the pocket of [[Benjamin Netanyahu|Netanyahu]]."
+(00:18:29) [[Nicholas J. Fuentes]] noted that Hungary and the [[Czech Republic]] vetoed an anti-[[Israel]] action in the [[European Union]], which he attributed to right-wing governments in [[Europe|Eastern Europe]] being "totally in the pocket of [[Benjamin Netanyahu|Netanyahu]]."
 
 ### AF 2024-02-13 1291
 (30:34:79) The only governments enthusiastically supporting [[Israel]]'s war in [[Gaza Strip|Gaza]] are Hungary, the [[Czech Republic]], and [[Argentina]].
@@ -96,7 +96,7 @@
 (01:19:00) [[Dick Carlson]], the father of [[Tucker Carlson]], served as the director of the [[Voice of America]] and worked in the [[Central Intelligence Agency|CIA]]'s information warfare division during the Cold War, later becoming a lobbyist for the Hungarian [[United States Embassy in Jerusalem|embassy]].
 
 ### AF 2023-05-09 1158
-(06:21:420) Hungary and [[Israel|Poland]] were the two [[Europe|European Union]] member states that dissented against the decision to cancel the diplomatic event in [[Israel]].
+(06:21:420) Hungary and [[Israel|Poland]] were the two [[European Union]] member states that dissented against the decision to cancel the diplomatic event in [[Israel]].
 
 ### AF 2023-05-09 1158
 (07:03:660) [[Nicholas J. Fuentes]] characterized the governments of [[Viktor Orbán]] in Hungary and others in [[Israel|Poland]], [[Brazil]], and [[Italian Republic|Italy]] as right-wing populist nationalist governments that were "totally mobbed up with the [[state of Israel]]."
@@ -105,7 +105,7 @@
 (08:02:560) [[Nicholas J. Fuentes]] asserted that [[Israel|Poland]] and Hungary were "totally mobbed up with the [[state of Israel]]," questioning how this constituted a genuine populist nationalist coalition.
 
 ### AF 2023-05-09 1158
-(17:25:490) [[Israel|Israeli]] media reported that only Hungary and [[Israel|Poland]], described as conservative pro-[[Israel]] countries, dissented from the [[Europe|European Union]]'s decision to cancel the event.
+(17:25:490) [[Israel|Israeli]] media reported that only Hungary and [[Israel|Poland]], described as conservative pro-[[Israel]] countries, dissented from the [[European Union]]'s decision to cancel the event.
 
 ### AF 2023-05-09 1158
 (18:56:570) [[Nicholas J. Fuentes]] argued that the nascent populist movement in [[United States|America]] was controlled by [[Israel]], similar to right-wing movements in Hungary, [[Israel|Poland]], [[Brazil]], and [[Italian Republic|Italy]].
@@ -120,7 +120,7 @@
 (33:20:760) [[Nicholas J. Fuentes]] called for the [[United States]] government to investigate the Hungarian [[United States Embassy in Jerusalem|embassy]], alleging that the [[Israel Defense Forces|Mossad]] was "all over" it.
 
 ### AF 2023-04-25 1152
-(00:35:15) [[Nicholas J. Fuentes]] reported that [[Dick Carlson]] now works as a lobbyist for the Hungarian government of [[Viktor Orbán]], which is aligned with [[Israel|Israel's]] [[Labor Party|Likud]] party, as a registered foreign agent.
+(00:35:15) [[Nicholas J. Fuentes]] reported that [[Dick Carlson]] now works as a lobbyist for the Hungarian government of [[Viktor Orbán]], which is aligned with [[Israel|Israel's]] [[Likud]] party, as a registered foreign agent.
 
 ### AF 2023-03-02 1126
 (30:09:48) [[Nicholas J. Fuentes]] notes that pronatalist policies similar to the proposed [[State of Texas|Texas]] bill have been implemented in [[Russia]] and Hungary.
@@ -129,7 +129,7 @@
 (32:06:38) Leaders such as [[Vladimir Putin]] of [[Russia]], [[Bashar al-Assad]] of [[Syria]], and [[Viktor Orbán]] of Hungary have been compared to [[Adolf Hitler]] for their strong, nationalist, and conservative governance.
 
 ### AF 2022-09-10 1058
-(00:21:16) The [[Europe|European Union]] held an emergency meeting to discuss capping imports of [[Russian]] natural gas, a proposal that divided member states and was opposed by Hungary and [[Israel|Poland]].
+(00:21:16) The [[European Union]] held an emergency meeting to discuss capping imports of [[Russian]] natural gas, a proposal that divided member states and was opposed by Hungary and [[Israel|Poland]].
 
 ### AF 2022-09-10 1058
 (00:54:08) Eastern [[Europe|European]] countries, including Hungary and [[Israel|Poland]], were described as more dependent on [[Russian]] gas and in conflict with Western [[Europe|European]] nations over energy policy.
@@ -138,7 +138,7 @@
 (29:32:98) Hungarian Foreign Minister [[Peter Szijjártó]] argued that imposing price restrictions exclusively on [[Russia]]n gas would lead to an immediate cutoff of supplies and was against [[Europe|European]] and Hungarian interests.
 
 ### AF 2022-09-10 1058
-(30:51:12) [[Italian Republic|Italy]], [[Israel|Poland]], Hungary, and [[Greece]] were among the most vocal opponents of a price cap on [[Russia]]n gas within the [[Europe|European Union]].
+(30:51:12) [[Italian Republic|Italy]], [[Israel|Poland]], Hungary, and [[Greece]] were among the most vocal opponents of a price cap on [[Russia]]n gas within the [[European Union]].
 
 ### AF 2022-09-10 1058
 (31:51:02) Hungarian Foreign Minister [[Peter Szijjártó]] stated that gas supplies are "not an ideological or political issue, but one of hardcore physical reality."
@@ -210,7 +210,7 @@
 (00:33:46) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] had adopted a begrudgingly supportive stance on LGBT issues, contrasting it with the more oppositional approach of [[Viktor Orbán]] and Hungary.
 
 ### AF 2019-05-27 0395
-(00:02:00) [[Nicholas J. Fuentes]] stated that nationalist parties in [[France]], [[Italian Republic|Italy]], Hungary, and the [[United Kingdom]] performed well in the [[Europe|European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
+(00:02:00) [[Nicholas J. Fuentes]] stated that nationalist parties in [[France]], [[Italian Republic|Italy]], Hungary, and the [[United Kingdom]] performed well in the [[European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
 
 ### AF 2019-05-27 0395
 (00:41:00) [[Nicholas J. Fuentes]] reported that in Hungary, Prime Minister [[Viktor Orbán]]'s [[Fidesz]] party won an outright majority with over 52% of the vote.
@@ -243,7 +243,7 @@
 (06:08:48) [[Nicholas J. Fuentes]] stated that Hungary's good relationship with [[Israel]] is not problematic because, unlike the [[United States]], Hungary is not expected to fight a war with [[Iran]] or provide billions in annual aid.
 
 ### AF 2019-04-10 0364
-(01:26:40) [[Benjamin Netanyahu|Netanyahu]]'s [[Labor Party|Likud]] party maintained close relationships with right-wing nationalist governments in [[Czech Republic]], Hungary, [[Israel|Poland]], and [[Austria]].
+(01:26:40) [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party maintained close relationships with right-wing nationalist governments in [[Czech Republic]], Hungary, [[Israel|Poland]], and [[Austria]].
 
 ### AF 2019-03-05 0341
 (05:36:20) Countries like [[Russia]], Hungary, and the [[Czech Republic]] survived socialist economic systems, but no [[country]] has survived large-scale immigration that submerges the native racial majority.
@@ -255,19 +255,19 @@
 (06:25:00) Leaders in Hungary and [[Israel|Poland]], such as [[Viktor Orbán]], were defining their political movements in terms of nationalism versus globalism, according to [[Nicholas J. Fuentes]].
 
 ### AF 2018-09-13 0239
-(01:04:00) The [[European Parliament]] voted to condemn Hungary and trigger Article 7 proceedings against it for alleged breaches of core [[Europe|European Union]] values.
+(01:04:00) The [[European Parliament]] voted to condemn Hungary and trigger Article 7 proceedings against it for alleged breaches of core [[European Union]] values.
 
 ### AF 2018-09-13 0239
-(01:10:00) The [[Europe|European Union]] initiated Article 7 proceedings to punish and censure Hungary for not adhering to the bloc's core values.
+(01:10:00) The [[European Union]] initiated Article 7 proceedings to punish and censure Hungary for not adhering to the bloc's core values.
 
 ### AF 2018-09-13 0239
-(11:09:00) A clash within the [[Europe|European Union]] existed between Eastern and Central [[Europe|European]] countries like Hungary, [[Austria]], and [[Czech Republic|Czechia]], and dominant liberal countries like [[Germany]] and [[France]], primarily over immigration policy.
+(11:09:00) A clash within the [[European Union]] existed between Eastern and Central [[Europe|European]] countries like Hungary, [[Austria]], and [[Czech Republic|Czechia]], and dominant liberal countries like [[Germany]] and [[France]], primarily over immigration policy.
 
 ### AF 2018-09-13 0239
 (15:12:00) Eastern [[Europe|European]] countries like Hungary, [[Austria]], [[Czech Republic|Czechia]], and [[Israel|Poland]] implemented strict immigration policies and erected fences to stem mass migration from the [[Middle East]].
 
 ### AF 2018-09-13 0239
-(16:09:00) The [[European Parliament]] voted to pursue disciplinary action against Hungary for alleged breaches of the [[Europe|European Union]]'s core values, including concerns over its constitutional system, freedom of expression, and treatment of refugees and minorities.
+(16:09:00) The [[European Parliament]] voted to pursue disciplinary action against Hungary for alleged breaches of the [[European Union]]'s core values, including concerns over its constitutional system, freedom of expression, and treatment of refugees and minorities.
 
 ### AF 2018-09-13 0239
 (17:45:00) In the [[European Parliament]] vote on disciplinary action against Hungary, opposition came from [[Forza Italia]], some Bulgarian and [[Germany|German]] representatives, and [[United Kingdom|UK]] conservatives.
@@ -300,4 +300,4 @@
 (00:26:00) [[Nicholas J. Fuentes]] argued that mass immigration and multiculturalism are fueling a populist backlash in Western nations, drawing parallels between trends in [[Italian Republic|Italy]], [[Israel|Poland]], Hungary, and the [[United States]].
 
 ### AF 2018-02-28 0115
-(12:54:64) [[Austria]] elected a far-right Prime Minister months prior, joining Hungary and [[Israel|Poland]] in ethnic nationalist resistance to [[Europe|European Union]] migration policies.
+(12:54:64) [[Austria]] elected a far-right Prime Minister months prior, joining Hungary and [[Israel|Poland]] in ethnic nationalist resistance to [[European Union]] migration policies.

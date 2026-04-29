@@ -75,7 +75,7 @@
 (05:14:01) [[Nicholas J. Fuentes]] stated he had been removed from organizations including the [[Leadership Institute]], Young Americans for Liberty, [[American Identity Movement|Identity Evropa]], and his own company, [[America First Media]], for his immigration stances and criticism of movement optics.
 
 ### AF 2017-10-19 0035
-(00:14:54) [[Nicholas J. Fuentes]] argued that the [[City of Gainesville|Gainesville]] venue was too large for the tightly vetted audience, suggesting that a smaller, packed space would have created better optics than a sparsely filled room, a basic principle of event [[organization]] taught by groups like Young Americans for Liberty.
+(00:14:54) [[Nicholas J. Fuentes]] argued that the [[Gainesville]] venue was too large for the tightly vetted audience, suggesting that a smaller, packed space would have created better optics than a sparsely filled room, a basic principle of event [[organization]] taught by groups like Young Americans for Liberty.
 
 ### AF 2017-10-09 0027
 (51:30:19) [[University of Colorado Boulder]] student groups affiliated with [[Turning Point USA]] and Young Americans for Liberty declined to host [[Nicholas J. Fuentes]] because they considered his views too extreme.

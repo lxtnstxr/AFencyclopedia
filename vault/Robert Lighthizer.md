@@ -7,3 +7,6 @@
 
 ### AF 2019-05-13 0386
 (30:08:24) [[Donald Trump]]'s trade team, including [[Wilbur Ross]] and Leitzinger, were considered by [[Nicholas J. Fuentes]] to be among the finest and most competent people in his administration.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:10:14) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]]’s use of the emergency powers (IEPA) for tariffs was an "unforced error," as his first-term trade representative Robert Lighthizer had specifically warned him against using that law because it would be struck down.

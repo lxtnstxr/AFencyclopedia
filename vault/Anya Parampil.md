@@ -52,3 +52,9 @@
 
 ### AF 2023-02-16 1123
 (01:02:57) The article by Anya Parampil noted that [[Nicholas J. Fuentes]] commands his own nonprofit, the [[America First Foundation]], which hosts an annual convention rivaling the established [[Conservative Political Action Conference|CPAC]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:56:20) [[Nicholas J. Fuentes]] stated that the "[[fed]]" accusation against him originated from an article written by Anya Parampil, wife of [[Max Blumenthal]], in [[The Grayzone]] in 2023.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:01) Anya Parampil and [[Max Blumenthal]] raised $100,000 to pay people to post links to [[The Grayzone]] article with the hashtag "[[Federal Reserve|Fed]] [[Nicholas J. Fuentes|Fuentes]]."

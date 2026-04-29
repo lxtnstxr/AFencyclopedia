@@ -6,7 +6,7 @@
 
 
 ### AF 2021-09-25 0884
-(24:18:00) [[Republican Party|Republican]] representatives [[Elise Stefanik]], Devin Nunes, [[Ronny Jackson]], [[Greg Pence]], and [[House]] Minority Leader [[Mike Johnson|Kevin McCarthy]] voted for the NDAA containing the red flag law.
+(24:18:00) [[Republican Party|Republican]] representatives [[Elise Stefanik]], Devin Nunes, [[Ronny Jackson]], [[Greg Pence]], and [[House]] Minority Leader [[Kevin McCarthy]] voted for the NDAA containing the red flag law.
 
 ### AF 2019-03-19 0350
 (00:35:50) Devin Nunes, the former Chairman of the [[House]] Intelligence Committee, filed a $250 million defamation lawsuit against [[Twitter]] and three of its users.

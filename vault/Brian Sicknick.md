@@ -46,7 +46,7 @@
 (00:58:53) [[Nicholas J. Fuentes]] argued that the Brian Sicknick narrative, along with those surrounding [[Heather Heyer]], [[George Floyd]], and the [[COVID-19 pandemic]], were foundational lies pushed by the media to advance political agendas, with corrections only emerging after narratives were cemented.
 
 ### AF 2021-03-15 0772
-(00:05:00) [[Nicholas J. Fuentes]] cited the retracted stories about the [[City of Charlottesville|Charlottesville]] rally and the death of [[United States Capitol Police|Capitol Police]] Officer Brian Sicknick as examples of a pattern where major media outlets publish politically beneficial narratives for [[the left]] that are later disproven by facts.
+(00:05:00) [[Nicholas J. Fuentes]] cited the retracted stories about the [[Charlottesville]] rally and the death of [[United States Capitol Police|Capitol Police]] Officer Brian Sicknick as examples of a pattern where major media outlets publish politically beneficial narratives for [[the left]] that are later disproven by facts.
 
 ### AF 2021-02-16 0762
 (44:49:09) [[Nicholas J. Fuentes]] characterized the [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] riot as a setup, noting that two organized right-wing groups present, the [[|Proud Boys]] and the [[Oath Keepers]], were allegedly run by federal agents, and that the story of Officer Brian Sicknick's death was a hoax.
@@ -97,7 +97,7 @@
 (39:24:21) Brian Sicknick texted his brother Ken hours after the protest had concluded, confirming he was safe and "in good shape," having only been pepper-sprayed twice.
 
 ### AF 2021-02-10 0759
-(39:55:95) [[Nicholas J. Fuentes]] stated that the entire [[The New York Times|New York Times]] story about Brian Sicknick's death was a lie that formed a critical part of the narrative portraying the [[United States Capitol|Capitol]] riot as a deadly tragedy like [[City of Charlottesville|Charlottesville]].
+(39:55:95) [[Nicholas J. Fuentes]] stated that the entire [[The New York Times|New York Times]] story about Brian Sicknick's death was a lie that formed a critical part of the narrative portraying the [[United States Capitol|Capitol]] riot as a deadly tragedy like [[Charlottesville]].
 
 ### AF 2021-02-10 0759
 (40:25:61) [[Nicholas J. Fuentes]] noted that out of five casualties on [[January 6th Attack|January 6th]], four were [[Donald Trump|Trump]] supporters (one shot by police) and one was Brian Sicknick, making the officer's death a key martyr for the media's narrative.

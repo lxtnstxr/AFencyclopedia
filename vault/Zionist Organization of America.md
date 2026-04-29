@@ -62,7 +62,7 @@
 (00:48:26) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] was a libertarian and neoconservative who supported the [[Iraq War]] before rebranding as a populist voice after [[Donald Trump]]'s election, and whose agenda for war with [[China]] aligns with [[Steve Bannon]] and the ZOA.
 
 ### AF 2022-11-02 1091
-(01:33:57) [[Donald Trump]] and [[Mike Johnson|Kevin McCarthy]] are scheduled to speak at an event for the ZOA later in the year.
+(01:33:57) [[Donald Trump]] and [[Kevin McCarthy]] are scheduled to speak at an event for the ZOA later in the year.
 
 ### AF 2022-10-21 1083
 (01:10:00:20) [[Nicholas J. Fuentes]] characterized advocacy groups like the [[Anti-Defamation League|ADL]], [[Southern Poverty Law Center|SPLC]], and ZOI as vicious and unfair, and groups like the [[JDL]] as terrorists who threaten those who disagree with them.
@@ -164,13 +164,13 @@
 (14:10:94) [[Nicholas J. Fuentes]] noted that the ZOA has called for him to be censored from all social media.
 
 ### AF 2021-02-04 0755
-(01:03:09) [[Nicholas J. Fuentes]] listed [[Ted Cruz]], [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], [[Adam Kinzinger]], and [[Liz Cheney]] as examples of [[Republican Party]] figures who had turned against [[Donald Trump]] and his supporters.(01:04:55) The ZOA called for [[Nicholas J. Fuentes]] to be banned from all platforms.
+(01:03:09) [[Nicholas J. Fuentes]] listed [[Ted Cruz]], [[Mitch McConnell]], [[Kevin McCarthy]], [[Adam Kinzinger]], and [[Liz Cheney]] as examples of [[Republican Party]] figures who had turned against [[Donald Trump]] and his supporters.(01:04:55) The ZOA called for [[Nicholas J. Fuentes]] to be banned from all platforms.
 
 ### AF 2021-01-29 0751
-(01:16:00) [[Nicholas J. Fuentes]] stated that he, as a [[Catholic Church|Catholic]], white, "real [[United States|American]] patriot," was consistently called antisemitic by figures like [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], [[Sebastian Gorka]], the Zionist Organization of America, [[Steven Crowder|Steve Bannon]], and [[Rudy Giuliani]] for discussing issues of [[Jews|Jewish]] influence.
+(01:16:00) [[Nicholas J. Fuentes]] stated that he, as a [[Catholic Church|Catholic]], white, "real [[United States|American]] patriot," was consistently called antisemitic by figures like [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], [[Sebastian Gorka]], the Zionist Organization of America, [[Steve Bannon]], and [[Rudy Giuliani]] for discussing issues of [[Jews|Jewish]] influence.
 
 ### AF 2021-01-29 0751
-(04:33:00) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], white, [[United States|America]]-first patriot, he is consistently labeled antisemitic by [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], [[Sebastian Gorka]], the Zionist Organization of America, [[Steven Crowder|Steve Bannon]], and [[Rudy Giuliani]], highlighting a fundamental conflict with [[American Jewish Committee|Jewish organizations]].
+(04:33:00) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], white, [[United States|America]]-first patriot, he is consistently labeled antisemitic by [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], [[Sebastian Gorka]], the Zionist Organization of America, [[Steve Bannon]], and [[Rudy Giuliani]], highlighting a fundamental conflict with [[American Jewish Committee|Jewish organizations]].
 
 ### AF 2021-01-29 0751
 (04:35:40) [[Nicholas J. Fuentes]] argued that the coordinated effort by the [[Republican Jewish Coalition]], presidents of major [[United States|American]] [[American Jewish Committee|Jewish organizations]], the Zionist Organization of America, and the media to oppose and censure [[Marjorie Taylor Greene]] reveals a systemic conflict with legitimate, [[Christianity|Christian]], right-wing [[United States|American]] patriotism.
@@ -245,7 +245,7 @@
 (42:26:40) [[Charlie Kirk]] and [[Turning Point USA]] defend their six-figure salaries from donors like the Zionist Organization of America, according to [[Nicholas J. Fuentes]].
 
 ### AF 2019-09-13 0461
-(22:21:46) [[Steven Crowder|Steve Bannon]] solicited campaign funds from the Zionist Organization of America while working for the [[Donald Trump|Trump]] campaign, according to [[Nicholas J. Fuentes]].
+(22:21:46) [[Steve Bannon]] solicited campaign funds from the Zionist Organization of America while working for the [[Donald Trump|Trump]] campaign, according to [[Nicholas J. Fuentes]].
 
 ### AF 2019-08-07 0435
 (01:25:53) [[Nicholas J. Fuentes]] agreed with a commenter's point that [[Matt Walsh]] does not condemn Zionism despite its history of terrorist attacks, citing examples like the [[Martin Luther King Jr.|King]] David Hotel bombing and the Zionist militia Irgun.

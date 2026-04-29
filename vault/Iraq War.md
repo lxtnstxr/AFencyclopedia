@@ -64,3 +64,18 @@
 
 ### AF 2017-11-08 0049
 (00:20:38) [[Nicholas J. Fuentes]] compared the passage of the Hart-Celler Act to the Iraq War, arguing the public was misled about its consequences, expecting immigrants from [[Dominion of Canada|Canada]] and [[Region of Scandinavia|Scandinavia]] but receiving them from [[Mexico]] and [[Asia]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:18:01) [[Nicholas J. Fuentes]] compared the current situation to the slow escalation of the [[Vietnam War]] and Iraq War, fearing further deep involvement.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:32:50) [[Nicholas J. Fuentes]] suggested the war in [[Iran]] is starting to feel like the Iraq War, where no one has a clue how it will end.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:10:08) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] supporters were claiming the war in [[Iran]] would not be like Iraq because of the competence of [[Donald Trump]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:10:56) [[Nicholas J. Fuentes]] stated that the war in [[Iran]] is exactly like Iraq, with a plan to topple the government and no plan for the aftermath.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:55:56) [[Bill Kristol]] is one of the architects of the Iraq War.

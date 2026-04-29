@@ -11,3 +11,6 @@
 
 ### AF 2024-10-02 1398
 (04:33:50) [[Nicholas J. Fuentes]] stated he was at the Charlottesville rally and the [[January 6th Attack]], events where the "conspiracy theory" of white genocide and replacement was discussed, which he says is obviously happening only in white countries.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:52:32:410) [[Nicholas J. Fuentes]] stated that he went to Charlottesville nine years ago last minute after [[Faith Goldie]] texted him encouraging him to go.

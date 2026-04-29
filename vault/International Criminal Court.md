@@ -12,7 +12,7 @@
 (00:57:75) The International Criminal Court issued arrest warrants for [[Benjamin Netanyahu]] and the Defense Minister of [[Israel]].
 
 ### AF 2024-05-21 1332
-(01:42:23) [[Nicholas J. Fuentes]] noted that [[Government of France|France]] has historically been more autonomous within Western alliances, citing its opposition to the [[Iraq]] War and the [[Iran]] maximum pressure campaign, and its recent support for the International Criminal Court's actions against [[Benjamin Netanyahu]].
+(01:42:23) [[Nicholas J. Fuentes]] noted that [[France]] has historically been more autonomous within Western alliances, citing its opposition to the [[Iraq]] War and the [[Iran]] maximum pressure campaign, and its recent support for the International Criminal Court's actions against [[Benjamin Netanyahu]].
 
 ### AF 2024-05-21 1332
 (01:50:00) [[Nicholas J. Fuentes]] relayed a super chat stating that [[Norway]] had declared it would arrest [[Benjamin Netanyahu]] if he entered the [[country]], following the International Criminal Court arrest warrant.

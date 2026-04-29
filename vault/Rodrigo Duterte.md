@@ -12,7 +12,7 @@
 (00:07:43) Rodrigo Duterte of the [[Philippines]] has bragged about extrajudicial killings of drug dealers as part of his [[country]]'s harsh punitive approach.
 
 ### AF 2017-12-18 0071
-(01:02:12) Rodrigo Duterte, [[Donald Trump|the president]] of the [[Philippines]], publicly expressed support for gay marriage, a position [[Nicholas J. Fuentes]] found surprising given Duterte's previous anti-gay statements and the [[Philippines]]' status as a very [[Catholic]] [[country]].
+(01:02:12) Rodrigo Duterte, [[the president]] of the [[Philippines]], publicly expressed support for gay marriage, a position [[Nicholas J. Fuentes]] found surprising given Duterte's previous anti-gay statements and the [[Philippines]]' status as a very [[Catholic]] [[country]].
 
 ### AF 2017-10-06 0026
 (01:34:18) [[Nicholas J. Fuentes]] listed [[Bashar al-Assad]], [[Vladimir Putin]], and Rodrigo Duterte as his top three non-[[United States|American]] leaders today, and [[Julius Caesar]], [[Napoleon Bonaparte]], and [[Otto von Bismarck]] as his top three historical leaders.

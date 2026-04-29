@@ -42,7 +42,7 @@
 (00:37:00) [[Brian Ross]], a reporter for [[ABC News]], was fired in 2018, seven months after he incorrectly reported that Michael Flynn would testify that [[Donald Trump]] directed him to contact [[Russians]] during the presidential transition.
 
 ### AF 2018-01-03 0078
-(02:10:240) An excerpt from [[Michael Wolff]]'s book published by [[The Guardian]] quoted [[Steven Crowder|Steve Bannon]] describing contact between Michael Flynn and [[Russia]] as "unpatriotic and treasonous."
+(02:10:240) An excerpt from [[Michael Wolff]]'s book published by [[The Guardian]] quoted [[Steve Bannon]] describing contact between Michael Flynn and [[Russia]] as "unpatriotic and treasonous."
 
 ### AF 2017-12-08 0067
 (00:25:46) [[Nicholas J. Fuentes]] asserted that [[Warner Bros. Discovery|CNN]] misreported a date regarding an email sent to the [[Donald Trump]] campaign about [[WikiLeaks]], falsely claiming it arrived before a document dump when it actually arrived afterward, following a similar misreporting incident by [[ABC News|ABC]] concerning Michael Flynn.
@@ -78,7 +78,7 @@
 (00:11:24) Investigators hoped Michael Flynn would testify that [[White House|President]] [[Donald Trump]] ordered him to contact [[Russia]], which could form the basis of a case against [[Donald Trump]].
 
 ### AF 2017-12-01 0062
-(00:15:32) Using the [[Foreign Intelligence Surveillance Act|FISA]] warrant, the [[Obama]] administration spied on campaign officials including [[Steven Crowder|Steve Bannon]], [[Paul Manafort]], and Michael Flynn.
+(00:15:32) Using the [[Foreign Intelligence Surveillance Act|FISA]] warrant, the [[Obama]] administration spied on campaign officials including [[Steve Bannon]], [[Paul Manafort]], and Michael Flynn.
 
 ### AF 2017-12-01 0062
 (00:16:07) As of December 22, 2016, Michael Flynn was a private citizen, yet the [[Obama]] administration spied on him with a [[Foreign Intelligence Surveillance Act|FISA]] warrant and subsequently unmasked his identity to the press.
@@ -91,3 +91,6 @@
 
 ### AF 2017-11-06 0047
 (00:34:10) The [[House Intelligence Committee]] secured its first indictments against [[Paul Manafort]], [[Rick Gates]], and [[George Papadopoulos]], and announced it had sufficient evidence to bring charges against Michael Flynn for lobbying on behalf of [[Turkey]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:56:14.960) Many close allies of [[Donald Trump]], including [[Jefferson Beauregard Sessions III|Jeff Sessions]], [[Ann Coulter]], [[Steve Bannon]], Michael Flynn, and his campaign manager (whose name is not specified), faced legal issues, financial ruin, or were discarded after supporting him.

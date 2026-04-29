@@ -36,7 +36,7 @@
 (45:59:20) [[Nicholas J. Fuentes]] argued the populations in eastern [[Ukraine]] voted to join [[Russia]] because they are ethnically [[Russian]], speak [[Russian]], and face a Russophobic government in Kyiv that banned the [[Russian language]].
 
 ### AF 2022-09-28 1068
-(55:45:75) The [[Europe|European Union]] and the [[United States]] called the referendums in [[Luhansk]], [[Donetsk]], [[Zaporizhzhia]], and [[Kherson]] a sham, with [[Antony Blinken]] stating the regions would never be recognized as part of [[Russia]] and that Kyiv had every right to take them back.
+(55:45:75) The [[European Union]] and the [[United States]] called the referendums in [[Luhansk]], [[Donetsk]], [[Zaporizhzhia]], and [[Kherson]] a sham, with [[Antony Blinken]] stating the regions would never be recognized as part of [[Russia]] and that Kyiv had every right to take them back.
 
 ### AF 2022-09-22 1065
 (01:27:39) The infusion of 300,000 soldiers and the formal annexation of [[Ukraine|Ukrainian]] republics is expected to allow [[Russia]] to break [[Ukraine|Ukrainian]] defensive lines and advance rapidly toward Kiev and [[Odessa]].
@@ -48,7 +48,7 @@
 (00:16:50) [[Nicholas J. Fuentes]] claimed that once the [[Donbas]] [[region]] was fully liberated, there would be no fortified [[Ukraine|Ukrainian]] resistance until Kiev.
 
 ### AF 2022-06-21 1017
-(00:00:34) The [[Government of Russia|Russian Federation]] captured two [[United States|American]]-born mercenaries fighting for the Kiev government in [[Ukraine]] and has not ruled out the death penalty for them.
+(00:00:34) The [[Russian Federation]] captured two [[United States|American]]-born mercenaries fighting for the Kiev government in [[Ukraine]] and has not ruled out the death penalty for them.
 
 ### AF 2022-06-21 1017
 (00:01:12) The two mercenaries, born in [[Alabama]], surrendered to [[Russia]] while fighting for the "illegitimate [[Jewish]] puppet [[state]] of Kiev" in [[Ukraine]].
@@ -69,7 +69,7 @@
 (01:00:01) Peace talks between [[Russia]] and [[Ukraine]], moderated by [[Turkey]], provided a strategic pause that benefited Kyiv by halting [[Russian]] advances while economic attrition against [[Russia]] continued.
 
 ### AF 2022-03-23 0963
-(01:25:36) [[Vladimir Putin|Putin]] demanded the annexation of [[City of Sevastopol|Crimea]], the independence of breakaway republics in the [[Donetsk|Donbass]], a change to the [[Ukraine|Ukrainian]] constitution to enshrine neutrality and bar [[North Atlantic Treaty Organization|NATO]] membership, and the demilitarization and "denazification" of Kyiv.
+(01:25:36) [[Vladimir Putin|Putin]] demanded the annexation of [[Crimea]], the independence of breakaway republics in the [[Donetsk|Donbass]], a change to the [[Ukraine|Ukrainian]] constitution to enshrine neutrality and bar [[North Atlantic Treaty Organization|NATO]] membership, and the demilitarization and "denazification" of Kyiv.
 
 ### AF 2022-03-23 0963
 (20:07:54) [[Nicholas J. Fuentes]] relayed a rumor that [[Lukashenko]] of [[Belarus]] would send troops to aid a final push on Kyiv within weeks.

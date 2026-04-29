@@ -13,3 +13,6 @@
 
 ### AF 2019-12-11 0511
 (34:33:400) Richard Hanania published a [[Twitter]] thread analyzing the [[Afghanistan]] Papers, highlighting that the [[United States|U.S]]. spent approximately $1 million per year per soldier.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:55:40:00) [[Nicholas J. Fuentes]] said he and other people like [[Michael Tracy]] and Richard Hanania are trying to separate fact from fiction in the [[Jeffrey Epstein]] files.

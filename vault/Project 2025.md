@@ -127,3 +127,6 @@
 
 ### AF 2024-09-11 1386
 (00:49:31) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] craves the approval of [[The New York Times]] and mainstream media, leading him to disavow Project 2025 when attacked.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:57:04) The [[Canary Mission]] initiative was created by the [[Heritage Foundation]], the group responsible for Project 2025.

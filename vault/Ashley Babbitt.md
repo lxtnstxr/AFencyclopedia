@@ -19,3 +19,6 @@
 
 ### AF 2021-01-07 0741
 (03:07:51) [[Nicholas J. Fuentes]] described Ashley Babbitt as "truly the daughter of the second [[United States|American]] Revolution."
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:31:52) [[The left]] compares the shooting of the woman by [[U.S. Immigration and Customs Enforcement|ICE]] to Ashley Babbitt.

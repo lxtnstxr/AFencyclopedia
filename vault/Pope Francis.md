@@ -16,10 +16,10 @@
 (00:55:22) A super chat from Roy stated that Pope Francis said "the ugliest danger is gender ideology" and referenced the Gospel reading about kicking money changers out of the temple.
 
 ### AF 2023-11-02 1242
-(01:35:34) Pope Francis called for a two-state solution with special privileges for [[Gaza Strip|Palestine]] in the [[Israel]]-[[Gaza Strip|Palestine]] conflict, a position [[Nicholas J. Fuentes]] contrasted with Protestant support for [[Israel]].
+(01:35:34) Pope Francis called for a two-state solution with special privileges for [[Palestine]] in the [[Israel]]-[[Palestine]] conflict, a position [[Nicholas J. Fuentes]] contrasted with Protestant support for [[Israel]].
 
 ### AF 2023-10-17 1236
-(01:35:02) Pope Francis called for a global day of fasting and prayer for peace in [[Gaza Strip|Palestine]].(01:22:12) [[Israel]] possesses a nuclear arsenal and holds key media positions, creating a strategic advantage over its adversaries.
+(01:35:02) Pope Francis called for a global day of fasting and prayer for peace in [[Palestine]].(01:22:12) [[Israel]] possesses a nuclear arsenal and holds key media positions, creating a strategic advantage over its adversaries.
 
 ### AF 2023-10-17 1236
 (01:23:48) Pope Francis is actively engaged in diplomatic efforts to resolve the escalating conflict in the [[Middle East]].
@@ -214,7 +214,7 @@
 (00:56:56) [[Nicholas J. Fuentes]] stated that the Catholic Church, through the Bishop of [[Rome]] and Petrine Supremacy, is the only church with the legitimacy and infallibility to decide matters of faith, as established by [[Jesus Christ|Christ]].
 
 ### AF 2018-01-24 0093
-(00:57:45) [[Nicholas J. Fuentes]] encouraged readers to explore the works of [[G.K. Chesterton]] and [[G.K. Chesterton|C.S. Lewis]] on the subject of conversion and the Catholic Church.
+(00:57:45) [[Nicholas J. Fuentes]] encouraged readers to explore the works of [[G.K. Chesterton]] and [[C.S. Lewis]] on the subject of conversion and the Catholic Church.
 
 ### AF 2018-01-05 0080
 (44:16:78) The Catholic Church was defended by [[Nicholas J. Fuentes]] as superior to Protestantism due to its adherence to tradition, hierarchy, and centralized authority under the Pope.

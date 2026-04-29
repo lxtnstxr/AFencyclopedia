@@ -34,3 +34,6 @@
 
 ### AF 2017-11-28 0059
 (00:51:30) [[Nicholas J. Fuentes]] recommended the books *The Tragedy of Great Power Politics* and *The [[Israel Lobby]]* by [[John Mearsheimer|Mearsheimer]], and *World Order* and *On [[China]]* by Henry Kissinger.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:37:05) The madman theory was a strategy developed by Henry Kissinger and [[Richard Nixon]] in the 1970s.

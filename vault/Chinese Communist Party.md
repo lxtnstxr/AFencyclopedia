@@ -27,7 +27,7 @@
 (01:29:03) [[Nicholas J. Fuentes]] responded to a question about liking a tweet from a [[China|Chinese]] government-affiliated account by saying he wished he was in the back pocket of the Chinese Communist Party for the good pay and because it wouldn't change his rhetoric much.
 
 ### AF 2020-08-26 0669
-(09:25:65) [[Chen Guangcheng]], a [[China|Chinese]] dissident, described being prosecuted and beaten by the Chinese Communist Party for speaking out against the one-child policy before escaping to the [[United States]] with help from the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] in [[City of Beijing|Beijing]].
+(09:25:65) [[Chen Guangcheng]], a [[China|Chinese]] dissident, described being prosecuted and beaten by the Chinese Communist Party for speaking out against the one-child policy before escaping to the [[United States]] with help from the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] in [[Beijing]].
 
 ### AF 2020-02-25 0554
 (01:36:28) [[Bernie Sanders]] was questioned about his past praise for the Chinese Communist Party's poverty reduction and sympathy for socialist governments in [[Cuba]] and [[Nicaragua]], with moderators asking if a [[democratic]] socialist president would give authoritarians a free pass.

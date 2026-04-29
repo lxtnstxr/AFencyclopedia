@@ -9,4 +9,4 @@
 (00:44:00) [[Nicholas J. Fuentes]] contended that Theodor Herzl's [[Zionism]] was a political project, not a religious one aimed at bringing about the end times.
 
 ### AF 2018-03-05 0118
-(00:53:20) [[Nicholas J. Fuentes]] defined Zionism as a 19th-century secular movement, led by figures like Theodor Herzl, to establish a [[Jews|Jewish]] homeland, ultimately settling on [[Gaza Strip|Palestine]].
+(00:53:20) [[Nicholas J. Fuentes]] defined Zionism as a 19th-century secular movement, led by figures like Theodor Herzl, to establish a [[Jews|Jewish]] homeland, ultimately settling on [[Palestine]].

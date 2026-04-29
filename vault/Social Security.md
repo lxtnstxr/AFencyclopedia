@@ -36,25 +36,28 @@
 (25:11:60) [[Joe Biden]] declared that Social Security and [[Medicare]] are a lifeline for millions of seniors and vowed to veto any attempts to cut them.
 
 ### AF 2020-08-27 0670
-(01:12:18) [[Donald Trump]] vowed to uphold religious liberty, defend the [[U.S. Constitution|Second Amendment]], protect [[Health and Human Services|Medicare]] and Social Security, and always protect patients with pre-existing conditions.
+(01:12:18) [[Donald Trump]] vowed to uphold religious liberty, defend the [[U.S. Constitution|Second Amendment]], protect [[Medicare]] and Social Security, and always protect patients with pre-existing conditions.
 
 ### AF 2020-03-03 0556
-(02:45:56) [[Nicholas J. Fuentes]] argued that the majority of the federal budget is mandatory entitlement spending like Social Security and [[Health and Human Services|Medicare]], with defense spending being a smaller, discretionary portion that is easier to control and necessary for maintaining superpower status.
+(02:45:56) [[Nicholas J. Fuentes]] argued that the majority of the federal budget is mandatory entitlement spending like Social Security and [[Medicare]], with defense spending being a smaller, discretionary portion that is easier to control and necessary for maintaining superpower status.
 
 ### AF 2019-05-17 0390
 (00:04:20) The Social Security Administration sent "no match" letters to 570,000 employers, notifying them that the Social Security numbers of millions of their employees did not match government records, indicating the likely employment of undocumented workers.
 
 ### AF 2019-01-31 0322
-(39:40:48) Over 50% of [[United States|U.S]]. federal government spending is mandatory, directed towards programs like [[Health and Human Services|Medicare]], [[Medicaid]], Social Security, and welfare, which [[Nicholas J. Fuentes]] characterizes as a source of waste and abuse.
+(39:40:48) Over 50% of [[United States|U.S]]. federal government spending is mandatory, directed towards programs like [[Medicare]], [[Medicaid]], Social Security, and welfare, which [[Nicholas J. Fuentes]] characterizes as a source of waste and abuse.
 
 ### AF 2018-03-05 0118
-(01:11:00) [[Nicholas J. Fuentes]] predicted an inevitable economic collapse due to systemic flaws like quantitative easing, low interest rates, and over $20 trillion in national debt, with entitlements like [[Health and Human Services|Medicare]] and Social Security becoming insolvent.
+(01:11:00) [[Nicholas J. Fuentes]] predicted an inevitable economic collapse due to systemic flaws like quantitative easing, low interest rates, and over $20 trillion in national debt, with entitlements like [[Medicare]] and Social Security becoming insolvent.
 
 ### AF 2018-02-08 0104
-(00:11:00) The national debt of the [[United States]] exceeds $20 trillion, with unfunded obligations for programs like [[Health and Human Services|Medicare]], Social Security, and [[Medicaid]] adding approximately $110 trillion more.
+(00:11:00) The national debt of the [[United States]] exceeds $20 trillion, with unfunded obligations for programs like [[Medicare]], Social Security, and [[Medicaid]] adding approximately $110 trillion more.
 
 ### AF 2018-02-08 0104
 (00:14:40) When Social Security was founded in the 1930s, there were over 120 workers paying into the system for every one beneficiary, compared to fewer than three workers per beneficiary today.
 
 ### AF 2017-09-13 0009
-(00:07:24) [[Nicholas J. Fuentes]] countered that Article 1, Section 8 of the [[U.S. Constitution|United States Constitution]] authorizes spending taxpayer money to enforce laws, including border laws, which he argued should be a higher priority than [[Health and Human Services|Medicare]] or Social Security.
+(00:07:24) [[Nicholas J. Fuentes]] countered that Article 1, Section 8 of the [[U.S. Constitution|United States Constitution]] authorizes spending taxpayer money to enforce laws, including border laws, which he argued should be a higher priority than [[Medicare]] or Social Security.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:24:33:00) [[Palantir Technologies|Palantir]] software has been introduced to various government departments and agencies under the second [[Donald Trump]] administration, including the [[Treasury Department]], the Social Security Administration, and [[United States Department of Health and Human Services|Health and Human Services]].

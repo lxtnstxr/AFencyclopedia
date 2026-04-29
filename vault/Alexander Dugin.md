@@ -49,3 +49,6 @@
 
 ### AF 2018-01-10 0083
 (00:58:16) [[Nicholas J. Fuentes]] addressed viewer questions about "Duginism" or National Bolshevism, rejecting accusations that his views aligned with the ideology while noting that some figures associated with the alt-right, like [[Richard Spencer]], have published works by its founder, Alexander Dugin.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:53:50:11) [[Nicholas J. Fuentes]] stated that the narrative that [[Benjamin Netanyahu|Netanyahu]] is Polish is false and deceptive, and that it is being promoted by Alexander Dugin, [[Candace Owens]], [[Tucker Carlson]], and [[Ian Carroll]], which he characterized as seeming "very [[Russian Federation|Russian]]" and beneficial to Orthodox [[Jews]].

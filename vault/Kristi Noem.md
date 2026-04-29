@@ -108,3 +108,87 @@
 
 ### AF 2020-07-03 0634
 (01:55:04) [[Donald Trump|Trump]] began his speech at [[Mount Rushmore]] by thanking Governor Kristi Noem, Interior Secretary [[David Bernhardt]], [[members of Congress]], and the people of [[United States|South Dakota]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:28:03) [[Nicholas J. Fuentes]] reported that with Kristi Noem out at [[U.S. Department of Homeland Security|DHS]], the new secretary was changing policies, including not arresting illegals in their homes without a warrant and not conducting large operations in cities.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:39:03) [[Nicholas J. Fuentes]] reported that former [[U.S. Department of Homeland Security|DHS]] Secretary Kristi Noem was fired, partly due to potential legal issues with contracts and partly to "reset" deportation policies.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:46:49) [[Nicholas J. Fuentes]] reported that Senator Mark Wayne Mullen promised to reverse several of Kristi Noem's [[U.S. Immigration and Customs Enforcement|ICE]] directives, including one allowing forced entry into immigrants' homes without a criminal warrant.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:56:10) [[Nicholas J. Fuentes]] brought up the example of Secretary of Agriculture [[Brooke Rollins]], [[who]] represents big agriculture interests and is against deportations and migrant farm labor, while Kristi Noem and [[Stephen Miller]] are for them.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:40:36:680) [[Nicholas J. Fuentes]] argued that everyone [[who]] has been a part of the [[Donald Trump|Trump]] administration, such as [[JD Vance]], [[Marco Rubio]], [[Pete Hegseth]], and Kristi Noem, is disqualified from running for [[president]] in 2028.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:55:34:57) [[Nicholas J. Fuentes]] called [[Pam Bondi]], [[Kash Patel]], Kristi Noem, [[Pete Hegseth]], and [[Marco Rubio]] "puppets of [[Israel]]."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(00:56:13) [[Nicholas J. Fuentes]] predicted that a [[Democratic Party|Democratic]] [[U.S. Congress|House]] would use oversight powers to [[target]] not only [[Donald Trump]] but also [[JD Vance]], [[Pete Hegseth]], and Kristi Noem, citing "Signalgate" and corruption over border wall contracts.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(20:07:25) [[Nicholas J. Fuentes]] said [[Tulsi Gabbard]] and Kristi Noem might be the first two heads to roll out of the administration.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:53:51) [[Nicholas J. Fuentes]] stated that after [[Alex Jones|Alex]] Pretty was shot, Kristi Noem started talking about body cameras for [[U.S. Immigration and Customs Enforcement|ICE]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:13:42) [[Nicholas J. Fuentes]] blamed [[Tom Homan]], [[Stephen Miller]], Kristi Noem, and [[Donald Trump]] for the failure.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:48:24) [[Nicholas J. Fuentes]] predicted that [[Democratic Party|Democrats]], upon taking the [[U.S. Congress|House]], would subpoena and investigate Kristi Noem, [[Corey Lewandowski]], and others, discovering corruption.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:35:05) [[Nicholas J. Fuentes]] predicted that [[Republican Party|Republicans]] would lose the [[U.S. Congress|United States House of Representatives]] in the midterms due to a three-vote majority, leading to [[Democratic Party|Democrats]] impeaching [[Donald Trump]], [[Pete Hegseth]], Kristi Noem, and others.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:00:07) [[Nicholas J. Fuentes]] stated that [[Pam Bondi]], Kristi Noem, [[Donald Trump]], and [[JD Vance]] lacked the seriousness and political will to execute mass deportations.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:39:33) [[Nicholas J. Fuentes]] reported that the top three [[House Democrats]] supported an effort to impeach Kristi Noem, and that [[Republican Party|Republican]] Senators [[Thom Tillis]] and [[Lisa Murkowski]] were also critical.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:45:10) [[Nicholas J. Fuentes]] stated that [[Stephen Miller]] was piling on Kristi Noem.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:46:30) [[Nicholas J. Fuentes]] accused [[Stephen Miller]] of moving behind the scenes to blame Kristi Noem and make her the fall girl for the shooting.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:53:52) [[Nicholas J. Fuentes]] described Kristi Noem as an idiot [[who]] wears a costume and is rumored to be sleeping with [[Corey Lewandowski]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:06:30) [[Nicholas J. Fuentes]] stated that the same cast of characters is in place for the second [[Donald Trump|Trump]] administration, with [[Tom Homan]], [[Stephen Miller]], and Kristi Noem replacing [[Kirstjen Nielsen]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:07:26) [[Donald Trump|Trump]] administration officials, including Kristi Noem, are being thrown under the bus and potentially could be removed after the World Cup.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:07:45) [[Republican Party|Republican]] senators want to impeach Kristi Noem.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:09:13) [[Nicholas J. Fuentes]] predicted that [[Donald Trump]] would throw Kristi Noem and [[Tom Homan]] under the bus while [[Stephen Miller]] would likely keep his job.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:09:44) [[Nicholas J. Fuentes]] predicted that [[Democratic Party|Democrats]] would subpoena Kristi Noem and grind the administration to a halt.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:31:32) Kristi Noem served as [[Donald Trump]]'s Secretary of [[U.S. Department of Homeland Security|Homeland Security]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:56:36) [[Nicholas J. Fuentes]] predicted that if the [[Republican Party]] loses the [[U.S. Congress|House]] in the midterms, the [[Democratic Party]] will immediately impeach [[Donald Trump]], Kristi Noem, [[Pete Hegseth]], and others, and will shut down the government.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:11:50) [[Nicholas J. Fuentes]] said the [[Republican Party]]'s "beneficiaries of the patronage system" should lose, specifically naming Kristi Noem as an example of unnecessary government spending.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:58:22) [[Nicholas J. Fuentes]] referenced a news report that Secretary of [[U.S. Department of Homeland Security|Homeland Security]] Kristi Noem cited a major welfare fraud scandal linked to [[Minnesota]]'s [[Somalia|Somali]] community as the reason for dispatching more agents, and called [[Minneapolis]] “ground zero for stealing taxpayer dollars.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:59:15) [[Nicholas J. Fuentes]] criticized a [[The New York Times|New York Times]] article for stating that Kristi Noem made claims about protesters without evidence, arguing that the evidence is everywhere and that it is the journalist's job to investigate.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:27:53) [[Nicholas J. Fuentes]] argued that Kristi Noem is not the one, [[Corey Lewandowski]] is not the one, and [[Jason Miller|Stephen Miller]] does not care.

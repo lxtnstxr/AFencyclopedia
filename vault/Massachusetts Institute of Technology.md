@@ -6,10 +6,10 @@
 
 
 ### AF 2024-10-24 1412
-(33:06:96) [[Nicholas J. Fuentes]] explained that the intense focus on campus events led to the firing of [[Donald Trump|the president]] of [[Harvard University|Harvard]] and the targeting of presidents at MIT, [[University of Pennsylvania|UPenn]], and [[Columbia]].
+(33:06:96) [[Nicholas J. Fuentes]] explained that the intense focus on campus events led to the firing of [[the president]] of [[Harvard University|Harvard]] and the targeting of presidents at MIT, [[University of Pennsylvania|UPenn]], and [[Columbia]].
 
 ### AF 2024-08-02 1366
-(14:49:82) Following the [[October 7th Attack]], [[Jewish]] billionaires [[Ronald Lauder]] and [[William Ackman]] led a campaign against [[Ivy League]] universities, including [[Harvard University]], [[University of Pennsylvania]], MIT, and [[Columbia]], over pro-[[Gaza Strip|Palestine]] demonstrations.
+(14:49:82) Following the [[October 7th Attack]], [[Jewish]] billionaires [[Ronald Lauder]] and [[William Ackman]] led a campaign against [[Ivy League]] universities, including [[Harvard University]], [[University of Pennsylvania]], MIT, and [[Columbia]], over pro-[[Palestine]] demonstrations.
 
 ### AF 2024-08-02 1366
 (16:13:86) Allies in the [[U.S. Congress]] called a special hearing to interrogate the presidents of [[Harvard University]], [[University of Pennsylvania]], and MIT over allegations of antisemitism.
@@ -18,10 +18,10 @@
 (30:16:20) Mass protests against [[United States]] support for [[Israel]] were occurring on college campuses across [[United States|America]], including [[Columbia]], MIT, [[University of Pennsylvania|UPenn]], [[Yale]], and [[University of California, Los Angeles|UCLA]].
 
 ### AF 2024-04-23 1324
-(00:31:23) Pro-[[Gaza Strip|Palestine]] demonstrators established tent cities on the campuses of [[Columbia]], [[New York University]], [[Yale]], and MIT, with the movement spreading to universities in [[State of Ohio|Ohio]], [[State of Michigan|Michigan]], and [[State of California|California]].
+(00:31:23) Pro-[[Palestine]] demonstrators established tent cities on the campuses of [[Columbia]], [[New York University]], [[Yale]], and MIT, with the movement spreading to universities in [[State of Ohio|Ohio]], [[State of Michigan|Michigan]], and [[State of California|California]].
 
 ### AF 2024-04-18 1321
-(03:20:00) [[William Ackman|Bill Ackman]] and congressional [[Republican Party|Republicans]] targeted [[Columbia|Columbia University]], [[Harvard University]], the MIT, and the [[University of Pennsylvania]] for not sufficiently repelling pro-[[Gaza Strip|Palestine]] sentiment on their campuses.
+(03:20:00) [[William Ackman|Bill Ackman]] and congressional [[Republican Party|Republicans]] targeted [[Columbia|Columbia University]], [[Harvard University]], the MIT, and the [[University of Pennsylvania]] for not sufficiently repelling pro-[[Palestine]] sentiment on their campuses.
 
 ### AF 2024-03-28 1311
 (24:47:530) [[Nicholas J. Fuentes]] argued that anonymous users expressing vague conservative sentiment online are often individuals like an immigrant [[Jews|Jew]] from [[Romania]] who attended MIT, [[Yale Law School|Yale]], and [[Columbia|Columbia University]] and is connected to federal and [[Israel|Israeli]] intelligence agencies.
@@ -42,10 +42,10 @@
 (00:00:39) [[Nicholas J. Fuentes]] identified the featured story as the intense pro-[[Israel]] campaign against the presidents of three [[Ivy League|Ivy League universities]] and MIT.
 
 ### AF 2024-01-03 1271
-(00:02:54) Pro-[[Israel]] campaigners announced they would next target [[Donald Trump|the president]] of MIT, [[Sally Kornbluth]].
+(00:02:54) Pro-[[Israel]] campaigners announced they would next target [[the president]] of MIT, [[Sally Kornbluth]].
 
 ### AF 2024-01-03 1271
-(01:01:05) [[Sally Kornbluth]], [[Donald Trump|the president]] of MIT, also faced calls for her resignation after the congressional hearing alongside [[Claudine Gay]] and [[Elizabeth Magill]].
+(01:01:05) [[Sally Kornbluth]], [[the president]] of MIT, also faced calls for her resignation after the congressional hearing alongside [[Claudine Gay]] and [[Elizabeth Magill]].
 
 ### AF 2023-12-13 1262
 (02:28:52) The presidents of [[Harvard University]], the [[University of Pennsylvania]], and the Massachusetts Institute of Technology came under pressure following the [[October 7th attack]] on [[Israel]] due to their perceived insufficient responses to antisemitism on campus.
@@ -72,7 +72,7 @@
 (00:52:44) [[Nicholas J. Fuentes]] argued that [[Harvard University]] and MIT were being investigated by [[U.S. Congress|Congress]] to ensure that no one who opposed [[Israel]] could enter elite positions in [[San Francisco Bay Area|Silicon Valley]], [[Washington D.C.|Washington]], or [[The Wall Street Journal|Wall Street]].
 
 ### AF 2023-12-09 1260
-(00:58:47) [[Nicholas J. Fuentes]] argued that [[Claudine Gay]] apologized out of fear of the [[American Israel Public Affairs Committee|Israel lobby]], demonstrating that [[Donald Trump|the president]] of [[Harvard University]] was afraid of it, as were the presidents of MIT, [[Columbia|Columbia University]], and the [[University of Pennsylvania]].
+(00:58:47) [[Nicholas J. Fuentes]] argued that [[Claudine Gay]] apologized out of fear of the [[American Israel Public Affairs Committee|Israel lobby]], demonstrating that [[the president]] of [[Harvard University]] was afraid of it, as were the presidents of MIT, [[Columbia|Columbia University]], and the [[University of Pennsylvania]].
 
 ### AF 2023-07-22 1190
 (01:20:32) [[Nicholas J. Fuentes]] claimed that [[Harvard University|Harvard]], MIT, the [[Anti-Defamation League|ADL]], the [[Federal Bureau of Investigation|FBI]], the [[U.S. Department of Justice|DOJ]], the [[State Department]], [[Facebook]], and [[BlackRock]] were all on the same team working against [[Donald Trump]]. (01:20:55)

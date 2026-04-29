@@ -21,10 +21,10 @@
 (00:36:30) [[Donald Trump]]'s administration partnered with [[Walmart]], [[Target Corporation|Target]], and Walgreens to establish drive-through coronavirus testing sites in their parking lots across the [[country]].
 
 ### AF 2019-07-10 0422
-(00:06:23) [[Nicholas J. Fuentes]] stated the episode would cover a flash mob robbery at a Walgreens in [[City of Philadelphia|Philadelphia]] and an [[National Football League|NFL]] superstar arrested in a convenience store incident.
+(00:06:23) [[Nicholas J. Fuentes]] stated the episode would cover a flash mob robbery at a Walgreens in [[Philadelphia]] and an [[National Football League|NFL]] superstar arrested in a convenience store incident.
 
 ### AF 2019-07-10 0422
-(00:24:13) [[Nicholas J. Fuentes]] connected the [[City of Chicago|Chicago]] violence to other incidents, including a "flash mob" robbery at a Walgreens in [[City of Philadelphia|Philadelphia]] and a brawl at [[Disney|Disneyland]].
+(00:24:13) [[Nicholas J. Fuentes]] connected the [[Chicago]] violence to other incidents, including a "flash mob" robbery at a Walgreens in [[Philadelphia]] and a brawl at [[Disney|Disneyland]].
 
 ### AF 2019-07-10 0422
-(00:24:60) A group of approximately 60 people rushed into a Walgreens on [[Southern United States|South]] Street in [[City of Philadelphia|Philadelphia]], grabbed merchandise, and ran out without paying.
+(00:24:60) A group of approximately 60 people rushed into a Walgreens on [[Southern United States|South]] Street in [[Philadelphia]], grabbed merchandise, and ran out without paying.

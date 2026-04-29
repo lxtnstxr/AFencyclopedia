@@ -190,7 +190,7 @@
 (19:12:40) Conservative commentators including [[Sean Hannity]], [[Rush Limbaugh]], and Ann Coulter were credited with applying political pressure that limited [[Donald Trump|Trump]]'s room for compromise on border wall funding.
 
 ### AF 2019-01-11 0311
-(01:07:36:00) [[Nicholas J. Fuentes]] recounted that [[Milo Yiannopoulos]]'s "Free Speech Week" event at [[University of California, Berkeley|UC Berkeley]] failed because he had not actually invited the speakers like [[Steven Crowder|Steve Bannon]] and Ann Coulter that he had publicly listed.
+(01:07:36:00) [[Nicholas J. Fuentes]] recounted that [[Milo Yiannopoulos]]'s "Free Speech Week" event at [[University of California, Berkeley|UC Berkeley]] failed because he had not actually invited the speakers like [[Steve Bannon]] and Ann Coulter that he had publicly listed.
 
 ### AF 2019-01-09 0309
 (05:13:36) Ann Coulter and other commentators had pushed for [[Donald Trump]] to argue for a [[United States|U.S]]. border wall by citing [[Israel]]'s own border wall, a tactic they believed would be difficult for [[Democratic Party|Democrats]] to counter.
@@ -205,7 +205,7 @@
 (00:26:28) [[Nicholas J. Fuentes]] mentioned that Ann Coulter, [[Tucker Carlson]], and [[Michelle Malkin]] had been publicly critical of [[Donald Trump]]'s handling of border wall funding.
 
 ### AF 2018-12-20 0300
-(00:44:51) [[Nicholas J. Fuentes]] stated that Ann Coulter, [[Michelle Malkin]], and [[Tucker Carlson]] had publicly criticized [[Donald Trump]] over border wall funding, with Ann Coulter sacrificing her [[Twitter]] follow from [[Donald Trump|the president]].
+(00:44:51) [[Nicholas J. Fuentes]] stated that Ann Coulter, [[Michelle Malkin]], and [[Tucker Carlson]] had publicly criticized [[Donald Trump]] over border wall funding, with Ann Coulter sacrificing her [[Twitter]] follow from [[the president]].
 
 ### AF 2018-12-14 0296
 (00:14:10) Despite public criticism from commentators like [[Tucker Carlson]] and Ann Coulter, the [[Donald Trump|Trump]] base's enthusiasm was waning due to disappointing personnel appointments and a lack of progress on key issues like immigration.
@@ -247,13 +247,13 @@
 (00:25:27) [[Faith Goldy]] mentioned that Ann Coulter was being discussed as a potential 2020 candidate to drag [[Donald Trump]] to the right on immigration, similar to [[Patrick Buchanan|Pat Buchanan]] in 1992.
 
 ### AF 2018-04-03 0137
-(01:15:44) [[Nicholas J. Fuentes]] disavowed and ended his association with [[Paul Nealon]], citing campaign finance irregularities, doxxing of [[Douglas Mackey|Ricky Vaughn]], and behavior that made him a liability to supporters including [[Steven Crowder|Steve Bannon]], Ann Coulter, and [[Donald Trump]].
+(01:15:44) [[Nicholas J. Fuentes]] disavowed and ended his association with [[Paul Nealon]], citing campaign finance irregularities, doxxing of [[Douglas Mackey|Ricky Vaughn]], and behavior that made him a liability to supporters including [[Steve Bannon]], Ann Coulter, and [[Donald Trump]].
 
 ### AF 2018-04-02 0136
 (01:24:05) [[Nicholas J. Fuentes]] outlined a hybrid healthcare proposal involving a government-provided baseline of emergency coverage with a high deductible, coupled with private market competition for routine care, inspired by ideas from Ann Coulter and [[Ben Carson]].
 
 ### AF 2018-03-30 0135
-(00:41:18) [[Nicholas J. Fuentes]] commented on Ann Coulter's fluctuating support for [[Donald Trump]], suggesting she may be channeling public frustration with unmet campaign promises or strategically criticizing [[Donald Trump|the president]] to motivate him, as [[Donald Trump|Trump]] follows her on [[Twitter]] and listens to her along with [[Sean Hannity]] and [[Fox News]].
+(00:41:18) [[Nicholas J. Fuentes]] commented on Ann Coulter's fluctuating support for [[Donald Trump]], suggesting she may be channeling public frustration with unmet campaign promises or strategically criticizing [[the president]] to motivate him, as [[Donald Trump|Trump]] follows her on [[Twitter]] and listens to her along with [[Sean Hannity]] and [[Fox News]].
 
 ### AF 2018-03-21 0129
 (00:47:40) [[Nicholas J. Fuentes]] stated that commentators like [[Tucker Carlson]], [[Patrick Buchanan|Pat Buchanan]], and Ann Coulter are "substantially red-pilled" and further along in their views than publicly believed.
@@ -286,19 +286,19 @@
 (00:04:19) Ann Coulter confirmed to the [[Associated Press]] that she would not be attending [[Milo Yiannopoulos]]'s event at [[Berkeley]].
 
 ### AF 2017-09-22 0016
-(00:04:32) [[Lucian Wintrich]], appearing on a livestream with [[Ali Akbar]], argued that [[Milo Yiannopoulos]] had been bluffing about the viability of his [[Berkeley]] event, using the names of [[Steven Crowder|Steve Bannon]] and Ann Coulter to generate publicity without their confirmed participation.
+(00:04:32) [[Lucian Wintrich]], appearing on a livestream with [[Ali Akbar]], argued that [[Milo Yiannopoulos]] had been bluffing about the viability of his [[Berkeley]] event, using the names of [[Steve Bannon]] and Ann Coulter to generate publicity without their confirmed participation.
 
 ### AF 2017-09-22 0016
-(00:10:17) [[Steven Crowder|Steve Bannon]] and Ann Coulter were confirmed as not attending [[Milo Yiannopoulos]]'s [[Berkeley]] event.
+(00:10:17) [[Steve Bannon]] and Ann Coulter were confirmed as not attending [[Milo Yiannopoulos]]'s [[Berkeley]] event.
 
 ### AF 2017-09-21 0015
-(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[City of Berkeley|Berkeley]] event that included [[Steven Crowder|Steve Bannon]], Ann Coulter, [[Charles Murray]], [[Heather Mac Donald]], [[Katie Hopkins]], [[Lucian Wintrich]], [[Mike Cernovich]], and [[Jordan Peterson]].
+(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[Berkeley]] event that included [[Steve Bannon]], Ann Coulter, [[Charles Murray]], [[Heather Mac Donald]], [[Katie Hopkins]], [[Lucian Wintrich]], [[Mike Cernovich]], and [[Jordan Peterson]].
 
 ### AF 2017-09-21 0015
-(00:53:31) [[Steven Crowder|Steve Bannon]], Ann Coulter, [[Charles Murray]], [[Heather Mac Donald]], [[James Damore]], and [[Lucian Wintrich]] all dropped out of [[Milo Yiannopoulos]]'s [[City of Berkeley|Berkeley]] free speech event, leaving only four confirmed speakers.
+(00:53:31) [[Steve Bannon]], Ann Coulter, [[Charles Murray]], [[Heather Mac Donald]], [[James Damore]], and [[Lucian Wintrich]] all dropped out of [[Milo Yiannopoulos]]'s [[Berkeley]] free speech event, leaving only four confirmed speakers.
 
 ### AF 2017-09-21 0015
-(01:32:23) [[Milo Yiannopoulos]]'s failed [[City of Berkeley|Berkeley]] event placed Ann Coulter, [[Steven Crowder|Steve Bannon]], [[Jordan Peterson]], and [[Lucian Wintrich]] in a bad position by listing them as speakers without their confirmation, generating negative press for them.
+(01:32:23) [[Milo Yiannopoulos]]'s failed [[Berkeley]] event placed Ann Coulter, [[Steve Bannon]], [[Jordan Peterson]], and [[Lucian Wintrich]] in a bad position by listing them as speakers without their confirmation, generating negative press for them.
 
 ### AF 2017-09-21 0015
 (02:19:56) [[Nicholas J. Fuentes]] recommended Ann Coulter's "Adios, [[United States|America]]," [[Patrick Buchanan|Pat Buchanan]]'s "The Death of the [[Kanye West|West]]," [[Charles Murray]]'s "The Bell Curve," and the works of [[Sam Francis]], [[Samuel Huntington|Samuel P. Huntington]], [[Robert D. Kaplan]], and [[Friedrich Nietzsche]] as entry-level reading before more difficult authors like [[Julius Evola]].
@@ -314,3 +314,6 @@
 
 ### AF 2021-05-27 0818
 (11:15:580) [[Ben Shapiro]] accused Ann Coulter of being anti-Semitic.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:56:14.960) Many close allies of [[Donald Trump]], including [[Jefferson Beauregard Sessions III|Jeff Sessions]], Ann Coulter, [[Steve Bannon]], [[Michael Flynn]], and his campaign manager (whose name is not specified), faced legal issues, financial ruin, or were discarded after supporting him.

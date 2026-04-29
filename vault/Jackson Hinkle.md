@@ -53,3 +53,15 @@
 
 ### AF 2023-04-18 1148
 (00:53:31) [[Nicholas J. Fuentes]] thanked [[Isabella Riley]], [[Elijah Schaffer]], [[Laura Loomer]], and Jackson Hinkle for sticking by him and vouching for him.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:41:04) [[Nicholas J. Fuentes]] stated that Jackson Hinkle became his enemy after Jackson Hinkle crashed out on him over his criticism of the [[Oliver Anthony]] song.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:33:38:13) Jackson Hinkle lives in [[Russian Federation|Russia]] and supports movements in [[Burkina Faso]] and [[Yemen]] that are anti-[[United States|American]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:34:02:80) [[Nicholas J. Fuentes]] criticized Jackson Hinkle for giving a "rim job" to third-world countries that hate [[the United States]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(04:19:36) [[Nicholas J. Fuentes]] recalled his last visit to the Cheesecake Factory was at [[The Grove]] in [[Los Angeles]] with Jackson Hinkle.

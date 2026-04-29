@@ -411,7 +411,7 @@
 (02:25:30) [[Visa]] banned Gab and its founder Andrew Torba from payment processing, forcing the site to use [[Bitcoin]] or paper checks, which [[Nicholas J. Fuentes]] cited as evidence that financial deplatforming would expand to individuals.
 
 ### AF 2020-06-18 0624
-(24:32:19) The only other instances of a domain registrar terminating a political website's account, prior to [[VDARE.com|VDARE]], were [[The Daily Stormer]] after [[City of Charlottesville|Charlottesville]] and a threatened action against Gab.
+(24:32:19) The only other instances of a domain registrar terminating a political website's account, prior to [[VDARE.com|VDARE]], were [[The Daily Stormer]] after [[Charlottesville]] and a threatened action against Gab.
 
 ### AF 2022-04-08 0974
 (05:14:440) [[Nicholas J. Fuentes]] instructed viewers to follow him on Gab, [[Telegram]], and [[Cozy.tv|Cozy]], specifying that the [[Cozy.tv|Cozy]] follow button is located below the [[Russian]] flag and that [[Telegram]] provides push notifications for show commencements.
@@ -505,3 +505,9 @@
 
 ### AF 2021-05-27 0818
 (04:29:520) [[Nicholas J. Fuentes]] encourages followers to find his content on Gab at gab.com/realNickJFuentes.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:33:14) [[Nicholas J. Fuentes]] addressed Andrew Torba, [[Jack Posobiec]], [[Mike Cernovich]], and asked "did you get what you voted for?"
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:04:56) [[Nicholas J. Fuentes]] stated that people are saying "got what we voted for," attributing this quote to Andrew Torba and [[Andrew Isker]].

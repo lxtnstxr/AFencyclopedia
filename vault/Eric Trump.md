@@ -12,7 +12,7 @@
 (01:10:20.890) [[Nicholas J. Fuentes]] argued that pressure from [[Donald Trump Jr.]], Eric Trump, and the base was working, citing that [[Lindsey Graham]] had pledged $500,000 to [[Donald Trump|Trump]]'s legal fund and [[Ronna McDaniel]] had gone on [[Fox News]].
 
 ### AF 2020-11-04 0716
-(01:45:31) Eric Trump and [[Rudy Giuliani]] held a press conference in [[City of Philadelphia|Philadelphia]] that was not covered by major television networks or their [[Google|YouTube]] live streams.
+(01:45:31) Eric Trump and [[Rudy Giuliani]] held a press conference in [[Philadelphia]] that was not covered by major television networks or their [[Google|YouTube]] live streams.
 
 ### AF 2020-08-26 0669
 (27:33:60) [[Lara Trump]], married to Eric Trump, recounted her journey from [[North Carolina]] to [[New York|New York City]] and her surprise at joining the [[Donald Trump|Trump]] family, whom she described as warm, caring, and hardworking.

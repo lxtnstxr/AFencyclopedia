@@ -6,4 +6,4 @@
 
 
 ### AF 2017-10-16 0032
-(02:30:06) [[Steven Crowder|Steve Bannon]]'s primary challenge against [[Luther Strange]] in [[Alabama]] succeeded despite [[Donald Trump]]'s endorsement and a rally in Huntsville for Strange.
+(02:30:06) [[Steve Bannon]]'s primary challenge against [[Luther Strange]] in [[Alabama]] succeeded despite [[Donald Trump]]'s endorsement and a rally in Huntsville for Strange.

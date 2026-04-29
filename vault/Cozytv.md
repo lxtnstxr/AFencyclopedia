@@ -30,7 +30,7 @@
 (00:00:00) [[Nicholas J. Fuentes]] began his nightly broadcast on Cozy.tv.
 
 ### AF 2023-10-12 1233
-(00:05:18) [[Nicholas J. Fuentes]] reflected that the Cozy.tv platform was created in October 2021, the same month as the 2022 Defcon 3 alert and the 2023 outbreak of war between [[Israel]] and [[Gaza Strip|Palestine]].
+(00:05:18) [[Nicholas J. Fuentes]] reflected that the Cozy.tv platform was created in October 2021, the same month as the 2022 Defcon 3 alert and the 2023 outbreak of war between [[Israel]] and [[Palestine]].
 
 ### AF 2023-10-03 1228
 (00:00:05) [[Nicholas J. Fuentes]] hosts a nightly show on Cozy and [[Rumble Inc.|Rumble]].
@@ -84,7 +84,7 @@
 (01:09:24) [[Nicholas J. Fuentes]] announced a live stream scheduled for the following day at 7:00 PM Central [[Time]] on Cozy.tv, featuring himself, [[Lauren Southern]], and [[Destiny]].
 
 ### AF 2022-08-04 1041
-(00:05:36) [[Nicholas J. Fuentes]] promoted a debate hosted by [[Ethan Ralph]] on Cozy.tv between [[Alex Stein]] and [[Destiny|Destiny]] concerning a viral video where [[Alex Stein]] harassed [[Alexandria Ocasio-Cortez|AOC]].
+(00:05:36) [[Nicholas J. Fuentes]] promoted a debate hosted by [[Ethan Ralph]] on Cozy.tv between [[Alex Stein]] and [[Destiny]] concerning a viral video where [[Alex Stein]] harassed [[Alexandria Ocasio-Cortez|AOC]].
 
 ### AF 2022-08-04 1041
 (00:07:11) [[Nicholas J. Fuentes]] encouraged viewers to follow him on Cozy.tv, [[Gab]], [[Telegram]], and [[Truth Social]], and mentioned a potential future stream on [[Truth Social]].
@@ -162,7 +162,7 @@
 (00:00:00) [[Nicholas J. Fuentes]] hosted a live stream on Cozy.tv titled "[[America First]]."
 
 ### AF 2022-03-21 0962
-(00:40:40) The debate between [[Nicholas J. Fuentes]] and [[Destiny|Destiny]] achieved approximately 20,000 live viewers across platforms including Cozy.tv, [[Google|YouTube]], and [[Odyssey]].
+(00:40:40) The debate between [[Nicholas J. Fuentes]] and [[Destiny]] achieved approximately 20,000 live viewers across platforms including Cozy.tv, [[Google|YouTube]], and [[Odyssey]].
 
 ### AF 2022-03-21 0962
 (12:31:09) [[Nicholas J. Fuentes]] maintained accounts on [[Gab]], [[Telegram]], Truth Social, and Cozy.tv under the name [[Nick]] J. [[Fuentes]].
@@ -181,3 +181,27 @@
 
 ### AF 2022-04-08 0974
 (05:14:440) [[Nicholas J. Fuentes]] instructed viewers to follow him on [[Gab]], [[Telegram]], and Cozy, specifying that the Cozy follow button is located below the [[Russian]] flag and that [[Telegram]] provides push notifications for show commencements.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:09:40) The ambiguous terms of the ceasefire were evident from the language used in [[Donald Trump]]'s announcement on Truth Social.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:09:49) The evolving details regarding the fate of [[Iran]] and global affairs were being disseminated through [[Donald Trump]]'s Truth Social posts.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:10:02) The language in [[Donald Trump]]'s Truth Social announcement of the ceasefire suggested uncertainty regarding [[Iran]]'s compliance.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:23:58) The ceasefire announcement was first made on Truth Social.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:34) [[Donald Trump]] indicated on Truth Social that the [[United States]] was effectively ceding control of the [[Strait of Hormuz]] to [[Iran]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:26:50) [[Donald Trump|Trump]] extended the deadline again on Wednesday via Truth Social, moving the new deadline to the following Monday, a total extension of 10 days.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:28) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] warned [[Iran]]'s leaders in a post on Truth Social that they would pay for every bullet fired by the [[Houthis]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:28) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] stated in the same Truth Social post that the [[Houthis]] have been "grazed" and that everything in [[Iran]] would be "blown to smithereens" if they continue.

@@ -12,7 +12,7 @@
 (00:47:39) [[Donald Trump]] credited his daughter Ivanka Trump with securing private sector training opportunities for nearly 10 million [[United States|Americans]] through the "Pledge to [[United States|American]] Workers."
 
 ### AF 2019-06-18 0409
-(01:57:00) [[Jared Kushner]] and Ivanka Trump were accused by some commentators of advocating for the construction of a Third Temple in [[City of Jerusalem|Jerusalem]].
+(01:57:00) [[Jared Kushner]] and Ivanka Trump were accused by some commentators of advocating for the construction of a Third Temple in [[Jerusalem]].
 
 ### AF 2019-03-11 0344
 (00:36:15) [[Donald Trump|Trump]]'s policy agenda was being influenced by Ivanka and [[Jared Kushner]], [[who]] were often seen standing behind him, alongside figures like [[Charlie Kirk]].

@@ -27,10 +27,10 @@
 (00:54:35) Representative Steve Scalise suggested that [[Matt Gaetz]]'s actions were "potentially illegal."
 
 ### AF 2022-04-28 0986
-(00:55:40) On the leaked call, [[Mike Johnson|Kevin McCarthy]] told colleagues including Steve Scalise, [[Liz Cheney]], and [[Tom Emmer]] that he would call [[Trump]] and tell him "it would be my recommendation you should resign."
+(00:55:40) On the leaked call, [[Kevin McCarthy]] told colleagues including Steve Scalise, [[Liz Cheney]], and [[Tom Emmer]] that he would call [[Trump]] and tell him "it would be my recommendation you should resign."
 
 ### AF 2022-04-28 0986
-(00:57:33) [[Nicholas J. Fuentes]] stated that [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Paul Ryan]], [[Mike Pence]], [[Liz Cheney]], and Steve Scalise were not [[Trump]] loyalists, a fact [[known]] from the beginning of [[Trump]]'s political career.
+(00:57:33) [[Nicholas J. Fuentes]] stated that [[Kevin McCarthy]], [[Mitch McConnell]], [[Paul Ryan]], [[Mike Pence]], [[Liz Cheney]], and Steve Scalise were not [[Trump]] loyalists, a fact [[known]] from the beginning of [[Trump]]'s political career.
 
 ### AF 2020-08-24 0668
 (01:35:39) [[Nicholas J. Fuentes]] began his monologue, announcing he was watching the first night of the [[Republican Party|Republican National Convention]] and that Representative Steve Scalise would be joining the broadcast.
@@ -54,16 +54,16 @@
 (41:50:04) During his post-acquittal speech, [[Donald Trump|Trump]] joked about Steve Scalise being shot and referred to [[Robert Mueller]] as a "G-man."
 
 ### AF 2019-10-10 0475
-(00:15:21) A group of 29 [[Republican Party|Republican]] members of the [[United States House of Representatives]], including [[Mike Johnson|Kevin McCarthy]] and Steve Scalise, announced legislation to impose sanctions on [[Turkey]] in response to its assault on Kurdish forces in [[Syria]].
+(00:15:21) A group of 29 [[Republican Party|Republican]] members of the [[United States House of Representatives]], including [[Kevin McCarthy]] and Steve Scalise, announced legislation to impose sanctions on [[Turkey]] in response to its assault on Kurdish forces in [[Syria]].
 
 ### AF 2019-08-13 0439
 (01:34:53) [[Nicholas J. Fuentes]] listed several incidents of left-wing violence he argued were ignored by the media, including the [[City|Dayton, Ohio]] shooting by an [[Antifa]] member, a school shooting in [[State of Colorado|Colorado]] by a transgender student, the [[City|Sutherland Springs, Texas]] church shooting, and the [[Congressional baseball shooting]] targeting Steve Scalise.
 
 ### AF 2019-05-01 0378
-(01:46:180) A disgruntled individual [[who]] watched [[Warner Bros. Discovery|CNN]] and was active on [[Reddit]] and [[Facebook]] attempted to assassinate Steve Scalise and other [[Republican Party|Republican]] politicians at the [[City of Alexandria|Alexandria]] baseball diamond practice.
+(01:46:180) A disgruntled individual [[who]] watched [[Warner Bros. Discovery|CNN]] and was active on [[Reddit]] and [[Facebook]] attempted to assassinate Steve Scalise and other [[Republican Party|Republican]] politicians at the [[Alexandria]] baseball diamond practice.
 
 ### AF 2019-01-10 0310
-(00:26:48) [[Republican Party|Republican]] [[House]] leaders [[Mike Johnson|Kevin McCarthy]] and Steve Scalise described [[Steven King|Steve King]]'s comments as reckless and unfortunate.
+(00:26:48) [[Republican Party|Republican]] [[House]] leaders [[Kevin McCarthy]] and Steve Scalise described [[Steven King|Steve King]]'s comments as reckless and unfortunate.
 
 ### AF 2018-08-20 0222
 (01:13:48) [[Nicholas J. Fuentes]] compared [[Patrick Little]]'s radicalization to the [[Warner Bros. Discovery|CNN]]-inspired shooter [[who]] attacked Steve Scalise, where a kernel of truth leads to violent, insane conclusions.

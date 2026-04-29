@@ -110,3 +110,6 @@
 
 ### AF 2017-09-13 0009
 (00:41:26) [[Will Nardi]] cited an associate professor of economics at Stanford University and author [[Adam Davidson]], arguing that immigrants increase economic demand and job creation, and do not simply steal jobs from [[United States|American]] workers.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:04:26) [[David Sacks]] was identified as a [[Jews|Jewish]] figure [[who]] had been in [[Peter Thiel]]'s orbit since 1992 when they attended Stanford University together and co-wrote a book.

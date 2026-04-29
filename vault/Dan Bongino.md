@@ -28,3 +28,15 @@
 
 ### AF 2019-06-05 0401
 (00:30:50) [[Nicholas J. Fuentes]] noted that commentators across the political spectrum, including [[Ben Shapiro]], Dan Bongino, and [[Tim Pool]], were publicly criticizing [[Google|YouTube]]'s actions.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:04) Dan Bongino was hired as Deputy Director of the [[Federal Bureau of Investigation|FBI]] by the administration.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:18) Dan Bongino went to the media crying that he misses his wife and kids while serving as Deputy Director of the [[Federal Bureau of Investigation|FBI]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:51:14) Dan Bongino resigned from the [[Federal Bureau of Investigation|FBI]] to go back on his podcast.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:00:22) [[Nicholas J. Fuentes]] reported that Dan Bongino, the Deputy [[Federal Bureau of Investigation|FBI]] Director, had announced his resignation that day, allegedly due to a contentious relationship with the Attorney General.

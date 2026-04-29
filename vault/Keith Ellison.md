@@ -25,3 +25,6 @@
 
 ### AF 2017-11-02 0045
 (00:27:34) [[Hillary Clinton]] selected [[Tom Perez]] over Keith Ellison to lead the [[Democratic Party|Democratic National Committee]] following the 2016 election loss.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:31:52) [[Nicholas J. Fuentes]] summarized that [[Tom Homan]] said the operation was ending because Keith Ellison had agreed that [[state]] and local jails might work with [[U.S. Immigration and Customs Enforcement|ICE]] to detain and deport immigrants [[who]] have been arrested for crimes, and that officials may notify officers about an immigrant's imminent release to allow arrests inside jails.

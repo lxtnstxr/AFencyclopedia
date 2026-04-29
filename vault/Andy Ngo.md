@@ -21,13 +21,13 @@
 (48:49:48) Andy Ngo posted a clip of the confrontation between [[Nicholas J. Fuentes]] and [[Ben Shapiro]] on [[Twitter]], sparking widespread criticism from figures like [[Nikki Haley]], [[Meghan McCain]], [[Megyn Kelly]], and [[Michael Avenatti]].
 
 ### AF 2019-07-01 0418
-(00:10:00) [[Nicholas J. Fuentes]] announced the show's feature would focus on [[Antifa]] and an attack on journalist Andy Ngo in [[City of Portland|Portland]].
+(00:10:00) [[Nicholas J. Fuentes]] announced the show's feature would focus on [[Antifa]] and an attack on journalist Andy Ngo in [[Portland]].
 
 ### AF 2019-07-01 0418
-(01:42:00) [[Antifa]] attacked journalist Andy Ngo during a rally in [[City of Portland|Portland]], with police reporting some projectiles contained quick-dry cement.
+(01:42:00) [[Antifa]] attacked journalist Andy Ngo during a rally in [[Portland]], with police reporting some projectiles contained quick-dry cement.
 
 ### AF 2019-07-01 0418
 (03:08:00) [[Nicholas J. Fuentes]] criticized conservative commentators for highlighting that Andy Ngo was a "gay Asian man" when condemning [[Antifa]]'s attack, arguing it revealed an implicit hierarchy of victimhood that devalued white victims.
 
 ### AF 2019-05-07 0382
-(00:05:54) Andy Ngo provided live coverage of the [[Antifa]] marches in [[City of Portland|Portland]], documenting acts of vandalism, intimidation of journalists and police, and the general inaction of law enforcement.
+(00:05:54) Andy Ngo provided live coverage of the [[Antifa]] marches in [[Portland]], documenting acts of vandalism, intimidation of journalists and police, and the general inaction of law enforcement.

@@ -13,7 +13,7 @@
 (00:35:54) [[Nicholas J. Fuentes]] listed Detroit, [[Paris]], and [[New York]] as fallen cities due to demographic change.
 
 ### AF 2024-08-07 1369
-(04:38:00) [[Nicholas J. Fuentes]] predicted [[Donald Trump]] was headed for defeat in November due to negative polling trends, an incompetent campaign unable to adapt, and anticipated election cheating in cities like [[Milwaukee]], Detroit, [[Atlanta]], [[City of Phoenix|Phoenix]], and [[Philadelphia]].
+(04:38:00) [[Nicholas J. Fuentes]] predicted [[Donald Trump]] was headed for defeat in November due to negative polling trends, an incompetent campaign unable to adapt, and anticipated election cheating in cities like [[Milwaukee]], Detroit, [[Atlanta]], [[Phoenix]], and [[Philadelphia]].
 
 ### AF 2024-07-02 1347
 (01:38:03) [[Nicholas J. Fuentes]] stated he would not host another event in Detroit after a negative experience there, but was open to returning to [[Orlando]].
@@ -247,13 +247,13 @@
 (00:07:40) [[Vivek Ramaswamy]] interrupted, arguing the reason for the strike in Detroit is [[Joe Biden]]'s interference with capital markets and subsidies for electric vehicles, whose batteries come from [[China]].
 
 ### AF 2023-09-15 1217
-(00:35:15) [[Nicholas J. Fuentes]] described historic white-majority [[United States|American]] cities like Detroit, [[City of Chicago|Chicago]], and [[New York]] a century ago as part of a "great" and "aspirational" [[Europe|European]] empire that was a "great place for everybody."
+(00:35:15) [[Nicholas J. Fuentes]] described historic white-majority [[United States|American]] cities like Detroit, [[Chicago]], and [[New York]] a century ago as part of a "great" and "aspirational" [[Europe|European]] empire that was a "great place for everybody."
 
 ### AF 2023-04-19 1149
 (01:08:30) [[Person|Milo Yiannopoulos]] lived on the couches of [[Laura Loomer]] and [[Lauren Witzke]], resided in [[Marjorie Taylor Greene]]'s rented campaign [[house]], and stayed in a [[Church Militant]] staffer's apartment in Detroit.
 
 ### AF 2022-09-03 1054
-(04:03:59) [[Bank of America]] launched an initiative to increase [[black]] and [[Hispanic]] home ownership by offering mortgages with no down payment and no closing costs in cities including [[City of Miami|Miami]], [[Dallas]], [[Los Angeles]], Detroit, and [[Charlotte]].
+(04:03:59) [[Bank of America]] launched an initiative to increase [[black]] and [[Hispanic]] home ownership by offering mortgages with no down payment and no closing costs in cities including [[Miami]], [[Dallas]], [[Los Angeles]], Detroit, and [[Charlotte]].
 
 ### AF 2022-07-22 1035
 (00:12:20) [[Nicholas J. Fuentes]] listed recent travel to [[Las Vegas]], Detroit, [[State of Texas|Texas]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Nashville]], [[Dallas]], and [[Tampa]] since being removed from the No Fly List in May.
@@ -274,7 +274,7 @@
 (01:03:00) Fraudulent mail-in ballots were concentrated in [[Democratic Party|Democratic]] machine cities like [[Milwaukee]], Detroit, and [[Fulton County]].
 
 ### AF 2021-09-25 0884
-(01:04:50) [[Nicholas J. Fuentes]] called for full forensic ballot audits in [[Milwaukee]], [[City of Philadelphia|Philadelphia]], [[Atlanta]], and Detroit.
+(01:04:50) [[Nicholas J. Fuentes]] called for full forensic ballot audits in [[Milwaukee]], [[Philadelphia]], [[Atlanta]], and Detroit.
 
 ### AF 2021-09-25 0884
 (01:12:08) Vote counting resumed at 4 a.m. on November 4th, with ballots being dumped in [[Milwaukee]] and Detroit, flipping [[Wisconsin]] and [[State of Michigan|Michigan]].

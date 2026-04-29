@@ -6,7 +6,7 @@
 
 
 ### AF 2018-09-13 0239
-(12:48:00) The [[Europe|European Union]] mandated that member countries accept a quota of refugees and asylum seekers from North Africa and the [[Middle East]].
+(12:48:00) The [[European Union]] mandated that member countries accept a quota of refugees and asylum seekers from North Africa and the [[Middle East]].
 
 ### AF 2017-09-25 0017
 (00:11:06) [[Nicholas J. Fuentes]] referenced the Kalergi Plan, formulated by a [[Jews|Jewish]] [[person]] instrumental in the [[United Nations]], which postulated massive immigration into [[Germany]] from North Africa to "breed out" the [[Germany|German]] people.

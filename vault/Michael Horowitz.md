@@ -2,7 +2,7 @@
 #person
 
 ### AF 2020-07-23 0647
-(01:15:15) Michael Horowitz, the [[U.S. Department of Justice|Justice Department]] Inspector General, initiated an investigation into the conduct of federal police deployed in [[City of Portland|Portland]], [[Oregon]], following requests from congressional [[Democratic Party|Democrats]].
+(01:15:15) Michael Horowitz, the [[U.S. Department of Justice|Justice Department]] Inspector General, initiated an investigation into the conduct of federal police deployed in [[Portland]], [[Oregon]], following requests from congressional [[Democratic Party|Democrats]].
 
 
 ### AF 2018-06-18 0182

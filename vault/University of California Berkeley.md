@@ -18,7 +18,7 @@
 (00:18:20) A study by University of California, Berkeley economists [[Emmanuel Saez]] and [[Gabriel Zuckman]], reported by [[Business Insider]], found that in 2018, billionaires paid a 23% effective tax rate on their income, lower than the 28% rate paid by the average [[United States|American]].
 
 ### AF 2019-01-11 0311
-(01:07:36:00) [[Nicholas J. Fuentes]] recounted that [[Milo Yiannopoulos]]'s "Free Speech Week" event at UC Berkeley failed because he had not actually invited the speakers like [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] that he had publicly listed.
+(01:07:36:00) [[Nicholas J. Fuentes]] recounted that [[Milo Yiannopoulos]]'s "Free Speech Week" event at UC Berkeley failed because he had not actually invited the speakers like [[Steve Bannon]] and [[Ann Coulter]] that he had publicly listed.
 
 ### AF 2018-07-13 0200
 (01:02:34) [[Nicholas J. Fuentes]] reacted to a video sent by a caller showing [[Patrick Little]] debating [[Kassy Dillon|Cassie Dillon]] at UC Berkeley, in which [[Patrick Little]] argued that [[Israel]] is a terrorist [[state]] that attacked the USS Liberty.
@@ -36,10 +36,10 @@
 (00:04:19) [[Ann Coulter]] confirmed to the [[Associated Press]] that she would not be attending [[Milo Yiannopoulos]]'s event at Berkeley.
 
 ### AF 2017-09-22 0016
-(00:04:21) [[Steven Crowder|Steve Bannon]] confirmed he would not be attending [[Milo Yiannopoulos]]'s event at Berkeley.
+(00:04:21) [[Steve Bannon]] confirmed he would not be attending [[Milo Yiannopoulos]]'s event at Berkeley.
 
 ### AF 2017-09-22 0016
-(00:04:32) [[Lucian Wintrich]], appearing on a livestream with [[Ali Akbar]], argued that [[Milo Yiannopoulos]] had been bluffing about the viability of his Berkeley event, using the names of [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] to generate publicity without their confirmed participation.
+(00:04:32) [[Lucian Wintrich]], appearing on a livestream with [[Ali Akbar]], argued that [[Milo Yiannopoulos]] had been bluffing about the viability of his Berkeley event, using the names of [[Steve Bannon]] and [[Ann Coulter]] to generate publicity without their confirmed participation.
 
 ### AF 2017-09-22 0016
 (00:05:46) [[Lucian Wintrich]] argued it was unethical for [[Milo Yiannopoulos]] to continue promoting his Berkeley event, knowing it would not happen, after the university had committed to spending a million dollars on security.
@@ -51,7 +51,7 @@
 (00:10:08) [[Mike Cernovich]] stated that some elements of [[Milo Yiannopoulos]]'s Berkeley plans might still occur, but not as originally advertised.
 
 ### AF 2017-09-22 0016
-(00:10:17) [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] were confirmed as not attending [[Milo Yiannopoulos]]'s Berkeley event.
+(00:10:17) [[Steve Bannon]] and [[Ann Coulter]] were confirmed as not attending [[Milo Yiannopoulos]]'s Berkeley event.
 
 ### AF 2017-09-22 0016
 (00:11:38) [[Ben Shapiro]] testified before [[Congress]] about free speech issues and later spoke at Berkeley, where the university spent $600,000 on security for his event.

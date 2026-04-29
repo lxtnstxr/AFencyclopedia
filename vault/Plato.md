@@ -9,7 +9,7 @@
 (02:39:34) [[Nicholas J. Fuentes]] referenced Plato's desire in "The Republic" to outlaw all poets when discussing the detrimental effects of music.
 
 ### AF 2018-02-20 0112
-(04:04:26) [[Nicholas J. Fuentes]] listed his top philosophers as [[Friedrich Nietzsche|Nietzsche]], [[Thomas Aquinas]], [[Aristotle]], Plato, [[Thomas Hobbes]], [[Rousseau]], [[City of St. Augustine|St. Augustine]], [[Kant]], and [[Roger Scruton]].
+(04:04:26) [[Nicholas J. Fuentes]] listed his top philosophers as [[Friedrich Nietzsche|Nietzsche]], [[Thomas Aquinas]], [[Aristotle]], Plato, [[Thomas Hobbes]], [[Rousseau]], [[St. Augustine]], [[Kant]], and [[Roger Scruton]].
 
 ### AF 2018-01-26 0095
 (26:43:81) [[Nicholas J. Fuentes]] recounted a classroom experience at [[Boston University]] where a professor dismissed a discussion on eugenics—mentioned by Plato and [[Arthur Schopenhauer]]—by invoking the [[United States Holocaust Memorial Museum|Holocaust]], which he saw as an example of historical events chilling intellectual dialogue.

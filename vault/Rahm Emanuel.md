@@ -17,7 +17,7 @@
 (01:36:18) [[Ari Emanuel]], Rahm Emanuel, and [[Ezekiel Emanuel]] are three influential [[Jewish]] brothers whose father fought for the [[Irgun]].
 
 ### AF 2022-10-25 1085
-(36:50:00) [[Ari Emanuel]]'s older brother is Rahm Emanuel, who served as [[Barack Obama]]'s [[Joe Biden|White House]] Chief of Staff and later as Mayor of [[City of Chicago|Chicago]].
+(36:50:00) [[Ari Emanuel]]'s older brother is Rahm Emanuel, who served as [[Barack Obama]]'s [[Joe Biden|White House]] Chief of Staff and later as Mayor of [[Chicago]].
 
 ### AF 2022-10-25 1085
 (39:53:00) Rahm Emanuel served in the [[Israel Defense Forces|IDF]] in the early 1990s.
@@ -26,10 +26,10 @@
 (00:52:20) [[Ari Emanuel]], the brother of Rahm Emanuel and a powerful [[Los Angeles|Hollywood]] agent, demanded that [[Apple Inc.|Apple]] and [[Spotify]] sanction [[Kanye West]] and his music due to his recent remarks.
 
 ### AF 2022-10-21 1083
-(31:05:40) [[Ari Emanuel]] is the brother of Rahm Emanuel, who served as [[Barack Obama]]'s Chief of Staff and later as Mayor of [[City of Chicago|Chicago]].
+(31:05:40) [[Ari Emanuel]] is the brother of Rahm Emanuel, who served as [[Barack Obama]]'s Chief of Staff and later as Mayor of [[Chicago]].
 
 ### AF 2020-10-22 0707
-(02:22:20) Rahm Emanuel is missing part of a finger on his right hand, which [[Nicholas J. Fuentes]] claimed was rumored to have been cut off by the mob during his [[time]] as mayor of [[City of Chicago|Chicago]].
+(02:22:20) Rahm Emanuel is missing part of a finger on his right hand, which [[Nicholas J. Fuentes]] claimed was rumored to have been cut off by the mob during his [[time]] as mayor of [[Chicago]].
 
 ### AF 2018-03-21 0129
-(00:39:30) [[City of Chicago|Chicago]] Mayor Rahm Emanuel rolled out a municipal ID system that illegal immigrants could use, which also functioned as a voter registration card.
+(00:39:30) [[Chicago]] Mayor Rahm Emanuel rolled out a municipal ID system that illegal immigrants could use, which also functioned as a voter registration card.

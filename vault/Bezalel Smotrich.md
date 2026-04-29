@@ -10,3 +10,6 @@
 
 ### AF 2023-12-23 1266
 (00:30:45) [[Israel]]i minister Ben Gvir threatened to cause [[Benjamin Netanyahu]]'s coalition government to collapse if he tried to stop or restrain the fighting.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:27:14:82) [[Nicholas J. Fuentes]] claimed that [[Israel|Israeli]] ministers [[Itamar Ben-Gvir]] and Bezalel Smotrich believe in this project and have given speeches in front of podiums depicting a "Greater [[Israel]]."

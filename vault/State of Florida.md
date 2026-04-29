@@ -39,7 +39,7 @@
 (01:08:51) [[Nicholas J. Fuentes]] moved the [[AFPAC]] to [[Orlando]], Florida alongside the [[Conservative Political Action Conference|CPAC]] in 2021 and 2022.
 
 ### AF 2024-06-17 1342
-(01:10:53) [[Turning Point USA]] historically holds summer conferences in Florida and winter conferences in [[City of Phoenix|Phoenix]], [[Arizona]].
+(01:10:53) [[Turning Point USA]] historically holds summer conferences in Florida and winter conferences in [[Phoenix]], [[Arizona]].
 
 ### AF 2024-06-17 1342
 (01:20:14) Florida [[Nicholas J. Fuentes|Groyper]] reported that his application to an event was denied by D.P. with no explanation given.
@@ -267,7 +267,7 @@
 (00:17:57) [[Ron DeSantis]] stated that, as Governor of Florida, he sent planes to [[Israel]] to rescue over 700 Floridians stranded after an attack, an action he contrasted with [[Joe Biden]]'s neglect.
 
 ### AF 2023-11-09 1246
-(00:30:33) [[Ron DeSantis]] reported that in Florida, he deactivated the student group "Students for Justice in [[Gaza Strip|Palestine]]" after they declared common cause with [[Hamas]], stating he would not use state tax dollars to fund jihad.
+(00:30:33) [[Ron DeSantis]] reported that in Florida, he deactivated the student group "Students for Justice in [[Palestine]]" after they declared common cause with [[Hamas]], stating he would not use state tax dollars to fund jihad.
 
 ### AF 2023-11-09 1246
 (01:02:47) [[Nikki Haley]] accused [[Ron DeSantis]] of hypocrisy on [[China]], noting that as of last week, Florida's economic development agency stated the state was the ideal place for [[China|Chinese]] businesses, and that a manufacturer of [[China|Chinese]] military planes is expanding training sites near Florida naval bases.
@@ -390,13 +390,13 @@
 (01:22:43) [[Ron DeSantis]] was expected to announce his 2024 presidential campaign within weeks following the conclusion of the Florida legislative session.
 
 ### AF 2023-04-27 1154
-(00:19:40) [[Disney|Disney]] sued [[Ron DeSantis]] and the state of Florida, alleging retaliation for the company's opposition to the Parental Rights in Education Act, which critics called the "Don't Say Gay" bill.
+(00:19:40) [[Disney]] sued [[Ron DeSantis]] and the state of Florida, alleging retaliation for the company's opposition to the Parental Rights in Education Act, which critics called the "Don't Say Gay" bill.
 
 ### AF 2023-04-27 1154
-(00:41:58) [[Disney|Disney]] alleged that [[Ron DeSantis]] and the Florida state government engaged in a campaign of retaliation, including voiding development deals and threatening new taxes and a state prison near [[Disney]] World, after the company criticized the Parental Rights in Education Act.
+(00:41:58) [[Disney]] alleged that [[Ron DeSantis]] and the Florida state government engaged in a campaign of retaliation, including voiding development deals and threatening new taxes and a state prison near [[Disney]] World, after the company criticized the Parental Rights in Education Act.
 
 ### AF 2023-04-27 1154
-(01:48:00) [[Nicholas J. Fuentes]] argued that corporations like [[Disney|Disney]], which are alienated from local communities and do business globally, should not dictate social policy to democratically elected state governments like Florida.
+(01:48:00) [[Nicholas J. Fuentes]] argued that corporations like [[Disney]], which are alienated from local communities and do business globally, should not dictate social policy to democratically elected state governments like Florida.
 
 ### AF 2023-04-12 1146
 (11:24:82) [[Ron DeSantis]], as Governor of Florida, signed the Parental Rights in Education Act, which banned classroom discussion of gender and sexual orientation in public schools for children before the fourth grade.
@@ -456,7 +456,7 @@
 (01:07:43) [[Nicholas J. Fuentes]] stated that laws in states like Florida criminalize boycotting [[Israel]] through [[BDS]] legislation.
 
 ### AF 2022-10-08 1075
-(00:46:46) [[Republican Party|Republican]]-led states including [[State of Texas|Texas]], [[Arizona]], and Florida have been sending migrants to [[Democratic Party|Democratic]]-led areas like [[New York|New York City]] and [[City of Chicago|Chicago]] to pressure the [[Joe Biden]] administration to reduce the number of migrants crossing the southern border.
+(00:46:46) [[Republican Party|Republican]]-led states including [[State of Texas|Texas]], [[Arizona]], and Florida have been sending migrants to [[Democratic Party|Democratic]]-led areas like [[New York|New York City]] and [[Chicago]] to pressure the [[Joe Biden]] administration to reduce the number of migrants crossing the southern border.
 
 ### AF 2022-09-29 1069
 (05:19:00) Hurricane Ian made landfall as a Category 4 storm on the [[west]] coast of Florida, near [[Sarasota]], causing significant flooding and power outages.
@@ -471,7 +471,7 @@
 (00:06:54) [[Nicholas J. Fuentes]] stated he would be traveling to Florida for business and would likely not host shows for the remainder of the week or the following week.
 
 ### AF 2022-08-16 1048
-(00:00:00) [[Nicholas J. Fuentes]] stated he has been banned from [[Bank of America]], [[U.S. Bank]], [[Chase Bank]], and the airline [[Delta]] due to his political views and being doxed, and is planning to move from [[City of Chicago|Chicago]] to Florida.
+(00:00:00) [[Nicholas J. Fuentes]] stated he has been banned from [[Bank of America]], [[U.S. Bank]], [[Chase Bank]], and the airline [[Delta]] due to his political views and being doxed, and is planning to move from [[Chicago]] to Florida.
 
 ### AF 2022-08-15 1047
 (00:04:42) [[Nicholas J. Fuentes]] announced he would not host his show on the upcoming Friday due to travel to Florida for an in-real-life stream with [[Destiny]].
@@ -549,7 +549,7 @@
 (00:00:28) [[Ron DeSantis]] reversed his position and allowed parents in Florida to vaccinate their young children after the federal government greenlit the vaccines.
 
 ### AF 2022-06-17 1015
-(00:46:04) [[Nicholas J. Fuentes]], living in the suburbs of [[City of Chicago|Chicago]], stated that whites are already a minority in the [[City of Chicago|Chicago]] metro area and in most major cities like [[Los Angeles]], [[New York]], and increasingly in [[State of Texas|Texas]], Florida, [[Arizona]], and [[State of New Mexico|New Mexico]].
+(00:46:04) [[Nicholas J. Fuentes]], living in the suburbs of [[Chicago]], stated that whites are already a minority in the [[Chicago]] metro area and in most major cities like [[Los Angeles]], [[New York]], and increasingly in [[State of Texas|Texas]], Florida, [[Arizona]], and [[State of New Mexico|New Mexico]].
 
 ### AF 2022-06-17 1015
 (00:52:17) [[Ron DeSantis]] had previously said the [[state]] of Florida was "affirmatively against the [[COVID-19]] vaccine for young kids" and was the only [[state]] that did not pre-order the vaccines.
@@ -570,7 +570,7 @@
 (01:00:44) [[Ron DeSantis]] signed an anti-[[BDS]] bill in Florida and went after [[Unilever|Ben & Jerry's]] for not closing their [[ice]] cream shops in the [[Gaza Strip|West Bank]].
 
 ### AF 2022-06-16 1014
-(01:59:48) [[Nicholas J. Fuentes]] expressed that he would miss [[City of Chicago|Chicago]] when he moves to Florida, calling it "one of a kind" and his "favorite" place, but that he had to make a tough decision and would return one day.
+(01:59:48) [[Nicholas J. Fuentes]] expressed that he would miss [[Chicago]] when he moves to Florida, calling it "one of a kind" and his "favorite" place, but that he had to make a tough decision and would return one day.
 
 ### AF 2022-06-15 1013
 (01:09:00) [[Matt Gaetz]] has endorsed and campaigned for numerous [[House of Representatives]] candidates, including [[Anna Paulina Luna]] and [[Anthony Sabatini]] in Florida, and [[Bo Hines]] in [[North Carolina]].
@@ -582,7 +582,7 @@
 (25:00:56) [[Ron DeSantis]] banned [[Unilever|Ben & Jerry's]] in Florida because the company maintained a location in the [[Gaza Strip|West Bank]].
 
 ### AF 2022-05-25 1001
-(01:04:31) [[Nicholas J. Fuentes]] argued that white liberals who vote for high taxes, immigration, and diversity policies in cities like [[City of Chicago|Chicago]] ultimately move away to states like [[Tennessee]], Florida, or [[Arizona]] when those policies lead to decay.
+(01:04:31) [[Nicholas J. Fuentes]] argued that white liberals who vote for high taxes, immigration, and diversity policies in cities like [[Chicago]] ultimately move away to states like [[Tennessee]], Florida, or [[Arizona]] when those policies lead to decay.
 
 ### AF 2022-05-11 0992
 (01:11:26) [[Nicholas J. Fuentes]] went on a trip to Florida with Jaden and a mutual friend, during which Jaden was on his phone Snapchatting his girlfriend the entire [[time]].
@@ -651,43 +651,43 @@
 (00:42:11) The [[Joe Biden|White House]] condemned the Florida parental rights education bill as "hateful" and "horrific."
 
 ### AF 2022-02-17 0950
-(00:13:55) [[Nicholas J. Fuentes]] announced that ticket sales for [[AFPAC|AFPAC 3]] would close the following day, with the conference scheduled for the next week in [[City of Orlando|Orlando]], Florida.
+(00:13:55) [[Nicholas J. Fuentes]] announced that ticket sales for [[AFPAC|AFPAC 3]] would close the following day, with the conference scheduled for the next week in [[Orlando]], Florida.
 
 ### AF 2022-02-18 0949
-(01:14:10) [[Nicholas J. Fuentes]] stated that ticket sales for the [[AFPAC|AFPAC 3]] conference in [[City of Orlando|Orlando]], Florida would close the following day.
+(01:14:10) [[Nicholas J. Fuentes]] stated that ticket sales for the [[AFPAC|AFPAC 3]] conference in [[Orlando]], Florida would close the following day.
 
 ### AF 2022-02-12 0946
-(00:00:05) [[Nicholas J. Fuentes]] announced the lineup for the upcoming [[AFPAC|AFPAC 3]] conference, scheduled for February 25th in [[City of Orlando|Orlando]], Florida.
+(00:00:05) [[Nicholas J. Fuentes]] announced the lineup for the upcoming [[AFPAC|AFPAC 3]] conference, scheduled for February 25th in [[Orlando]], Florida.
 
 ### AF 2022-02-12 0946
-(00:05:10) [[AFPAC|AFPAC 3]] was scheduled to be held at a large resort hotel in [[City of Orlando|Orlando]], Florida, with an expected attendance of over 1,000 people.
+(00:05:10) [[AFPAC|AFPAC 3]] was scheduled to be held at a large resort hotel in [[Orlando]], Florida, with an expected attendance of over 1,000 people.
 
 ### AF 2022-01-20 0939
-(00:02:25) [[Nicholas J. Fuentes]] announced that the third annual [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) would be held on February 25th in [[City of Orlando|Orlando]], Florida.
+(00:02:25) [[Nicholas J. Fuentes]] announced that the third annual [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) would be held on February 25th in [[Orlando]], Florida.
 
 ### AF 2022-01-20 0939
-(00:08:22) [[Nicholas J. Fuentes]] complained about living conditions in [[City of Chicago|Chicago]], citing cold weather, vaccine mandates, crime, and high taxes as reasons for his planned move to Florida.
+(00:08:22) [[Nicholas J. Fuentes]] complained about living conditions in [[Chicago]], citing cold weather, vaccine mandates, crime, and high taxes as reasons for his planned move to Florida.
 
 ### AF 2022-01-21 0938
-(00:05:39) [[Nicholas J. Fuentes]] announced the third annual [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) would be held on February 25th in [[City of Orlando|Orlando]], Florida.
+(00:05:39) [[Nicholas J. Fuentes]] announced the third annual [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) would be held on February 25th in [[Orlando]], Florida.
 
 ### AF 2022-01-20 0937
-(00:09:26) [[Nicholas J. Fuentes]] promoted the third annual [[AFPAC|America First Political Action Conference]] ([[AFPAC]]), scheduled for February 25 in [[City of Orlando|Orlando]], Florida, and noted the event was close to selling out.
+(00:09:26) [[Nicholas J. Fuentes]] promoted the third annual [[AFPAC|America First Political Action Conference]] ([[AFPAC]]), scheduled for February 25 in [[Orlando]], Florida, and noted the event was close to selling out.
 
 ### AF 2022-01-19 0936
-(00:08:53) [[Nicholas J. Fuentes]] announced that tickets for his upcoming conference, [[AFPAC]], were on sale and rapidly running out, with the event scheduled for February 25th in [[City of Orlando|Orlando]], Florida.
+(00:08:53) [[Nicholas J. Fuentes]] announced that tickets for his upcoming conference, [[AFPAC]], were on sale and rapidly running out, with the event scheduled for February 25th in [[Orlando]], Florida.
 
 ### AF 2022-01-10 0932
-(09:13:00) [[Nicholas J. Fuentes]] announced that tickets for [[AFPAC|AFPAC 3]], scheduled for February 25th in [[City of Orlando|Orlando]], Florida, are more than half sold out after one week of sales.
+(09:13:00) [[Nicholas J. Fuentes]] announced that tickets for [[AFPAC|AFPAC 3]], scheduled for February 25th in [[Orlando]], Florida, are more than half sold out after one week of sales.
 
 ### AF 2022-01-07 0931
 (00:01:16) A masked individual, potentially affiliated with [[Antifa]], was arrested after planting a pipe bomb explosive at a [[January 6th Attack|January 6th]] Patriot Day celebration in Florida attended by [[Timothy Gionet|Baked Alaska]].
 
 ### AF 2022-01-07 0931
-(00:07:18) [[Nicholas J. Fuentes]] announced that tickets for the [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) in [[City of Orlando|Orlando]], Florida on February 25th were 50% sold out after only four days of sales.
+(00:07:18) [[Nicholas J. Fuentes]] announced that tickets for the [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) in [[Orlando]], Florida on February 25th were 50% sold out after only four days of sales.
 
 ### AF 2022-01-07 0931
-(00:08:09) The third annual [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) was scheduled to be held at a large resort hotel in [[City of Orlando|Orlando]], Florida, with tickets priced at $150 for general admission and $200 for a deluxe ticket including a pre-event reception.
+(00:08:09) The third annual [[AFPAC|America First Political Action Conference]] ([[AFPAC]]) was scheduled to be held at a large resort hotel in [[Orlando]], Florida, with tickets priced at $150 for general admission and $200 for a deluxe ticket including a pre-event reception.
 
 ### AF 2022-01-07 0931
 (01:03:27) A rally in Florida on the [[January 6th Attack|January 6th]] anniversary, attended by [[Timothy Gionet|Baked Alaska]] and featuring Representative [[Anthony Sabatini]], was nearly the target of a terrorist attack.
@@ -696,22 +696,22 @@
 (01:04:44) [[Garrett James Smith]], a 22-year-old from Oldsmar, Florida, was arrested on charges of making and possessing a destructive device after being found with a homemade explosive device near the site of a [[January 6th Attack|January 6th]] anniversary rally.
 
 ### AF 2022-01-06 0930
-(03:43:82) [[Nicholas J. Fuentes]] announced that tickets for his event [[AFPAC|AFPAC 3]] were on sale for February 25th in [[City of Orlando|Orlando]], Florida, and were nearly halfway sold out.
+(03:43:82) [[Nicholas J. Fuentes]] announced that tickets for his event [[AFPAC|AFPAC 3]] were on sale for February 25th in [[Orlando]], Florida, and were nearly halfway sold out.
 
 ### AF 2022-01-05 0929
-(00:04:11) [[Nicholas J. Fuentes]] promoted tickets for the third [[AFPAC|America First Political Action Conference]] ([[AFPAC|AFPAC 3]]), scheduled for February 25th in [[City of Orlando|Orlando]], Florida.
+(00:04:11) [[Nicholas J. Fuentes]] promoted tickets for the third [[AFPAC|America First Political Action Conference]] ([[AFPAC|AFPAC 3]]), scheduled for February 25th in [[Orlando]], Florida.
 
 ### AF 2022-01-04 0928
-(00:21:39) [[Nicholas J. Fuentes]] launched ticket sales for [[AFPAC|AFPAC 3]], an annual conference to be held in [[City of Orlando|Orlando]], Florida on February 25th, at the website [[AFPAC]].events.
+(00:21:39) [[Nicholas J. Fuentes]] launched ticket sales for [[AFPAC|AFPAC 3]], an annual conference to be held in [[Orlando]], Florida on February 25th, at the website [[AFPAC]].events.
 
 ### AF 2022-01-04 0928
-(02:51:11) [[Nicholas J. Fuentes]] concluded the show by reminding viewers to purchase tickets for [[AFPAC|AFPAC 3]] at [[AFPAC]].events for the event on February 25th in [[City of Orlando|Orlando]], Florida.
+(02:51:11) [[Nicholas J. Fuentes]] concluded the show by reminding viewers to purchase tickets for [[AFPAC|AFPAC 3]] at [[AFPAC]].events for the event on February 25th in [[Orlando]], Florida.
 
 ### AF 2022-01-03 0927
-(00:07:06) [[Nicholas J. Fuentes]] announced that tickets for [[AFPAC]] 3 were on sale for an event in [[City of Orlando|Orlando]], Florida on February 25th.
+(00:07:06) [[Nicholas J. Fuentes]] announced that tickets for [[AFPAC]] 3 were on sale for an event in [[Orlando]], Florida on February 25th.
 
 ### AF 2021-12-23 0926
-(00:06:57) [[Nicholas J. Fuentes]] announced that the third [[AFPAC|America First Political Action Conference]] ([[AFPAC|AFPAC 3]]) would be held on February 25, 2022, in [[City of Orlando|Orlando]], Florida.
+(00:06:57) [[Nicholas J. Fuentes]] announced that the third [[AFPAC|America First Political Action Conference]] ([[AFPAC|AFPAC 3]]) would be held on February 25, 2022, in [[Orlando]], Florida.
 
 ### AF 2021-12-23 0926
 (00:17:41) In April 2021, [[Nicholas J. Fuentes]] discovered he was on the federal no-fly list while attempting to travel to Florida for an anti-tech censorship rally, a status he stated was ongoing.
@@ -723,7 +723,7 @@
 (00:34:17) [[Nicholas J. Fuentes]] reported that at a conference in Florida, an [[Israel|Israeli]] defense official stated the [[Israel|Israeli]] defense force was planning an attack on [[Iran]] due to the [[Joe Biden|Biden administration]]'s continued diplomacy over [[Iran]]'s nuclear program.
 
 ### AF 2021-12-14 0922
-(46:44:56) [[Nicholas J. Fuentes]] reported that [[Benny Gantz]] made these remarks on the sidelines of a conference in [[City of Miami|Miami]], Florida.
+(46:44:56) [[Nicholas J. Fuentes]] reported that [[Benny Gantz]] made these remarks on the sidelines of a conference in [[Miami]], Florida.
 
 ### AF 2021-12-10 0920
 (00:43:52) [[Ron DeSantis]] banned [[Unilever|Ben & Jerry's]] from Florida after the company stopped selling [[ice]] cream in the [[Gaza Strip|West Bank]] and flew to [[Israel]] to sign a bill banning [[BDS]] on Florida college campuses.
@@ -837,10 +837,10 @@
 (01:00:59) White conservative farmers in states including Florida, [[State of Texas|Texas]], and the Midwest filed lawsuits to block the [[United States Department of Agriculture|USDA]]'s race-based farm debt relief program, arguing it constituted illegal discrimination against white farmers.
 
 ### AF 2021-05-20 0814
-(00:14:38) [[Lori Lightfoot]] is a [[black]] lesbian mayor governing [[City of Chicago|Chicago]], a [[city]] [[Nicholas J. Fuentes]] described as having rampant crime, a shattered economy, high taxes, and residents fleeing to states like [[India|Indiana]], [[Tennessee]], and Florida.
+(00:14:38) [[Lori Lightfoot]] is a [[black]] lesbian mayor governing [[Chicago]], a [[city]] [[Nicholas J. Fuentes]] described as having rampant crime, a shattered economy, high taxes, and residents fleeing to states like [[India|Indiana]], [[Tennessee]], and Florida.
 
 ### AF 2021-05-20 0814
-(00:19:32) [[Nicholas J. Fuentes]] argued that politicians like [[Lori Lightfoot]] in [[City of Chicago|Chicago]], [[Stacey Abrams]] in [[Country of Georgia|Georgia]], and [[Andrew Gillum]] in Florida represent a demographic future where non-white politicians gain power and wield it against white people.
+(00:19:32) [[Nicholas J. Fuentes]] argued that politicians like [[Lori Lightfoot]] in [[Chicago]], [[Stacey Abrams]] in [[Country of Georgia|Georgia]], and [[Andrew Gillum]] in Florida represent a demographic future where non-white politicians gain power and wield it against white people.
 
 ### AF 2021-05-11 0809
 (00:10:17) Gasoline demand on Monday in five key southeastern states—[[Country of Georgia|Georgia]], Florida, [[State of South Carolina|South Carolina]], [[North Carolina]], and [[State of Virginia|Virginia]]—was 40% greater than the prior Monday.
@@ -945,7 +945,7 @@
 (00:04:44) [[Nicholas J. Fuentes]] announced a tentative plan to travel to [[Tallahassee]], Florida for a potential rally or press conference to pressure state lawmakers on the tech censorship bill.
 
 ### AF 2021-04-12 0790
-(00:00:00) [[Nicholas J. Fuentes]] announced a new episode of his show, focusing on recent riots in [[City of Minneapolis|Minneapolis]] and a legislative effort in Florida to combat Big Tech censorship.
+(00:00:00) [[Nicholas J. Fuentes]] announced a new episode of his show, focusing on recent riots in [[Minneapolis]] and a legislative effort in Florida to combat Big Tech censorship.
 
 ### AF 2021-04-12 0790
 (00:05:45) [[Nicholas J. Fuentes]] announced a campaign to push for amendments to a Big Tech censorship bill in the Florida state legislature, which had been endorsed by Governor [[Ron DeSantis]].
@@ -1068,7 +1068,7 @@
 (01:58:30) [[Nicholas J. Fuentes]] encouraged viewers to contact [[Ron DeSantis|Governor Ron DeSantis]] and Florida state legislators to demand the big tech censorship bill be amended to address financial sanctions, reinstate previously banned accounts, and enshrine [[Concept|First Amendment]] and equal protection principles.
 
 ### AF 2021-03-12 0771
-(01:01:14) [[Nicholas J. Fuentes]] and accounts linked to his [[organization]] used [[Twitter]] to promote daily live streams, sell merchandise, and sell tickets for the [[AFPAC]] conference held in [[City of Orlando|Orlando]], Florida in late February 2021.
+(01:01:14) [[Nicholas J. Fuentes]] and accounts linked to his [[organization]] used [[Twitter]] to promote daily live streams, sell merchandise, and sell tickets for the [[AFPAC]] conference held in [[Orlando]], Florida in late February 2021.
 
 ### AF 2021-03-08 0767
 (00:28:08) [[Nicholas J. Fuentes]] mentioned [[Ron DeSantis]]'s proposed bill in Florida and [[Greg Abbott]]'s proposed legislation in [[State of Texas|Texas]] aimed at tech censorship as examples of the future fight against big tech.
@@ -1077,7 +1077,7 @@
 (00:38:53) [[Nicholas J. Fuentes]] expressed hope that state legislation in [[State of Texas|Texas]] or Florida, a [[Supreme Court of the United States|Supreme Court]] case, or a billionaire like [[Elon Musk]] creating a censorship-proof platform could change the landscape for free speech.
 
 ### AF 2021-02-19 0763
-(00:11:54) [[Nicholas J. Fuentes]] announced the speaker list for the upcoming [[AFPAC|America First Political Action Conference]] ([[AFPAC]]), scheduled to occur in [[City of Orlando|Orlando]], Florida.
+(00:11:54) [[Nicholas J. Fuentes]] announced the speaker list for the upcoming [[AFPAC|America First Political Action Conference]] ([[AFPAC]]), scheduled to occur in [[Orlando]], Florida.
 
 ### AF 2021-02-16 0762
 (01:13:49:88) [[Nicholas J. Fuentes]] stated that [[Ron DeSantis]] is "pro-Zionist" because he is the governor of Florida, a state with a large [[Jews|Jewish]] population, and suggested this is why the [[The Daily Wire|Daily Wire]] supports him.
@@ -1086,7 +1086,7 @@
 (01:14:01:88) [[Nicholas J. Fuentes]] argued that [[Ron DeSantis]]'s support for Zionism is a pragmatic trade-off for gaining political capital in Florida to advance policies against [[Black Lives Matter]], COVID lockdowns, and for gun rights.
 
 ### AF 2021-02-10 0759
-(07:01:22) [[Nicholas J. Fuentes]] promoted the upcoming [[AFPAC]] conference scheduled for February 26th in [[City of Orlando|Orlando]], Florida, noting tickets were effectively sold out and sales were conducted via mail using only cash and checks.
+(07:01:22) [[Nicholas J. Fuentes]] promoted the upcoming [[AFPAC]] conference scheduled for February 26th in [[Orlando]], Florida, noting tickets were effectively sold out and sales were conducted via mail using only cash and checks.
 
 ### AF 2021-02-03 0754
 (00:46:840) [[Ron DeSantis]] banned mask mandates in Florida and drafted legislation to prevent tech companies from censoring conservatives.
@@ -1134,10 +1134,10 @@
 (00:00:05) [[Nicholas J. Fuentes]] announced the featured story for the evening would be the [[Turning Point USA]] SAS Conference in [[West Palm Beach]], Florida.
 
 ### AF 2020-12-15 0734
-(00:03:06) [[Nicholas J. Fuentes]] announced that [[AFPAC|AFPAC 2]] would be held in [[City of Orlando|Orlando]], Florida at the end of February 2021.
+(00:03:06) [[Nicholas J. Fuentes]] announced that [[AFPAC|AFPAC 2]] would be held in [[Orlando]], Florida at the end of February 2021.
 
 ### AF 2020-12-14 0733
-(00:05:21) [[Nicholas J. Fuentes]] announced that [[AFPAC|AFPAC 2]], the [[AFPAC|America First Political Action Conference]], would be held in [[City of Orlando|Orlando]], Florida in February 2021 and would be open to the general public for the first [[time]].
+(00:05:21) [[Nicholas J. Fuentes]] announced that [[AFPAC|AFPAC 2]], the [[AFPAC|America First Political Action Conference]], would be held in [[Orlando]], Florida in February 2021 and would be open to the general public for the first [[time]].
 
 ### AF 2020-12-09 0731
 (01:12:00) [[Donald Trump]]'s motion to intervene in the [[State of Texas|Texas]] lawsuit argued that election officials in the defendant states altered or failed to enforce state election laws, and noted his historical success in winning Florida and [[State of Ohio|Ohio]].
@@ -1152,7 +1152,7 @@
 (00:04:24) [[Nicholas J. Fuentes]] identified [[Arizona]], Florida, [[North Carolina]], and [[Commonwealth of Pennsylvania|Pennsylvania]] as the key states that would decide the 2020 presidential election.
 
 ### AF 2020-11-03 0715
-(00:06:33) [[Nicholas J. Fuentes]] assessed that early voting patterns showed strong [[Republican Party|Republican]] turnout in Florida and [[Arizona]], with [[Democratic Party|Democrat]] turnout underperforming in cities like [[City of Philadelphia|Philadelphia]] and [[Cleveland]].
+(00:06:33) [[Nicholas J. Fuentes]] assessed that early voting patterns showed strong [[Republican Party|Republican]] turnout in Florida and [[Arizona]], with [[Democratic Party|Democrat]] turnout underperforming in cities like [[Philadelphia]] and [[Cleveland]].
 
 ### AF 2020-11-03 0715
 (00:28:29) [[Scott Greer]] analyzed early Florida results, noting [[Donald Trump]] significantly improved his margin in [[City|Miami-Dade County]] compared to 2016 and was competitive in [[Palm Beach County]].
@@ -1308,7 +1308,7 @@
 (03:59:54) [[Nicholas J. Fuentes]] analyzed that [[Donald Trump|Trump]]'s 2020 electoral path required holding typical [[Republican Party|Republican]] states plus swing states like [[Arizona]], Florida, and [[North Carolina]], and winning just one of the Midwestern states of [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Michigan|Michigan]], [[Wisconsin]], or [[Minnesota]].
 
 ### AF 2020-08-10 0658
-(01:22:24:37) [[Nicholas J. Fuentes]] quoted a viewer [[who]] had moved from [[City of Chicago|Chicago]] to Florida, saying "The water tower survived the great fire, but can't survive diversity."
+(01:22:24:37) [[Nicholas J. Fuentes]] quoted a viewer [[who]] had moved from [[Chicago]] to Florida, saying "The water tower survived the great fire, but can't survive diversity."
 
 ### AF 2020-07-30 0651
 (01:31:14) [[Nicholas J. Fuentes]] recounted that [[Matt Gaetz]] recently revealed he had acted as a foster father to a Cuban refugee named Nestor [[who]] arrived in Florida at age 13, a relationship [[Matt Gaetz|Gaetz]] kept quiet until the refugee turned 18.
@@ -1338,7 +1338,7 @@
 (00:44:35) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s 2016 electoral college victory was not a landslide, as it depended on narrow margins in key battleground states like Florida, [[Commonwealth of Pennsylvania|Pennsylvania]], and [[State of Michigan|Michigan]].
 
 ### AF 2020-05-13 0604
-(01:33:00) [[Nicholas J. Fuentes]] discussed potentially moving from [[Illinois]] to Florida, citing Florida's lower taxes, open economy during [[COVID-19]], and warmer climate, but expressed attachment to [[City of Chicago|Chicago]].
+(01:33:00) [[Nicholas J. Fuentes]] discussed potentially moving from [[Illinois]] to Florida, citing Florida's lower taxes, open economy during [[COVID-19]], and warmer climate, but expressed attachment to [[Chicago]].
 
 ### AF 2020-05-13 0604
 (01:35:40) [[Nicholas J. Fuentes]] noted that a viewer named "Ultros" offered to help him move to Florida, an offer he declined by joking about the safety of sharing his address with strangers.
@@ -1383,7 +1383,7 @@
 (00:34:56) [[Nicholas J. Fuentes]] raised the question of whether [[Elizabeth Warren]] would drop out if she lost her home state of [[Massachusetts]], citing the precedent of [[Marco Rubio]] dropping out after losing Florida in the 2016 [[Republican Party|Republican]] primary.
 
 ### AF 2020-02-24 0553
-(01:27:48) [[Nicholas J. Fuentes]] stated that his schedule had been nonstop since a [[City of Miami|Miami]] event on September 28th, including appearances at Politicon, in Florida, at SAS, in [[Iowa]] for a speech, on the Milo show, in [[City of Phoenix|Phoenix]], in [[Boston]], and during the "Kruyper Wars."
+(01:27:48) [[Nicholas J. Fuentes]] stated that his schedule had been nonstop since a [[Miami]] event on September 28th, including appearances at Politicon, in Florida, at SAS, in [[Iowa]] for a speech, on the Milo show, in [[Phoenix]], in [[Boston]], and during the "Kruyper Wars."
 
 ### AF 2020-02-04 0539
 (01:36:49:48) [[Nicholas J. Fuentes]] stated that pandering to minorities on issues like Cuba and [[Venezuela]] was intended to win over [[Hispanic]] voters in Florida but would likely be ineffective.
@@ -1416,10 +1416,10 @@
 (01:35:13) A viewer named Demetri from Florida reported meeting a fellow [[United States|America]] First supporter through the chat [[who]] would soon be flying to his state.
 
 ### AF 2019-10-01 0470
-(01:02:12) [[Nicholas J. Fuentes]] debated [[Jacob Wall]] at a restaurant in [[City of Miami|Miami]] after a last-minute venue cancellation, with an audience of 80 to 100 people, predominantly from Florida.
+(01:02:12) [[Nicholas J. Fuentes]] debated [[Jacob Wall]] at a restaurant in [[Miami]] after a last-minute venue cancellation, with an audience of 80 to 100 people, predominantly from Florida.
 
 ### AF 2019-09-06 0456
-(00:09:55) [[Nicholas J. Fuentes]] announced he will be the headline speaker at an event in [[City of Miami|Miami]], Florida on September 28th, organized by the website demandfreespeech.org, which will feature debates and be held on a yacht with 250 available tickets.
+(00:09:55) [[Nicholas J. Fuentes]] announced he will be the headline speaker at an event in [[Miami]], Florida on September 28th, organized by the website demandfreespeech.org, which will feature debates and be held on a yacht with 250 available tickets.
 
 ### AF 2019-08-16 0442
 (00:42:42) [[Donald Trump]] won the 2016 election with 306 electoral votes, securing key battleground states like [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Michigan|Michigan]], [[Wisconsin]], and Florida by narrow margins.
@@ -1455,7 +1455,7 @@
 (01:25:59) [[Nicholas J. Fuentes]] predicted that a depressed turnout among [[Donald Trump]]'s base would cost him the key states of [[State of Michigan|Michigan]], [[Commonwealth of Pennsylvania|Pennsylvania]], and Florida, and thus the 2020 election.
 
 ### AF 2019-06-17 0408
-(00:09:30) [[Nicholas J. Fuentes]] announced he was considering live-streaming and reacting to a [[Donald Trump]] campaign rally in [[City of Orlando|Orlando]], Florida scheduled for the following day.
+(00:09:30) [[Nicholas J. Fuentes]] announced he was considering live-streaming and reacting to a [[Donald Trump]] campaign rally in [[Orlando]], Florida scheduled for the following day.
 
 ### AF 2019-06-12 0405
 (00:43:15) [[Nicholas J. Fuentes]] warned of a "demographic winter" where non-white immigration would permanently shift states like [[State of Texas|Texas]], [[Arizona]], [[State of Nevada|Nevada]], [[State of Colorado|Colorado]], Florida, and [[Country of Georgia|Georgia]] toward the [[Democratic Party]], making national [[Republican Party|Republican]] victories impossible.
@@ -1593,16 +1593,16 @@
 (00:46:59) Sean listed states [[Paul Nealon]] had lived in, including [[State of Michigan|Michigan]], Florida, [[Country of Georgia|Georgia]], and [[Wisconsin]], noting it was strange for someone [[who]] supposedly worked in manufacturing.
 
 ### AF 2018-03-20 0128
-(00:08:20) [[Nicholas J. Fuentes]] contrasted the extensive media coverage of the February 14th [[City of Parkland|Parkland]], Florida shooting with the minimal coverage of the March 20th Great Mills High School shooting in [[Maryland]].
+(00:08:20) [[Nicholas J. Fuentes]] contrasted the extensive media coverage of the February 14th [[Parkland]], Florida shooting with the minimal coverage of the March 20th Great Mills High School shooting in [[Maryland]].
 
 ### AF 2018-03-20 0128
 (00:16:50) [[Nicholas J. Fuentes]] argued that the presence of an armed resource officer at Great Mills High School in [[Maryland]] prevented a higher casualty count, unlike the shooting at Stoneman Douglas High School in Florida where 17 people died.
 
 ### AF 2018-03-19 0127
-(00:57:45) [[Nicholas J. Fuentes]] had a personal grievance with [[Milo]], [[who]] canceled a planned interview with him in [[City of Miami|Miami]], Florida in August 2017 after the [[City of Charlottesville|Charlottesville]] rally.
+(00:57:45) [[Nicholas J. Fuentes]] had a personal grievance with [[Milo]], [[who]] canceled a planned interview with him in [[Miami]], Florida in August 2017 after the [[Charlottesville]] rally.
 
 ### AF 2018-03-14 0125
-(24:36:40) Student activists from [[City of Parkland|Parkland]], Florida, launched a coordinated media campaign following the school shooting there.
+(24:36:40) Student activists from [[Parkland]], Florida, launched a coordinated media campaign following the school shooting there.
 
 ### AF 2018-02-28 0115
 (52:57:48) [[Donald Trump]] was criticized by some supporters for calling [[United States|Americans]] "cowards" in the wake of a shooting at a [[Jewish]] school in Florida.
@@ -1644,10 +1644,40 @@
 (00:26:01) [[Donald Trump]] later endorsed [[Roy Moore]] in the general election, recording robocalls and holding an event in Pensacola, Florida, but Moore ultimately lost to [[Doug Jones]].
 
 ### AF 2017-11-17 0053
-(00:26:53) Since [[Hurricane Maria]], more than 168,000 [[Puerto Rico|Puerto Ricans]] have fled to Florida, the largest migration in history, with an additional 100,000 having booked flights to [[City of Orlando|Orlando]].
+(00:26:53) Since [[Hurricane Maria]], more than 168,000 [[Puerto Rico|Puerto Ricans]] have fled to Florida, the largest migration in history, with an additional 100,000 having booked flights to [[Orlando]].
 
 ### AF 2017-11-17 0053
 (00:28:58) [[Donald Trump]] won Florida by 112,000 votes.
 
 ### AF 2017-11-17 0053
 (00:30:31) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democrats]] know that letting in a quarter of a million [[Puerto Rico|Puerto Ricans]] might turn Florida blue in the 2018 and 2020 elections.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:16:06.930) The only remaining participants in the [[Donald Trump|MAGA]] movement are "boomers" [[who]] watch [[Fox News]] and retirees in Florida [[who]] are easily deceived.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:33:11) [[Susie Wiles]], a lobbyist from Florida, has managed [[Donald Trump]]'s operations since 2021.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:33:25) Pro-[[Israel]] figures from Florida, including [[Susie Wiles]], [[Marco Rubio]], [[Michael Waltz|Mike Waltz]], and [[Pam Bondi]], are closely associated with [[Donald Trump]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:28:44:85) [[Marco Rubio]] is a [[U.S. Department of State|Secretary of State]] from Florida whose benefactors are the [[Adelson family]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:13:13:00) *[[Jacobin Magazine]]* looked at more than 1,000 documents from the latest trove and identified more than 60 instances between September 2010 and March 2019 in which [[Ehud Barak]] and [[Jeffrey Epstein]] arranged to meet face-to-face, including in [[New York|New York City]], Florida, [[Boston]], [[Paris]], and [[Little St. James]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:49:10) [[Nicholas J. Fuentes]] stated that evidence from 2006, including hundreds of witness interviews and thousands of potential victims in Florida, shows no record of physical coercion by [[Jeffrey Epstein]], meaning women were not being beaten or killed.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:18:31) Multiple messages between [[Elon Musk]] and [[Jeffrey Epstein]] showed the two comparing schedules to meet in Florida or the [[Caribbean]] between 2012 and 2014.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:58:07) [[Nicholas J. Fuentes]] reported that [[Representative Maria Salazar]] of Florida said [[U.S. Immigration and Customs Enforcement|ICE]] should focus on "the bad hombres", not "the cleaning ladies".
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:45:30) [[Byron Donalds]] wants to turn Florida into a Section 8 ghetto.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:23:10) [[Nicholas J. Fuentes]] noted that [[Ben Shapiro]] lives in a [[Jews|Jewish]] enclave in Florida and created a website dedicated to supporting [[Israel]].

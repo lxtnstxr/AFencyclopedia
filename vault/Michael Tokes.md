@@ -2,7 +2,7 @@
 #person
 
 ### AF 2019-06-24 0413
-(03:37:99) Michael Tokes, a non-[[Jews|Jewish]] commentator, was noted for wearing a Star of David bracelet and posing for pictures at the Western Wall in [[City of Jerusalem|Jerusalem]].
+(03:37:99) Michael Tokes, a non-[[Jews|Jewish]] commentator, was noted for wearing a Star of David bracelet and posing for pictures at the Western Wall in [[Jerusalem]].
 
 
 ### AF 2018-03-21 0129

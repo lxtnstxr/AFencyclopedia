@@ -73,7 +73,7 @@
 (10:49:71) [[Nicholas J. Fuentes]] introduced the arrest of Douglas Mackey, also [[known]] online as Ricky Vaughn, as a topic for discussion.
 
 ### AF 2021-01-28 0750
-(11:57:89) [[Nicholas J. Fuentes]] described Douglas Mackey as a very prominent and important figure during the 2016 election and in the post-[[City of Charlottesville|Charlottesville]] dissident right community.
+(11:57:89) [[Nicholas J. Fuentes]] described Douglas Mackey as a very prominent and important figure during the 2016 election and in the post-[[Charlottesville]] dissident right community.
 
 ### AF 2021-01-28 0750
 (12:24:67) [[Nicholas J. Fuentes]] noted that [[Time|Time Magazine]] ranked the Ricky Vaughn [[Twitter]] account as one of the top 100 most influential in the 2016 election.
@@ -337,7 +337,7 @@
 (01:23:58) Nicholas J. Fuentes stated that congressional hearings with [[big tech]] CEOs like [[Mark Zuckerberg]] of [[Facebook]] and [[Twitter|Jack Dorsey]] of [[Twitter]] were not news and meant nothing, comparing them to public press releases, and therefore chose not to cover them on his show.
 
 ### AF 2020-10-28 0711
-(01:32:40) Nicholas J. Fuentes argued that the slow progress of [[Donald Trump]]'s [[United States|America]] First agenda was due to sabotage by a permanent bureaucratic class, or "deep state," citing [[Miles Taylor]] as one example of many administration officials hired from the [[Republican Party|Republican]] establishment [[who]] actively worked against [[Donald Trump|the president's]] goals.
+(01:32:40) Nicholas J. Fuentes argued that the slow progress of [[Donald Trump]]'s [[United States|America]] First agenda was due to sabotage by a permanent bureaucratic class, or "deep state," citing [[Miles Taylor]] as one example of many administration officials hired from the [[Republican Party|Republican]] establishment [[who]] actively worked against [[the president's]] goals.
 
 ### AF 2020-10-28 0711
 (01:56:28) Nicholas J. Fuentes argued that a segment of the population, including violent repeat offenders like [[Walter Wallace Jr.]], is a "net negative" that cannot be reformed and must be permanently managed through incarceration or institutionalization rather than accommodated by changing societal laws or police practices.
@@ -346,10 +346,10 @@
 (02:03:50) Nicholas J. Fuentes stated that [[Owen Benjamin]] (real name Owen Smith) is [[Jews|Jewish]], anti-[[Christianity|Christian]], has blasphemed the Trinity and Mary, and has made personal threats and slanderous claims against him and his family.
 
 ### AF 2020-10-27 0710
-(00:07:00) Nicholas J. Fuentes opened his October 27, 2020 broadcast by announcing the show's focus on a riot in [[City of Philadelphia|Philadelphia]] and new election-related policies from [[Twitter]].
+(00:07:00) Nicholas J. Fuentes opened his October 27, 2020 broadcast by announcing the show's focus on a riot in [[Philadelphia]] and new election-related policies from [[Twitter]].
 
 ### AF 2020-10-27 0710
-(00:28:00) Nicholas J. Fuentes described a recurring pattern of civil unrest in [[United States|American]] cities, citing a recent incident in [[Kanye West|West]] [[City of Philadelphia|Philadelphia]] where a man named Walter Wallace was shot by police after charging at them with a knife, which was followed by looting.
+(00:28:00) Nicholas J. Fuentes described a recurring pattern of civil unrest in [[United States|American]] cities, citing a recent incident in [[Kanye West|West]] [[Philadelphia]] where a man named Walter Wallace was shot by police after charging at them with a knife, which was followed by looting.
 
 ### AF 2020-10-27 0710
 (00:50:00) Nicholas J. Fuentes stated that [[Twitter]] was introducing a new prompt to warn users before they tweeted about topics it deemed potential election misinformation, such as [[Hunter Biden]].
@@ -391,10 +391,10 @@
 (01:38:00) Nicholas J. Fuentes described the business models of [[Apple Inc.|Apple]], [[Google]], [[Facebook]], and [[Amazon Inc.|Amazon]] as creating "wage slavery" and argued that leftists supported their censorship because it currently targeted their political opponents.
 
 ### AF 2020-10-27 0710
-(01:44:00) Nicholas J. Fuentes turned to the shooting of Walter Wallace in [[City of Philadelphia|Philadelphia]], framing it as part of a recurring series of events where a [[black]] criminal is killed by police after resisting arrest, leading to riots.
+(01:44:00) Nicholas J. Fuentes turned to the shooting of Walter Wallace in [[Philadelphia]], framing it as part of a recurring series of events where a [[black]] criminal is killed by police after resisting arrest, leading to riots.
 
 ### AF 2020-10-27 0710
-(01:48:00) Nicholas J. Fuentes read a report from [[Fox News]] stating the [[Commonwealth of Pennsylvania|Pennsylvania]] [[U.S. Department of Defense|National Guard]] had been deployed to [[City of Philadelphia|Philadelphia]] after riots injured 30 officers and led to 91 arrests, with businesses including several [[Rite Aid]] pharmacies looted.
+(01:48:00) Nicholas J. Fuentes read a report from [[Fox News]] stating the [[Commonwealth of Pennsylvania|Pennsylvania]] [[U.S. Department of Defense|National Guard]] had been deployed to [[Philadelphia]] after riots injured 30 officers and led to 91 arrests, with businesses including several [[Rite Aid]] pharmacies looted.
 
 ### AF 2020-10-27 0710
 (01:50:00) Nicholas J. Fuentes argued that the core issue behind police shootings and riots was disproportionate [[black]] criminality, not systemic racism or police brutality, stating that the solution was for [[black]] people to stop committing crimes.
@@ -403,16 +403,16 @@
 (01:55:00) Nicholas J. Fuentes attributed racial disparities in outcomes to behavioral and genetic differences, citing high out-of-wedlock birth rates and disruptive behavior in schools within [[black]] communities.
 
 ### AF 2020-10-27 0710
-(01:57:00) Nicholas J. Fuentes cited a specific business in [[City of Philadelphia|Philadelphia]] that was looted in May 2020 during the [[George Floyd]] riots, reopened three weeks prior, and was looted again on October 26, arguing this pattern deterred investment in [[black]] neighborhoods.
+(01:57:00) Nicholas J. Fuentes cited a specific business in [[Philadelphia]] that was looted in May 2020 during the [[George Floyd]] riots, reopened three weeks prior, and was looted again on October 26, arguing this pattern deterred investment in [[black]] neighborhoods.
 
 ### AF 2020-10-27 0710
-(01:59:00) Nicholas J. Fuentes claimed that videos from the [[City of Philadelphia|Philadelphia]] riots showed [[black]] people looting stores and smashing ATMs, which he said was indicative of a broader pattern of criminal and self-destructive behavior.
+(01:59:00) Nicholas J. Fuentes claimed that videos from the [[Philadelphia]] riots showed [[black]] people looting stores and smashing ATMs, which he said was indicative of a broader pattern of criminal and self-destructive behavior.
 
 ### AF 2020-10-27 0710
 (01:00:00) Nicholas J. Fuentes argued that the placement of darker-toned beauty products behind locked glass cases in stores was a response to theft, not racism, and was evidence of the behavioral issues causing racial disparities.
 
 ### AF 2020-10-27 0710
-(01:06:00) Nicholas J. Fuentes suggested the [[City of Philadelphia|Philadelphia]] riots might help [[Donald Trump]] win [[Commonwealth of Pennsylvania|Pennsylvania]] and the election by highlighting lawlessness a week before voters went to the polls.
+(01:06:00) Nicholas J. Fuentes suggested the [[Philadelphia]] riots might help [[Donald Trump]] win [[Commonwealth of Pennsylvania|Pennsylvania]] and the election by highlighting lawlessness a week before voters went to the polls.
 
 ### AF 2020-10-27 0710
 (01:07:00) Nicholas J. Fuentes contrasted the [[United States|American]] response to riots with how he believed [[China]], [[Russia]], or [[Saudi Arabia]] would handle similar unrest, implying those countries would not tolerate such behavior from a minority population.
@@ -502,7 +502,7 @@
 (01:57:39) Nicholas J. Fuentes argued that [[Donald Trump]] won the debate on a technical level but was too reserved compared to his more aggressive style in a previous debate four years prior.
 
 ### AF 2020-10-22 0707
-(01:59:30) [[Kamala Harris]] supports a single-payer, [[universal]] healthcare system, which Nicholas J. Fuentes argued would be a disaster for private insurance and [[Health and Human Services|Medicare]].
+(01:59:30) [[Kamala Harris]] supports a single-payer, [[universal]] healthcare system, which Nicholas J. Fuentes argued would be a disaster for private insurance and [[Medicare]].
 
 ### AF 2020-10-22 0707
 (02:02:46) Nicholas J. Fuentes argued that [[Donald Trump]]'s appeals about his record with the [[black]] community were primarily aimed at reassuring white independents concerned about racism, not at winning [[black]] votes.
@@ -538,7 +538,7 @@
 (02:21:58) Nicholas J. Fuentes argued that the political focus on "unfortunate" demographics like children, people with disabilities, and the poor is a result of women constituting a larger percentage of the electorate than men.
 
 ### AF 2020-10-22 0707
-(02:22:20) [[Rahm Emanuel]] is missing part of a finger on his right hand, which Nicholas J. Fuentes claimed was rumored to have been cut off by the mob during his [[time]] as mayor of [[City of Chicago|Chicago]].
+(02:22:20) [[Rahm Emanuel]] is missing part of a finger on his right hand, which Nicholas J. Fuentes claimed was rumored to have been cut off by the mob during his [[time]] as mayor of [[Chicago]].
 
 ### AF 2020-10-22 0707
 (02:23:28) Nicholas J. Fuentes claimed to have received private, optimistic messages indicating that political figures were preparing to embrace a more hardline "[[United States|America]] First" ideology, especially if [[Donald Trump]] lost the election.
@@ -583,7 +583,7 @@
 (02:43:10) Nicholas J. Fuentes expressed that he would miss [[Donald Trump]]'s unique personality and humor after he left office.
 
 ### AF 2020-10-22 0707
-(02:44:48) Nicholas J. Fuentes teased [[Patrick Casey]] for his strict diet of boiled chicken and microwave potatoes, contrasting it with his own preference for pizza and burgers when they met in [[City of Chicago|Chicago]].
+(02:44:48) Nicholas J. Fuentes teased [[Patrick Casey]] for his strict diet of boiled chicken and microwave potatoes, contrasting it with his own preference for pizza and burgers when they met in [[Chicago]].
 
 ### AF 2020-10-22 0707
 (02:46:20) Nicholas J. Fuentes joked about [[Mediterranean Sea|Mediterranean]] people knowing how to enjoy life with passion and drama, in contrast to "Anglo" people whom he compared to robots.
@@ -886,7 +886,7 @@
 (00:03:13) Nicholas J. Fuentes observed that significant [[Islam|Muslim]] terrorism in [[Europe]] and the [[United States]] subsided quickly after [[Donald Trump]] was elected.
 
 ### AF 2020-10-19 0704
-(00:05:01) Nicholas J. Fuentes cited the Bataclan mass shooting in [[Paris]], a truck attack in [[Nice]], and attacks in [[Sweden]], the [[Kingdom of the Netherlands|Netherlands]], [[San Bernardino]], and [[City of Orlando|Orlando]] as examples of frequent terrorism prior to [[Donald Trump]]'s election.
+(00:05:01) Nicholas J. Fuentes cited the Bataclan mass shooting in [[Paris]], a truck attack in [[Nice]], and attacks in [[Sweden]], the [[Kingdom of the Netherlands|Netherlands]], [[San Bernardino]], and [[Orlando]] as examples of frequent terrorism prior to [[Donald Trump]]'s election.
 
 ### AF 2020-10-19 0704
 (00:05:26) Nicholas J. Fuentes announced he would discuss an article in the [[The New York Times|New York Times]] by [[Roger Cohen]] titled "[[Donald Trump|Trump's]] last stand for white [[United States|America]]."
@@ -928,7 +928,7 @@
 (00:19:05) Nicholas J. Fuentes analyzed the [[The New York Times|New York Times]] article by [[Roger Cohen]], noting Cohen's use of terms like "great replacement," "white and non-white," and "[[United States|America]] first nationalists."
 
 ### AF 2020-10-19 0704
-(00:21:46) Nicholas J. Fuentes read an excerpt where [[Roger Cohen]] wrote of seeing "hate-filled faces, those of the white nationalists in [[City of Charlottesville|Charlottesville]] chanting, '[[Jews]] will not replace [[us]].'"
+(00:21:46) Nicholas J. Fuentes read an excerpt where [[Roger Cohen]] wrote of seeing "hate-filled faces, those of the white nationalists in [[Charlottesville]] chanting, '[[Jews]] will not replace [[us]].'"
 
 ### AF 2020-10-19 0704
 (00:42:00) Nicholas J. Fuentes argued that [[Roger Cohen]] was acknowledging the "great replacement" is occurring but downplaying its significance by falsely claiming it has always defined [[United States|America]].
@@ -937,7 +937,7 @@
 (00:42:57) Nicholas J. Fuentes claimed that as recently as 1990, 50 percent of the [[United States]] population descended from the founding [[stock]] present at the nation's founding.
 
 ### AF 2020-10-19 0704
-(00:45:11) Nicholas J. Fuentes stated that two [[Donald Trump|Trump]] supporters were killed, one in [[Denver]], [[State of Colorado|Colorado]] and another in [[City of Portland|Portland]], as part of what he called state-sponsored violence against representatives of the traditional [[United States|American]] nation.
+(00:45:11) Nicholas J. Fuentes stated that two [[Donald Trump|Trump]] supporters were killed, one in [[Denver]], [[State of Colorado|Colorado]] and another in [[Portland]], as part of what he called state-sponsored violence against representatives of the traditional [[United States|American]] nation.
 
 ### AF 2020-10-19 0704
 (00:46:44) Nicholas J. Fuentes framed the new political dividing line as between those [[who]] want [[United States|America]] to remain a majority white, English-speaking, [[Christianity|Christian]] nation and those [[who]] want a "non-white polyglot empire characterized by diversity, corruption, and leftism."
@@ -1237,7 +1237,7 @@
 (01:57:24) Nicholas J. Fuentes realized in September 2016 that the media was willing and able to conspire to lie to the public, based on the coverage of [[Hillary Clinton]]'s health incident.
 
 ### AF 2020-10-15 0702
-(02:11:32) During an interview, detractors pulled up the [[Anti-Defamation League|ADL]] website and listed things Nicholas J. Fuentes had said on [[Twitter]] and his attendance at the [[City of Charlottesville|Charlottesville rally]].
+(02:11:32) During an interview, detractors pulled up the [[Anti-Defamation League|ADL]] website and listed things Nicholas J. Fuentes had said on [[Twitter]] and his attendance at the [[Charlottesville rally]].
 
 ### AF 2020-10-15 0702
 (02:13:52) Nicholas J. Fuentes was a major critic of [[Donald Trump]] in 2018 and 2019, famously using a whiteboard to compare actions taken for [[Israel]] versus those for his base.
@@ -1276,7 +1276,7 @@
 (02:53:49) [[Tim Heidecker]] and his co-host interrogated Nicholas J. Fuentes about the [[United States Holocaust Memorial Museum|Holocaust]] and his beliefs during what was billed as a comedy show appearance.
 
 ### AF 2020-10-15 0702
-(02:55:51) Nicholas J. Fuentes attended the "Unite the Right" rally in [[City of Charlottesville|Charlottesville]].
+(02:55:51) Nicholas J. Fuentes attended the "Unite the Right" rally in [[Charlottesville]].
 
 ### AF 2020-10-15 0702
 (03:00:01) Nicholas J. Fuentes argued that people [[who]] present themselves as "chill" or apolitical often become viciously argumentative when core establishment narratives are challenged.
@@ -1297,7 +1297,7 @@
 (03:27:05) When liberals ask "When was [[United States|America]] great?" and cite eras like the 1950s or 1930s, Nicholas J. Fuentes agrees, noting that those periods also had racism.
 
 ### AF 2020-10-15 0702
-(03:29:01) Nicholas J. Fuentes criticized [[Tim Heidecker]] and others for feigning moral concern over the [[City of Charlottesville|Charlottesville rally]] while ignoring violence committed by [[Antifa]] and [[Black Lives Matter|BLM]].
+(03:29:01) Nicholas J. Fuentes criticized [[Tim Heidecker]] and others for feigning moral concern over the [[Charlottesville rally]] while ignoring violence committed by [[Antifa]] and [[Black Lives Matter|BLM]].
 
 ### AF 2020-10-15 0702
 (03:30:01) Nicholas J. Fuentes cautioned his audience against idolizing him, stating that while he tries to be honest, viewers should maintain a degree of skepticism.
@@ -1321,7 +1321,7 @@
 (02:06:28) Nicholas J. Fuentes warned that systemic discrimination against white people in hiring, education, and government programs would intensify as white people become a minority in the [[United States]].
 
 ### AF 2020-10-14 0701
-(02:21:17) Nicholas J. Fuentes asserted that [[Donald Trump]]'s pro-[[Israel]] policies, such as moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], were driven by the $200 million campaign support from donor [[Sheldon Adelson]].
+(02:21:17) Nicholas J. Fuentes asserted that [[Donald Trump]]'s pro-[[Israel]] policies, such as moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], were driven by the $200 million campaign support from donor [[Sheldon Adelson]].
 
 ### AF 2020-10-14 0701
 (02:21:53) Nicholas J. Fuentes listed [[Donald Trump]]'s immigration achievements, including building 360 miles of border wall, cutting projected immigration by 47%, and ending catch-and-release for asylum seekers.
@@ -1366,7 +1366,7 @@
 (00:37:48) Nicholas J. Fuentes stated that [[Facebook]] and [[Instagram]] banned [[United States Holocaust Memorial Museum|Holocaust]] denial, [[QAnon]], white nationalism, and white separatism, making those platforms completely inhospitable.
 
 ### AF 2020-10-13 0700
-(00:39:08) Nicholas J. Fuentes criticized [[Tim Heidecker]], a comedian from [[Adult Swim]], for tattling to [[Google|YouTube]] about anti-Semitism and [[City of Charlottesville|Charlottesville]] instead of being funny, calling it a demoralizing state of affairs.
+(00:39:08) Nicholas J. Fuentes criticized [[Tim Heidecker]], a comedian from [[Adult Swim]], for tattling to [[Google|YouTube]] about anti-Semitism and [[Charlottesville]] instead of being funny, calling it a demoralizing state of affairs.
 
 ### AF 2020-10-13 0700
 (00:40:43) Nicholas J. Fuentes pointed out that [[Google|YouTube]] is owned by [[Google]] ([[Google|Alphabet]]), a $1.7 trillion company, and found it absurd that comedians in 2020 were tattling to its [[Jews|Jewish]] CEO about other entertainers being mean.
@@ -1393,7 +1393,7 @@
 (00:58:37) Nicholas J. Fuentes noted that the only substantial coverage of the [[Denver]] shooting he could find was from the [[Washington Post]], the [[World Socialist Website]], and the [[Intercept]].
 
 ### AF 2020-10-13 0700
-(01:01:40) Nicholas J. Fuentes contrasted the media's prolonged coverage of [[Heather Heyer]]'s death in [[City of Charlottesville|Charlottesville]] with the lack of coverage for two killed [[Donald Trump|Trump]] supporters, [[Jay Bishop]] and [[Lee Keltner]].
+(01:01:40) Nicholas J. Fuentes contrasted the media's prolonged coverage of [[Heather Heyer]]'s death in [[Charlottesville]] with the lack of coverage for two killed [[Donald Trump|Trump]] supporters, [[Jay Bishop]] and [[Lee Keltner]].
 
 ### AF 2020-10-13 0700
 (01:02:08) Nicholas J. Fuentes stated that a woman in [[Los Angeles]] was recently charged for deliberately running over [[Donald Trump|Trump]] supporters at a pro-[[Donald Trump|Trump]] rally with her car, another incident that received little media attention.
@@ -1435,7 +1435,7 @@
 (01:31:00) Nicholas J. Fuentes praised Italian-[[United States|Americans]] as a "master race" after a viewer reported seeing many Italian [[Donald Trump|Trump]] supporters in Boston's North End.
 
 ### AF 2020-10-13 0700
-(01:32:58) Nicholas J. Fuentes said he had no immediate plans but would not rule out a future debate with streamer [[Destiny|Destiny]], citing his enjoyment of conflict and antagonism.
+(01:32:58) Nicholas J. Fuentes said he had no immediate plans but would not rule out a future debate with streamer [[Destiny]], citing his enjoyment of conflict and antagonism.
 
 ### AF 2020-10-13 0700
 (01:34:35) Nicholas J. Fuentes stated he was considering hosting another "Groyper Live Show" (GLS) event but had no concrete plans.
@@ -1462,7 +1462,7 @@
 (02:02:30) Nicholas J. Fuentes argued that conservative media and figures like [[Rush Limbaugh]] and [[Glenn Beck]] thrived during [[Obama's]] presidency, suggesting a [[Joe Biden|Biden]] victory could similarly benefit his show if it avoided being banned.
 
 ### AF 2020-10-13 0700
-(02:03:09) Nicholas J. Fuentes stated that all his current friends are "red-pilled" internet friends, as his IRL friends abandoned him after the [[City of Charlottesville|Charlottesville rally]], removing him from group chats and excluding him from gatherings.
+(02:03:09) Nicholas J. Fuentes stated that all his current friends are "red-pilled" internet friends, as his IRL friends abandoned him after the [[Charlottesville rally]], removing him from group chats and excluding him from gatherings.
 
 ### AF 2020-10-13 0700
 (02:04:43) Nicholas J. Fuentes predicted that a [[Kamala Harris]] victory would result in a status quo protection with a gradual slant towards socialism, not immediate legal or economic retaliation against white people.
@@ -1618,10 +1618,10 @@
 (01:21:00) Nicholas J. Fuentes argued that the core QAnon premises—that politicians and celebrities engage in child sex abuse and that a deep state works to undermine [[Donald Trump|President Trump]]—were "confirmed to be true," citing cases like [[Jeffrey Epstein]] and [[Harvey Weinstein]] and reporting from the [[The New York Times]].
 
 ### AF 2020-10-06 0696
-(01:23:00) Nicholas J. Fuentes referenced a [[The New York Times]] op-ed from an anonymous [[Donald Trump|Trump administration]] official claiming to be part of a "deep state" effort to undermine [[Donald Trump|the president]] from within.
+(01:23:00) Nicholas J. Fuentes referenced a [[The New York Times]] op-ed from an anonymous [[Donald Trump|Trump administration]] official claiming to be part of a "deep state" effort to undermine [[the president]] from within.
 
 ### AF 2020-10-06 0696
-(01:24:20) Nicholas J. Fuentes contended that political violence in 2020, such as in [[City of Portland|Portland]], [[City of Seattle|Seattle]], [[City of Kenosha|Kenosha]], and [[City of Minneapolis|Minneapolis]], was largely attributable to left-wing groups, not QAnon adherents.
+(01:24:20) Nicholas J. Fuentes contended that political violence in 2020, such as in [[Portland]], [[Seattle]], [[Kenosha]], and [[Minneapolis]], was largely attributable to left-wing groups, not QAnon adherents.
 
 ### AF 2020-10-06 0696
 (01:26:40) Nicholas J. Fuentes stated that while he did not believe in QAnon's specific narrative, he respected that its followers investigated shadowy political dealings, including the influence of the [[Saudi royal family]], [[Israel]], and major donors.
@@ -1666,7 +1666,7 @@
 (07:24:00) During the "[[TikTok Inc.|TikTok]] Groyper War" in April, Nicholas J. Fuentes and associates feuded with conservative TikTokers like [[Nick Lohenberg]] (Nick Videos), [[who]] accused them of being racist and anti-Semitic.
 
 ### AF 2020-10-05 0695
-(11:41:00) Nicholas J. Fuentes stated that to be accepted as a "Groyper," an individual must "take the trip to [[City of Chicago|Chicago]]" and "bend the knee," analogous to conservatives [[who]] travel to [[Israel]] for validation from establishment organizations.
+(11:41:00) Nicholas J. Fuentes stated that to be accepted as a "Groyper," an individual must "take the trip to [[Chicago]]" and "bend the knee," analogous to conservatives [[who]] travel to [[Israel]] for validation from establishment organizations.
 
 ### AF 2020-10-05 0695
 (12:56:00) Nicholas J. Fuentes expressed concern that [[Donald Trump]] could have been assassinated or replaced with a body double while hospitalized, citing conspiracy theories about similar fates for [[Hillary Clinton]] and [[Britney Spears]].
@@ -1762,7 +1762,7 @@
 (00:16:08) Nicholas J. Fuentes expressed concern that [[Donald Trump]] needed to be at full strength to lead the [[country]] through a potential "unprecedented political power struggle" that could extend until January 20th.
 
 ### AF 2020-10-02 0694
-(00:17:20) Nicholas J. Fuentes noted that [[Donald Trump]] sleeps only four hours a night, does not drink alcohol or coffee, and has a high-energy lifestyle, which he believed improved [[Donald Trump|the president's]] chances of recovery.
+(00:17:20) Nicholas J. Fuentes noted that [[Donald Trump]] sleeps only four hours a night, does not drink alcohol or coffee, and has a high-energy lifestyle, which he believed improved [[the president's]] chances of recovery.
 
 ### AF 2020-10-02 0694
 (00:17:44) Nicholas J. Fuentes speculated about the possibility that [[Donald Trump]] had been deliberately incapacitated, citing a lack of evidence but noting the high political stakes and the precedent of [[Antonin Scalia]]'s alleged assassination.
@@ -1813,7 +1813,7 @@
 (00:50:01) Nicholas J. Fuentes questioned the plausibility of the official narrative that [[Breonna Taylor]] was shot six times while sleeping in another room, arguing the ballistic and spatial details suggested she was likely up and complicit during the shootout.
 
 ### AF 2020-10-02 0694
-(00:54:53) Nicholas J. Fuentes proposed imposing a draconian security regime, including surveillance drones and armed patrols on every corner, in [[black]]-majority neighborhoods like the [[Southern United States|South]] Side of [[City of Chicago|Chicago]] to establish order before any investment or systemic solutions.
+(00:54:53) Nicholas J. Fuentes proposed imposing a draconian security regime, including surveillance drones and armed patrols on every corner, in [[black]]-majority neighborhoods like the [[Southern United States|South]] Side of [[Chicago]] to establish order before any investment or systemic solutions.
 
 ### AF 2020-10-02 0694
 (00:57:14) Nicholas J. Fuentes argued that [[black]] communities would need to trade their civil liberties for administered order and security before they could receive economic investment or solve systemic problems like gun violence.
@@ -2008,7 +2008,7 @@
 (00:31:00) Nicholas J. Fuentes stated that the first 2020 presidential debate would be followed by a [[vice]] presidential debate on [[October 7th Attack|October 7th]] between [[Kamala Harris]] and [[Mike Pence]], a second presidential debate on October 15th, and a third on October 22nd.
 
 ### AF 2020-09-28 0690
-(00:51:00) Nicholas J. Fuentes cited a report by [[James O'Keefe]] and [[Project Veritas]] alleging a ballot harvesting operation in [[Minnesota]] linked to [[Ilhan Omar]]'s brother, [[Liban Mohamed]], and [[City of Minneapolis|Minneapolis]] [[city]] council member [[Jamal Osman]].
+(00:51:00) Nicholas J. Fuentes cited a report by [[James O'Keefe]] and [[Project Veritas]] alleging a ballot harvesting operation in [[Minnesota]] linked to [[Ilhan Omar]]'s brother, [[Liban Mohamed]], and [[Minneapolis]] [[city]] council member [[Jamal Osman]].
 
 ### AF 2020-09-28 0690
 (00:57:00) Nicholas J. Fuentes argued that mainstream media and social media platforms had claimed there was no evidence of mail-in ballot fraud, contrasting this with the [[Project Veritas]] report from [[Minnesota]].
@@ -2086,7 +2086,7 @@
 (01:15:30) Nicholas J. Fuentes claimed that [[Ben Shapiro]] wants to destroy the [[United States]] so that [[Jews|Jewish people]] can be safe.(01:11:35) [[Bryson Gray]] advocated for jailing doctors and potentially mothers involved in abortion, framing it as a complicit act.
 
 ### AF 2020-09-24 0688
-(01:12:21) Nicholas J. Fuentes described [[Bryson Gray]] as an easy-to-talk-to, chill [[person]] during a day spent driving around [[City of Chicago|Chicago]].
+(01:12:21) Nicholas J. Fuentes described [[Bryson Gray]] as an easy-to-talk-to, chill [[person]] during a day spent driving around [[Chicago]].
 
 ### AF 2020-09-24 0688
 (01:14:44) Nicholas J. Fuentes contrasted the presidency of [[Barack Obama]] with that of [[Donald Trump|Trump]], whom he described as eating Philly cheesesteaks and telling [[Ilhan Omar]] to go back where she came from.
@@ -2425,10 +2425,10 @@
 (05:58:320) Nicholas J. Fuentes announced he would be live-streaming commentary on the "Cancel Con" event the following day, which was hosted by [[Ben Shapiro]], [[Dave Rubin]], [[Adam Carolla]], and [[Dennis Prager]].
 
 ### AF 2020-09-16 0682
-(07:50:340) On September 28th of the previous year, Nicholas J. Fuentes participated in the "[[City of Miami|Miami]] Uncensored" event where he debated [[Jacob Wohl]] and appeared alongside [[Timothy Gionet|Baked Alaska]] and [[Kathy Zhu]].
+(07:50:340) On September 28th of the previous year, Nicholas J. Fuentes participated in the "[[Miami]] Uncensored" event where he debated [[Jacob Wohl]] and appeared alongside [[Timothy Gionet|Baked Alaska]] and [[Kathy Zhu]].
 
 ### AF 2020-09-16 0682
-(08:25:380) Following the [[City of Miami|Miami]] event, Nicholas J. Fuentes traveled to [[Politicon]], a friend's wedding, participated in the "Groyper War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[City of Phoenix|Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
+(08:25:380) Following the [[Miami]] event, Nicholas J. Fuentes traveled to [[Politicon]], a friend's wedding, participated in the "Groyper War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
 
 ### AF 2020-09-16 0682
 (10:45:760) Nicholas J. Fuentes cited the [[Russia Today|USA Today]] study which found that a disturbing percentage of Zoomers did not believe in the "[[United States Holocaust Memorial Museum|Holocaust]] religion."
@@ -2476,13 +2476,13 @@
 (32:48:200) Nicholas J. Fuentes identified [[Jared Holt]] as a "leftist, bisexual freak" whose work at [[Right Wing Watch]] is funded by [[George Soros]].
 
 ### AF 2020-09-16 0682
-(33:23:120) Nicholas J. Fuentes transitioned to discussing a [[Bloomberg (Note: This is an alias for the Bloomberg organization, not the person. However, "Bloomberg" as an organization is not in the canonical list, only "Michael Bloomberg" (Person). Therefore, "Bloomberg CityLab" cannot be aliased to a canonical organization. It is treated as a distinct entity.)|Bloomberg CityLab]] analysis of police data from [[City of Minneapolis|Minneapolis]], which showed traffic stops had dropped 80% since [[George Floyd]]'s death.
+(33:23:120) Nicholas J. Fuentes transitioned to discussing a [[Bloomberg (Note: This is an alias for the Bloomberg organization, not the person. However, "Bloomberg" as an organization is not in the canonical list, only "Michael Bloomberg" (Person). Therefore, "Bloomberg CityLab" cannot be aliased to a canonical organization. It is treated as a distinct entity.)|Bloomberg CityLab]] analysis of police data from [[Minneapolis]], which showed traffic stops had dropped 80% since [[George Floyd]]'s death.
 
 ### AF 2020-09-16 0682
-(35:51:600) Nicholas J. Fuentes extrapolated that the 80% drop in traffic stops from May, combined with reduced enforcement during the initial [[COVID-19]] lockdowns, likely meant policing in [[City of Minneapolis|Minneapolis]] had decreased by 90-95% compared to normal levels.
+(35:51:600) Nicholas J. Fuentes extrapolated that the 80% drop in traffic stops from May, combined with reduced enforcement during the initial [[COVID-19]] lockdowns, likely meant policing in [[Minneapolis]] had decreased by 90-95% compared to normal levels.
 
 ### AF 2020-09-16 0682
-(39:25:800) Nicholas J. Fuentes argued that police in [[City of Minneapolis|Minneapolis]] were effectively abdicating their responsibilities and disengaging before any formal "defunding" or disbanding occurred, a phenomenon he called the "Michael Brown effect" or "Trayvon effect."
+(39:25:800) Nicholas J. Fuentes argued that police in [[Minneapolis]] were effectively abdicating their responsibilities and disengaging before any formal "defunding" or disbanding occurred, a phenomenon he called the "Michael Brown effect" or "Trayvon effect."
 
 ### AF 2020-09-16 0682
 (40:50:960) Nicholas J. Fuentes cited the cases of [[Derek Chauvin]], [[George Zimmerman]], and [[Darren Wilson]] as examples where police officers [[who]] survived encounters faced destroyed lives, politicized prosecutions, and media condemnation, leading other officers to disengage.
@@ -2497,7 +2497,7 @@
 (48:40:180) Nicholas J. Fuentes argued that the [[Black Lives Matter]] movement and liberals ultimately believed that laws should not apply to [[Black people]], creating a racial caste system in [[United States|America]].
 
 ### AF 2020-09-16 0682
-(49:32:300) Nicholas J. Fuentes cited the police shooting of a 20-year-old [[Black man]] in [[City of Chicago|Chicago]] [[who]] had opened fire at officers as an example where activists argued the police were both racist for the shooting and wrong for chasing him in the first place.
+(49:32:300) Nicholas J. Fuentes cited the police shooting of a 20-year-old [[Black man]] in [[Chicago]] [[who]] had opened fire at officers as an example where activists argued the police were both racist for the shooting and wrong for chasing him in the first place.
 
 ### AF 2020-09-16 0682
 (50:52:680) Nicholas J. Fuentes concluded that the agenda of [[Black Lives Matter]] was to create a formal, ranked racial caste system where [[Black people]] operate under a different set of laws and expectations than [[White people]].
@@ -2518,7 +2518,7 @@
 (58:54:520) Nicholas J. Fuentes remarked that it would be difficult to convince newly imported immigrants and [[Black people]] to care about the [[United States Holocaust Memorial Museum|Holocaust]] or concentration camps in [[Israel|Poland]].
 
 ### AF 2020-09-16 0682
-(59:21:300) Nicholas J. Fuentes read from an article in the "Patch" written by [[David Giuliani]], which labeled him a "white nationalist" and "[[United States Holocaust Memorial Museum|Holocaust]] denier" [[who]] had attended the "notorious rally of white supremacists in [[City of Charlottesville|Charlottesville, Virginia]]."
+(59:21:300) Nicholas J. Fuentes read from an article in the "Patch" written by [[David Giuliani]], which labeled him a "white nationalist" and "[[United States Holocaust Memorial Museum|Holocaust]] denier" [[who]] had attended the "notorious rally of white supremacists in [[Charlottesville, Virginia]]."
 
 ### AF 2020-09-16 0682
 (01:00:07:350) The "Patch" article noted that Nicholas J. Fuentes was a former student council president at [[Lyons Township High School]] and had been featured in [[Time|Time Magazine]].
@@ -2794,7 +2794,7 @@
 (02:57:44) Nicholas J. Fuentes argued that the [[Donald Trump|Trump]] administration's political strategy should either allow left-wing crime to persist in [[Democratic Party|Democratic]] cities to sway swing state voters or decisively suppress it to demonstrate competence, but not a delayed, half-measure response.
 
 ### AF 2020-09-09 0677
-(03:36:50) Nicholas J. Fuentes argued that [[Donald Trump]] should allow riots in cities like [[City of Minneapolis|Minneapolis]] and [[City of Kenosha|Kenosha]] to continue through the election to improve his chances in swing states like [[Wisconsin]] and [[Minnesota]].
+(03:36:50) Nicholas J. Fuentes argued that [[Donald Trump]] should allow riots in cities like [[Minneapolis]] and [[Kenosha]] to continue through the election to improve his chances in swing states like [[Wisconsin]] and [[Minnesota]].
 
 ### AF 2020-09-09 0677
 (04:25:40) Nicholas J. Fuentes reported that major news stories, such as troop withdrawals from [[Iraq]] and [[Donald Trump]]'s [[Nobel Peace Prize]] nomination, were being suppressed on social media platforms like [[Twitter]] in favor of negative stories about [[Donald Trump]].
@@ -2833,7 +2833,7 @@
 (02:44:30) Nicholas J. Fuentes argued that while [[Donald Trump]] was performing better with [[Hispanic]] voters in 2020 than in 2016, demographic trends toward a multiracial [[country]] presented a long-term electoral challenge for [[Republican Party|Republicans]].
 
 ### AF 2020-09-08 0676
-(03:32:40) Nicholas J. Fuentes suggested that a [[Republican Party|Republican]] strategy to win over [[Hispanic]] voters could involve highlighting antagonisms with [[black]] communities, citing [[Hispanic]] neighborhoods in [[City of Chicago|Chicago]] defending themselves from [[black]] looters during [[Black Lives Matter]] riots.
+(03:32:40) Nicholas J. Fuentes suggested that a [[Republican Party|Republican]] strategy to win over [[Hispanic]] voters could involve highlighting antagonisms with [[black]] communities, citing [[Hispanic]] neighborhoods in [[Chicago]] defending themselves from [[black]] looters during [[Black Lives Matter]] riots.
 
 ### AF 2020-09-08 0676
 (04:38:26) Nicholas J. Fuentes contrasted [[Donald Trump]]'s rollback of diversity training with a hypothetical [[Joe Biden]] administration that would make such training mandatory across public and private sectors.
@@ -2884,10 +2884,10 @@
 (13:45:05) Nicholas J. Fuentes stated that joining or taking over conservative campus groups like [[YAF]] or [[Turning Point USA|TPUSA]] chapters was an effective method for [[United States|America]] First activists to gain resources and influence.
 
 ### AF 2020-09-02 0673
-(00:04:56) Nicholas J. Fuentes announced his show would cover the death of [[Daniel Prude]] in [[City of Rochester|Rochester]], [[New York]], a case from March 2020 involving a man high on PCP [[who]] died after police placed a spit hood on him and restrained him on the ground.
+(00:04:56) Nicholas J. Fuentes announced his show would cover the death of [[Daniel Prude]] in [[Rochester]], [[New York]], a case from March 2020 involving a man high on PCP [[who]] died after police placed a spit hood on him and restrained him on the ground.
 
 ### AF 2020-09-02 0673
-(00:06:08) Nicholas J. Fuentes stated that [[Jacob Blake]] was shot by police in [[City of Kenosha|Kenosha]] while resisting arrest and attempting to draw a knife on officers after being tased.
+(00:06:08) Nicholas J. Fuentes stated that [[Jacob Blake]] was shot by police in [[Kenosha]] while resisting arrest and attempting to draw a knife on officers after being tased.
 
 ### AF 2020-09-02 0673
 (00:06:42) Nicholas J. Fuentes cited the [[Reagan Battalion]] [[Twitter]] account to report that [[Jacob Blake]]'s father had posted anti-Semitic content on [[Facebook]], including claims about "[[Jews|Jewish]] media" and "[[Jews|Jewish]] controlled media."
@@ -2941,10 +2941,10 @@
 (00:39:01) Nicholas J. Fuentes claimed the people [[who]] run the world "inflict terrible things on the population for profit," citing [[September 11 attacks|9/11]] and the coronavirus pandemic as examples, and argued entities like [[Jeff Bezos]] are fundamentally different from ordinary people.
 
 ### AF 2020-09-02 0673
-(00:41:37) Nicholas J. Fuentes described [[Daniel Prude]] as a [[black]] man from [[City of Chicago|Chicago]] [[who]] was high on PCP, ran naked through [[City of Rochester|Rochester]] streets, spat at police while claiming to have coronavirus, and died after being kneeled on by officers before [[George Floyd]]'s death.
+(00:41:37) Nicholas J. Fuentes described [[Daniel Prude]] as a [[black]] man from [[Chicago]] [[who]] was high on PCP, ran naked through [[Rochester]] streets, spat at police while claiming to have coronavirus, and died after being kneeled on by officers before [[George Floyd]]'s death.
 
 ### AF 2020-09-02 0673
-(00:42:15) Nicholas J. Fuentes read a news report stating protesters in [[City of Rochester|Rochester]] gathered after allegations surfaced against police officers in [[Daniel Prude]]'s death, with community advocates calling for charges.
+(00:42:15) Nicholas J. Fuentes read a news report stating protesters in [[Rochester]] gathered after allegations surfaced against police officers in [[Daniel Prude]]'s death, with community advocates calling for charges.
 
 ### AF 2020-09-02 0673
 (00:43:24) Nicholas J. Fuentes quoted [[Daniel Prude]]'s brother, Joe Prude, [[who]] said police "treated my brother like a piece of garbage," a sentiment Nicholas J. Fuentes stated he agreed with approvingly.
@@ -2983,10 +2983,10 @@
 (00:05:34) Nicholas J. Fuentes titled his show "LA Riots 2" in reference to potential unrest following a police shooting in [[Los Angeles]].
 
 ### AF 2020-09-01 0672
-(00:20:44) [[Donald Trump]] visited [[City of Kenosha|Kenosha]], [[Wisconsin]], to survey the rubble of destroyed buildings following riots, producing campaign optics that Nicholas J. Fuentes described as effective.
+(00:20:44) [[Donald Trump]] visited [[Kenosha]], [[Wisconsin]], to survey the rubble of destroyed buildings following riots, producing campaign optics that Nicholas J. Fuentes described as effective.
 
 ### AF 2020-09-01 0672
-(00:35:32) Nicholas J. Fuentes argued that [[Donald Trump|Trump]]'s campaign strategy, including his visit to [[City of Kenosha|Kenosha]], signaled a return to his 2016 instincts and a move away from the influence of [[Jared Kushner]].
+(00:35:32) Nicholas J. Fuentes argued that [[Donald Trump|Trump]]'s campaign strategy, including his visit to [[Kenosha]], signaled a return to his 2016 instincts and a move away from the influence of [[Jared Kushner]].
 
 ### AF 2020-09-01 0672
 (00:56:84) A trending hashtag on [[Twitter]] alleged that [[Donald Trump]] suffered a series of mini-strokes last year, a claim Nicholas J. Fuentes characterized as astroturfed and artificially amplified.
@@ -3046,7 +3046,7 @@
 (08:12:13) Nicholas J. Fuentes challenged the idea that [[Christianity]] and nationalism are incompatible, arguing that historically, the Church gave birth to nations like [[France]], [[Italian Republic|Italy]], and [[United Kingdom|Britain]].
 
 ### AF 2020-08-31 0671
-(00:02:30) [[City of Portland|Portland]] experienced 90 days of continuous unrest involving [[Antifa]] and [[Black Lives Matter]], including an attempt to explode a federal courthouse with explosives and fireworks. (00:03:06) A caravan of approximately 600 [[Donald Trump|Trump]] supporters with trucks and flags entered [[City of Portland|Portland]], leading to a major clash with left-wing protesters. (00:03:19) [[Jay Bishop]], a member of the group [[Patriot Prayer]], was shot and killed by an [[Antifa]] member during the clashes in [[City of Portland|Portland]]. (00:04:02) Major media outlets like the [[Associated Press]] and the [[The New York Times|New York Times]] did not report that an [[Antifa]] member killed a [[Donald Trump|Trump]] supporter in [[City of Portland|Portland]]. (00:04:43) Nicholas J. Fuentes covered three days of the [[Republican Party|RNC]], specifically Monday, Wednesday, and Thursday. (00:05:50) Nicholas J. Fuentes hosted [[Patrick]], [[Jaden]], [[Beardson]], and [[Jake Lloyd]] in [[City of Chicago|Chicago]] after plans to attend the [[Republican Party|RNC]] in [[Jacksonville]] were canceled. (00:07:29) [[Donald Trump]]'s speech at the [[Republican Party|RNC]] was distinct from the mainstream establishment performances of other speakers. (00:08:54) [[Mike Pence]] delivered a strong performance at the [[Republican Party|RNC]], and [[Donald Trump]]'s speech was also considered strong despite some expected "cringe" elements. (00:09:11) The final night of the [[Republican Party|RNC]] featured a fireworks display, an opera singer, and [[Donald Trump]]'s family in front of the [[White House]], which was considered a great success. (00:09:48) [[Donald Trump]]'s speech at the [[Republican Party|RNC]] drew 23.4 million television viewers, while [[Joe Biden]]'s drew 24.6 million, according to [[Nielsen]]. (00:10:00) The [[DNC]] averaged 21.6 million viewers across four nights, while the [[Republican Party|RNC]] averaged 19.4 million. (00:10:21) [[Donald Trump]] publicly disputed the [[Nielsen]] ratings on [[Twitter]], claiming the [[Republican Party|RNC]] had 147.9 million viewers when digital viewership was included. (00:11:56) Major cable news channels like [[MSNBC]] and [[Warner Bros. Discovery|CNN]] carried wall-to-wall coverage of the [[DNC]] but did not carry the first nights of the [[Republican Party|RNC]]. (00:12:30) The [[Republican Party|RNC]] featured a noticeable number of [[black]] speakers, with 12 appearing over the course of the convention. (00:14:16) [[Tim Scott]] invoked [[George Floyd]] and [[Breonna Taylor]] during his speech at the [[Republican Party|RNC]]. (00:14:28) [[Nikki Haley]] spoke of her [[India|Indian]] roots and alluded to her decision to take down the Confederate flag during her [[Republican Party|RNC]] speech. (00:14:33) [[Herschel Walker]] stated he had seen racism up close and that [[Donald Trump]] was not racist during his [[Republican Party|RNC]] speech. (00:15:14) [[Mark]] and [[Patricia McCloskey]], the couple [[who]] pointed guns at [[Black Lives Matter]] protesters in [[City of St. Louis|St. Louis]], spoke at the [[Republican Party|RNC]] about suburban safety. (00:16:48) Speeches at the [[Republican Party|RNC]] played to white anxiety about crime, immigration, and demographic change, with [[Donald Trump]] specifically talking about illegal immigration and the wall. (00:17:32) The [[Republican Party|RNC]] included speeches about rioting and looting from figures like the [[McCloskeys]] and a police chief, alongside messages from [[Mike Pence]] and [[Donald Trump]]. (00:19:16) [[Donald Trump]]'s 2016 victory involved flipping [[Wisconsin]], [[State of Michigan|Michigan]], and [[Commonwealth of Pennsylvania|Pennsylvania]] by tapping into the white working class, a realignment [[Republican Party|Republicans]] needed to double down on. (00:21:00) The [[Republican Party]] was losing or had lost states like [[State of California|California]], [[State of New Mexico|New Mexico]], [[State of Nevada|Nevada]], [[State of Colorado|Colorado]], [[Arizona]], and [[State of Virginia|Virginia]], making the Midwestern states crucial for future elections. (00:23:27) The [[Republican Party|RNC]]'s production value, including a giant fireworks display on the [[National Mall]] and an opera singer, was considered far superior to the [[DNC]]'s remote, audience-less presentation. (00:24:01) [[Joe Biden]] gave a 25-minute speech to an empty convention room during the [[DNC]], followed by a finale featuring video call grids of supporters. (00:27:08) The [[DNC]] featured a musical performance by [[Billy Porter]], while the [[Republican Party|RNC]] featured an Italian opera singer performing "Ave Maria" on a [[White House]] balcony. (00:31:38) [[City of Kenosha|Kenosha]], [[Wisconsin]], experienced widespread destruction including looting, arson, and a car lot fire causing $2.5 million in damage, following the police shooting of [[Jacob Blake]]. (00:32:11) [[Kyle Rittenhouse]], a 17-year-old [[Donald Trump|Trump]] supporter from [[Illinois]], shot and killed two people in [[City of Kenosha|Kenosha]] during the unrest. (00:36:46) The unrest in [[City of Kenosha|Kenosha]] began after [[Jacob Blake]] was shot seven times by [[City of Kenosha|Kenosha]] police officer [[Rustin Shesky]] while being taken into custody. (00:38:18) [[Jacob Blake]] was charged with sexual assault, trespassing, and disorderly conduct in connection with domestic abuse on July 6, and an arrest warrant was issued on July 7. (00:39:02) According to the [[Kenosha Professional Police Association]], [[Jacob Blake]] was armed with a knife, fought with officers, and put one in a headlock before being shot. (00:45:46) Following the looting of the Magnificent Mile in [[City of Chicago|Chicago]], the [[city]] deployed a significant police presence, public works trucks, and implemented a curfew. (00:47:51) [[City of Portland|Portland]] and [[Washington D.C.|Washington, D.C.]] were among the worst-affected cities by prolonged unrest, largely due to the persistent presence of [[Antifa]]. (00:48:51) A caravan of about 600 vehicles carrying [[Donald Trump|Trump]] supporters arrived in downtown [[City of Portland|Portland]] and was confronted by protesters, leading to several arrests and a fatal shooting. (00:49:30) [[Donald Trump]] invoked [[City of Portland|Portland]] as a liberal [[city]] overrun with violence in a speech at the [[Republican Party|RNC]] as part of his law and order campaign theme. (00:50:07) [[Donald Trump|Trump]] supporters and [[Black Lives Matter]]/[[Antifa]] protesters directly engaged in [[City of Portland|Portland]], using non-lethal weapons like paintball guns, [[mace]], pepper spray, skateboards, and bricks. (00:52:53) [[Jay Bishop]] (also identified as Aaron Danielson), a supporter of the [[Patriot Prayer]] group, was shot and killed on a street in [[City of Portland|Portland]] around 8:45 PM local [[time]]. (00:53:28) [[Donald Trump]] praised [[Jay Bishop]] with a post on [[Twitter]] that read "Rest in Peace Jay." (00:54:48) [[Kyle Rittenhouse]] shot and killed two [[Antifa]] or [[Black Lives Matter]] protesters in [[City of Kenosha|Kenosha]], which he claimed was in self-defense. (00:57:50) [[James Fields]] was sentenced to life in prison plus 419 years for his actions during the [[City of Charlottesville|Charlottesville]] rally. (01:00:39) In [[Louisville]], [[State of Kentucky|Kentucky]], charges were dropped against 92 protesters [[who]] demonstrated in front of the attorney general's home over the [[Breonna Taylor]] case. (01:01:17) [[Laura Trump]] said [[Donald Trump]] was going to meet with [[Jacob Blake]]'s family to talk about criminal justice reform. (01:01:58) [[Jared Kushner]] said he was going to talk to [[LeBron James]] about issues. (01:05:20) [[Kyle Rittenhouse]] was facing state charges in [[Wisconsin]] and could not receive a presidential pardon. (01:13:49) [[John Podesta]] discussed within the [[Democratic Party]] elite what would happen if [[Donald Trump]] won and [[Joe Biden]] refused to concede the election. (01:14:49) The components for a potential revolution or coup against [[Donald Trump]] existed, including media control, mobilizable protesters, hostile elements within the [[Republican Party]] and [[White House]], and a deep state willing to sabotage [[Donald Trump|the president]]. (01:15:50) A scenario was outlined where media and social media could propagate a narrative of election illegitimacy, mobilize protesters, and create a constitutional crisis to install [[Joe Biden]] and [[Kamala Harris]]. (01:19:35) [[Black Lives Matter]]'s approval rating among white people had turned negative after initially being positive following the death of [[George Floyd]], while remaining unchanged for [[black]] and [[Hispanic]] people. (02:00:39) [[Elijah Schaffer]] responded to criticism by Nicholas J. Fuentes, calling him a "[[State of California|California]] conservative" while claiming to be "risking my life and shaping the narrative." (02:01:01) [[Elijah Schaffer]] deleted an interview he conducted with Nicholas J. Fuentes a couple of years prior and later smeared him. (02:02:05) [[Destiny]] debated [[Hasan Piker|Vaush]] on the [[Kyle Rittenhouse]] case, arguing it was okay to defend oneself from a violent mob, which led to significant criticism from [[the left]]. (02:03:50) During a debate, [[Hasan Piker|Vaush]] cited events from Marvel movies as a data point in an argument about real-life police encounters, which [[Destiny]] dismissed. (02:06:08) [[Salim]] asked Nicholas J. Fuentes if it was [[time]] for his "[[Washington D.C.|DC]] buddy" to "reign in the QAnon thing," suggesting it could mislead well-meaning [[Donald Trump|Trump]] supporters. (02:07:56) Two of the three people shot by [[Kyle Rittenhouse]] in [[City of Kenosha|Kenosha]] were reported to be [[Jews|Jewish]]. (02:13:20) [[Donald Trump]] claimed on [[Laura Ingraham]]'s show that "people in dark shadows [[who]] control the streets" and "planes of men in [[black]] uniforms" were controlling the riots and traveling the [[United States]]. (02:17:20) [[Kevin Brow]] suggested that if [[Donald Trump]] used [[COINTELPRO]]-style tactics against [[Black Lives Matter]] and [[Antifa]] by tracing and seizing their funding, the movement would cannibalize itself.
+(00:02:30) [[Portland]] experienced 90 days of continuous unrest involving [[Antifa]] and [[Black Lives Matter]], including an attempt to explode a federal courthouse with explosives and fireworks. (00:03:06) A caravan of approximately 600 [[Donald Trump|Trump]] supporters with trucks and flags entered [[Portland]], leading to a major clash with left-wing protesters. (00:03:19) [[Jay Bishop]], a member of the group [[Patriot Prayer]], was shot and killed by an [[Antifa]] member during the clashes in [[Portland]]. (00:04:02) Major media outlets like the [[Associated Press]] and the [[The New York Times|New York Times]] did not report that an [[Antifa]] member killed a [[Donald Trump|Trump]] supporter in [[Portland]]. (00:04:43) Nicholas J. Fuentes covered three days of the [[Republican Party|RNC]], specifically Monday, Wednesday, and Thursday. (00:05:50) Nicholas J. Fuentes hosted [[Patrick]], [[Jaden]], [[Beardson]], and [[Jake Lloyd]] in [[Chicago]] after plans to attend the [[Republican Party|RNC]] in [[Jacksonville]] were canceled. (00:07:29) [[Donald Trump]]'s speech at the [[Republican Party|RNC]] was distinct from the mainstream establishment performances of other speakers. (00:08:54) [[Mike Pence]] delivered a strong performance at the [[Republican Party|RNC]], and [[Donald Trump]]'s speech was also considered strong despite some expected "cringe" elements. (00:09:11) The final night of the [[Republican Party|RNC]] featured a fireworks display, an opera singer, and [[Donald Trump]]'s family in front of the [[White House]], which was considered a great success. (00:09:48) [[Donald Trump]]'s speech at the [[Republican Party|RNC]] drew 23.4 million television viewers, while [[Joe Biden]]'s drew 24.6 million, according to [[Nielsen]]. (00:10:00) The [[DNC]] averaged 21.6 million viewers across four nights, while the [[Republican Party|RNC]] averaged 19.4 million. (00:10:21) [[Donald Trump]] publicly disputed the [[Nielsen]] ratings on [[Twitter]], claiming the [[Republican Party|RNC]] had 147.9 million viewers when digital viewership was included. (00:11:56) Major cable news channels like [[MSNBC]] and [[Warner Bros. Discovery|CNN]] carried wall-to-wall coverage of the [[DNC]] but did not carry the first nights of the [[Republican Party|RNC]]. (00:12:30) The [[Republican Party|RNC]] featured a noticeable number of [[black]] speakers, with 12 appearing over the course of the convention. (00:14:16) [[Tim Scott]] invoked [[George Floyd]] and [[Breonna Taylor]] during his speech at the [[Republican Party|RNC]]. (00:14:28) [[Nikki Haley]] spoke of her [[India|Indian]] roots and alluded to her decision to take down the Confederate flag during her [[Republican Party|RNC]] speech. (00:14:33) [[Herschel Walker]] stated he had seen racism up close and that [[Donald Trump]] was not racist during his [[Republican Party|RNC]] speech. (00:15:14) [[Mark]] and [[Patricia McCloskey]], the couple [[who]] pointed guns at [[Black Lives Matter]] protesters in [[St. Louis]], spoke at the [[Republican Party|RNC]] about suburban safety. (00:16:48) Speeches at the [[Republican Party|RNC]] played to white anxiety about crime, immigration, and demographic change, with [[Donald Trump]] specifically talking about illegal immigration and the wall. (00:17:32) The [[Republican Party|RNC]] included speeches about rioting and looting from figures like the [[McCloskeys]] and a police chief, alongside messages from [[Mike Pence]] and [[Donald Trump]]. (00:19:16) [[Donald Trump]]'s 2016 victory involved flipping [[Wisconsin]], [[State of Michigan|Michigan]], and [[Commonwealth of Pennsylvania|Pennsylvania]] by tapping into the white working class, a realignment [[Republican Party|Republicans]] needed to double down on. (00:21:00) The [[Republican Party]] was losing or had lost states like [[State of California|California]], [[State of New Mexico|New Mexico]], [[State of Nevada|Nevada]], [[State of Colorado|Colorado]], [[Arizona]], and [[State of Virginia|Virginia]], making the Midwestern states crucial for future elections. (00:23:27) The [[Republican Party|RNC]]'s production value, including a giant fireworks display on the [[National Mall]] and an opera singer, was considered far superior to the [[DNC]]'s remote, audience-less presentation. (00:24:01) [[Joe Biden]] gave a 25-minute speech to an empty convention room during the [[DNC]], followed by a finale featuring video call grids of supporters. (00:27:08) The [[DNC]] featured a musical performance by [[Billy Porter]], while the [[Republican Party|RNC]] featured an Italian opera singer performing "Ave Maria" on a [[White House]] balcony. (00:31:38) [[Kenosha]], [[Wisconsin]], experienced widespread destruction including looting, arson, and a car lot fire causing $2.5 million in damage, following the police shooting of [[Jacob Blake]]. (00:32:11) [[Kyle Rittenhouse]], a 17-year-old [[Donald Trump|Trump]] supporter from [[Illinois]], shot and killed two people in [[Kenosha]] during the unrest. (00:36:46) The unrest in [[Kenosha]] began after [[Jacob Blake]] was shot seven times by [[Kenosha]] police officer [[Rustin Shesky]] while being taken into custody. (00:38:18) [[Jacob Blake]] was charged with sexual assault, trespassing, and disorderly conduct in connection with domestic abuse on July 6, and an arrest warrant was issued on July 7. (00:39:02) According to the [[Kenosha Professional Police Association]], [[Jacob Blake]] was armed with a knife, fought with officers, and put one in a headlock before being shot. (00:45:46) Following the looting of the Magnificent Mile in [[Chicago]], the [[city]] deployed a significant police presence, public works trucks, and implemented a curfew. (00:47:51) [[Portland]] and [[Washington D.C.|Washington, D.C.]] were among the worst-affected cities by prolonged unrest, largely due to the persistent presence of [[Antifa]]. (00:48:51) A caravan of about 600 vehicles carrying [[Donald Trump|Trump]] supporters arrived in downtown [[Portland]] and was confronted by protesters, leading to several arrests and a fatal shooting. (00:49:30) [[Donald Trump]] invoked [[Portland]] as a liberal [[city]] overrun with violence in a speech at the [[Republican Party|RNC]] as part of his law and order campaign theme. (00:50:07) [[Donald Trump|Trump]] supporters and [[Black Lives Matter]]/[[Antifa]] protesters directly engaged in [[Portland]], using non-lethal weapons like paintball guns, [[mace]], pepper spray, skateboards, and bricks. (00:52:53) [[Jay Bishop]] (also identified as Aaron Danielson), a supporter of the [[Patriot Prayer]] group, was shot and killed on a street in [[Portland]] around 8:45 PM local [[time]]. (00:53:28) [[Donald Trump]] praised [[Jay Bishop]] with a post on [[Twitter]] that read "Rest in Peace Jay." (00:54:48) [[Kyle Rittenhouse]] shot and killed two [[Antifa]] or [[Black Lives Matter]] protesters in [[Kenosha]], which he claimed was in self-defense. (00:57:50) [[James Fields]] was sentenced to life in prison plus 419 years for his actions during the [[Charlottesville]] rally. (01:00:39) In [[Louisville]], [[State of Kentucky|Kentucky]], charges were dropped against 92 protesters [[who]] demonstrated in front of the attorney general's home over the [[Breonna Taylor]] case. (01:01:17) [[Laura Trump]] said [[Donald Trump]] was going to meet with [[Jacob Blake]]'s family to talk about criminal justice reform. (01:01:58) [[Jared Kushner]] said he was going to talk to [[LeBron James]] about issues. (01:05:20) [[Kyle Rittenhouse]] was facing state charges in [[Wisconsin]] and could not receive a presidential pardon. (01:13:49) [[John Podesta]] discussed within the [[Democratic Party]] elite what would happen if [[Donald Trump]] won and [[Joe Biden]] refused to concede the election. (01:14:49) The components for a potential revolution or coup against [[Donald Trump]] existed, including media control, mobilizable protesters, hostile elements within the [[Republican Party]] and [[White House]], and a deep state willing to sabotage [[the president]]. (01:15:50) A scenario was outlined where media and social media could propagate a narrative of election illegitimacy, mobilize protesters, and create a constitutional crisis to install [[Joe Biden]] and [[Kamala Harris]]. (01:19:35) [[Black Lives Matter]]'s approval rating among white people had turned negative after initially being positive following the death of [[George Floyd]], while remaining unchanged for [[black]] and [[Hispanic]] people. (02:00:39) [[Elijah Schaffer]] responded to criticism by Nicholas J. Fuentes, calling him a "[[State of California|California]] conservative" while claiming to be "risking my life and shaping the narrative." (02:01:01) [[Elijah Schaffer]] deleted an interview he conducted with Nicholas J. Fuentes a couple of years prior and later smeared him. (02:02:05) [[Destiny]] debated [[Hasan Piker|Vaush]] on the [[Kyle Rittenhouse]] case, arguing it was okay to defend oneself from a violent mob, which led to significant criticism from [[the left]]. (02:03:50) During a debate, [[Hasan Piker|Vaush]] cited events from Marvel movies as a data point in an argument about real-life police encounters, which [[Destiny]] dismissed. (02:06:08) [[Salim]] asked Nicholas J. Fuentes if it was [[time]] for his "[[Washington D.C.|DC]] buddy" to "reign in the QAnon thing," suggesting it could mislead well-meaning [[Donald Trump|Trump]] supporters. (02:07:56) Two of the three people shot by [[Kyle Rittenhouse]] in [[Kenosha]] were reported to be [[Jews|Jewish]]. (02:13:20) [[Donald Trump]] claimed on [[Laura Ingraham]]'s show that "people in dark shadows [[who]] control the streets" and "planes of men in [[black]] uniforms" were controlling the riots and traveling the [[United States]]. (02:17:20) [[Kevin Brow]] suggested that if [[Donald Trump]] used [[COINTELPRO]]-style tactics against [[Black Lives Matter]] and [[Antifa]] by tracing and seizing their funding, the movement would cannibalize itself.
 
 ### AF 2020-08-27 0670
 (02:45:02) Nicholas J. Fuentes announced he would not be hosting a show the following day.
@@ -3121,7 +3121,7 @@
 (03:12:29) Nicholas J. Fuentes advised a viewer that a white "Good Evening" hoodie would match with more outfits than a red one from his merchandise line.
 
 ### AF 2020-08-27 0670
-(03:13:10) Nicholas J. Fuentes stated that an explicit message at the [[Republican Party|RNC]] claiming [[Democratic Party|Democrats]] put [[black]] people first would never be allowed, especially during [[Donald Trump|the president's]] speech.
+(03:13:10) Nicholas J. Fuentes stated that an explicit message at the [[Republican Party|RNC]] claiming [[Democratic Party|Democrats]] put [[black]] people first would never be allowed, especially during [[the president's]] speech.
 
 ### AF 2020-08-27 0670
 (03:13:53) Nicholas J. Fuentes contended that [[Republican Party|Republicans]] genuinely believe they can win the [[black]] vote and are not merely seeking the glory of claiming they stole it.
@@ -3283,13 +3283,13 @@
 (25:58:52) Nicholas J. Fuentes stated it was smart for the [[Republican Party]] to embrace patriotic themes at [[Fort McHenry]] to contrast with [[Democratic Party|Democrats]] [[who]] "obviously hate [[United States|America]]."
 
 ### AF 2020-08-26 0669
-(26:53:66) Nicholas J. Fuentes questioned why [[Lara Trump]] was speaking at the [[Republican Party|RNC]], noting she was there as [[Donald Trump|the president's]] daughter-in-law.
+(26:53:66) Nicholas J. Fuentes questioned why [[Lara Trump]] was speaking at the [[Republican Party|RNC]], noting she was there as [[the president's]] daughter-in-law.
 
 ### AF 2020-08-26 0669
 (29:36:96) Nicholas J. Fuentes assessed that [[Lara Trump]] was the best speaker out of the [[Donald Trump|Trump]] family so far, better than [[Eric Trump]], [[Donald Trump Jr.]], and [[Melania Trump]].
 
 ### AF 2020-08-26 0669
-(30:57:72) Nicholas J. Fuentes argued it was "tone deaf" for the [[Republican Party|RNC]] to talk about socialism while cities like [[City of Minneapolis|Minneapolis]] and [[City of Kenosha|Kenosha]] were "on fire."
+(30:57:72) Nicholas J. Fuentes argued it was "tone deaf" for the [[Republican Party|RNC]] to talk about socialism while cities like [[Minneapolis]] and [[Kenosha]] were "on fire."
 
 ### AF 2020-08-26 0669
 (34:09:40) Nicholas J. Fuentes stated that the [[Republican Party|RNC]] "could do so much better" than the presentations given so far.
@@ -3370,7 +3370,7 @@
 (01:41:19) Nicholas J. Fuentes reacted to [[Sean Parnell]]'s argument that the [[Democratic Party]] had become the party of "hedge fund managers, [[Los Angeles|Hollywood]] celebrities, tech moguls, and university professors" bloated with contempt for middle [[United States|America]].
 
 ### AF 2020-08-24 0668
-(01:44:01) Nicholas J. Fuentes criticized [[Sean Parnell]]'s speech, stating its message of inclusivity and "shoot for the stars" optimism was hollow, tone-deaf, and ineffective when cities were "on fire," specifically referencing [[City of Kenosha|Kenosha, Wisconsin]].
+(01:44:01) Nicholas J. Fuentes criticized [[Sean Parnell]]'s speech, stating its message of inclusivity and "shoot for the stars" optimism was hollow, tone-deaf, and ineffective when cities were "on fire," specifically referencing [[Kenosha, Wisconsin]].
 
 ### AF 2020-08-24 0668
 (01:44:06) Nicholas J. Fuentes argued that effective political appeals are based on tangible conditions, such as the [[Democratic Party]] abandoning white working-class constituents due to a cultural shift, rather than platitudes about freedom and prosperity.
@@ -3472,7 +3472,7 @@
 (02:00:19) Nicholas J. Fuentes, identifying as [[Catholic Church|Catholic]], stated his opposition to LGBTQ policies but argued [[Donald Trump]]'s material actions on the issue were limited to appointing [[Rick Grenell|Richard Grenell]] and an initiative to decriminalize homosexuality in [[African continent|Africa]].
 
 ### AF 2020-08-24 0668
-(02:01:25) Nicholas J. Fuentes acknowledged [[Donald Trump]]'s pro-[[Israel]] actions, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], designating the [[Iran|IRGC]] as a terrorist [[organization]], recognizing [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and overlooking settlement expansion and spying incidents.
+(02:01:25) Nicholas J. Fuentes acknowledged [[Donald Trump]]'s pro-[[Israel]] actions, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], designating the [[Iran|IRGC]] as a terrorist [[organization]], recognizing [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and overlooking settlement expansion and spying incidents.
 
 ### AF 2020-08-24 0668
 (02:02:04) Nicholas J. Fuentes noted that both [[Joe Biden]] and [[Kamala Harris]] were also Zionists [[who]] had spoken at [[AIPAC]] events.
@@ -3526,16 +3526,16 @@
 (02:14:15) Nicholas J. Fuentes dismissed a claim that the entire [[Republican Party]] was onboard with a long-term plan to "brown [[United States|America]]," citing their criticism of figures like [[Nikki Haley]].
 
 ### AF 2020-08-24 0668
-(02:14:53) Nicholas J. Fuentes pointed to [[Mitch McConnell]] and [[Mike Johnson|Kevin McCarthy]] supporting [[Elizabeth Warren]]'s amendment to rename military bases with Confederate names as evidence the [[Republican Party|GOP]] was not fully aligned with his movement's views.
+(02:14:53) Nicholas J. Fuentes pointed to [[Mitch McConnell]] and [[Kevin McCarthy]] supporting [[Elizabeth Warren]]'s amendment to rename military bases with Confederate names as evidence the [[Republican Party|GOP]] was not fully aligned with his movement's views.
 
 ### AF 2020-08-24 0668
 (02:15:31) Nicholas J. Fuentes commented on [[Donald Trump Jr.]]'s personal life, questioning his decision to leave his family for an older, "washed up [[Democratic Party|Democrat]]."
 
 ### AF 2020-08-24 0668
-(02:17:09) Nicholas J. Fuentes stated he splintered from the broader dissident right three years prior to create his show because he found their strategies, like the [[City of Charlottesville|Charlottesville]] rally, impractical and not geared toward winning.
+(02:17:09) Nicholas J. Fuentes stated he splintered from the broader dissident right three years prior to create his show because he found their strategies, like the [[Charlottesville]] rally, impractical and not geared toward winning.
 
 ### AF 2020-08-24 0668
-(02:18:01) Nicholas J. Fuentes recalled asking [[Richard Spencer]] on his former show "Nationalist Review" how events like [[City of Charlottesville|Charlottesville]] advanced their goals, and receiving an unsatisfactory answer about creating "something aspirational."
+(02:18:01) Nicholas J. Fuentes recalled asking [[Richard Spencer]] on his former show "Nationalist Review" how events like [[Charlottesville]] advanced their goals, and receiving an unsatisfactory answer about creating "something aspirational."
 
 ### AF 2020-08-24 0668
 (02:19:01) Nicholas J. Fuentes attributed the success of his "[[United States|America]] First" movement to its focus on pragmatism, winning, and results, in contrast to the alt-right's lack of platform, audience, and funding.
@@ -3601,7 +3601,7 @@
 (02:41:20) Nicholas J. Fuentes mocked leftist trolls [[who]] send him sexualized messages, stating real trolling should irritate the opponent, and referenced a picture of "[[Hasan Piker|Vaush]]" with his girlfriend as an effective counter-troll.
 
 ### AF 2020-08-24 0668
-(02:43:40) Nicholas J. Fuentes strongly disputed a claim that able-bodied people are required to work or volunteer to receive welfare benefits, stating abuse of systems like healthcare, public schools, and welfare in cities like [[City of Chicago|Chicago]] is extensive.
+(02:43:40) Nicholas J. Fuentes strongly disputed a claim that able-bodied people are required to work or volunteer to receive welfare benefits, stating abuse of systems like healthcare, public schools, and welfare in cities like [[Chicago]] is extensive.
 
 ### AF 2020-08-24 0668
 (02:45:50) Nicholas J. Fuentes addressed a viewer [[who]] came to his show out of "morbid curiosity" to watch a "neo-Nazi podcast," clarifying his show is not that and suggesting such curiosity often leads people to realize media portrayals are a "hoax."
@@ -3745,10 +3745,10 @@
 (00:38:14) Nicholas J. Fuentes criticized [[the United States]] Postal Service, stating that UPS and FedEx were more reliable for his packages.
 
 ### AF 2020-08-20 0665
-(00:38:32) Nicholas J. Fuentes referenced the arrest of [[Steven Crowder|Steve Bannon]], quipping that the Postal Service was "too busy arresting" people like him.
+(00:38:32) Nicholas J. Fuentes referenced the arrest of [[Steve Bannon]], quipping that the Postal Service was "too busy arresting" people like him.
 
 ### AF 2020-08-20 0665
-(00:38:47) Nicholas J. Fuentes and [[Patrick Casey]] discussed the arrest of [[Steven Crowder|Steve Bannon]] for fraud related to a "We Build the Wall" fundraising campaign, calling it emblematic of grifting in conservative politics.
+(00:38:47) Nicholas J. Fuentes and [[Patrick Casey]] discussed the arrest of [[Steve Bannon]] for fraud related to a "We Build the Wall" fundraising campaign, calling it emblematic of grifting in conservative politics.
 
 ### AF 2020-08-20 0665
 (00:40:57) Nicholas J. Fuentes characterized mainstream conservative politics as a "giant scam industry" where figures produce nothing and grift gullible boomers through email lists and shell corporations.
@@ -3757,7 +3757,7 @@
 (00:44:16) Nicholas J. Fuentes and his panel criticized a pre-recorded segment featuring [[Joe Biden]] speaking with a firefighter, noting it seemed artificial and not like a real conversation.
 
 ### AF 2020-08-20 0665
-(00:45:00) Nicholas J. Fuentes lamented the absence of the parody account "[[Donald Trump|Comrade Stump]]," which had promised a victory video after the 2016 election but never delivered.
+(00:45:00) Nicholas J. Fuentes lamented the absence of the parody account "[[Comrade Stump]]," which had promised a victory video after the 2016 election but never delivered.
 
 ### AF 2020-08-20 0665
 (00:45:52) Nicholas J. Fuentes mocked a segment with [[Joe Biden]] speaking to a union leader, calling it a "[[Joe Biden]] hologram" and questioning its authenticity.
@@ -3907,7 +3907,7 @@
 (02:27:18) Nicholas J. Fuentes argued that the 2020 [[Republican Party|Republican National Convention]] would largely feature politics as usual with speakers like [[Nikki Haley]] and [[Tim Scott]], but that [[Donald Trump|Trump]]'s appearance would be different.
 
 ### AF 2020-08-20 0665
-(02:27:56) Nicholas J. Fuentes viewed the [[Democratic Party]] as representing an existential threat to his movement in a way the [[Republican Party]] did not, citing [[Joe Biden]] naming his movement as villains after the [[City of Charlottesville|Charlottesville rally]].
+(02:27:56) Nicholas J. Fuentes viewed the [[Democratic Party]] as representing an existential threat to his movement in a way the [[Republican Party]] did not, citing [[Joe Biden]] naming his movement as villains after the [[Charlottesville rally]].
 
 ### AF 2020-08-20 0665
 (02:28:22) Nicholas J. Fuentes declared he was "all in" for [[Donald Trump|Trump]] in the 2020 election, framing it as a binary choice where a [[Joe Biden]] victory would lead to the federal government targeting his movement.
@@ -4003,7 +4003,7 @@
 (03:16:17) Nicholas J. Fuentes defended his support for [[Laura Loomer]], a [[Jews|Jewish Zionist]], despite their disagreement on [[Israel]], arguing she was a friend, a victim of censorship, a potential congresswoman, and a voice on issues like [[Concept|Big Tech]] and immigration.
 
 ### AF 2020-08-20 0665
-(03:17:35) Nicholas J. Fuentes criticized the [[Donald Trump|Trump]] administration for prioritizing policies favorable to [[Israel]]—like recognizing sovereignty over the [[Israel|Golan Heights]] and moving the [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]]—over domestic [[United States|America]] First priorities like the border wall.
+(03:17:35) Nicholas J. Fuentes criticized the [[Donald Trump|Trump]] administration for prioritizing policies favorable to [[Israel]]—like recognizing sovereignty over the [[Israel|Golan Heights]] and moving the [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]]—over domestic [[United States|America]] First priorities like the border wall.
 
 ### AF 2020-08-20 0665
 (03:18:44) Nicholas J. Fuentes claimed that during the "Groyper Wars," people advised him to stop talking about [[Israel]] if he wanted a career, but he refused.
@@ -4045,7 +4045,7 @@
 (03:59:54) Nicholas J. Fuentes analyzed that [[Donald Trump|Trump]]'s 2020 electoral path required holding typical [[Republican Party|Republican]] states plus swing states like [[Arizona]], [[State of Florida|Florida]], and [[North Carolina]], and winning just one of the Midwestern states of [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Michigan|Michigan]], [[Wisconsin]], or [[Minnesota]].
 
 ### AF 2020-08-20 0665
-(04:03:48) Nicholas J. Fuentes predicted that if [[Donald Trump|Trump]] won the 2020 election, [[the left]]'s reaction would escalate from the 2016 protests to widespread political violence and riots akin to those in [[City of Portland|Portland]] in every major [[city]].
+(04:03:48) Nicholas J. Fuentes predicted that if [[Donald Trump|Trump]] won the 2020 election, [[the left]]'s reaction would escalate from the 2016 protests to widespread political violence and riots akin to those in [[Portland]] in every major [[city]].
 
 ### AF 2020-08-19 0664
 (00:00:00) Nicholas J. Fuentes announced the third night of the [[Democratic National Convention]] would feature speakers including [[Barack Obama]], [[Hillary Clinton]], and [[Nancy Pelosi]].
@@ -4108,7 +4108,7 @@
 (00:03:41) Nicholas J. Fuentes characterized [[Kamala Harris]] as a [[person]] of Jamaican and [[India|Indian]] descent, and [[Barack Obama]] as half-white, arguing they do not represent the typical African [[United States|American]] demographic.
 
 ### AF 2020-08-12 0660
-(00:05:25) [[Joe Biden]] and [[Kamala Harris]] held their first joint press conference on the third anniversary of the Unite the Right rally in [[City of Charlottesville|Charlottesville]], an event Nicholas J. Fuentes attended.
+(00:05:25) [[Joe Biden]] and [[Kamala Harris]] held their first joint press conference on the third anniversary of the Unite the Right rally in [[Charlottesville]], an event Nicholas J. Fuentes attended.
 
 ### AF 2020-08-12 0660
 (00:08:13) During a press conference, [[Donald Trump]] announced a proposal to permanently eliminate the payroll tax if re-elected, a policy shift Nicholas J. Fuentes claimed was largely ignored by major media outlets.
@@ -4234,16 +4234,16 @@
 (01:08:55) Nicholas J. Fuentes argued that high-skill immigration, often cited for bringing in doctors and programmers, was detrimental as it displaced [[United States|American]] graduates, lowered wages, and fundamentally changed the demographic character of the [[United States]].
 
 ### AF 2020-08-10 0658
-(00:09:28) Nicholas J. Fuentes announced that his show would cover widespread looting and rioting in [[City of Chicago|Chicago]], which he described as his hometown, following events from the previous night.
+(00:09:28) Nicholas J. Fuentes announced that his show would cover widespread looting and rioting in [[Chicago]], which he described as his hometown, following events from the previous night.
 
 ### AF 2020-08-10 0658
-(00:51:40) Nicholas J. Fuentes reported that he had streamed live coverage of the [[City of Chicago|Chicago]] looting as it happened, which was later available on his website.
+(00:51:40) Nicholas J. Fuentes reported that he had streamed live coverage of the [[Chicago]] looting as it happened, which was later available on his website.
 
 ### AF 2020-08-10 0658
-(01:02:42) Nicholas J. Fuentes stated that he visited downtown [[City of Chicago|Chicago]] in the afternoon following the looting, observing smashed windows on [[State of Michigan|Michigan]] Avenue and stores being boarded up in anticipation of further violence.
+(01:02:42) Nicholas J. Fuentes stated that he visited downtown [[Chicago]] in the afternoon following the looting, observing smashed windows on [[State of Michigan|Michigan]] Avenue and stores being boarded up in anticipation of further violence.
 
 ### AF 2020-08-10 0658
-(03:12:85) Nicholas J. Fuentes reported that a school district in [[Evanston]], north of [[City of Chicago|Chicago]], announced a phased return to in-[[person]] instruction that would give priority to [[black]] and brown students, among other categories.
+(03:12:85) Nicholas J. Fuentes reported that a school district in [[Evanston]], north of [[Chicago]], announced a phased return to in-[[person]] instruction that would give priority to [[black]] and brown students, among other categories.
 
 ### AF 2020-08-10 0658
 (08:55:39) Nicholas J. Fuentes cited a report stating that [[Evanston]] School District 65's reopening plan, titled "Reimagining Education," granted priority for in-[[person]] instruction to students receiving free or reduced lunch, [[black]] and brown students, and others.
@@ -4255,16 +4255,16 @@
 (13:25:83) Nicholas J. Fuentes stated that the union at [[The New York Times]] had demanded that by 2025, 50% of the company's workforce be non-white and that mentorship programs and promotions be reserved for non-white employees.
 
 ### AF 2020-08-10 0658
-(15:23:57) Nicholas J. Fuentes referenced an incident in the [[United States Capitol|Capitol Hill]] Autonomous Zone in [[City of Seattle|Seattle]] where, he claimed, a park was temporarily closed to white people, which some conservative broadcasters compared to Jim Crow segregation.
+(15:23:57) Nicholas J. Fuentes referenced an incident in the [[United States Capitol|Capitol Hill]] Autonomous Zone in [[Seattle]] where, he claimed, a park was temporarily closed to white people, which some conservative broadcasters compared to Jim Crow segregation.
 
 ### AF 2020-08-10 0658
-(23:48:79) Nicholas J. Fuentes read a report from the [[Chicago Tribune]] stating that hundreds of people had swept through downtown [[City of Chicago|Chicago]], looting stores, confronting police, and exchanging gunfire, resulting in over 100 arrests and 13 injured officers.
+(23:48:79) Nicholas J. Fuentes read a report from the [[Chicago Tribune]] stating that hundreds of people had swept through downtown [[Chicago]], looting stores, confronting police, and exchanging gunfire, resulting in over 100 arrests and 13 injured officers.
 
 ### AF 2020-08-10 0658
-(24:19:49) Nicholas J. Fuentes quoted [[City of Chicago|Chicago]] Mayor [[Lori Lightfoot]] as calling the downtown looting "abject criminal behavior, pure and simple."
+(24:19:49) Nicholas J. Fuentes quoted [[Chicago]] Mayor [[Lori Lightfoot]] as calling the downtown looting "abject criminal behavior, pure and simple."
 
 ### AF 2020-08-10 0658
-(24:37:49) Nicholas J. Fuentes stated that [[City of Chicago|Chicago]] [[city]] officials attributed the looting to social media posts following an officer-involved shooting in the [[Englewood]] neighborhood, where a 20-year-old man was shot after firing at police.
+(24:37:49) Nicholas J. Fuentes stated that [[Chicago]] [[city]] officials attributed the looting to social media posts following an officer-involved shooting in the [[Englewood]] neighborhood, where a 20-year-old man was shot after firing at police.
 
 ### AF 2020-08-10 0658
 (25:04:85) Nicholas J. Fuentes reported that downtown alderman [[Brian Hopkins]] criticized [[Lori Lightfoot]] for failing to develop an effective strategy following looting incidents in May and June.
@@ -4279,7 +4279,7 @@
 (31:41:59) Nicholas J. Fuentes quoted a statement from [[Black Lives Matter Chicago]] which read, "Lightfoot instead spent her [[time]] attacking looters," and argued that people would keep rising up until the [[Chicago Police Department]] was abolished.
 
 ### AF 2020-08-10 0658
-(33:56:01) Nicholas J. Fuentes noted that [[City of Chicago|Chicago]] had a mandatory two-week quarantine for travelers from 22 states, with fines for non-compliance, contrasting this enforcement with the perceived lack of consequences for looters.
+(33:56:01) Nicholas J. Fuentes noted that [[Chicago]] had a mandatory two-week quarantine for travelers from 22 states, with fines for non-compliance, contrasting this enforcement with the perceived lack of consequences for looters.
 
 ### AF 2020-08-10 0658
 (39:13:87) Nicholas J. Fuentes argued that companies like [[Amazon Inc.|Amazon]], [[Apple Inc.|Apple]], and [[Facebook]] had seen their market capitalization increase significantly since the start of the coronavirus pandemic, benefiting while others suffered.
@@ -4288,25 +4288,25 @@
 (40:58:57) Nicholas J. Fuentes claimed that [[Lori Lightfoot]] and the federal government were sympathetic to [[Antifa]] and [[Black Lives Matter]], which he said sent a message that the laws would not be enforced against them.
 
 ### AF 2020-08-10 0658
-(41:38:81) Nicholas J. Fuentes recalled that during the [[George Floyd]] protests in [[City of Minneapolis|Minneapolis]], some on [[the left]] claimed the riots were instigated by white nationalists, while some on the right claimed they were instigated by white [[Antifa]].
+(41:38:81) Nicholas J. Fuentes recalled that during the [[George Floyd]] protests in [[Minneapolis]], some on [[the left]] claimed the riots were instigated by white nationalists, while some on the right claimed they were instigated by white [[Antifa]].
 
 ### AF 2020-08-10 0658
 (43:36:45) Nicholas J. Fuentes stated that past riots in [[Ferguson]] (2014), [[Los Angeles]] (1992), and after [[Martin Luther King Jr.]]'s assassination (1968) were predominantly carried out by [[black]] individuals.
 
 ### AF 2020-08-10 0658
-(44:09:63) Nicholas J. Fuentes contrasted the [[City of Minneapolis|Minneapolis]] looting, which used [[George Floyd]] as a pretext, with the [[City of Chicago|Chicago]] looting, which he said occurred with little pretext following a dubious report about a shooting in [[Englewood]].
+(44:09:63) Nicholas J. Fuentes contrasted the [[Minneapolis]] looting, which used [[George Floyd]] as a pretext, with the [[Chicago]] looting, which he said occurred with little pretext following a dubious report about a shooting in [[Englewood]].
 
 ### AF 2020-08-10 0658
 (46:44:69) Nicholas J. Fuentes characterized [[Black Lives Matter]] as an ethnic interest lobby that believes "what's good for [[blacks]] is good," lacking [[universal]] moral principles against actions like stealing when committed by [[black]] people.
 
 ### AF 2020-08-10 0658
-(49:57:69) Nicholas J. Fuentes argued that unlike the [[City of Minneapolis|Minneapolis]] riots, the [[City of Chicago|Chicago]] looters traveled from the predominantly [[black]] [[south]] side to loot the affluent, predominantly white Gold Coast neighborhood, contradicting narratives that [[black]] communities only destroy their own neighborhoods.
+(49:57:69) Nicholas J. Fuentes argued that unlike the [[Minneapolis]] riots, the [[Chicago]] looters traveled from the predominantly [[black]] [[south]] side to loot the affluent, predominantly white Gold Coast neighborhood, contradicting narratives that [[black]] communities only destroy their own neighborhoods.
 
 ### AF 2020-08-10 0658
-(52:51:67) Nicholas J. Fuentes identified [[black]] criminality as the central problem in the looting across [[City of Chicago|Chicago]], [[City of Minneapolis|Minneapolis]], and other cities, criticizing conservatives for refusing to discuss race and demographics.
+(52:51:67) Nicholas J. Fuentes identified [[black]] criminality as the central problem in the looting across [[Chicago]], [[Minneapolis]], and other cities, criticizing conservatives for refusing to discuss race and demographics.
 
 ### AF 2020-08-10 0658
-(54:50:69) Nicholas J. Fuentes stated that the [[City of Chicago|Chicago]] neighborhoods burned during race riots in the 1960s had never recovered, unlike the [[city]]'s rapid rebuilding after the Great [[City of Chicago|Chicago]] Fire of 1871.
+(54:50:69) Nicholas J. Fuentes stated that the [[Chicago]] neighborhoods burned during race riots in the 1960s had never recovered, unlike the [[city]]'s rapid rebuilding after the Great [[Chicago]] Fire of 1871.
 
 ### AF 2020-08-10 0658
 (01:02:03:29) Nicholas J. Fuentes mentioned that commentator [[Elijah Schaefer]] had complained on [[Twitter]] about receiving critical direct messages from his followers, which Nicholas J. Fuentes characterized as mild and an inevitable part of being online.
@@ -4327,10 +4327,10 @@
 (01:12:13:61) Nicholas J. Fuentes responded to a viewer's sentiment that widespread looting signaled "it's all over" by arguing that life and political struggle continue until the return of [[Jesus Christ]].
 
 ### AF 2020-08-10 0658
-(01:13:20:83) Nicholas J. Fuentes joked that looters [[who]] raided a [[Portillo's]] restaurant in [[City of Chicago|Chicago]] might have just wanted a chocolate cake shake, and recommended the restaurant's Italian beef sandwich.
+(01:13:20:83) Nicholas J. Fuentes joked that looters [[who]] raided a [[Portillo's]] restaurant in [[Chicago]] might have just wanted a chocolate cake shake, and recommended the restaurant's Italian beef sandwich.
 
 ### AF 2020-08-10 0658
-(01:14:14:79) Nicholas J. Fuentes criticized the Gen Z [[Republican Party|GOP]] podcast for discussing how to make the [[Republican Party]] more palatable, calling it a disconnect from the reality of cities like [[City of Chicago|Chicago]] being "pillaged and destroyed."
+(01:14:14:79) Nicholas J. Fuentes criticized the Gen Z [[Republican Party|GOP]] podcast for discussing how to make the [[Republican Party]] more palatable, calling it a disconnect from the reality of cities like [[Chicago]] being "pillaged and destroyed."
 
 ### AF 2020-08-10 0658
 (01:15:28:21) Nicholas J. Fuentes argued that the 500-year dominance of [[Europe|Europeans]] in world history was ending, and that politics was reverting to primordial tribal and racial conflicts, which ideologies like those of [[Mike Cernovich]] ignored.
@@ -4339,7 +4339,7 @@
 (01:19:35:63) Nicholas J. Fuentes encouraged viewers interested in graphic design, video editing, or programming to email him, as the movement had need for such skills and might offer paid subcontracting work.
 
 ### AF 2020-08-10 0658
-(01:22:24:37) Nicholas J. Fuentes quoted a viewer [[who]] had moved from [[City of Chicago|Chicago]] to [[State of Florida|Florida]], saying "The water tower survived the great fire, but can't survive diversity."
+(01:22:24:37) Nicholas J. Fuentes quoted a viewer [[who]] had moved from [[Chicago]] to [[State of Florida|Florida]], saying "The water tower survived the great fire, but can't survive diversity."
 
 ### AF 2020-08-10 0658
 (01:23:28:45) Nicholas J. Fuentes responded to a question about whether [[Hasan Piker|Vaush]] had agreed to debate him, stating that [[Hasan Piker|Vaush]] had been "running from me for months" and that he would be willing to debate on [[Hasan Piker|Vaush]]'s channel on topics like immigration, demographics, or [[George Floyd]].
@@ -4429,7 +4429,7 @@
 (00:52:20) Nicholas J. Fuentes criticized [[Donald Trump]]'s response to the George Floyd protests, which included an executive order looking at police chokeholds, arguing that the correct response was to call for more police, not less.
 
 ### AF 2020-08-05 0655
-(00:53:54) Nicholas J. Fuentes noted that it was the [[Republican Party]] that passed a bill forcing [[Donald Trump|the president]] to change the names of military bases named after Confederate generals.
+(00:53:54) Nicholas J. Fuentes noted that it was the [[Republican Party]] that passed a bill forcing [[the president]] to change the names of military bases named after Confederate generals.
 
 ### AF 2020-08-05 0655
 (01:21:46) [[Jacob Wohl]] was involved in a scandal with a former [[USAID]] deputy, which involved salacious text messages and led to a public humiliation that Nicholas J. Fuentes used as an example to argue for banning women from political movements.
@@ -4585,7 +4585,7 @@
 (01:02:35) Nicholas J. Fuentes stated that a crisis of governance arises from a conflict over legitimacy and the projection of power, which elections are designed to resolve.
 
 ### AF 2020-08-03 0653
-(01:03:36) Nicholas J. Fuentes argued that a significant portion of the [[Democratic Party]] does not view the Electoral College as a legitimate form of electing [[Donald Trump|the president]].
+(01:03:36) Nicholas J. Fuentes argued that a significant portion of the [[Democratic Party]] does not view the Electoral College as a legitimate form of electing [[the president]].
 
 ### AF 2020-08-03 0653
 (01:05:21) Nicholas J. Fuentes stated that in 2016, [[Donald Trump]]'s Electoral College victory was reluctantly accepted by [[Democratic Party|Democrats]], but the 2020 election's abnormalities created a legitimate threat of a constitutional crisis or [[civil war]].
@@ -4687,7 +4687,7 @@
 (02:07:43) Nicholas J. Fuentes identified [[Donald Trump]] and [[Tucker Carlson]] as the only figures on his side [[who]] wield significant power, and stated the need to build a national infrastructure and [[organization]] to gain institutional influence.
 
 ### AF 2020-08-03 0653
-(02:08:25) Nicholas J. Fuentes thanked a viewer for a recommendation of the TV show *[[City of Chicago|Chicago]] P.D.*, praising its portrayal of a "based" white cop [[who]] breaks rules, and noted such alpha male characters have become rare.
+(02:08:25) Nicholas J. Fuentes thanked a viewer for a recommendation of the TV show *[[Chicago]] P.D.*, praising its portrayal of a "based" white cop [[who]] breaks rules, and noted such alpha male characters have become rare.
 
 ### AF 2020-08-03 0653
 (02:09:51) Nicholas J. Fuentes lamented the state of the [[Republican Party]], recounting a conversation where party co-workers argued homosexuality was acceptable because gay people wouldn't find true love otherwise.
@@ -4750,7 +4750,7 @@
 (02:27:23) Nicholas J. Fuentes continued his sarcastic bit, stating he would go out of his way to go to [[black]]-owned franchises to experience poor service.
 
 ### AF 2020-08-03 0653
-(02:27:53) Nicholas J. Fuentes stated that when choosing where to eat, he drives [[west]] from [[City of Chicago|Chicago]] to avoid [[black]]-majority areas, claiming the quality of establishments like [[McDonald's]] improves the further [[west]] one goes.
+(02:27:53) Nicholas J. Fuentes stated that when choosing where to eat, he drives [[west]] from [[Chicago]] to avoid [[black]]-majority areas, claiming the quality of establishments like [[McDonald's]] improves the further [[west]] one goes.
 
 ### AF 2020-08-03 0653
 (02:28:27) Nicholas J. Fuentes critiqued the "NPC meme," arguing its original meaning—that most people lack an internal monologue and run on predictable tracks like non-player characters in video games—was misunderstood by the masses, [[who]] turned it into a simple partisan insult against liberals.
@@ -4876,7 +4876,7 @@
 (01:10:03) Nicholas J. Fuentes argued that mail-in ballot fraud systematically benefits the [[Democratic Party]], citing an example of his deceased uncle receiving a ballot.
 
 ### AF 2020-07-30 0651
-(02:17:77) Nicholas J. Fuentes criticized the limited effectiveness of federal agent deployments in cities like [[City of Portland|Portland]], where a phased withdrawal began despite ongoing riots and a lack of serious charges against rioters.
+(02:17:77) Nicholas J. Fuentes criticized the limited effectiveness of federal agent deployments in cities like [[Portland]], where a phased withdrawal began despite ongoing riots and a lack of serious charges against rioters.
 
 ### AF 2020-07-30 0651
 (02:23:27) Nicholas J. Fuentes argued that the suppression of riots requires the arrest and severe sentencing of participants to establish consequences, which had not occurred under the federal deployments.
@@ -4924,16 +4924,16 @@
 (01:35:40) Nicholas J. Fuentes declared that he and his movement do not stand with [[Matt Gaetz]] due to his support for [[Turning Point USA]], his use of a non-white foster child as a rhetorical token, and his advocacy for "Judeo-[[Christianity]]."
 
 ### AF 2020-07-30 0651
-(01:36:44) A commenter asked if Nicholas J. Fuentes recognizes the [[Russian]] annexation of [[City of Sevastopol|Crimea]] and whether the [[United States]] should, to which Fuentes replied that he is not a sovereign and his recognition does not matter.
+(01:36:44) A commenter asked if Nicholas J. Fuentes recognizes the [[Russian]] annexation of [[Crimea]] and whether the [[United States]] should, to which Fuentes replied that he is not a sovereign and his recognition does not matter.
 
 ### AF 2020-07-30 0651
-(01:37:14) Nicholas J. Fuentes argued that the [[United States]] should not recognize [[Russia]]'s sovereignty over [[City of Sevastopol|Crimea]] because the annexation was illegal and emboldens other countries to make land grabs, though the [[United States|U.S]]. should not fight wars over the [[Black Sea]].
+(01:37:14) Nicholas J. Fuentes argued that the [[United States]] should not recognize [[Russia]]'s sovereignty over [[Crimea]] because the annexation was illegal and emboldens other countries to make land grabs, though the [[United States|U.S]]. should not fight wars over the [[Black Sea]].
 
 ### AF 2020-07-30 0651
-(01:37:39) Nicholas J. Fuentes stated that the 1994 Budapest Memorandum promised [[Ukraine]] a defense guarantee from the [[United States]] in exchange for giving up Soviet-era nuclear weapons stored on its territory, a promise the [[United States|U.S]]. failed to uphold when [[Russia]] annexed [[City of Sevastopol|Crimea]].
+(01:37:39) Nicholas J. Fuentes stated that the 1994 Budapest Memorandum promised [[Ukraine]] a defense guarantee from the [[United States]] in exchange for giving up Soviet-era nuclear weapons stored on its territory, a promise the [[United States|U.S]]. failed to uphold when [[Russia]] annexed [[Crimea]].
 
 ### AF 2020-07-30 0651
-(01:38:42) Nicholas J. Fuentes argued that failing to uphold security guarantees like the Budapest Memorandum compromises [[United States]] power projection, as seen when [[China]] builds artificial islands in the [[South China Sea]] following the precedent of [[Russia]]'s actions in [[City of Sevastopol|Crimea]].
+(01:38:42) Nicholas J. Fuentes argued that failing to uphold security guarantees like the Budapest Memorandum compromises [[United States]] power projection, as seen when [[China]] builds artificial islands in the [[South China Sea]] following the precedent of [[Russia]]'s actions in [[Crimea]].
 
 ### AF 2020-07-30 0651
 (01:40:13) Nicholas J. Fuentes stated that [[Russia]] will likely pursue more territorial gains in regions like the [[Donetsk|Donbass]], Abkhazia, and [[Southern United States|South]] Ossetia in [[Country of Georgia|Georgia]], maintaining influence through spheres of control rather than direct administration.
@@ -5008,7 +5008,7 @@
 (02:06:08) Nicholas J. Fuentes stated his show has unique staying power, growing bigger each year over three years, and that it is more difficult to maintain breakout success than to achieve it.
 
 ### AF 2020-07-30 0651
-(02:06:45) Nicholas J. Fuentes recounted that he saw potential in streamer "Cammie" early on due to his humor, looks, and ability to achieve viral moments, and advised him to maintain his platforms and consistency when he visited [[City of Chicago|Chicago]] with the goal of moving to the [[United States]].
+(02:06:45) Nicholas J. Fuentes recounted that he saw potential in streamer "Cammie" early on due to his humor, looks, and ability to achieve viral moments, and advised him to maintain his platforms and consistency when he visited [[Chicago]] with the goal of moving to the [[United States]].
 
 ### AF 2020-07-30 0651
 (02:08:19) Nicholas J. Fuentes took credit for having an eye for talent, noting that streamer "Cammie" is now a breakout success six months after their collaboration, despite initial criticism from his audience.
@@ -5095,7 +5095,7 @@
 (00:00:00) Nicholas J. Fuentes opened his nightly broadcast, announcing the featured story would be the congressional testimony of Attorney General [[Bill Barr|William Barr]].
 
 ### AF 2020-07-28 0650
-(00:01:11) Nicholas J. Fuentes stated the main subject of [[Bill Barr|William Barr]]'s testimony was the use of non-lethal chemical agents like pepper spray and tear gas against rioters in cities like [[City of Portland|Portland]].
+(00:01:11) Nicholas J. Fuentes stated the main subject of [[Bill Barr|William Barr]]'s testimony was the use of non-lethal chemical agents like pepper spray and tear gas against rioters in cities like [[Portland]].
 
 ### AF 2020-07-28 0650
 (00:02:57) Nicholas J. Fuentes announced he would also discuss the [[DNC]] convention in [[Milwaukee]].
@@ -5122,7 +5122,7 @@
 (00:11:02) Nicholas J. Fuentes concluded that the Groyper movement "cannot be ignored anymore" within conservative politics.
 
 ### AF 2020-07-28 0650
-(00:12:11) Nicholas J. Fuentes reported that [[Antifa]] rioters in [[City of Portland|Portland]] threw an improvised explosive device at a federal courthouse, an event he argued was underreported due to the normalization of ongoing riots.
+(00:12:11) Nicholas J. Fuentes reported that [[Antifa]] rioters in [[Portland]] threw an improvised explosive device at a federal courthouse, an event he argued was underreported due to the normalization of ongoing riots.
 
 ### AF 2020-07-28 0650
 (00:13:56) Nicholas J. Fuentes cited a [[The Daily Wire|Daily Wire]] article, which itself cited the [[Associated Press]], reporting that over 100 law enforcement agencies had pulled out of security agreements for the [[DNC]] in [[Milwaukee]].
@@ -5158,7 +5158,7 @@
 (00:26:29) Nicholas J. Fuentes predicted that the police boycott of the [[DNC]] was a foreshadowing of a broader future where police simply lack the resources to protect entire cities due to defunding movements.
 
 ### AF 2020-07-28 0650
-(00:28:00) Nicholas J. Fuentes criticized the congressional testimony of [[Bill Barr|William Barr]] as a "media circus" and a "political charade" designed to generate sound bites rather than address the ongoing riots in [[City of Portland|Portland]] and [[City of Seattle|Seattle]].
+(00:28:00) Nicholas J. Fuentes criticized the congressional testimony of [[Bill Barr|William Barr]] as a "media circus" and a "political charade" designed to generate sound bites rather than address the ongoing riots in [[Portland]] and [[Seattle]].
 
 ### AF 2020-07-28 0650
 (00:30:46) Nicholas J. Fuentes quoted a [[Fox News]] report summarizing [[Bill Barr|William Barr]]'s testimony, in which [[Bill Barr|William Barr]] stated violent rioters had "hijacked" the [[George Floyd]] protests and slammed the "bogus Russiagate scandal."
@@ -5167,7 +5167,7 @@
 (00:32:42) Nicholas J. Fuentes described watching a portion of the hearing where [[Democratic Party|Democratic]] congresswomen asked leading questions and cut off [[Bill Barr|William Barr]]'s answers, while [[Bill Barr|William Barr]] used right-wing talking points to defend the [[Donald Trump|Trump]] administration.
 
 ### AF 2020-07-28 0650
-(00:34:06) Nicholas J. Fuentes expressed frustration that [[Bill Barr|William Barr]]'s [[U.S. Department of Justice|Department of Justice]] had not brought serious charges against rioters in [[City of Portland|Portland]] and [[City of Seattle|Seattle]] despite two months of unrest.
+(00:34:06) Nicholas J. Fuentes expressed frustration that [[Bill Barr|William Barr]]'s [[U.S. Department of Justice|Department of Justice]] had not brought serious charges against rioters in [[Portland]] and [[Seattle]] despite two months of unrest.
 
 ### AF 2020-07-28 0650
 (00:35:40) Nicholas J. Fuentes cited a report from [[Revolver News]] claiming that sources within the [[U.S. Department of Justice|DOJ]] said [[Bill Barr|William Barr]] was "eager to stop the protests but he is simply scared" of internal "swamp creature" resistance.
@@ -5185,7 +5185,7 @@
 (00:42:17) Nicholas J. Fuentes suggested the real obstacle to restoring order was "swamp creatures" and "left-wing sympathizers" within [[Bill Barr|William Barr]]'s own [[U.S. Department of Justice|Department of Justice]] sabotaging efforts against [[Antifa]].
 
 ### AF 2020-07-28 0650
-(00:43:26) Nicholas J. Fuentes concluded that the "real news" was the continuing lawlessness in [[City of Portland|Portland]] and [[City of Seattle|Seattle]], which stood in contrast to the political theater of [[Bill Barr|William Barr]]'s testimony.(01:35:05) Nicholas J. Fuentes argued that fundamental racial differences make mass migration and a stable, unified society impossible, leading to an inescapable crisis of identity, culture, and conflict.
+(00:43:26) Nicholas J. Fuentes concluded that the "real news" was the continuing lawlessness in [[Portland]] and [[Seattle]], which stood in contrast to the political theater of [[Bill Barr|William Barr]]'s testimony.(01:35:05) Nicholas J. Fuentes argued that fundamental racial differences make mass migration and a stable, unified society impossible, leading to an inescapable crisis of identity, culture, and conflict.
 
 ### AF 2020-07-28 0650
 (01:36:06) Nicholas J. Fuentes stated that many older individuals do not understand video gaming culture, and while he identifies as a recreational gamer [[who]] plays socially with friends, he believes playing games to the detriment of other life responsibilities is problematic.
@@ -5248,13 +5248,13 @@
 (02:03:54) Nicholas J. Fuentes questioned a super-chatter's claim that [[Donald Trump|Trump]] chose him for a "special donation," unsure if it referred to a [[Republican Party|Republican National Committee]] text message.
 
 ### AF 2020-07-28 0650
-(02:04:25) Nicholas J. Fuentes was informed about the [[Russian]] film *Brother 2*, shot in [[City of Chicago|Chicago]] in 2000, which the super-chatter said accurately depicted worsening race relations in diverse cities.
+(02:04:25) Nicholas J. Fuentes was informed about the [[Russian]] film *Brother 2*, shot in [[Chicago]] in 2000, which the super-chatter said accurately depicted worsening race relations in diverse cities.
 
 ### AF 2020-07-28 0650
-(02:05:01) Nicholas J. Fuentes asserted that his perspective on race is informed by four generations of his family's experience living in [[City of Chicago|Chicago]], including his grandparents [[who]] lived through race riots and his parents [[who]] owned a business in a bad neighborhood on the [[Southern United States|South]] Side.
+(02:05:01) Nicholas J. Fuentes asserted that his perspective on race is informed by four generations of his family's experience living in [[Chicago]], including his grandparents [[who]] lived through race riots and his parents [[who]] owned a business in a bad neighborhood on the [[Southern United States|South]] Side.
 
 ### AF 2020-07-28 0650
-(02:06:46) Nicholas J. Fuentes recounted that his parents' small business in [[City of Chicago|Chicago]] had to comply with a [[city]] program supporting minority-owned businesses, which in practice meant finding a [[black]] [[person]] to act as a front to purchase items like computers from stores like [[Best Buy]].
+(02:06:46) Nicholas J. Fuentes recounted that his parents' small business in [[Chicago]] had to comply with a [[city]] program supporting minority-owned businesses, which in practice meant finding a [[black]] [[person]] to act as a front to purchase items like computers from stores like [[Best Buy]].
 
 ### AF 2020-07-28 0650
 (02:08:46) Nicholas J. Fuentes concluded that racial problems are intergenerational and inherent, arguing that diversity has always led to trouble throughout history and across the world.
@@ -5386,7 +5386,7 @@
 (02:54:28) Nicholas J. Fuentes concluded the monologue, promoted his website archive, and thanked super-chatters including "cold cheese, Bobby Gray, Gemi and Anadose."
 
 ### AF 2020-07-27 0649
-(00:29:06) The [[Republican Party]] proposed a new coronavirus relief package that included a second round of $1,200 direct payments to individuals and $2,400 to couples, with the same income thresholds as the previous round. (00:30:66) The [[Republican Party]]'s proposed relief bill slashed enhanced federal unemployment benefits from a $600 weekly bonus to a system based on 70% of previous wages, capped at a maximum of $500 per week. (00:53:96) A media report, citing experts and former law enforcement officials, stated that far-right terrorism was the number one threat to the [[United States]] and governments on both sides of [[the Atlantic]]. (00:58:62) [[Bill Kristol]] retweeted and helped promote a new podcast called "Gen Z [[Republican Party|GOP]]" launched by four young men, which was also covered by the [[The Boston Globe|Boston Globe]] and other media outlets. (01:08:10) The "Gen Z [[Republican Party|GOP]]" group, founded by individuals including [[Sam Garber|Samuel Garber]], officially launched with a video stating their opposition to [[Donald Trump]] and a desire to build a future [[Republican Party]] that stays away from "unproductive discourse." (01:11:36) The "Gen Z [[Republican Party|GOP]]" group's stated platform included support for free trade, fiscal responsibility, bipartisan border security reform, public-private partnerships for healthcare, climate change solutions, and proclaiming that "[[Black Lives Matter]]." (01:13:43) [[Steven Crowder|Steve Bannon]] once characterized figures like [[Paul Ryan]] as people "grown in a Petri dish at the [[Heritage Foundation]]." (01:14:59) Nicholas J. Fuentes argued that establishment conservative figures like [[Charlie Kirk]], [[Ben Shapiro]], and [[The Daily Wire|Daily Wire]] represented a capitulation to liberal humanism, holding progressive views on most issues for social acceptability. (01:23:39) Nicholas J. Fuentes posited that the "Gen Z [[Republican Party|GOP]]" project was a potential psychological operation intended to shift the Overton window leftward, making established conservative figures like [[Charlie Kirk]] and [[Ben Shapiro]] appear more palatable and right-wing by contrast. (01:25:09) [[Donald Trump]] maintained an approval rating above 90% within the [[Republican Party]]. (01:32:28) Nicholas J. Fuentes stated that the mission of his movement was to make the [[Republican Party]] so hostile and intolerant towards left-wing figures that they would have to join the [[Democratic Party]]. (01:33:06) A report by [[Seth Jones]] of the [[Center for Strategic and International Studies]]' Transnational Threats Project claimed that 13 out of 14 terrorist incidents in the [[United States]] from January 1 to May 8 were classified as right-wing. (01:34:36) Nicholas J. Fuentes argued that reports on domestic terrorism systematically excluded violence committed by non-white or non-right-wing groups, such as [[Black Lives Matter]] or [[Antifa]], from their definitions and statistics. (01:39:66) Nicholas J. Fuentes identified the [[Anti-Defamation League|ADL]] and the [[Southern Poverty Law Center|SPLC]] as [[American Jewish Committee|Jewish organizations]] that produce and launder propaganda through NGOs and think tanks to be disseminated by left-wing media. (01:53:88) [[Mitch McConnell]] unveiled the [[Republican Party]]'s coronavirus relief plan, which proposed $105 billion to help schools reopen, $16 billion for state testing capacity, $26 billion for vaccine development, and liability shields for businesses, doctors, and schools. (01:56:82) The [[Republican Party]]'s proposed relief bill included $190 billion for additional Paycheck Protection Program loans and allowed small businesses with fewer than 300 employees that saw revenue fall by more than 50% to apply for a second round of aid. (02:00:90) Nicholas J. Fuentes criticized the [[Republican Party]]'s proposed coronavirus relief as grossly inadequate, noting that only $250 billion of trillions in total bailout spending went to direct payments to [[United States|Americans]]. (02:03:47) Nicholas J. Fuentes argued that the economic damage from government-mandated lockdowns was permanent, citing an example from [[China]] where 20% of restaurants were predicted never to reopen. (02:07:72) Nicholas J. Fuentes stated that the [[Republican Party]] deserved to lose the upcoming election for offering a stingy relief bill after having inflicted economic damage through lockdowns, but that voting for [[Donald Trump]] remained imperative as the only alternative to a [[Democratic Party]] victory.(01:23:06) Attendees at Nicholas J. Fuentes's "GROIPER meetups" included lawyers, scientists, and doctors, whom he described as "super high quality people."
+(00:29:06) The [[Republican Party]] proposed a new coronavirus relief package that included a second round of $1,200 direct payments to individuals and $2,400 to couples, with the same income thresholds as the previous round. (00:30:66) The [[Republican Party]]'s proposed relief bill slashed enhanced federal unemployment benefits from a $600 weekly bonus to a system based on 70% of previous wages, capped at a maximum of $500 per week. (00:53:96) A media report, citing experts and former law enforcement officials, stated that far-right terrorism was the number one threat to the [[United States]] and governments on both sides of [[the Atlantic]]. (00:58:62) [[Bill Kristol]] retweeted and helped promote a new podcast called "Gen Z [[Republican Party|GOP]]" launched by four young men, which was also covered by the [[The Boston Globe|Boston Globe]] and other media outlets. (01:08:10) The "Gen Z [[Republican Party|GOP]]" group, founded by individuals including [[Sam Garber|Samuel Garber]], officially launched with a video stating their opposition to [[Donald Trump]] and a desire to build a future [[Republican Party]] that stays away from "unproductive discourse." (01:11:36) The "Gen Z [[Republican Party|GOP]]" group's stated platform included support for free trade, fiscal responsibility, bipartisan border security reform, public-private partnerships for healthcare, climate change solutions, and proclaiming that "[[Black Lives Matter]]." (01:13:43) [[Steve Bannon]] once characterized figures like [[Paul Ryan]] as people "grown in a Petri dish at the [[Heritage Foundation]]." (01:14:59) Nicholas J. Fuentes argued that establishment conservative figures like [[Charlie Kirk]], [[Ben Shapiro]], and [[The Daily Wire|Daily Wire]] represented a capitulation to liberal humanism, holding progressive views on most issues for social acceptability. (01:23:39) Nicholas J. Fuentes posited that the "Gen Z [[Republican Party|GOP]]" project was a potential psychological operation intended to shift the Overton window leftward, making established conservative figures like [[Charlie Kirk]] and [[Ben Shapiro]] appear more palatable and right-wing by contrast. (01:25:09) [[Donald Trump]] maintained an approval rating above 90% within the [[Republican Party]]. (01:32:28) Nicholas J. Fuentes stated that the mission of his movement was to make the [[Republican Party]] so hostile and intolerant towards left-wing figures that they would have to join the [[Democratic Party]]. (01:33:06) A report by [[Seth Jones]] of the [[Center for Strategic and International Studies]]' Transnational Threats Project claimed that 13 out of 14 terrorist incidents in the [[United States]] from January 1 to May 8 were classified as right-wing. (01:34:36) Nicholas J. Fuentes argued that reports on domestic terrorism systematically excluded violence committed by non-white or non-right-wing groups, such as [[Black Lives Matter]] or [[Antifa]], from their definitions and statistics. (01:39:66) Nicholas J. Fuentes identified the [[Anti-Defamation League|ADL]] and the [[Southern Poverty Law Center|SPLC]] as [[American Jewish Committee|Jewish organizations]] that produce and launder propaganda through NGOs and think tanks to be disseminated by left-wing media. (01:53:88) [[Mitch McConnell]] unveiled the [[Republican Party]]'s coronavirus relief plan, which proposed $105 billion to help schools reopen, $16 billion for state testing capacity, $26 billion for vaccine development, and liability shields for businesses, doctors, and schools. (01:56:82) The [[Republican Party]]'s proposed relief bill included $190 billion for additional Paycheck Protection Program loans and allowed small businesses with fewer than 300 employees that saw revenue fall by more than 50% to apply for a second round of aid. (02:00:90) Nicholas J. Fuentes criticized the [[Republican Party]]'s proposed coronavirus relief as grossly inadequate, noting that only $250 billion of trillions in total bailout spending went to direct payments to [[United States|Americans]]. (02:03:47) Nicholas J. Fuentes argued that the economic damage from government-mandated lockdowns was permanent, citing an example from [[China]] where 20% of restaurants were predicted never to reopen. (02:07:72) Nicholas J. Fuentes stated that the [[Republican Party]] deserved to lose the upcoming election for offering a stingy relief bill after having inflicted economic damage through lockdowns, but that voting for [[Donald Trump]] remained imperative as the only alternative to a [[Democratic Party]] victory.(01:23:06) Attendees at Nicholas J. Fuentes's "GROIPER meetups" included lawyers, scientists, and doctors, whom he described as "super high quality people."
 
 ### AF 2020-07-27 0649
 (01:23:16) Nicholas J. Fuentes listed [[Jaden McNeil]], [[Patrick Casey]], [[Scott Greer]], [[Jake Lloyd]], and [[Vince]] as members of his "[[United States|America]] First crew."
@@ -5428,7 +5428,7 @@
 (01:36:14) Nicholas J. Fuentes stated he had never seen the [[Google|YouTube]] channel "CharlieBow313," which shows dash cam footage of [[United States|America]]'s ghettos.
 
 ### AF 2020-07-27 0649
-(01:36:32) Nicholas J. Fuentes described driving through neighborhoods in [[City of Chicago|Chicago]] as shocking, with some areas looking like a "war zone" or "post-apocalyptic town" with derelict buildings and graffiti.
+(01:36:32) Nicholas J. Fuentes described driving through neighborhoods in [[Chicago]] as shocking, with some areas looking like a "war zone" or "post-apocalyptic town" with derelict buildings and graffiti.
 
 ### AF 2020-07-27 0649
 (01:38:47) Nicholas J. Fuentes stated his favorite books in the Bible are the Gospels.
@@ -5575,10 +5575,10 @@
 (00:00:07) Nicholas J. Fuentes hosted the [[United States|America]] First show on a Friday evening, noting his casual attire and the show's relaxed format.
 
 ### AF 2020-07-24 0648
-(00:00:45) Nicholas J. Fuentes identified [[City of Chicago|Chicago]] as his hometown and the main story of the night, stating it was a victim of a cultural revolution.
+(00:00:45) Nicholas J. Fuentes identified [[Chicago]] as his hometown and the main story of the night, stating it was a victim of a cultural revolution.
 
 ### AF 2020-07-24 0648
-(00:01:00) Two [[Christopher Columbus]] statues in [[City of Chicago|Chicago]] were removed overnight, an action Nicholas J. Fuentes connected to the recent removal of Confederate names from military bases.
+(00:01:00) Two [[Christopher Columbus]] statues in [[Chicago]] were removed overnight, an action Nicholas J. Fuentes connected to the recent removal of Confederate names from military bases.
 
 ### AF 2020-07-24 0648
 (00:01:30) Nicholas J. Fuentes cited a report from the [[Washington Examiner]] stating that [[Donald Trump|President Trump]] had prevented nearly 200,000 illegal immigrants from entering the [[United States]] since the beginning of the coronavirus pandemic.
@@ -5641,7 +5641,7 @@
 (00:40:17) Nicholas J. Fuentes concluded that the government, comprised of representatives and bureaucrats, wanted illegal immigrants in the [[country]] because they owed their jobs to big business interests that benefited from cheap immigrant labor.
 
 ### AF 2020-07-24 0648
-(00:44:48) Nicholas J. Fuentes reported that [[City of Chicago|Chicago]] Mayor [[Lori Lightfoot]] ordered the removal of two [[Christopher Columbus]] statues, one in Grant Park and another in Little [[Italian Republic|Italy]], at 3 a.m. under the cover of darkness to de-escalate tensions.
+(00:44:48) Nicholas J. Fuentes reported that [[Chicago]] Mayor [[Lori Lightfoot]] ordered the removal of two [[Christopher Columbus]] statues, one in Grant Park and another in Little [[Italian Republic|Italy]], at 3 a.m. under the cover of darkness to de-escalate tensions.
 
 ### AF 2020-07-24 0648
 (00:45:08) Nicholas J. Fuentes quoted a neighbor, [[Stefan Quiros Casas]], [[who]] stated the statue's removal was due to the efforts of "[[black]] and indigenous activists [[who]] know the true history of Columbus and what he represents."
@@ -5656,10 +5656,10 @@
 (00:50:09) Nicholas J. Fuentes defended the [[Christopher Columbus]] statues, not as a sanitized historical artifact, but as a celebration of [[Europe|European]] civilization bringing [[Jesus Christ|Christ]] and conquest to the continent, which he considered good and necessary history.
 
 ### AF 2020-07-24 0648
-(00:52:56) Nicholas J. Fuentes linked the creation of [[City of Chicago|Chicago]]'s skyline, the reversed [[City of Chicago|Chicago]] River, and the Columbian Exposition to [[Christopher Columbus]]'s arrival, arguing that all of it would be impossible without the [[Europe|European]] colonization he initiated.
+(00:52:56) Nicholas J. Fuentes linked the creation of [[Chicago]]'s skyline, the reversed [[Chicago]] River, and the Columbian Exposition to [[Christopher Columbus]]'s arrival, arguing that all of it would be impossible without the [[Europe|European]] colonization he initiated.
 
 ### AF 2020-07-24 0648
-(00:54:55) Nicholas J. Fuentes referenced the 2017 [[City of Charlottesville|Charlottesville]] rally, recalling that while others said Confederate statues could go because they represented racism, he and [[United States|America]] First argued they were about [[heritage]], [[country]], and people.
+(00:54:55) Nicholas J. Fuentes referenced the 2017 [[Charlottesville]] rally, recalling that while others said Confederate statues could go because they represented racism, he and [[United States|America]] First argued they were about [[heritage]], [[country]], and people.
 
 ### AF 2020-07-24 0648
 (00:55:50) Nicholas J. Fuentes cited the [[Black Lives Matter]] website and an [[African American History Museum]] study as explicitly aiming to "erase and erode and destroy Western white [[Europe|European]] civilization."
@@ -5674,7 +5674,7 @@
 (01:02:26) Nicholas J. Fuentes declared [[Christopher Columbus]] "the greatest man or the man [[who]] has brought the greatest change to this continent in human history" for bringing God, civilization, and [[Europe|Europeans]] to the [[United States|Americas]].
 
 ### AF 2020-07-24 0648
-(01:03:29) Nicholas J. Fuentes expressed little surprise that the statue was removed in [[City of Chicago|Chicago]], a liberal [[city]] where he said [[Italian Republic|Italians]] had been "abused for generations" and Little [[Italian Republic|Italy]] destroyed.
+(01:03:29) Nicholas J. Fuentes expressed little surprise that the statue was removed in [[Chicago]], a liberal [[city]] where he said [[Italian Republic|Italians]] had been "abused for generations" and Little [[Italian Republic|Italy]] destroyed.
 
 ### AF 2020-07-24 0648
 (01:03:53) Nicholas J. Fuentes predicted that statues of [[George Floyd]] or [[Martin Luther King Jr.]] would be erected in place of [[Christopher Columbus]], representing "the butting out of [[us]] and the destruction of what Columbus brought."
@@ -5848,7 +5848,7 @@
 (00:05:25) Nicholas J. Fuentes listed the killing of [[Qasem Soleimani]], the global pandemic, a global recession, and months of riots and anarchy as major events of 2020.
 
 ### AF 2020-07-21 0645
-(00:06:04) Nicholas J. Fuentes stated that [[City of Portland|Portland]] and downtown [[City of Chicago|Chicago]] remained out of control despite an overall quieter situation.
+(00:06:04) Nicholas J. Fuentes stated that [[Portland]] and downtown [[Chicago]] remained out of control despite an overall quieter situation.
 
 ### AF 2020-07-21 0645
 (00:08:08) Nicholas J. Fuentes reported that [[Twitter]] updated its Terms of Service to ban all content related to [[QAnon]], including accounts, links, and hashtags.
@@ -5995,7 +5995,7 @@
 (00:52:37) Nicholas J. Fuentes declared that if he ever got into power, [[The New York Times]] would "go to jail."
 
 ### AF 2020-07-20 0644
-(01:35:48) Nicholas J. Fuentes argued that the deployment of 150 federal police to cities like [[City of Chicago|Chicago]] was insufficient to quell widespread riots and violent crime, stating that thousands of officers or military occupation would be necessary to restore order.
+(01:35:48) Nicholas J. Fuentes argued that the deployment of 150 federal police to cities like [[Chicago]] was insufficient to quell widespread riots and violent crime, stating that thousands of officers or military occupation would be necessary to restore order.
 
 ### AF 2020-07-20 0644
 (01:38:34) Nicholas J. Fuentes stated that [[Donald Trump|President Trump]] had failed to deliver on his 2016 campaign promises of law and order, criticizing the administration for tweets and speeches rather than tangible action to secure [[United States|American]] cities.
@@ -6043,13 +6043,13 @@
 (01:42:52) Nicholas J. Fuentes attributed high rates of [[black]] fatherlessness to a lack of contraception use, young pregnancies, fathers not sticking around or being incarcerated, and a cultural inability to delay gratification, which he linked to inherent genetic differences.
 
 ### AF 2020-07-17 0643
-(01:47:44) Nicholas J. Fuentes accused the writer "BAP" of sabotaging the Groyper Leadership Summit and [[AFPAC]] events by spreading lies and "blood libel" that they would be disastrous, [[City of Charlottesville|Charlottesville]]-like events leading to ruined lives, despite no such consequences occurring.
+(01:47:44) Nicholas J. Fuentes accused the writer "BAP" of sabotaging the Groyper Leadership Summit and [[AFPAC]] events by spreading lies and "blood libel" that they would be disastrous, [[Charlottesville]]-like events leading to ruined lives, despite no such consequences occurring.
 
 ### AF 2020-07-17 0643
 (01:48:56) Nicholas J. Fuentes defended the security protocols for his in-[[person]] events, stating that the Groyper Leadership Summit involved a small, vetted group of [[known]] individuals and that subsequent events like [[AFPAC]] also protected attendees, with the only leak possibly coming from a stream backdrop.
 
 ### AF 2020-07-17 0643
-(01:49:53) Nicholas J. Fuentes argued that in-[[person]] organizing is necessary and that the failures of the [[City of Charlottesville|Charlottesville]] rally were preventable mistakes, such as inviting the [[National Socialist Movement]] and holding an open, outdoor event instead of a controlled, indoor gathering.
+(01:49:53) Nicholas J. Fuentes argued that in-[[person]] organizing is necessary and that the failures of the [[Charlottesville]] rally were preventable mistakes, such as inviting the [[National Socialist Movement]] and holding an open, outdoor event instead of a controlled, indoor gathering.
 
 ### AF 2020-07-17 0643
 (01:52:26) Nicholas J. Fuentes criticized "BAP" as having terrible engagement on [[Twitter]], an unchanged brand for five years, a "stupid gimmick" involving baby talk, and a poorly written, unedited book that was reviewed by "retard" [[Michael Anton]].
@@ -6082,7 +6082,7 @@
 (02:08:55) Nicholas J. Fuentes agreed that the [[Republican Party]] needs to help solve issues like healthcare and student debt to win over everyday [[United States|Americans]].
 
 ### AF 2020-07-17 0643
-(02:09:28) Nicholas J. Fuentes ranked [[New York|New York City]] as the greatest [[United States|American]] [[city]] due to its scale and status as the "center of the world," and [[City of Chicago|Chicago]] as second for its cleanliness, safety, skyline, and food.
+(02:09:28) Nicholas J. Fuentes ranked [[New York|New York City]] as the greatest [[United States|American]] [[city]] due to its scale and status as the "center of the world," and [[Chicago]] as second for its cleanliness, safety, skyline, and food.
 
 ### AF 2020-07-17 0643
 (02:11:15) Nicholas J. Fuentes praised [[Italian]] civilization as having an unmatched historical breadth in art, culture, empire, and leadership, citing contemporary examples like the most-followed [[person]] on [[TikTok Inc.|TikTok]] and the highest earner on [[DLive]] being Italian.
@@ -6178,7 +6178,7 @@
 (00:41:32) Nicholas J. Fuentes argued that the [[Twitter]] hack demonstrated the platform was a national security threat and that such technology companies required government regulation.
 
 ### AF 2020-07-15 0641
-(00:42:05) Nicholas J. Fuentes recalled stating he would not vote for [[Donald Trump]] in 2020 if [[Donald Trump|the president]] did not address tech censorship, a position many conservatives criticized.
+(00:42:05) Nicholas J. Fuentes recalled stating he would not vote for [[Donald Trump]] in 2020 if [[the president]] did not address tech censorship, a position many conservatives criticized.
 
 ### AF 2020-07-15 0641
 (00:47:22) Nicholas J. Fuentes claimed that [[Twitter|Jack Dorsey]] may have lied in congressional testimony about [[Twitter]]'s security, based on the vulnerabilities exposed by the hack.
@@ -6229,7 +6229,7 @@
 (00:41:01) Nicholas J. Fuentes stated that if a figure like [[Tucker Carlson]] or [[Josh Hawley]], [[who]] embodied the substance of the 2016 [[Donald Trump|Trump campaign]], won in 2024, the "[[Donald Trump|Trump]] revolution" would have endured.
 
 ### AF 2020-07-14 0640
-(00:42:46) [[Charlie Kirk]] of [[Turning Point USA]] would "say or do anything" to gain access to [[Donald Trump|the president]] or nominee to sell to his donors, according to Nicholas J. Fuentes.
+(00:42:46) [[Charlie Kirk]] of [[Turning Point USA]] would "say or do anything" to gain access to [[the president]] or nominee to sell to his donors, according to Nicholas J. Fuentes.
 
 ### AF 2020-07-14 0640
 (00:43:25) [[Tommy Tuberville]] and his endorsers were primarily concerned with preserving a "money-making apparatus" and the "endless gravy train" from donors like the [[Charles Koch|Koch brothers]], argued Nicholas J. Fuentes.
@@ -6277,7 +6277,7 @@
 (01:45:11) [[Catboy Cammie]] was featured in a [[The Daily Mail|Daily Mail]] article for racist remarks and blackface, which Nicholas J. Fuentes found hilarious and vindicating of his earlier support for Cammie.
 
 ### AF 2020-07-14 0640
-(01:47:11) [[E. Michael Jones]] was scheduled to debate [[Umar Lee]], a move some [[City of St. Louis|St. Louis]] [[Catholic Church|Catholics]] opposed for fear it would allow [[the left]] to label them white supremacists, a concern Nicholas J. Fuentes considered weak.
+(01:47:11) [[E. Michael Jones]] was scheduled to debate [[Umar Lee]], a move some [[St. Louis]] [[Catholic Church|Catholics]] opposed for fear it would allow [[the left]] to label them white supremacists, a concern Nicholas J. Fuentes considered weak.
 
 ### AF 2020-07-14 0640
 (01:57:29) The [[Illinois Holocaust Museum]] featured an exhibit on [[Ruth Bader Ginsburg]]'s [[Jews|Jewish]] upbringing, a connection Nicholas J. Fuentes found unrelated to World War II history.
@@ -6586,7 +6586,7 @@
 (01:55:98) Nicholas J. Fuentes characterized the advertiser boycott of [[Facebook]] as the "end game" or "victory conditions" for what he termed "global homo," where major corporations and activist NGOs would collude to enforce censorship beyond even [[Facebook]]'s own strict rules.
 
 ### AF 2020-07-08 0636
-(04:11:84) [[Donald Trump]] issued an executive order on immigration that Nicholas J. Fuentes viewed positively, contributing to his feeling "white-pilled" alongside [[Donald Trump|the president's]] recent speech.
+(04:11:84) [[Donald Trump]] issued an executive order on immigration that Nicholas J. Fuentes viewed positively, contributing to his feeling "white-pilled" alongside [[the president's]] recent speech.
 
 ### AF 2020-07-08 0636
 (04:47:90) The [[Donald Trump]] administration tightened immigration restrictions during the [[COVID-19]] pandemic, with Nicholas J. Fuentes citing data showing legal immigration had been trending downward since 2018 and accelerated due to new rules and executive orders.
@@ -6652,7 +6652,7 @@
 (34:39:21) Nicholas J. Fuentes criticized the [[Donald Trump]] administration for previously focusing its energy on "giving money to [[Israel]], freeing [[black]] people from jail, and making gay marriage legal across the world," but acknowledged it had quietly worked to build the wall and restrict immigration.
 
 ### AF 2020-07-08 0636
-(35:24:35) Nicholas J. Fuentes argued [[Donald Trump]] needed a second term to seriously tighten immigration, a justification that made him reluctantly supportive of [[Donald Trump|the president]] despite earlier disappointments.
+(35:24:35) Nicholas J. Fuentes argued [[Donald Trump]] needed a second term to seriously tighten immigration, a justification that made him reluctantly supportive of [[the president]] despite earlier disappointments.
 
 ### AF 2020-07-08 0636
 (37:17:83) [[Joe Biden]]'s campaign platform, drafted with help from [[Bernie Sanders]], included amnesty for 11 million illegal immigrants, which Nicholas J. Fuentes contrasted with [[Donald Trump]]'s restrictive policies to illustrate a clear electoral choice.
@@ -6688,16 +6688,16 @@
 (04:49:44) [[Charlie Kirk]]'s [[organization]], [[Turning Point Action]], distributed signs reading "[[United States|America]] First. No apologies." at its events, which Nicholas J. Fuentes viewed as a cynical attempt to co-opt his movement's slogan.
 
 ### AF 2020-07-07 0635
-(13:42:96) The leader of the NFAC militia, Grandmaster Jay, stated his group was "100% [[black]]," was not affiliated with [[Black Lives Matter]], and was present at [[Stone Mountain]] to challenge "scared-ass rednecks" and white militias.(01:25:31) Nicholas J. Fuentes stated that [[Destiny|Destiny]] had not arranged a meeting with his primary source, a historian, following their debate.
+(13:42:96) The leader of the NFAC militia, Grandmaster Jay, stated his group was "100% [[black]]," was not affiliated with [[Black Lives Matter]], and was present at [[Stone Mountain]] to challenge "scared-ass rednecks" and white militias.(01:25:31) Nicholas J. Fuentes stated that [[Destiny]] had not arranged a meeting with his primary source, a historian, following their debate.
 
 ### AF 2020-07-07 0635
-(01:25:45) Nicholas J. Fuentes mentioned a potential charity stream with [[Destiny|Destiny]] where they would play video games.
+(01:25:45) Nicholas J. Fuentes mentioned a potential charity stream with [[Destiny]] where they would play video games.
 
 ### AF 2020-07-07 0635
-(01:26:11) Nicholas J. Fuentes expressed reluctance to do a stream with [[Destiny|Destiny]], citing a previous weird comment from him and a desire to avoid sending mixed signals.
+(01:26:11) Nicholas J. Fuentes expressed reluctance to do a stream with [[Destiny]], citing a previous weird comment from him and a desire to avoid sending mixed signals.
 
 ### AF 2020-07-07 0635
-(01:26:25) Nicholas J. Fuentes anticipated a conversation with [[Destiny|Destiny]]'s primary source historian but acknowledged it would be bad optics for him.
+(01:26:25) Nicholas J. Fuentes anticipated a conversation with [[Destiny]]'s primary source historian but acknowledged it would be bad optics for him.
 
 ### AF 2020-07-07 0635
 (01:27:38) Nicholas J. Fuentes considered discussing instances of [[Black Lives Matter]] leaders inciting violence against white people, referencing a statement by [[Yusra Khogali]].
@@ -6733,7 +6733,7 @@
 (01:35:57) Nicholas J. Fuentes argued that his criticisms of internet personalities are not petty but are based on their lack of seriousness, citing [[Kurt Doolittle]]'s rally as an example of a "joke" [[who]] is "not serious."
 
 ### AF 2020-07-07 0635
-(01:39:32) Nicholas J. Fuentes clarified that [[Destiny|Destiny]] is bisexual, not gay.
+(01:39:32) Nicholas J. Fuentes clarified that [[Destiny]] is bisexual, not gay.
 
 ### AF 2020-07-07 0635
 (01:40:33) Nicholas J. Fuentes advocated for school vouchers as the best way to reform the education system and free children from the [[United States Department of Education|Department of Education]].
@@ -6922,7 +6922,7 @@
 (01:24:50) Nicholas J. Fuentes criticized [[Donald Trump]]'s tax plan for benefiting the rich and corporations and noted the absence of a healthcare plan, arguing this contradicted [[Donald Trump|Trump's]] populist claims.
 
 ### AF 2020-07-02 0633
-(01:26:26) Nicholas J. Fuentes opposed "[[Health and Human Services|Medicare]] for all," arguing it would result in the middle class subsidizing healthcare for non-whites and immigrants while degrading the overall quality of care.
+(01:26:26) Nicholas J. Fuentes opposed "[[Medicare]] for all," arguing it would result in the middle class subsidizing healthcare for non-whites and immigrants while degrading the overall quality of care.
 
 ### AF 2020-07-02 0633
 (01:26:46) [[Ben Shapiro]] stated that [[Jeffrey Epstein]] did not kill himself, a fact Nicholas J. Fuentes suggested should inform public understanding of [[Ben Shapiro|Shapiro]]'s perspectives.
@@ -7009,7 +7009,7 @@
 (01:55:21) Nicholas J. Fuentes advocated for creating dossiers on everyone in "Con Inc" [[who]] attacks figures like himself, to expose their own controversial pasts and apply their standards consistently.
 
 ### AF 2020-07-01 0632
-(02:04:07) Nicholas J. Fuentes transitioned to discussing a potential "white pill" regarding [[Donald Trump]], citing an [[Axios]] report that [[Donald Trump|the president]] was souring on [[Jared Kushner]]'s political advice.
+(02:04:07) Nicholas J. Fuentes transitioned to discussing a potential "white pill" regarding [[Donald Trump]], citing an [[Axios]] report that [[the president]] was souring on [[Jared Kushner]]'s political advice.
 
 ### AF 2020-07-01 0632
 (02:09:53) [[Donald Trump]] tweeted, "This is a battle to save the [[heritage]], history, and greatness of our [[country]]," which Nicholas J. Fuentes interpreted as a positive shift toward cultural and identity issues.
@@ -7264,7 +7264,7 @@
 (03:38:00) Nicholas J. Fuentes listed [[Samuel J. Hyde|Sam Hyde]], [[Jared Taylor]], himself, [[Stefan Molyneux]], [[Mike Cernovich|Mike Enoch]], [[Vox Day]], and [[Owen Benjamin]] as examples of voices banned from major platforms over the preceding five years.
 
 ### AF 2020-06-29 0631
-(03:56:00) Nicholas J. Fuentes noted that [[Donald Trump|Trump]]'s executive order aimed at curbing social media censorship via Section 230 had failed to prevent platforms like [[Twitch Inc.|Twitch]] from suspending [[Donald Trump|the president's]] account and [[Twitter]] from placing warnings on his tweets.
+(03:56:00) Nicholas J. Fuentes noted that [[Donald Trump|Trump]]'s executive order aimed at curbing social media censorship via Section 230 had failed to prevent platforms like [[Twitch Inc.|Twitch]] from suspending [[the president's]] account and [[Twitter]] from placing warnings on his tweets.
 
 ### AF 2020-06-29 0631
 (04:05:00) Nicholas J. Fuentes argued that alternative platforms like [[Gab]], [[BitChute]], and [[Parler]] are ineffective due to their small user bases—[[Gab]] with 300,000 and [[Parler]] with 1.5 million active users—compared to billions on mainstream platforms, and their reliance on big-tech-controlled infrastructure like domain registrars and payment processors.
@@ -7387,7 +7387,7 @@
 (02:12:20) Nicholas J. Fuentes mocked the idea of passing a "new [[constitution]]" as a solution, associating it with "Kurt Doolittle" and calling its proponents disabled or teenagers.
 
 ### AF 2020-06-29 0631
-(02:13:04) Nicholas J. Fuentes said post-[[City of Charlottesville|Charlottesville]] rallies shrank, got attendees doxxed and fired, and yielded no benefits, making them counterproductive activism.
+(02:13:04) Nicholas J. Fuentes said post-[[Charlottesville]] rallies shrank, got attendees doxxed and fired, and yielded no benefits, making them counterproductive activism.
 
 ### AF 2020-06-29 0631
 (02:14:02) Nicholas J. Fuentes claimed his [[United States|America]] First movement has more momentum and influence than any other segment of the "dissident right," including the propertarians and the defunct alt-right.
@@ -7423,7 +7423,7 @@
 (02:24:56) Nicholas J. Fuentes compared the modern [[Western world]]'s immigration policies to the fall of [[Rome]], noting that contemporary societies "invite the barbarians in without a single shot."
 
 ### AF 2020-06-29 0631
-(02:25:09) Nicholas J. Fuentes argued that the [[City of St. Louis|St. Louis]] couple [[who]] brandished guns at protesters would not have had that problem if they lived farther away from [[black]] populations, stating "demographics are [[destiny]]."
+(02:25:09) Nicholas J. Fuentes argued that the [[St. Louis]] couple [[who]] brandished guns at protesters would not have had that problem if they lived farther away from [[black]] populations, stating "demographics are [[destiny]]."
 
 ### AF 2020-06-29 0631
 (02:25:30) [[Visa]] banned [[Gab]] and its founder [[Andrew Torba]] from payment processing, forcing the site to use [[Bitcoin]] or paper checks, which Nicholas J. Fuentes cited as evidence that financial deplatforming would expand to individuals.
@@ -7447,7 +7447,7 @@
 (02:34:42) Nicholas J. Fuentes agreed with a viewer's observation that many mothers buy large quantities of wine with their groceries, calling it a sign of a medicated, meaningless society.
 
 ### AF 2020-06-29 0631
-(02:35:09) Nicholas J. Fuentes condemned the [[City of St. Louis|St. Louis]] couple after learning they had filed a lawsuit on behalf of a carjacker alleging racist police brutality, saying "they are [[Black Lives Matter|BLM]]" and deserved their fate.
+(02:35:09) Nicholas J. Fuentes condemned the [[St. Louis]] couple after learning they had filed a lawsuit on behalf of a carjacker alleging racist police brutality, saying "they are [[Black Lives Matter|BLM]]" and deserved their fate.
 
 ### AF 2020-06-29 0631
 (02:35:27) Nicholas J. Fuentes commented on a medical school instituting diversity quotas for its honor society, expressing bewilderment that some [[Asians]] support policies against their interests.
@@ -7465,7 +7465,7 @@
 (02:40:06) Nicholas J. Fuentes refused to elaborate on specific future "opportunities" for his movement, arguing that doing so would be incriminating, irresponsible, and attract law enforcement scrutiny.
 
 ### AF 2020-06-29 0631
-(02:41:02) Nicholas J. Fuentes blamed movement failures on a lack of discipline among supporters, citing those [[who]] caved to [[Black Lives Matter|BLM]], participated in [[City of Charlottesville|Charlottesville]], demanded unstrategic statements, or asked for explicit secret plans.
+(02:41:02) Nicholas J. Fuentes blamed movement failures on a lack of discipline among supporters, citing those [[who]] caved to [[Black Lives Matter|BLM]], participated in [[Charlottesville]], demanded unstrategic statements, or asked for explicit secret plans.
 
 ### AF 2020-06-29 0631
 (02:43:44) Nicholas J. Fuentes affirmed the need to protect [[Jaden McNeil]] and declared "[[United States|America]] First is inevitable."
@@ -7513,10 +7513,10 @@
 (02:17:20) Nicholas J. Fuentes encouraged viewers to support [[Jaden McNeil]] financially through his Streamlabs at streamlabs.com/JadenMcNeil, noting that McNeil streams on [[DLive]] at [[DLive]].tv/JadenMcNeil.(01:30:00) Nicholas J. Fuentes advised [[Jaden McNeil]] months ago to consider the irreversible consequences of a public political life before [[Jaden McNeil]] dissolved his chapter of [[Turning Point USA]].
 
 ### AF 2020-06-26 0630
-(01:31:31) Nicholas J. Fuentes described himself as the leader of the [[United States|America]] First movement and stated a personal investment in taking care of its members, contrasting this with his observation of the alt-right's leadership after the [[City of Charlottesville|Charlottesville rally]].
+(01:31:31) Nicholas J. Fuentes described himself as the leader of the [[United States|America]] First movement and stated a personal investment in taking care of its members, contrasting this with his observation of the alt-right's leadership after the [[Charlottesville rally]].
 
 ### AF 2020-06-26 0630
-(01:31:43) Nicholas J. Fuentes criticized the leaders of the alt-right, including [[Richard Spencer]], for recklessly endangening their followers' lives during the [[City of Charlottesville|Charlottesville rally]] and then abandoning them when they faced doxxing and job loss.
+(01:31:43) Nicholas J. Fuentes criticized the leaders of the alt-right, including [[Richard Spencer]], for recklessly endangening their followers' lives during the [[Charlottesville rally]] and then abandoning them when they faced doxxing and job loss.
 
 ### AF 2020-06-26 0630
 (01:33:01) Nicholas J. Fuentes outlined a long-term strategy to build a "Groyper Nation" by integrating supporters across society as lawyers, politicians, and bureaucrats to create a parallel support network.
@@ -7594,13 +7594,13 @@
 (02:01:40) Nicholas J. Fuentes responded to a viewer's question about eliminating all immigration by stating the priority is to first "stop the flow," comparing it to plugging holes before bailing water from a flooding basement, and that dealing with existing immigrants is a subsequent, difficult problem.
 
 ### AF 2020-06-26 0630
-(02:05:21) Nicholas J. Fuentes commented on a warning about planned violent unrest in the [[City of Chicago|Chicago]] suburbs on July 4th, stating he was not worried as he and his family are armed and his parents were firearms instructors.
+(02:05:21) Nicholas J. Fuentes commented on a warning about planned violent unrest in the [[Chicago]] suburbs on July 4th, stating he was not worried as he and his family are armed and his parents were firearms instructors.
 
 ### AF 2020-06-26 0630
 (02:06:03) Nicholas J. Fuentes speculated that a recent rhetorical shift by [[Donald Trump]] might be due to influence from [[Tucker Carlson]]'s show.
 
 ### AF 2020-06-26 0630
-(02:06:27) Nicholas J. Fuentes noted a breaking news report that [[Person|Milo Yiannopoulos]] was giving the [[Federal Bureau of Investigation|FBI]] information from his "vault" to help convict people arrested at the [[City of Charlottesville|Charlottesville rally]].
+(02:06:27) Nicholas J. Fuentes noted a breaking news report that [[Person|Milo Yiannopoulos]] was giving the [[Federal Bureau of Investigation|FBI]] information from his "vault" to help convict people arrested at the [[Charlottesville rally]].
 
 ### AF 2020-06-26 0630
 (02:07:04) Nicholas J. Fuentes agreed with a viewer [[who]], after working with the [[U.S. Department of Defense|DOD]] in the [[Middle East]], concluded that lower average IQ and reasoning abilities in other populations had become evident in [[United States|America]].
@@ -7978,7 +7978,7 @@
 (01:40:02) Nicholas J. Fuentes encouraged people not to be intimidated by political involvement, stating that most people in politics are "schlubs" or "jagoffs," and that consistent attendance and enthusiasm can lead to rapid advancement.
 
 ### AF 2020-06-24 0628
-(01:40:46) Nicholas J. Fuentes recalled attending a [[City of Chicago|Chicago]] [[city]] council meeting in high school and observing that half the aldermen were "straight up retards" [[who]] didn't know how to dress or act.
+(01:40:46) Nicholas J. Fuentes recalled attending a [[Chicago]] [[city]] council meeting in high school and observing that half the aldermen were "straight up retards" [[who]] didn't know how to dress or act.
 
 ### AF 2020-06-24 0628
 (01:41:06) Nicholas J. Fuentes recalled being part of a youth council for Illinois [[House]] Speaker [[Jim Durkin]], where an organizer told him politics is a joke and that simply showing up with enthusiasm can allow one to leapfrog others in the [[Republican Party]].
@@ -8059,7 +8059,7 @@
 (01:38:08) Nicholas J. Fuentes recounted his own entry into politics by signing up as a volunteer on the [[Donald Trump]] campaign website while in [[Boston]], which led to door-knocking in [[Manchester, New Hampshire]] and connections within the [[Republican Party]].
 
 ### AF 2020-06-24 0628
-(01:40:46) Nicholas J. Fuentes asserted that most local politicians are "total retards," citing his observation of a [[City of Chicago|Chicago]] [[city]] council meeting in high school.
+(01:40:46) Nicholas J. Fuentes asserted that most local politicians are "total retards," citing his observation of a [[Chicago]] [[city]] council meeting in high school.
 
 ### AF 2020-06-24 0628
 (01:42:50) Nicholas J. Fuentes criticized [[The Cheesecake Factory]], calling its entrees "shit" and stating the restaurant is for "women and white people."
@@ -8404,7 +8404,7 @@
 (02:20:02) Nicholas J. Fuentes doubted that non-violent resistance tactics used in [[South Africa|South America]], where men form rings around cathedrals to protect them from protesters, would work in the [[United States]] due to being outnumbered and the protesters' willingness to use violence.
 
 ### AF 2020-06-22 0626
-(02:21:28) Nicholas J. Fuentes said he probably could not beat his father in a fight yet, citing his father's toughness from growing up on the streets of [[City of Chicago|Chicago]] and his own need to get stronger.
+(02:21:28) Nicholas J. Fuentes said he probably could not beat his father in a fight yet, citing his father's toughness from growing up on the streets of [[Chicago]] and his own need to get stronger.
 
 ### AF 2020-06-22 0626
 (02:22:03) Nicholas J. Fuentes attributed his different disposition in politics to being raised by a father with a street background, as opposed to being raised by a lawyer or professional.
@@ -8542,7 +8542,7 @@
 (41:22:57) [[Barack Obama]] established the DACA program through an executive order, an action Nicholas J. Fuentes argued lacked constitutional authority, while [[Donald Trump|Trump]]'s subsequent attempt to rescind it was blocked by the courts.
 
 ### AF 2020-06-18 0624
-(51:36:65) Nicholas J. Fuentes argued that the most tangible achievement of [[Donald Trump|Trump]]'s presidency would be moving the [[United States]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]].
+(51:36:65) Nicholas J. Fuentes argued that the most tangible achievement of [[Donald Trump|Trump]]'s presidency would be moving the [[United States]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]].
 
 ### AF 2020-06-18 0624
 (56:52:67) [[Chick-fil-A]] ceased donations to certain [[Christianity|Christian]] charities after pressure from LGBTQ groups, and later issued statements calling for repentance for racism, which Nicholas J. Fuentes cited as a reason to boycott the company.
@@ -8632,7 +8632,7 @@
 (01:54:11) Nicholas J. Fuentes was asked his opinion on the return of [[Belle Delphine]]; he stated he doesn't follow her and is more concerned with the broader phenomenon of [[OnlyFans]].
 
 ### AF 2020-06-18 0624
-(01:56:28) Nicholas J. Fuentes mentioned he had been binge-watching *[[City of Chicago|Chicago]] PD* on [[Amazon Inc.|Amazon Prime]] all day, relating to it because it is set in his town.
+(01:56:28) Nicholas J. Fuentes mentioned he had been binge-watching *[[Chicago]] PD* on [[Amazon Inc.|Amazon Prime]] all day, relating to it because it is set in his town.
 
 ### AF 2020-06-18 0624
 (01:57:02) A viewer named Radical Degenerates asked if Nicholas J. Fuentes had seen the Wikipedia article on "groypers," to which he replied it was pretty old.
@@ -8659,7 +8659,7 @@
 (02:03:02) Nicholas J. Fuentes told a viewer identifying as a "trans Afro Latina" asking how to live like [[Jesus Christ|Christ]] to "stop being trans."
 
 ### AF 2020-06-18 0624
-(02:04:49) Nicholas J. Fuentes praised Sergeant [[Hank Voight]] from *[[City of Chicago|Chicago]] PD* as "the cop we need," a gritty, macho character reminiscent of [[Jack Bauer]] from *24*.
+(02:04:49) Nicholas J. Fuentes praised Sergeant [[Hank Voight]] from *[[Chicago]] PD* as "the cop we need," a gritty, macho character reminiscent of [[Jack Bauer]] from *24*.
 
 ### AF 2020-06-18 0624
 (02:05:56) A viewer referenced "Kurt Doolittle in political education, mud wrestling," which Nicholas J. Fuentes found amusing to imagine.
@@ -8698,7 +8698,7 @@
 (02:15:45) [[Jaden McNeil]] asked Nicholas J. Fuentes to stall the stream because he was still downloading something, a request Fuentes declined.
 
 ### AF 2020-06-17 0623
-(00:20:32) The District Attorney in [[Atlanta]] charged [[Garrett Rolfe]], the police officer [[who]] shot and killed [[Rayshard Brooks]], with felony murder and ten other charges, potentially carrying the death penalty. (00:41:90) The [[|Fulton County]] District Attorney, [[Paul Howard]], announced the charges against [[Garrett Rolfe]] and a second officer, [[Devin Brosnan]], [[who]] faced three charges including aggravated assault. (00:47:72) [[Rayshard Brooks]] was shot and killed after turning a police taser on officers following a struggle where he failed a sobriety test. (00:53:02) [[Devin Brosnan]]'s attorney, [[Don Samuel]], disputed [[Paul Howard]]'s claim that [[Devin Brosnan]] had agreed to become a state's witness against [[Garrett Rolfe]]. (01:13:66) Unconfirmed rumors circulated on social media that the entire [[Atlanta Police Department]] might go on strike in response to the charges against [[Garrett Rolfe]]. (01:42:66) [[Google]] demonetized the conservative websites [[The Federalist]] and [[Zero Hedge]] via its [[Google AdSense]] platform due to content opposing [[Black Lives Matter]]. (02:08:44) A report from [[Revolver News|The National Pulse]] revealed that [[Google]] lobbyist [[Max Pappas]] contacted nearly 100 influential conservative figures and think tanks following the demonetization of [[The Federalist]] and [[Zero Hedge]]. (02:15:56) Major conservative think tanks including the [[Cato Institute]], [[American Enterprise Institute]], and the [[Competitive Enterprise Institute]] received funding from [[Google]]. (02:43:00) Following outreach from [[Google]] lobbyist [[Max Pappas]], several conservative think tanks defended [[Google]]'s actions against [[The Federalist]] and [[Zero Hedge]]. (03:48:78) The [[Heritage Foundation]] and other conservative think tanks participated in a convention or fundraiser hosted by [[Google]] months prior. (08:47:54) [[Donald Trump]] signed an executive order aimed at limiting police powers to use chokeholds. (08:53:24) [[Supreme Court of the United States|Supreme Court]] Justice [[Neil Gorsuch]] authored the decision in a landmark case extending workplace discrimination protections to LGBT individuals. (09:02:00) [[Senate Majority Leader]] [[Mitch McConnell]] opposed [[Donald Trump]] on the issue of renaming military bases named after Confederate generals. (11:22:22) Conservative commentators [[Ben Shapiro]] and [[Dennis Prager]], along with [[Mitch McConnell]], have publicly agreed that censorship against the political right is wrong. (13:21:12) [[Google]] lobbyist [[Max Pappas]], hired in 2017, contacted conservative influencers to manage the fallout from the [[The Federalist]] and [[Zero Hedge]] demonetization story. (14:33:22) [[Mark Jamison]], a visiting scholar at the [[American Enterprise Institute]], tweeted an op-ed entitled "[[Concept|Big Tech]] is biased and that's a good thing" ahead of the demonetization news. (14:49:24) [[James Pethokoukis]] of the [[American Enterprise Institute]] published an article endorsing [[Google]]'s actions and claiming conservative alarm over anti-conservative bias fails a reality test. (15:29:48) [[Julian Sanchez]], a contributor to the [[Cato Institute]] and [[Reason Magazine]], stated that only conservative sites publicly complain about censorship because other sites lack a "martyr complex." (15:56:02) [[Patrick Hedger]] of the [[Competitive Enterprise Institute]] wrote for the Never-[[Donald Trump|Trump]] blog [[The Bulwark]], which had recently criticized [[Michelle Malkin]] and Nicholas J. Fuentes. (16:07:56) [[Patrick Hedger]] argued on the [[Competitive Enterprise Institute]] website that [[Google]], [[Amazon Inc.|Amazon]], and [[Facebook]] face robust competition, justifying a lack of government investigation or intervention. (17:48:04) The [[Conservative Political Action Conference]] ([[Conservative Political Action Conference|CPAC]]) receives annual funding from [[Google]] and once hosted a panel on tech censorship by [[Google]] while being financially supported by the company. (18:03:22) [[Jim Hoft]] was reportedly removed from a [[Conservative Political Action Conference|CPAC]] panel about tech censorship, which was funded by [[Google]]. (19:47:06) Commentators [[Bill Kristol]] and [[Bret Stephens]] were cited as examples of conservatives [[who]] support increased immigration. (27:39:96) Casino magnate [[Sheldon Adelson]], a major [[Republican Party|Republican]] donor, attended [[Donald Trump]] campaign galas and fundraisers wearing a yarmulke with a "Make [[United States|America]] Great Again" slogan. (27:57:02) [[Jared Kushner]] and his allies were cited as influential figures within the [[Donald Trump]] [[White House]] whose presence correlated with specific policy outcomes. (28:00:92) [[Neil Gorsuch]] and [[Fox News]] were listed as parts of a conservative movement whose direction is influenced by its financial backers. (29:52:74) [[Ben Shapiro]], described as the son of immigrants [[who]] attended private [[Jews|Jewish]] school and [[University of California, Los Angeles|UCLA]], lives in [[Los Angeles]] and is a frequent commentator for heartland conservatives. (30:38:68) Nicholas J. Fuentes argued that average [[United States|Americans]] have nothing in common with figures like [[Jared Kushner]], [[Ben Shapiro]], [[Bret Stephens]], or [[Bill Kristol]]. (32:57:08) In high school and college, Nicholas J. Fuentes was influenced by the narratives presented by [[Prager University|PragerU]] and [[Ben Shapiro]] about political conflict being between [[Democratic Party|Democrats]] and [[Republican Party|Republicans]]. (35:21:72) Nicholas J. Fuentes questioned how [[Donald Trump]] and the [[Republican Party]] could take no action on [[big tech]] censorship, suggesting they do not represent the interests of their base. (36:02:64) Officer [[Derek Chauvin]] was under investigation and facing trial for the killing of [[George Floyd]]. (36:08:14) [[Travis McMichael]] was brought in by a District Attorney in [[Country of Georgia|Georgia]] over the case of [[Ahmaud Arbery]]. (37:26:26) [[Garrett Rolfe]] was fired by the [[Atlanta Police Department]] after the killing of [[Rayshard Brooks]]. (37:54:92) [[Devin Brosnan]]'s attorney stated his client was "absolutely not guilty of any crime" and had not agreed to be a state's witness, contradicting [[Paul Howard]]'s announcement. (38:50:48) [[Rayshard Brooks]] had a criminal record that included theft, receiving stolen property, child abuse, and domestic battery. (43:14:20) Rumors indicated that four of the six zones of the [[Atlanta Police Department]] were experiencing major walk-offs, with scanner traffic in Zone Six silent for 20 minutes. (46:14:28) In [[City of Seattle|Seattle]], activists established an autonomous zone (CHAZ) where individuals with firearms effectively became the governing authority in the absence of police. (51:52:74) Nicholas J. Fuentes questioned whether [[Donald Trump]] could order the military to restore order in [[United States|American]] streets and whether the [[U.S. Department of Defense|Pentagon]] would follow such orders. (53:50:06) Nicholas J. Fuentes stated that a [[city]]'s demographic composition, specifically its proportion of [[black]] and [[Hispanic]] residents, is a primary determinant of whether it will experience civil unrest. (54:34:00) Nicholas J. Fuentes argued that [[United States|American]] cities are deteriorating because the people living in them originate from countries with lower levels of societal development. (55:03:70) A [[black]] rapper in the [[City of Seattle|Seattle]] autonomous zone (CHAZ) was able to establish control over a commune without police, while still receiving electricity and running water and receiving approval from government officials. (56:26:18) Nicholas J. Fuentes speculated that [[Charlie Kirk]] and [[Scott Pressler]] would retreat to gated communities in white neighborhoods rather than engage in voter outreach in troubled urban areas during a societal collapse. (59:08:70) Nicholas J. Fuentes stated that some of his followers still believe in [[QAnon]] narratives about [[Donald Trump]] and are therefore not yet serious about political action. (01:01:39) Nicholas J. Fuentes expressed hope that police officers across the [[country]] would resign or go on strike to show the public what a nation without law enforcement looks like.
+(00:20:32) The District Attorney in [[Atlanta]] charged [[Garrett Rolfe]], the police officer [[who]] shot and killed [[Rayshard Brooks]], with felony murder and ten other charges, potentially carrying the death penalty. (00:41:90) The [[|Fulton County]] District Attorney, [[Paul Howard]], announced the charges against [[Garrett Rolfe]] and a second officer, [[Devin Brosnan]], [[who]] faced three charges including aggravated assault. (00:47:72) [[Rayshard Brooks]] was shot and killed after turning a police taser on officers following a struggle where he failed a sobriety test. (00:53:02) [[Devin Brosnan]]'s attorney, [[Don Samuel]], disputed [[Paul Howard]]'s claim that [[Devin Brosnan]] had agreed to become a state's witness against [[Garrett Rolfe]]. (01:13:66) Unconfirmed rumors circulated on social media that the entire [[Atlanta Police Department]] might go on strike in response to the charges against [[Garrett Rolfe]]. (01:42:66) [[Google]] demonetized the conservative websites [[The Federalist]] and [[Zero Hedge]] via its [[Google AdSense]] platform due to content opposing [[Black Lives Matter]]. (02:08:44) A report from [[Revolver News|The National Pulse]] revealed that [[Google]] lobbyist [[Max Pappas]] contacted nearly 100 influential conservative figures and think tanks following the demonetization of [[The Federalist]] and [[Zero Hedge]]. (02:15:56) Major conservative think tanks including the [[Cato Institute]], [[American Enterprise Institute]], and the [[Competitive Enterprise Institute]] received funding from [[Google]]. (02:43:00) Following outreach from [[Google]] lobbyist [[Max Pappas]], several conservative think tanks defended [[Google]]'s actions against [[The Federalist]] and [[Zero Hedge]]. (03:48:78) The [[Heritage Foundation]] and other conservative think tanks participated in a convention or fundraiser hosted by [[Google]] months prior. (08:47:54) [[Donald Trump]] signed an executive order aimed at limiting police powers to use chokeholds. (08:53:24) [[Supreme Court of the United States|Supreme Court]] Justice [[Neil Gorsuch]] authored the decision in a landmark case extending workplace discrimination protections to LGBT individuals. (09:02:00) [[Senate Majority Leader]] [[Mitch McConnell]] opposed [[Donald Trump]] on the issue of renaming military bases named after Confederate generals. (11:22:22) Conservative commentators [[Ben Shapiro]] and [[Dennis Prager]], along with [[Mitch McConnell]], have publicly agreed that censorship against the political right is wrong. (13:21:12) [[Google]] lobbyist [[Max Pappas]], hired in 2017, contacted conservative influencers to manage the fallout from the [[The Federalist]] and [[Zero Hedge]] demonetization story. (14:33:22) [[Mark Jamison]], a visiting scholar at the [[American Enterprise Institute]], tweeted an op-ed entitled "[[Concept|Big Tech]] is biased and that's a good thing" ahead of the demonetization news. (14:49:24) [[James Pethokoukis]] of the [[American Enterprise Institute]] published an article endorsing [[Google]]'s actions and claiming conservative alarm over anti-conservative bias fails a reality test. (15:29:48) [[Julian Sanchez]], a contributor to the [[Cato Institute]] and [[Reason Magazine]], stated that only conservative sites publicly complain about censorship because other sites lack a "martyr complex." (15:56:02) [[Patrick Hedger]] of the [[Competitive Enterprise Institute]] wrote for the Never-[[Donald Trump|Trump]] blog [[The Bulwark]], which had recently criticized [[Michelle Malkin]] and Nicholas J. Fuentes. (16:07:56) [[Patrick Hedger]] argued on the [[Competitive Enterprise Institute]] website that [[Google]], [[Amazon Inc.|Amazon]], and [[Facebook]] face robust competition, justifying a lack of government investigation or intervention. (17:48:04) The [[Conservative Political Action Conference]] ([[Conservative Political Action Conference|CPAC]]) receives annual funding from [[Google]] and once hosted a panel on tech censorship by [[Google]] while being financially supported by the company. (18:03:22) [[Jim Hoft]] was reportedly removed from a [[Conservative Political Action Conference|CPAC]] panel about tech censorship, which was funded by [[Google]]. (19:47:06) Commentators [[Bill Kristol]] and [[Bret Stephens]] were cited as examples of conservatives [[who]] support increased immigration. (27:39:96) Casino magnate [[Sheldon Adelson]], a major [[Republican Party|Republican]] donor, attended [[Donald Trump]] campaign galas and fundraisers wearing a yarmulke with a "Make [[United States|America]] Great Again" slogan. (27:57:02) [[Jared Kushner]] and his allies were cited as influential figures within the [[Donald Trump]] [[White House]] whose presence correlated with specific policy outcomes. (28:00:92) [[Neil Gorsuch]] and [[Fox News]] were listed as parts of a conservative movement whose direction is influenced by its financial backers. (29:52:74) [[Ben Shapiro]], described as the son of immigrants [[who]] attended private [[Jews|Jewish]] school and [[University of California, Los Angeles|UCLA]], lives in [[Los Angeles]] and is a frequent commentator for heartland conservatives. (30:38:68) Nicholas J. Fuentes argued that average [[United States|Americans]] have nothing in common with figures like [[Jared Kushner]], [[Ben Shapiro]], [[Bret Stephens]], or [[Bill Kristol]]. (32:57:08) In high school and college, Nicholas J. Fuentes was influenced by the narratives presented by [[Prager University|PragerU]] and [[Ben Shapiro]] about political conflict being between [[Democratic Party|Democrats]] and [[Republican Party|Republicans]]. (35:21:72) Nicholas J. Fuentes questioned how [[Donald Trump]] and the [[Republican Party]] could take no action on [[big tech]] censorship, suggesting they do not represent the interests of their base. (36:02:64) Officer [[Derek Chauvin]] was under investigation and facing trial for the killing of [[George Floyd]]. (36:08:14) [[Travis McMichael]] was brought in by a District Attorney in [[Country of Georgia|Georgia]] over the case of [[Ahmaud Arbery]]. (37:26:26) [[Garrett Rolfe]] was fired by the [[Atlanta Police Department]] after the killing of [[Rayshard Brooks]]. (37:54:92) [[Devin Brosnan]]'s attorney stated his client was "absolutely not guilty of any crime" and had not agreed to be a state's witness, contradicting [[Paul Howard]]'s announcement. (38:50:48) [[Rayshard Brooks]] had a criminal record that included theft, receiving stolen property, child abuse, and domestic battery. (43:14:20) Rumors indicated that four of the six zones of the [[Atlanta Police Department]] were experiencing major walk-offs, with scanner traffic in Zone Six silent for 20 minutes. (46:14:28) In [[Seattle]], activists established an autonomous zone (CHAZ) where individuals with firearms effectively became the governing authority in the absence of police. (51:52:74) Nicholas J. Fuentes questioned whether [[Donald Trump]] could order the military to restore order in [[United States|American]] streets and whether the [[U.S. Department of Defense|Pentagon]] would follow such orders. (53:50:06) Nicholas J. Fuentes stated that a [[city]]'s demographic composition, specifically its proportion of [[black]] and [[Hispanic]] residents, is a primary determinant of whether it will experience civil unrest. (54:34:00) Nicholas J. Fuentes argued that [[United States|American]] cities are deteriorating because the people living in them originate from countries with lower levels of societal development. (55:03:70) A [[black]] rapper in the [[Seattle]] autonomous zone (CHAZ) was able to establish control over a commune without police, while still receiving electricity and running water and receiving approval from government officials. (56:26:18) Nicholas J. Fuentes speculated that [[Charlie Kirk]] and [[Scott Pressler]] would retreat to gated communities in white neighborhoods rather than engage in voter outreach in troubled urban areas during a societal collapse. (59:08:70) Nicholas J. Fuentes stated that some of his followers still believe in [[QAnon]] narratives about [[Donald Trump]] and are therefore not yet serious about political action. (01:01:39) Nicholas J. Fuentes expressed hope that police officers across the [[country]] would resign or go on strike to show the public what a nation without law enforcement looks like.
 
 ### AF 2020-06-16 0622
 (01:12:46) Nicholas J. Fuentes acknowledged a viewer named Nicker [[who]] lost his job due to the economy and sent three dollars.
@@ -8737,7 +8737,7 @@
 (01:20:20) Nicholas J. Fuentes disagreed that Asian cities had overtaken the [[Kanye West|West]], though he acknowledged Western cities are declining and Asian cities are rising, nearing an inflection point.
 
 ### AF 2020-06-16 0622
-(01:20:45) Nicholas J. Fuentes, having never been to Asia, defended [[City of Chicago|Chicago]] as a great [[city]] despite its problems, citing the Magnificent Mile, Gold Coast, the Loop, the lake, river, bridges, and skyline.
+(01:20:45) Nicholas J. Fuentes, having never been to Asia, defended [[Chicago]] as a great [[city]] despite its problems, citing the Magnificent Mile, Gold Coast, the Loop, the lake, river, bridges, and skyline.
 
 ### AF 2020-06-16 0622
 (01:24:06) Nicholas J. Fuentes stated he would disown and physically beat his son if he came out as transgender, asserting his paternal authority regardless of the child's age.
@@ -8749,7 +8749,7 @@
 (01:26:55) Nicholas J. Fuentes explained his past support for [[Andrew Yang]] was based on the logic that the [[country]] was over and [[Universal Studios|Universal]] Basic Income of $1,000 a month was preferable.
 
 ### AF 2020-06-16 0622
-(01:27:36) Nicholas J. Fuentes dismissed a viewer's claim that "[[Health and Human Services|Medicare]] for all would cover everyone and save money" as idiotic, arguing providing more coverage cannot make something cheaper.
+(01:27:36) Nicholas J. Fuentes dismissed a viewer's claim that "[[Medicare]] for all would cover everyone and save money" as idiotic, arguing providing more coverage cannot make something cheaper.
 
 ### AF 2020-06-16 0622
 (01:29:29) Nicholas J. Fuentes responded to a viewer named James, arguing that [[black]] people do not exhibit fear of police, as evidenced by them cursing at officers and resisting arrest instead of being upstanding.
@@ -8944,7 +8944,7 @@
 (00:15:89) Nicholas J. Fuentes stated that his main story for the evening would be about his rival, [[Tucker Carlson]], whose show on [[Fox News]] was once again under fire from advertisers.
 
 ### AF 2020-06-12 0620
-(00:50:61) Nicholas J. Fuentes reported that several advertisers, including [[Disney|Disney]] and [[Papa John's]], had pulled their advertisements from [[Tucker Carlson]]'s show on [[Fox News]] in protest over his comments on [[Black Lives Matter]].
+(00:50:61) Nicholas J. Fuentes reported that several advertisers, including [[Disney]] and [[Papa John's]], had pulled their advertisements from [[Tucker Carlson]]'s show on [[Fox News]] in protest over his comments on [[Black Lives Matter]].
 
 ### AF 2020-06-12 0620
 (00:58:77) Nicholas J. Fuentes stated that [[Donald Trump]] and the [[Donald Trump|Trump campaign]] announced they would be restarting campaign rallies the following week.
@@ -8989,7 +8989,7 @@
 (01:40:44) Nicholas J. Fuentes reported that [[Tucker Carlson]] had cast doubt on the reasons behind the worldwide unrest following the death of [[George Floyd]], stating "this may be a lot of things... but it is definitely not about [[black]] lives."
 
 ### AF 2020-06-12 0620
-(01:41:15) Nicholas J. Fuentes listed [[Disney|Disney]], [[Papa John's]], [[Poshmark]], and [[T-Mobile]] as companies that had distanced themselves from advertising on [[Tucker Carlson]]'s show following criticism from the watchdog group [[Sleeping Giants]].
+(01:41:15) Nicholas J. Fuentes listed [[Disney]], [[Papa John's]], [[Poshmark]], and [[T-Mobile]] as companies that had distanced themselves from advertising on [[Tucker Carlson]]'s show following criticism from the watchdog group [[Sleeping Giants]].
 
 ### AF 2020-06-12 0620
 (01:41:56) Nicholas J. Fuentes quoted [[T-Mobile]] CEO [[Mike Sievert]]'s tweet saying "bye-bye, [[Tucker Carlson]]" in response to the advertiser pullout.
@@ -9019,13 +9019,13 @@
 (01:54:52) Nicholas J. Fuentes asserted that most television programming, except for figures like [[Tucker Carlson]], exists with the tacit approval of giant corporations and a transnational elite, which he called the real enemy of the people.
 
 ### AF 2020-06-11 0619
-(01:12:34) Nicholas J. Fuentes stated that the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ) in [[City of Seattle|Seattle]] was created when protesters took barricades surrounding buildings and turned them outwardly to create a six-block perimeter.
+(01:12:34) Nicholas J. Fuentes stated that the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ) in [[Seattle]] was created when protesters took barricades surrounding buildings and turned them outwardly to create a six-block perimeter.
 
 ### AF 2020-06-11 0619
-(02:27:64) Nicholas J. Fuentes announced that the main story for his show would be the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ) in [[City of Seattle|Seattle]].
+(02:27:64) Nicholas J. Fuentes announced that the main story for his show would be the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ) in [[Seattle]].
 
 ### AF 2020-06-11 0619
-(03:30:16) Nicholas J. Fuentes stated that the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ) in [[City of Seattle|Seattle]] would be the featured story of his show.
+(03:30:16) Nicholas J. Fuentes stated that the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ) in [[Seattle]] would be the featured story of his show.
 
 ### AF 2020-06-11 0619
 (03:38:36) Nicholas J. Fuentes announced that his show would also discuss the movement to rename [[United States]] military bases named after Confederate generals, a demand by [[Black Lives Matter]] and Congressional [[Democratic Party|Democrats]].
@@ -9043,10 +9043,10 @@
 (10:04:44) Nicholas J. Fuentes stated that the [[Donald Trump]] campaign was advertised as a [[turning point]] and repudiation of the previous 30 years of [[United States|American]] politics, including the presidencies of [[Barack Obama]], [[George W. Bush]], [[Bill Clinton]], and [[Ronald Reagan]].
 
 ### AF 2020-06-11 0619
-(10:48:42) Nicholas J. Fuentes argued that the [[Barack Obama]] administration exhibited more law and order than the [[Donald Trump]] administration, citing the duration and scale of protests in [[City of St. Louis|Ferguson]] and Baltimore compared to the 2020 unrest.
+(10:48:42) Nicholas J. Fuentes argued that the [[Barack Obama]] administration exhibited more law and order than the [[Donald Trump]] administration, citing the duration and scale of protests in [[Ferguson]] and Baltimore compared to the 2020 unrest.
 
 ### AF 2020-06-11 0619
-(11:03:88) Nicholas J. Fuentes contrasted the law enforcement response to unrest in [[City of St. Louis|Ferguson]] and Baltimore under [[Barack Obama]] with the ongoing protests and autonomous zone in [[City of Seattle|Seattle]] under [[Donald Trump]].
+(11:03:88) Nicholas J. Fuentes contrasted the law enforcement response to unrest in [[Ferguson]] and Baltimore under [[Barack Obama]] with the ongoing protests and autonomous zone in [[Seattle]] under [[Donald Trump]].
 
 ### AF 2020-06-11 0619
 (11:22:36) Nicholas J. Fuentes argued that [[Barack Obama]] was, in some ways, more successful on immigration enforcement, such as deportations, than [[Donald Trump]] had been.
@@ -9067,7 +9067,7 @@
 (15:20:52) Nicholas J. Fuentes stated that the situation regarding military base names had worsened, as [[Democratic Party|Democrats]] and [[Republican Party|Republicans]] in [[Congress]] were now trying to force the change through legislation, despite [[Donald Trump]]'s opposition.
 
 ### AF 2020-06-11 0619
-(16:58:48) Nicholas J. Fuentes explained that must-pass defense authorization bills are often used by the legislature to exert pressure on [[Donald Trump|the president]] to change policy, as was happening with the amendment to rename military bases.
+(16:58:48) Nicholas J. Fuentes explained that must-pass defense authorization bills are often used by the legislature to exert pressure on [[the president]] to change policy, as was happening with the amendment to rename military bases.
 
 ### AF 2020-06-11 0619
 (17:49:46) Nicholas J. Fuentes argued that [[Senate Republicans]], with few exceptions, were not only complicit but were endorsing the name change for [[United States]] military bases by allowing [[Elizabeth Warren]]'s amendment to proceed.
@@ -9109,7 +9109,7 @@
 (26:27:62) Nicholas J. Fuentes stated that his support for the [[Republican Party]] was finished unless candidates ran as [[Republican Party|Republicans]] while being "completely and totally and militantly against the [[Republican Party|GOP]]."
 
 ### AF 2020-06-11 0619
-(26:46:06) Nicholas J. Fuentes stated that [[Donald Trump]] might be an exception to his rejection of the [[Republican Party]], as [[Donald Trump|the president]] seemed to be mounting some effort against the political establishment.
+(26:46:06) Nicholas J. Fuentes stated that [[Donald Trump]] might be an exception to his rejection of the [[Republican Party]], as [[the president]] seemed to be mounting some effort against the political establishment.
 
 ### AF 2020-06-11 0619
 (26:54:98) Nicholas J. Fuentes viewed [[Donald Trump]] as trying to mount an effort against the political establishment, unlike complicit Congressional [[Republican Party|Republicans]].
@@ -9124,10 +9124,10 @@
 (29:02:16) Nicholas J. Fuentes stated he would not vote in November except potentially for [[Donald Trump]], and even that was a stretch, due to the [[Republican Party]]'s failures.
 
 ### AF 2020-06-11 0619
-(29:04:72) Nicholas J. Fuentes stated he would vote for [[Donald Trump]] but considered it a stretch, questioning how much better [[Donald Trump|the president]] was than the "total traitors" in the Congressional [[Republican Party|GOP]].
+(29:04:72) Nicholas J. Fuentes stated he would vote for [[Donald Trump]] but considered it a stretch, questioning how much better [[the president]] was than the "total traitors" in the Congressional [[Republican Party|GOP]].
 
 ### AF 2020-06-11 0619
-(29:10:62) Nicholas J. Fuentes questioned how much better [[Donald Trump]] was than the "total traitors" in the Congressional [[Republican Party]], and said [[Donald Trump|the president's]] decision on vetoing the defense bill would be revealing.
+(29:10:62) Nicholas J. Fuentes questioned how much better [[Donald Trump]] was than the "total traitors" in the Congressional [[Republican Party]], and said [[the president's]] decision on vetoing the defense bill would be revealing.
 
 ### AF 2020-06-11 0619
 (29:28:60) Nicholas J. Fuentes speculated that [[Donald Trump]] might capitulate and allow the defense bill with the renaming amendment to pass due to election-year pressures and the influence of [[Jared Kushner]].
@@ -9142,13 +9142,13 @@
 (29:45:84) Nicholas J. Fuentes declared it was over for him regarding the [[Republican Party]], stating that if the [[country]] was ending, the [[Republican Party|GOP]] should die a painful death first.
 
 ### AF 2020-06-11 0619
-(30:26:26) Nicholas J. Fuentes stated that the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ) in [[City of Seattle|Seattle]] was the featured story of his show.
+(30:26:26) Nicholas J. Fuentes stated that the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ) in [[Seattle]] was the featured story of his show.
 
 ### AF 2020-06-11 0619
 (31:46:06) Nicholas J. Fuentes transitioned to discussing the [[United States Capitol|Capitol Hill]] Autonomous Zone (CHAZ), connecting it to the earlier story about the [[Republican Party]]'s failures.
 
 ### AF 2020-06-10 0618
-(04:12:46) Nicholas J. Fuentes attended the 2017 [[City of Charlottesville|Charlottesville rally]] to protest the removal of a statue of [[Robert E. Lee]].
+(04:12:46) Nicholas J. Fuentes attended the 2017 [[Charlottesville rally]] to protest the removal of a statue of [[Robert E. Lee]].
 
 ### AF 2020-06-10 0618
 (24:27:92) Nicholas J. Fuentes argued that demands for free healthcare in [[State of Kentucky|Kentucky]] and corporate donations to [[Black Lives Matter]] were unrelated to police brutality and constituted a wealth transfer from white to [[black]] [[United States|Americans]].
@@ -9328,7 +9328,7 @@
 (19:01:39) Nicholas J. Fuentes stated that a group of perhaps 2,500 people in [[Los Angeles|Hollywood]], including actors, directors, and producers, creates the media content that shapes the lived reality for hundreds of millions of people worldwide.
 
 ### AF 2020-06-08 0616
-(22:06:45) Nicholas J. Fuentes reported that the [[George Floyd]] protests had escalated from initial unrest in [[City of Minneapolis|Minneapolis]] and [[City of St. Paul|St. Paul]] to violent riots, looting, and property destruction in virtually every major [[city]] in the [[United States]], including [[City of Chicago|Chicago]], [[New York|New York City]], and [[Los Angeles]].
+(22:06:45) Nicholas J. Fuentes reported that the [[George Floyd]] protests had escalated from initial unrest in [[Minneapolis]] and [[St. Paul]] to violent riots, looting, and property destruction in virtually every major [[city]] in the [[United States]], including [[Chicago]], [[New York|New York City]], and [[Los Angeles]].
 
 ### AF 2020-06-08 0616
 (23:38:73) Nicholas J. Fuentes cited the cases of [[Ahmaud Arbery]] and the "bird watching incident" as preceding race relations incidents before the killing of [[George Floyd]].
@@ -9355,7 +9355,7 @@
 (45:57:49) Nicholas J. Fuentes argued that democracy necessitates the creation of scapegoats, as politicians cannot alienate voters, which is why they blame groups like [[Antifa]] instead of the demographics committing the violence.
 
 ### AF 2020-06-08 0616
-(50:57:61) Nicholas J. Fuentes acknowledged that [[George Soros]]'s [[Open Society Foundation]] gave exorbitant amounts of money to [[Black Lives Matter]] and that [[Antifa]] was present at protests in strongholds like [[City of Portland|Portland]] and [[Washington D.C.|Washington, D.C.]].
+(50:57:61) Nicholas J. Fuentes acknowledged that [[George Soros]]'s [[Open Society Foundation]] gave exorbitant amounts of money to [[Black Lives Matter]] and that [[Antifa]] was present at protests in strongholds like [[Portland]] and [[Washington D.C.|Washington, D.C.]].
 
 ### AF 2020-06-08 0616
 (52:50:67) Nicholas J. Fuentes concluded that the [[United States]] is totally divided along irreconcilable lines, with two parts of the population holding diametrically opposite visions for [[United States|America]] that cannot coexist, leading to an inevitable conflict where one side will dominate.
@@ -9370,7 +9370,7 @@
 (58:56:81) Nicholas J. Fuentes criticized mainstream conservative commentators like [[Mike Cernovich]] for reducing the crisis to slogans like "jobs, not mobs," instead of addressing the severe destabilization and lawlessness he observed.
 
 ### AF 2020-06-08 0616
-(01:00:50:49) Nicholas J. Fuentes drew a parallel between videos of cars driving through protest crowds during the [[George Floyd]] riots and the 2017 [[City of Charlottesville|Charlottesville]] rally, where a car attack killed [[Heather Heyer]], which was widely condemned as a terrorist attack.
+(01:00:50:49) Nicholas J. Fuentes drew a parallel between videos of cars driving through protest crowds during the [[George Floyd]] riots and the 2017 [[Charlottesville]] rally, where a car attack killed [[Heather Heyer]], which was widely condemned as a terrorist attack.
 
 ### AF 2020-06-08 0616
 (01:07:01:11) Nicholas J. Fuentes argued that claims of systemic racism against [[black]] people were false, pointing to corporate donations, affirmative action, diversity programs, and media representation as evidence that systemic advantages exist for [[black]] people, not disadvantages.
@@ -9472,7 +9472,7 @@
 (01:58:28) Nicholas J. Fuentes condemned the [[Israel|Israelis]] responsible for the [[USS Liberty]] attack.
 
 ### AF 2020-06-08 0616
-(01:59:01) Nicholas J. Fuentes recounted an incident where he and associates, including [[Matt]], Jaden, and other "Groypers," confronted a small [[Black Lives Matter]] protest at a library outside [[City of Phoenix|Phoenix]].
+(01:59:01) Nicholas J. Fuentes recounted an incident where he and associates, including [[Matt]], Jaden, and other "Groypers," confronted a small [[Black Lives Matter]] protest at a library outside [[Phoenix]].
 
 ### AF 2020-06-08 0616
 (02:00:48) During the library confrontation, a middle-aged woman in the protest group became suspicious of Nicholas J. Fuentes and his associates, noting one of them was "smirking."
@@ -9568,7 +9568,7 @@
 (02:25:03) Nicholas J. Fuentes stated his show's success stemmed from a focus on making good content rather than seeking fame, a priority he maintained from 100 to 15,000 viewers.
 
 ### AF 2020-06-08 0616
-(02:26:34) A viewer named Tactical Nuke claimed to have been at the [[City of Charlottesville|Charlottesville]] rally, witnessed the car attack and a helicopter crash, and wanted to "schmood" with Nicholas J. Fuentes about it.
+(02:26:34) A viewer named Tactical Nuke claimed to have been at the [[Charlottesville]] rally, witnessed the car attack and a helicopter crash, and wanted to "schmood" with Nicholas J. Fuentes about it.
 
 ### AF 2020-06-08 0616
 (02:27:16) The same viewer added that "milk doesn't work against tear gas," to which Nicholas J. Fuentes mockingly expressed awe that the viewer had been hit with tear gas.
@@ -9634,13 +9634,13 @@
 (00:08:03) Nicholas J. Fuentes announced he would be absent from his show for a week beginning the following day, May 29, 2020, for a vacation.
 
 ### AF 2020-05-28 0615
-(00:17:27) Nicholas J. Fuentes stated that the May 28, 2020, riots in [[City of Minneapolis|Minneapolis]] escalated from peaceful protests into arson, looting, vandalism, and shootings in response to the death of [[George Floyd]].
+(00:17:27) Nicholas J. Fuentes stated that the May 28, 2020, riots in [[Minneapolis]] escalated from peaceful protests into arson, looting, vandalism, and shootings in response to the death of [[George Floyd]].
 
 ### AF 2020-05-28 0615
 (01:00:03) Nicholas J. Fuentes argued that the looting of specific stores like the [[Apple Store]], [[Thurston Jewelers]], and [[High Lake Liquors]] indicated opportunism and greed rather than political outrage over [[George Floyd]]'s death.
 
 ### AF 2020-05-28 0615
-(01:02:25) Nicholas J. Fuentes argued that the riots occurred because the participants could not or refused to behave in a way that lives up to a civilized society, citing a pattern of similar events in [[Ferguson]], [[Baltimore]], [[City of Chicago|Chicago]], [[City|Detroit]], and [[City of St. Louis|St. Louis]].
+(01:02:25) Nicholas J. Fuentes argued that the riots occurred because the participants could not or refused to behave in a way that lives up to a civilized society, citing a pattern of similar events in [[Ferguson]], [[Baltimore]], [[Chicago]], [[City|Detroit]], and [[St. Louis]].
 
 ### AF 2020-05-28 0615
 (01:03:13) Nicholas J. Fuentes claimed the disproportionate frequency of such riots among [[black]] communities, both in the [[United States]] and in countries like [[Haiti]], [[Nigeria]], [[Somalia]], and [[Jamaica]], pointed to a behavioral pattern rather than political or economic causes.
@@ -9649,13 +9649,13 @@
 (01:05:11) Nicholas J. Fuentes criticized [[Donald Trump]] for not commenting on the riots, suggesting it was due to a misguided belief that he could win the [[black]] vote in the 2020 election.
 
 ### AF 2020-05-28 0615
-(01:08:56) Nicholas J. Fuentes proposed imposing indefinite martial law in [[United States|American]] neighborhoods with murder rates as high as those in [[City of Chicago|Chicago]]'s [[Englewood]] and [[Humboldt Park]].
+(01:08:56) Nicholas J. Fuentes proposed imposing indefinite martial law in [[United States|American]] neighborhoods with murder rates as high as those in [[Chicago]]'s [[Englewood]] and [[Humboldt Park]].
 
 ### AF 2020-05-28 0615
 (01:12:13) Nicholas J. Fuentes dismissed claims that the riots were orchestrated by [[George Soros]] or [[Antifa]], attributing them instead to racial animus and [[black]] dysfunction.
 
 ### AF 2020-05-28 0615
-(01:14:09) Nicholas J. Fuentes characterized the [[City of Minneapolis|Minneapolis]] riots as the latest episode in a historical pattern of "[[black]] dysfunction," comparing it to riots that occurred in [[African continent|Africa]] following decolonization in the 1960s.
+(01:14:09) Nicholas J. Fuentes characterized the [[Minneapolis]] riots as the latest episode in a historical pattern of "[[black]] dysfunction," comparing it to riots that occurred in [[African continent|Africa]] following decolonization in the 1960s.
 
 ### AF 2020-05-28 0615
 (01:19:30) Nicholas J. Fuentes argued that abusive police behavior in some neighborhoods stems from officers facing constant threats, gang activity, and non-compliance over long careers, not from inherent racism.
@@ -9667,7 +9667,7 @@
 (01:21:03) Nicholas J. Fuentes cited a video of a [[black]] man robbing a convenience store, tying up the clerk, dousing her in lighter fluid, and setting her on fire for seven dollars as an example of violent crime that fuels public fear and calls to police.
 
 ### AF 2020-05-28 0615
-(01:21:57) Nicholas J. Fuentes warned that the civil disorder and destruction seen in [[City of Minneapolis|Minneapolis]] could become a future reality for neighborhoods across the [[United States]] if current trajectories of demographic change and lawlessness continue unchecked.
+(01:21:57) Nicholas J. Fuentes warned that the civil disorder and destruction seen in [[Minneapolis]] could become a future reality for neighborhoods across the [[United States]] if current trajectories of demographic change and lawlessness continue unchecked.
 
 ### AF 2020-05-28 0615
 (01:23:58) Nicholas J. Fuentes advocated for an immediate halt to all immigration as the first step to protect [[United States|American]] communities from further destabilization.
@@ -9676,25 +9676,25 @@
 (01:24:10) Nicholas J. Fuentes called for laws granting local communities autonomy to decide [[who]] can live within them, arguing this is necessary to preserve safety and order.
 
 ### AF 2020-05-28 0615
-(01:24:38) Nicholas J. Fuentes stated that the [[U.S. Constitution|Second Amendment]] and [[Concept|First Amendment]] are essential tools for self-defense and open discourse needed to address the root causes of societal problems like the [[City of Minneapolis|Minneapolis]] riots.
+(01:24:38) Nicholas J. Fuentes stated that the [[U.S. Constitution|Second Amendment]] and [[Concept|First Amendment]] are essential tools for self-defense and open discourse needed to address the root causes of societal problems like the [[Minneapolis]] riots.
 
 ### AF 2020-05-28 0615
 (01:24:53) Nicholas J. Fuentes asserted that governments must seriously address criminality by arresting rioters and looters and imposing long jail sentences to prevent a bleak national future.
 
 ### AF 2020-05-28 0615
-(01:25:25) Nicholas J. Fuentes criticized mainstream conservatives for pivoting to [[the left]] or remaining silent in response to the [[City of Minneapolis|Minneapolis]] riots, refusing to honestly discuss the causes of the violence.
+(01:25:25) Nicholas J. Fuentes criticized mainstream conservatives for pivoting to [[the left]] or remaining silent in response to the [[Minneapolis]] riots, refusing to honestly discuss the causes of the violence.
 
 ### AF 2020-05-28 0615
-(01:26:29) Nicholas J. Fuentes argued that the [[U.S. Department of Defense|National Guard]] should have been activated immediately to quell the riots in [[City of Minneapolis|Minneapolis]] and should be a permanent presence in high-crime areas like [[City of Chicago|Chicago]].
+(01:26:29) Nicholas J. Fuentes argued that the [[U.S. Department of Defense|National Guard]] should have been activated immediately to quell the riots in [[Minneapolis]] and should be a permanent presence in high-crime areas like [[Chicago]].
 
 ### AF 2020-05-28 0615
-(01:26:43) Nicholas J. Fuentes noted that over Memorial Day weekend in [[City of Chicago|Chicago]], 10 people were killed and 50 were shot, illustrating the scale of chronic violence in some [[United States|American]] cities.
+(01:26:43) Nicholas J. Fuentes noted that over Memorial Day weekend in [[Chicago]], 10 people were killed and 50 were shot, illustrating the scale of chronic violence in some [[United States|American]] cities.
 
 ### AF 2020-05-28 0615
 (01:27:02) Nicholas J. Fuentes linked ongoing demographic change in the [[United States]] to the exacerbation of social unrest and civil disorder, arguing it does not benefit societal stability.
 
 ### AF 2020-05-28 0615
-(01:27:27) Nicholas J. Fuentes claimed that rioters in [[City of Minneapolis|Minneapolis]] targeted and destroyed their own community because they perceived it as "white" or "[[United States|America]]," and therefore not truly theirs.
+(01:27:27) Nicholas J. Fuentes claimed that rioters in [[Minneapolis]] targeted and destroyed their own community because they perceived it as "white" or "[[United States|America]]," and therefore not truly theirs.
 
 ### AF 2020-05-28 0615
 (01:27:43) Nicholas J. Fuentes stated that a mob would have lynched the police officer involved in the death of [[George Floyd]] if not for a large police presence protecting his home, illustrating a climate of mob violence and absent due process.
@@ -9703,7 +9703,7 @@
 (01:28:49) Nicholas J. Fuentes predicted that within the decade, a police officer [[who]] kills a [[black]] individual would likely be murdered by a [[black]] mob, marking a catastrophic [[turning point]] for the [[country]].
 
 ### AF 2020-05-28 0615
-(01:29:28) Nicholas J. Fuentes contrasted the potential consequences of a police disappearance in a white neighborhood—minor loitering or speeding—with the looting, arson, and destruction that occurred in [[City of Minneapolis|Minneapolis]].
+(01:29:28) Nicholas J. Fuentes contrasted the potential consequences of a police disappearance in a white neighborhood—minor loitering or speeding—with the looting, arson, and destruction that occurred in [[Minneapolis]].
 
 ### AF 2020-05-28 0615
 (01:30:41) Nicholas J. Fuentes concluded that "demographics is [[destiny]]," arguing that the behavioral patterns seen in troubled neighborhoods are an inevitable outcome of their population composition.
@@ -9712,7 +9712,7 @@
 (01:31:11) Nicholas J. Fuentes declared he no longer cares about accusations of racism, prioritizing truth, neighborhood safety, and family protection over the opinions of activists or sociology professors.
 
 ### AF 2020-05-27 0614
-(00:00:00) Nicholas J. Fuentes announced the show would cover ongoing riots in [[City of Minneapolis|Minneapolis]], [[Minnesota]] in response to the death of [[George Floyd]], marking the latest in a series of recent interracial incidents.
+(00:00:00) Nicholas J. Fuentes announced the show would cover ongoing riots in [[Minneapolis]], [[Minnesota]] in response to the death of [[George Floyd]], marking the latest in a series of recent interracial incidents.
 
 ### AF 2020-05-27 0614
 (00:02:20) Nicholas J. Fuentes stated that the media was reporting [[George Floyd]] was killed by police, but the official cause of death had not yet been ascertained by doctors.
@@ -9721,7 +9721,7 @@
 (00:03:30) Nicholas J. Fuentes argued that the video of [[George Floyd]]'s arrest showed an excessive use of force by the officer, making this incident more valid than previous cases like [[Ahmaud Arbery]].
 
 ### AF 2020-05-27 0614
-(00:04:00) Nicholas J. Fuentes reported that riots involving looting, vandalism, and violence had erupted throughout [[City of Minneapolis|Minneapolis]] in response to the video of [[George Floyd]]'s death.
+(00:04:00) Nicholas J. Fuentes reported that riots involving looting, vandalism, and violence had erupted throughout [[Minneapolis]] in response to the video of [[George Floyd]]'s death.
 
 ### AF 2020-05-27 0614
 (00:05:50) Nicholas J. Fuentes claimed his show was the only one to cover recent racial incidents with nuance, analyzing each case individually rather than offering dogmatic left-wing or right-wing answers.
@@ -9745,16 +9745,16 @@
 (00:14:40) Nicholas J. Fuentes cited a previous example where [[Donald Trump]] promised an executive order banning all immigration but only banned 30% of green cards for 60 days.
 
 ### AF 2020-05-27 0614
-(00:18:50) Nicholas J. Fuentes cited crime statistics showing that in [[City of Chicago|Chicago]], [[blacks]] and [[Hispanic|Hispanics]] combined accounted for 90% of homicides, while whites, roughly a third of the population, accounted for 3.5%.
+(00:18:50) Nicholas J. Fuentes cited crime statistics showing that in [[Chicago]], [[blacks]] and [[Hispanic|Hispanics]] combined accounted for 90% of homicides, while whites, roughly a third of the population, accounted for 3.5%.
 
 ### AF 2020-05-27 0614
-(00:21:00) Nicholas J. Fuentes contrasted the massive media coverage of the [[Ahmaud Arbery]] shooting with the lack of coverage for the deadly violence in [[City of Chicago|Chicago]] over Memorial Day weekend.
+(00:21:00) Nicholas J. Fuentes contrasted the massive media coverage of the [[Ahmaud Arbery]] shooting with the lack of coverage for the deadly violence in [[Chicago]] over Memorial Day weekend.
 
 ### AF 2020-05-27 0614
 (00:23:40) Nicholas J. Fuentes argued that biases exist because of real-world violence and crime statistics, asking why a white woman in [[New York|Central Park]] or [[Travis McMichael]] would feel threatened given the context of [[black]] crime.
 
 ### AF 2020-05-27 0614
-(00:25:00) Nicholas J. Fuentes noted that in [[City of Chicago|Chicago]], 70% of homicide perpetrators were [[black]] and 75% of the victims were also [[black]].
+(00:25:00) Nicholas J. Fuentes noted that in [[Chicago]], 70% of homicide perpetrators were [[black]] and 75% of the victims were also [[black]].
 
 ### AF 2020-05-27 0614
 (00:32:30) Nicholas J. Fuentes argued that [[Twitter]] made a fatal mistake by editorializing and calling the head of state a liar on the sensitive issue of electioneering.
@@ -9781,7 +9781,7 @@
 (01:07:40) Nicholas J. Fuentes pointed out that the media reported [[George Floyd]] died *after* the chokehold, not *because* of it, as the official cause of death had not been established.
 
 ### AF 2020-05-27 0614
-(01:09:30) Nicholas J. Fuentes described videos showing people looting a [[Target Corporation|Target]] store and a liquor store in [[City of Minneapolis|Minneapolis]] during the protests.
+(01:09:30) Nicholas J. Fuentes described videos showing people looting a [[Target Corporation|Target]] store and a liquor store in [[Minneapolis]] during the protests.
 
 ### AF 2020-05-27 0614
 (01:11:40) Nicholas J. Fuentes argued that even if the [[George Floyd]] incident was a legitimate case of police brutality, there was no evidence it was racially motivated, and it did not prove a systemic problem of white cops lynching [[black]] people.
@@ -9808,7 +9808,7 @@
 (01:33:40) Nicholas J. Fuentes observed that the [[Donald Trump|Trump]] administration and the [[U.S. Department of Justice|Department of Justice]] were investigating the [[George Floyd]] and [[Ahmaud Arbery]] cases, which he saw as an attempt to appease the rioters.
 
 ### AF 2020-05-27 0614
-(01:34:30) Nicholas J. Fuentes argued that appeasing criminals through investigations and concessions would not work, and that law-breaking, like looting [[Target Corporation|Target]], must be punished to restore order.(01:40:08) Nicholas J. Fuentes argued that observable disparities in outcomes between regions like [[City of Minneapolis|Minneapolis]], [[City|Detroit]], [[City of Chicago|Chicago]], [[Europe]], and [[African continent|Africa]] stem from fundamental genetic inequalities, not solely cultural differences.
+(01:34:30) Nicholas J. Fuentes argued that appeasing criminals through investigations and concessions would not work, and that law-breaking, like looting [[Target Corporation|Target]], must be punished to restore order.(01:40:08) Nicholas J. Fuentes argued that observable disparities in outcomes between regions like [[Minneapolis]], [[City|Detroit]], [[Chicago]], [[Europe]], and [[African continent|Africa]] stem from fundamental genetic inequalities, not solely cultural differences.
 
 ### AF 2020-05-27 0614
 (01:41:13) Nicholas J. Fuentes stated his desire for everyone to get along and be happy, but expressed unwillingness to be subjected to crime while waiting for societal problems to be resolved.
@@ -10039,7 +10039,7 @@
 (12:56:16) Nicholas J. Fuentes discussed the YouTuber "[[Hasan Piker|Vaush]]," a far-left content creator he described as physically repulsive and a "tranny chaser."
 
 ### AF 2020-05-25 0612
-(14:08:68) Nicholas J. Fuentes accused "[[Hasan Piker|Vaush]]" of generating controversy in January by spreading false claims that Nicholas J. Fuentes had paid an Australian streamer to fly to [[City of Chicago|Chicago]] for sex.
+(14:08:68) Nicholas J. Fuentes accused "[[Hasan Piker|Vaush]]" of generating controversy in January by spreading false claims that Nicholas J. Fuentes had paid an Australian streamer to fly to [[Chicago]] for sex.
 
 ### AF 2020-05-25 0612
 (14:41:40) Nicholas J. Fuentes reported that "[[Hasan Piker|Vaush]]" was recently caught on an accidental live stream shirtless with his naked girlfriend in the background, an image that was subsequently spammed in his [[Twitter]] replies.
@@ -10369,7 +10369,7 @@
 (01:10:01) In 2017, Nicholas J. Fuentes was friends with individuals associated with [[The Daily Wire]] [[who]] planned to introduce him to [[Ben Shapiro]] before he began questioning [[United States|U.S]]. foreign aid to [[Israel]].
 
 ### AF 2020-05-21 0610
-(01:21:28) [[Mona Charen]]'s article in [[The Bulwark]] described Nicholas J. Fuentes as a [[United States Holocaust Memorial Museum|Holocaust]]-denying figure [[who]] marched at the 2017 Unite the Right rally in [[City of Charlottesville|Charlottesville]] and whose group heckled speakers like [[Ben Shapiro]], [[Dan Crenshaw]], and [[Donald Trump Jr.]].
+(01:21:28) [[Mona Charen]]'s article in [[The Bulwark]] described Nicholas J. Fuentes as a [[United States Holocaust Memorial Museum|Holocaust]]-denying figure [[who]] marched at the 2017 Unite the Right rally in [[Charlottesville]] and whose group heckled speakers like [[Ben Shapiro]], [[Dan Crenshaw]], and [[Donald Trump Jr.]].
 
 ### AF 2020-05-21 0610
 (01:28:59) [[Mona Charen]] and [[Bill Kristol]] oppose [[Donald Trump]], support wars in the [[Middle East]], and are out of step with the majority of the [[Republican Party]], according to Nicholas J. Fuentes.
@@ -10657,10 +10657,10 @@
 (00:02:16) Nicholas J. Fuentes argued that the significance of the [[House Democrats]]' stimulus bill was not its contents but the fact that the [[Republican Party]] was offering no alternative relief during what he described as the worst recession in [[United States|American]] history, with 20 million jobs lost and unemployment potentially exceeding 20%.
 
 ### AF 2020-05-14 0605
-(00:03:24) Nicholas J. Fuentes announced a secondary topic for the show: the exhumation of [[Nathan Bedford Forrest]] and his wife's remains from a state park in [[City of Memphis|Memphis]], [[Tennessee]], following the removal of his monument by a private nonprofit, [[Memphis Greenspace]].
+(00:03:24) Nicholas J. Fuentes announced a secondary topic for the show: the exhumation of [[Nathan Bedford Forrest]] and his wife's remains from a state park in [[Memphis]], [[Tennessee]], following the removal of his monument by a private nonprofit, [[Memphis Greenspace]].
 
 ### AF 2020-05-14 0605
-(00:04:19) Nicholas J. Fuentes revealed his personal attendance at the [[City of Charlottesville|Charlottesville]] rally in August 2017, which he stated was organized to protest the removal of Confederate monuments, a cultural transformation he argued had only accelerated since that event.
+(00:04:19) Nicholas J. Fuentes revealed his personal attendance at the [[Charlottesville]] rally in August 2017, which he stated was organized to protest the removal of Confederate monuments, a cultural transformation he argued had only accelerated since that event.
 
 ### AF 2020-05-14 0605
 (00:07:01) Nicholas J. Fuentes reported on a recent webinar hosted by [[Dan Crenshaw]], during which a questioner asked about the 1965 Immigration Act and mass immigration; Nicholas J. Fuentes cited [[Cassandra Fairbanks]]'s coverage of the event.
@@ -10684,7 +10684,7 @@
 (00:17:32) Nicholas J. Fuentes sarcastically requested to see a picture of [[Dan Crenshaw]] "taking the money from [[Israel]]," contrasting it with the congressman's public macho image.
 
 ### AF 2020-05-14 0605
-(00:18:18) [[Dan Crenshaw]] stated publicly that "our morality comes from [[City of Jerusalem|Jerusalem]]," a claim Nicholas J. Fuentes rejected, asserting his own morality came from [[Jesus Christ]], not the [[Israel|Jewish state]].
+(00:18:18) [[Dan Crenshaw]] stated publicly that "our morality comes from [[Jerusalem]]," a claim Nicholas J. Fuentes rejected, asserting his own morality came from [[Jesus Christ]], not the [[Israel|Jewish state]].
 
 ### AF 2020-05-14 0605
 (00:19:22) Nicholas J. Fuentes promoted his new merchandise available at Merch.NicholasJFuentes.com, including an "I'm With Groyper" T-shirt that had generated controversy on [[Twitter]].
@@ -10705,10 +10705,10 @@
 (00:22:56) Nicholas J. Fuentes listed [[Rob Smith]], [[Charlie Kirk]], [[Benny Johnson]], [[Dan Crenshaw]], [[Ben Shapiro]], and [[Matt Walsh]] as a collection of dishonorable and unlikeable adversaries, citing [[Benny Johnson]]'s history as a serial plagiarist and [[Rob Smith]]'s past as a [[Democratic Party|Democrat]] [[who]] advertised for gay dating apps.
 
 ### AF 2020-05-14 0605
-(00:23:38) Nicholas J. Fuentes began reading a report stating that the remains of Confederate General [[Nathan Bedford Forrest]] and his wife would be removed from [[Health Sciences Park]] in [[City of Memphis|Memphis]], [[Tennessee]], where a monument to him once stood, following an agreement with the [[Sons of Confederate Veterans]].
+(00:23:38) Nicholas J. Fuentes began reading a report stating that the remains of Confederate General [[Nathan Bedford Forrest]] and his wife would be removed from [[Health Sciences Park]] in [[Memphis]], [[Tennessee]], where a monument to him once stood, following an agreement with the [[Sons of Confederate Veterans]].
 
 ### AF 2020-05-14 0605
-(00:25:38) The mayor of [[City of Memphis|Memphis]] stated that the statues of [[Nathan Bedford Forrest]] and [[Jefferson Davis]] "no longer represent [[who]] we are as a modern diverse [[city]] with momentum," a rationale Nicholas J. Fuentes interpreted as a rejection of historical [[United States|America]] in favor of a liberal, non-white, globalist future.
+(00:25:38) The mayor of [[Memphis]] stated that the statues of [[Nathan Bedford Forrest]] and [[Jefferson Davis]] "no longer represent [[who]] we are as a modern diverse [[city]] with momentum," a rationale Nicholas J. Fuentes interpreted as a rejection of historical [[United States|America]] in favor of a liberal, non-white, globalist future.
 
 ### AF 2020-05-14 0605
 (00:30:02) Nicholas J. Fuentes argued that [[Abraham Lincoln]] believed freed slaves would return to [[African continent|Africa]], not live in equality with whites, and that all the Founding Fathers were complicit in or directly practiced slavery, drawing a parallel to the targeted removal of [[Nathan Bedford Forrest]]'s remains.
@@ -10720,7 +10720,7 @@
 (00:32:05) Nicholas J. Fuentes asserted that the movement to remove monuments like that of [[Nathan Bedford Forrest]] was not fundamentally about racism but about a racial grievance against white [[United States|Americans]] and [[United States|American]] history itself, with the end goal of unseating the white majority.
 
 ### AF 2020-05-14 0605
-(00:33:07) Nicholas J. Fuentes noted that the [[Nathan Bedford Forrest]] and [[Jefferson Davis]] monuments in [[City of Memphis|Memphis]] were frequently vandalized, which he interpreted as proof that the population had already turned against the [[country]]'s historical myth, making their official removal inevitable.
+(00:33:07) Nicholas J. Fuentes noted that the [[Nathan Bedford Forrest]] and [[Jefferson Davis]] monuments in [[Memphis]] were frequently vandalized, which he interpreted as proof that the population had already turned against the [[country]]'s historical myth, making their official removal inevitable.
 
 ### AF 2020-05-14 0605
 (00:34:38) Nicholas J. Fuentes contended that militant [[black]] activists and [[the left]] see no distinction between figures like [[George Washington]], [[Abraham Lincoln]], or [[Thomas Jefferson]] and [[Ku Klux Klan]] leaders like [[Nathan Bedford Forrest]], because all existed outside the current liberal paradigm.
@@ -10846,13 +10846,13 @@
 (01:28:00) Nicholas J. Fuentes claimed that being blocked by him on [[Twitter]] had become a "cringe" badge of honor for some followers, which he dismissed as a transparent coping mechanism.
 
 ### AF 2020-05-13 0604
-(01:30:48) Nicholas J. Fuentes recounted a poor dining experience with [[Papa John's]] pizza during the [[COVID-19]] lockdown, after his preferred [[City of Chicago|Chicago]] deep-dish restaurants were closed.
+(01:30:48) Nicholas J. Fuentes recounted a poor dining experience with [[Papa John's]] pizza during the [[COVID-19]] lockdown, after his preferred [[Chicago]] deep-dish restaurants were closed.
 
 ### AF 2020-05-13 0604
-(01:31:40) Nicholas J. Fuentes mentioned that his father used his hand instead of a thermometer to check for [[COVID-19]] symptoms after returning from [[City of Las Vegas|Las Vegas]], which he considered irresponsible.
+(01:31:40) Nicholas J. Fuentes mentioned that his father used his hand instead of a thermometer to check for [[COVID-19]] symptoms after returning from [[Las Vegas]], which he considered irresponsible.
 
 ### AF 2020-05-13 0604
-(01:33:00) Nicholas J. Fuentes discussed potentially moving from [[Illinois]] to [[State of Florida|Florida]], citing [[State of Florida|Florida]]'s lower taxes, open economy during [[COVID-19]], and warmer climate, but expressed attachment to [[City of Chicago|Chicago]].
+(01:33:00) Nicholas J. Fuentes discussed potentially moving from [[Illinois]] to [[State of Florida|Florida]], citing [[State of Florida|Florida]]'s lower taxes, open economy during [[COVID-19]], and warmer climate, but expressed attachment to [[Chicago]].
 
 ### AF 2020-05-13 0604
 (01:35:40) Nicholas J. Fuentes noted that a viewer named "Ultros" offered to help him move to [[State of Florida|Florida]], an offer he declined by joking about the safety of sharing his address with strangers.
@@ -10966,7 +10966,7 @@
 (01:46:30) Nicholas J. Fuentes recounted a story where a neighbor made a derogatory comment about him living with his parents, prompting his father to mention his income to counter the insult.
 
 ### AF 2020-05-11 0602
-(01:48:01) Nicholas J. Fuentes stated that his community and neighbors had disparaged him for years over dropping out of college and attending the [[City of Charlottesville|Charlottesville rally]].
+(01:48:01) Nicholas J. Fuentes stated that his community and neighbors had disparaged him for years over dropping out of college and attending the [[Charlottesville rally]].
 
 ### AF 2020-05-11 0602
 (01:49:09) Nicholas J. Fuentes expressed skepticism towards modern labor unions, arguing that major organizations like the [[AFL-CIO]] have become as corrupt as the corporations they negotiate with.
@@ -10993,7 +10993,7 @@
 (02:01:01) Nicholas J. Fuentes warned that media narratives about whites hunting [[blacks]] could inspire retaliatory violence against whites, creating a one-sided race war.
 
 ### AF 2020-05-11 0602
-(02:01:35) Nicholas J. Fuentes commented that [[Michael Knowles]] had [[James Allsup]] on his show after [[City of Charlottesville|Charlottesville]] and "outclassed him" in debate, but suggested Knowles understands the underlying political dynamics.
+(02:01:35) Nicholas J. Fuentes commented that [[Michael Knowles]] had [[James Allsup]] on his show after [[Charlottesville]] and "outclassed him" in debate, but suggested Knowles understands the underlying political dynamics.
 
 ### AF 2020-05-11 0602
 (02:02:18) Nicholas J. Fuentes mocked a [[Prager University|PragerU]] video that described [[Israel]] as the "North Star of morality."
@@ -11017,7 +11017,7 @@
 (02:10:07) Nicholas J. Fuentes listed his ranking of [[The Daily Wire]] hosts from most to least insufferable as [[Andrew Klavan]], [[Michael Knowles]], [[Ben Shapiro]], and [[Matt Walsh]], whom he called "a complete joke."
 
 ### AF 2020-05-11 0602
-(02:11:22) Nicholas J. Fuentes described his suburban upbringing as cliquish and judgmental, where parents gave his mother a hard [[time]] after he dropped out of college and went to [[City of Charlottesville|Charlottesville]].
+(02:11:22) Nicholas J. Fuentes described his suburban upbringing as cliquish and judgmental, where parents gave his mother a hard [[time]] after he dropped out of college and went to [[Charlottesville]].
 
 ### AF 2020-05-11 0602
 (02:14:13) Nicholas J. Fuentes advised against dating a [[Jews|Jewish]] [[person]], noting that while it is not a sin, he would not want to because the children would be considered [[Jews|Jewish]] by [[Jews|Jewish]] law and he prefers a [[Christianity|Christian]], [[Europe|European]] partner.
@@ -11092,7 +11092,7 @@
 (00:35:49) Nicholas J. Fuentes argued that a three-year immigration ban would be a "game changer" and was a legitimate policy given the economic and public health crisis, fulfilling a mandate from the 2016 election.
 
 ### AF 2020-05-08 0601
-(00:37:18) Nicholas J. Fuentes stated that [[Donald Trump]] had said at a State of the Union address that he wanted "more immigrants than ever," highlighting a discrepancy between [[Donald Trump|the president's]] rhetoric and the immigration restrictionist position.
+(00:37:18) Nicholas J. Fuentes stated that [[Donald Trump]] had said at a State of the Union address that he wanted "more immigrants than ever," highlighting a discrepancy between [[the president's]] rhetoric and the immigration restrictionist position.
 
 ### AF 2020-05-08 0601
 (00:39:41) Nicholas J. Fuentes identified [[Jared Kushner]]'s immigration proposal as one that would restructure but not cut legal immigration.
@@ -11308,7 +11308,7 @@
 (01:18:07) Nicholas J. Fuentes characterized the outsourcing of [[United States|American]] jobs and support for mass immigration as a betrayal of the [[country]] and a form of treason, arguing that businesses have an obligation to their countrymen and the nation that enabled their success.(01:24:19) Nicholas J. Fuentes argued that [[Saint Peter]] was designated by [[Jesus Christ]] as the foundational leader of the [[Christianity|Christian]] church on [[earth]], establishing the principle of apostolic succession.
 
 ### AF 2020-05-04 0597
-(01:25:05) Nicholas J. Fuentes argued that the [[Eastern Orthodox Church]] could not be the true church because its historical center, [[City of Istanbul|Constantinople]], was conquered by [[Islam|Muslims]] and its leaders rescinded agreements made at the [[Council of Florence]] under [[Islam|Muslim]] pressure.
+(01:25:05) Nicholas J. Fuentes argued that the [[Eastern Orthodox Church]] could not be the true church because its historical center, [[Constantinople]], was conquered by [[Islam|Muslims]] and its leaders rescinded agreements made at the [[Council of Florence]] under [[Islam|Muslim]] pressure.
 
 ### AF 2020-05-04 0597
 (01:25:34) Nicholas J. Fuentes dismissed the [[Anglican Church]] as a candidate for the true [[Christianity|Christian]] church, arguing that the longevity and historical primacy of the [[Catholic Church|Roman Catholic Church]] made it the only plausible choice.
@@ -11335,7 +11335,7 @@
 (01:31:56) Nicholas J. Fuentes stated he could not personally relate to the [[Confederate flag]] as he is not a Southerner, but argued that Southerners displaying it are expressing a legitimate part of [[United States|American]] history and [[heritage]] that is more authentically [[United States|American]] than the identity of recent immigrants.
 
 ### AF 2020-05-04 0597
-(01:33:42) Nicholas J. Fuentes recounted that a viewer became a lifelong follower of his show after watching it while drunk in a hotel in [[City of Las Vegas|Las Vegas]].
+(01:33:42) Nicholas J. Fuentes recounted that a viewer became a lifelong follower of his show after watching it while drunk in a hotel in [[Las Vegas]].
 
 ### AF 2020-05-04 0597
 (01:34:14) Nicholas J. Fuentes stated he does not plan to host his show for his entire life and anticipates a natural stopping point, while having other ideas and "riding the wave of history."
@@ -11398,13 +11398,13 @@
 (02:01:00) Nicholas J. Fuentes commented on commentator [[John Doyle]], saying he seems "based on some issues" and may be bringing viewers along with a "normy presentation," but was unsure if a collaboration would occur.
 
 ### AF 2020-05-04 0597
-(02:02:06) Nicholas J. Fuentes recounted his extensive experience in high school [[United Nations|Model UN]], listing committees like DISEC, the [[United Nations Security Council|UN Security Council]], EcoFin, the [[World Health Organization]], the General Assembly, SPECPOL, the Egyptian Supreme Council of the Armed Forces, the [[Iran|Iranian]] cabinet, the [[Europe|European Union]], and the G20.
+(02:02:06) Nicholas J. Fuentes recounted his extensive experience in high school [[United Nations|Model UN]], listing committees like DISEC, the [[United Nations Security Council|UN Security Council]], EcoFin, the [[World Health Organization]], the General Assembly, SPECPOL, the Egyptian Supreme Council of the Armed Forces, the [[Iran|Iranian]] cabinet, the [[European Union]], and the G20.
 
 ### AF 2020-05-04 0597
-(02:03:07) Nicholas J. Fuentes stated his favorite [[United Nations|Model UN]] topics were broad economics issues, as well as recurring security crises involving [[Islamic State of Iraq and Syria|ISIS]], the militarization of the [[Southern United States|South]] [[China]] Sea, and the [[Russian]] incursion in [[City of Sevastopol|Crimea]] and the [[Donbas]].
+(02:03:07) Nicholas J. Fuentes stated his favorite [[United Nations|Model UN]] topics were broad economics issues, as well as recurring security crises involving [[Islamic State of Iraq and Syria|ISIS]], the militarization of the [[Southern United States|South]] [[China]] Sea, and the [[Russian]] incursion in [[Crimea]] and the [[Donbas]].
 
 ### AF 2020-05-04 0597
-(02:04:29) Nicholas J. Fuentes said he especially enjoyed representing [[Middle East|Middle Eastern]] countries like [[Iran]], [[Saudi Arabia]], [[Iraq]], [[Gaza Strip|Palestine]], and [[Arab Republic of Egypt|Egypt]] in [[United Nations|Model UN]] committees dealing with regional conflict.
+(02:04:29) Nicholas J. Fuentes said he especially enjoyed representing [[Middle East|Middle Eastern]] countries like [[Iran]], [[Saudi Arabia]], [[Iraq]], [[Palestine]], and [[Arab Republic of Egypt|Egypt]] in [[United Nations|Model UN]] committees dealing with regional conflict.
 
 ### AF 2020-05-04 0597
 (02:04:52) Nicholas J. Fuentes nostalgically recalled the "good old days" of high school [[United Nations|Model UN]], describing the independence of hotel stays, wearing suits, and hanging out with friends as an irreplaceable experience.
@@ -11692,7 +11692,7 @@
 (01:33:54) Nicholas J. Fuentes stated that [[Lance]] and Nick videos both engaged in "e-begging" by posting their payment links online.
 
 ### AF 2020-04-28 0594
-(01:34:21) Nicholas J. Fuentes recounted a family story where his great-grandfather told his great-uncle Joe that working in the sewers of [[City of Chicago|Chicago]] was beneath him, prompting Joe to become a successful entrepreneur.
+(01:34:21) Nicholas J. Fuentes recounted a family story where his great-grandfather told his great-uncle Joe that working in the sewers of [[Chicago]] was beneath him, prompting Joe to become a successful entrepreneur.
 
 ### AF 2020-04-28 0594
 (01:36:48) Nicholas J. Fuentes stated he had never asked for money or posted his payment links in years of doing his show, contrasting himself with [[Lance]] and Nick videos.
@@ -11734,7 +11734,7 @@
 (01:45:16) Nicholas J. Fuentes claimed that if he were with [[Kathy Zhu]], his "virile masculinity" would subjugate her and there would be "none of that" bedroom activity.
 
 ### AF 2020-04-28 0594
-(01:45:50) Nicholas J. Fuentes recalled that at a [[City of Miami|Miami]] event, [[Kathy Zhu]] was disappointed when he told her he was against race-mixing and wouldn't date an Asian girl.
+(01:45:50) Nicholas J. Fuentes recalled that at a [[Miami]] event, [[Kathy Zhu]] was disappointed when he told her he was against race-mixing and wouldn't date an Asian girl.
 
 ### AF 2020-04-28 0594
 (01:47:30) Nicholas J. Fuentes stated that [[Jaden]] eats at [[Cracker Barrel]] every day as part of his routine, ordering grits, biscuits, gravy, and sweet tea.
@@ -11764,7 +11764,7 @@
 (01:57:21) Nicholas J. Fuentes called for "F's in chat" for [[Steven Crowder|Steve Franzen]].
 
 ### AF 2020-04-28 0594
-(01:57:28) Nicholas J. Fuentes recounted that he and [[Steven Crowder|Steve Franzen]] had a bad fight the first [[time]] they talked and blocked each other on [[Twitter]], but later became friends after meeting in [[City of Miami|Miami]].
+(01:57:28) Nicholas J. Fuentes recounted that he and [[Steven Crowder|Steve Franzen]] had a bad fight the first [[time]] they talked and blocked each other on [[Twitter]], but later became friends after meeting in [[Miami]].
 
 ### AF 2020-04-28 0594
 (01:58:47) Nicholas J. Fuentes expressed pride in the growing roster of [[United States|America]] First streamers like [[Steven Crowder|Steve Franzen]], [[Jaden]], [[Jake Lloyd]], and [[Patrick Casey]], [[who]] were gaining traction on [[DLive]].
@@ -12109,7 +12109,7 @@
 (01:15:34) Nicholas J. Fuentes cited an instance where [[Benny Johnson]] compared a student questioning [[Charlie Kirk]]'s support for gay marriage to the [[Westboro Baptist Church]].
 
 ### AF 2020-04-20 0589
-(01:17:02) Nicholas J. Fuentes reflected that in the period following the [[City of Charlottesville|Charlottesville]] rally, individuals [[who]] discussed topics like [[Israel]] or race were considered "radioactive" and faced widespread ostracism.
+(01:17:02) Nicholas J. Fuentes reflected that in the period following the [[Charlottesville]] rally, individuals [[who]] discussed topics like [[Israel]] or race were considered "radioactive" and faced widespread ostracism.
 
 ### AF 2020-04-20 0589
 (01:18:31) Nicholas J. Fuentes contrasted the current receptiveness to his ideas at events like [[AFPAC]] with the previous climate of fear and avoidance, noting a shift towards curiosity and engagement.
@@ -12304,7 +12304,7 @@
 (01:54:09) Nicholas J. Fuentes reported that a major meatpacking plant had been closed down, with its CEO warning of impending food shortages due to halted production.
 
 ### AF 2020-04-13 0584
-(02:20:67) Governors from the East Coast and [[Kanye West|West]] Coast formed separate regional blocs to assemble their own teams of health and economic experts to autonomously monitor the coronavirus situation and make decisions about reopening their economies, a move Nicholas J. Fuentes characterized as a direct challenge to [[Donald Trump|the president]].
+(02:20:67) Governors from the East Coast and [[Kanye West|West]] Coast formed separate regional blocs to assemble their own teams of health and economic experts to autonomously monitor the coronavirus situation and make decisions about reopening their economies, a move Nicholas J. Fuentes characterized as a direct challenge to [[the president]].
 
 ### AF 2020-04-13 0584
 (03:19:77) Nicholas J. Fuentes characterized [[Bernie Sanders]] as "the most pathetic human being in politics" for endorsing [[Joe Biden]].
@@ -12352,7 +12352,7 @@
 (01:28:23) [[Winston Churchill]] questioned whether [[Charlie Kirk]] would deny that [[Jews]] killed [[Jesus Christ|Jesus]], to which Nicholas J. Fuentes responded, "Of course."
 
 ### AF 2020-04-13 0584
-(01:28:58) Nicholas J. Fuentes affirmed he understands "the trans issue" in response to a viewer from [[City of Chicago|Chicago]].
+(01:28:58) Nicholas J. Fuentes affirmed he understands "the trans issue" in response to a viewer from [[Chicago]].
 
 ### AF 2020-04-13 0584
 (01:29:18) Nicholas J. Fuentes criticized [[Hunter Avallone|Hunter Avalon]] for initially claiming leftist positions were actually conservative before announcing he was leaving the right, calling him "just stupid" and lacking brain power.
@@ -13021,7 +13021,7 @@
 (01:45:09) Nicholas J. Fuentes denied meeting a viewer named Chris Bacon recently, stating he only left his [[house]] to go to [[Taco Bell]] and interacted with an "old Mexican guy."
 
 ### AF 2020-03-27 0574
-(01:47:44) When asked his favorite [[city]] besides [[City of Chicago|Chicago]], Nicholas J. Fuentes stated he really likes [[Manchester]] and [[Boston]], enjoys [[New England]], but hates [[Washington D.C.|DC]] and [[City of Miami|Miami]].
+(01:47:44) When asked his favorite [[city]] besides [[Chicago]], Nicholas J. Fuentes stated he really likes [[Manchester]] and [[Boston]], enjoys [[New England]], but hates [[Washington D.C.|DC]] and [[Miami]].
 
 ### AF 2020-03-27 0574
 (01:49:50) Nicholas J. Fuentes stated his favorite [[Kanye]] album is *The Life of Pablo* and his favorite songs include "Runaway," "Father Stretch My Hands," "Power," "[[Black]] Skinhead," "On Sight," and "Everything I Am."
@@ -13240,7 +13240,7 @@
 (01:57:59) Nicholas J. Fuentes agreed with a viewer's statement that non-white groups do not act like white people, listing [[Asians]], [[Africans]], and [[Concept|American Indians]] as examples.
 
 ### AF 2020-03-26 0573
-(02:00:07) Nicholas J. Fuentes stated that his family, the Fuentes, ended up in [[City of Chicago|Chicago]] after coming from [[State of Texas|Texas]].
+(02:00:07) Nicholas J. Fuentes stated that his family, the Fuentes, ended up in [[Chicago]] after coming from [[State of Texas|Texas]].
 
 ### AF 2020-03-26 0573
 (02:00:44) Nicholas J. Fuentes argued that the political left's promotion of the "ugly, the weak, the incompetent, the incapable" has resulted in a totally dysfunctional party.
@@ -13339,7 +13339,7 @@
 (19:45:550) Nicholas J. Fuentes, identifying as a [[Christianity|Christian]], stated he did not believe in eugenics but questioned how society accommodates the survival of all genetic variations, including those he described as dysfunctional or dependent.
 
 ### AF 2020-03-24 0571
-(20:58:470) Nicholas J. Fuentes argued that the couple [[who]] drank fish tank cleaner and blamed [[Donald Trump]] "had it coming" because they attempted to blame [[Donald Trump|the president]].
+(20:58:470) Nicholas J. Fuentes argued that the couple [[who]] drank fish tank cleaner and blamed [[Donald Trump]] "had it coming" because they attempted to blame [[the president]].
 
 ### AF 2020-03-24 0571
 (22:23:050) Nicholas J. Fuentes presented a whiteboard showing global confirmed coronavirus cases had reached 418,000, an increase of approximately 60,000 from the previous day.
@@ -13474,7 +13474,7 @@
 (01:16:40) Nicholas J. Fuentes was escorted out of [[Conservative Political Action Conference|CPAC]] and subjected to a pat-down, which he cited as an example of being treated disrespectfully despite his success.
 
 ### AF 2020-03-23 0570
-(01:23:46) Nicholas J. Fuentes planned to purchase a home in the [[City of Chicago|Chicago]] area after waiting for an anticipated crash in the housing market later in the year.
+(01:23:46) Nicholas J. Fuentes planned to purchase a home in the [[Chicago]] area after waiting for an anticipated crash in the housing market later in the year.
 
 ### AF 2020-03-23 0570
 (01:39:49) [[Patrick Casey]] asked [[who]] the best *Animal Crossing* player was in the movement, prompting Nicholas J. Fuentes to claim the title for himself and note [[Jaden]]'s competitive nature.
@@ -13591,7 +13591,7 @@
 (54:27:12) Nicholas J. Fuentes reported that [[J. B. Pritzker]] ordered a statewide stay-at-home order for [[Illinois]], effective Saturday at 5 p.m. and lasting until April 7th, requiring all non-essential businesses to close and residents to work from home except for essential personnel.
 
 ### AF 2020-03-20 0569
-(56:30:26) Nicholas J. Fuentes pointed to videos of [[United States]] military Humvees being shipped to cities like [[Baltimore]], [[City of Chicago|Chicago]], and [[New York]] as evidence that the declaration of martial law and a mandatory lockdown, following the pattern seen in [[Italian Republic|Italy]] and [[France]], was a likely next step.
+(56:30:26) Nicholas J. Fuentes pointed to videos of [[United States]] military Humvees being shipped to cities like [[Baltimore]], [[Chicago]], and [[New York]] as evidence that the declaration of martial law and a mandatory lockdown, following the pattern seen in [[Italian Republic|Italy]] and [[France]], was a likely next step.
 
 ### AF 2020-03-19 0568
 (00:01:40) Nicholas J. Fuentes announced the main story for the show would be about the coronavirus pandemic and related economic stimulus proposals. (00:01:40) [[Senate]] [[Republican Party|Republicans]] unveiled a draft proposal to provide $1,200 cash payments to individuals earning under $75,000 and $2,400 to couples earning under $150,000, with amounts tapering for higher incomes and reduced payments for those with low taxable income. (00:03:06) The [[United States Senate]] passed the first phase of a coronavirus relief package, which included free coronavirus testing and paid sick leave. (00:04:18) [[Italian Republic|Italy]] surpassed [[China]] in official confirmed deaths from coronavirus, with [[Italian Republic|Italy]] reporting 41,000 cases compared to [[China]]'s 80,000. (00:05:07) [[Richard Burr]], a [[Senator]] from [[North Carolina]] and member of the [[Senate Intelligence Committee]], sold his [[stock]] holdings in late February while publicly stating the [[United States]] had the coronavirus under control. (00:06:57) [[Tulsi Gabbard]] dropped out of the [[Democratic presidential primary]] and endorsed [[Joe Biden]]. (00:07:37) [[Tulsi Gabbard]]'s presidential campaign was primarily focused on opposing foreign regime change wars. (00:08:38) [[Joe Biden]] voted for the [[Iraq War]] in 2003 and, as [[Vice President]] under [[Barack Obama]], supported the [[NATO intervention in Libya]] that deposed [[Muammar Gaddafi]] and backed funding for the [[Syria|Syrian]] opposition against [[Bashar al-Assad]]. (00:11:43) Nicholas J. Fuentes stated his opposition to regime change in [[Syria]], the wars in [[Iraq]] and [[Afghanistan]], war with [[Iran]], and expressed skepticism of alliances with [[Saudi Arabia]], [[Qatar]], and [[Israel]]. (00:12:27) [[Tulsi Gabbard]] was a member of the [[Council on Foreign Relations]]. (00:16:50) [[Tulsi Gabbard]] was a frequent guest on [[Tucker Carlson]]'s show. (00:20:09) [[Donald Trump]] opposed unnecessary regime change wars. (00:20:57) [[Donald Trump]] worked to reduce illegal immigration, build a wall, restrict asylum seekers, and reduce levels of legal immigration. (00:21:32) [[Donald Trump]] opposed [[China]] and free trade, worked to bring troops home from [[Syria]], and negotiated an end to the war in [[Afghanistan]]. (00:22:19) [[Donald Trump]] authorized three rounds of missile strikes on [[Syria]] in 2017 and 2018. (00:22:52) The [[Donald Trump]] administration abandoned the [[Barack Obama]] administration's goal of regime change in [[Syria]] and announced a near-total withdrawal of [[U.S. Department of Defense|U.S. forces]] from [[Syria]] in August 2019. (00:27:26) The number of confirmed coronavirus cases in the [[United States]] increased from approximately 9,000 to nearly 14,000 in 24 hours. (00:28:04) Global confirmed coronavirus cases reached 246,328, with [[China]] reporting 80,928, [[Italian Republic|Italy]] at 41,035, [[Iran]] at 18,407, [[Spain]] at 18,077, [[Germany]] at 15,320, the [[United States]] at nearly 14,000, [[France]] at 10,995, and [[South Korea]] at 8,565. (00:30:53) The [[United States]] conducted 22,000 coronavirus tests in a single day, a significant increase from an estimated maximum capacity of 15,000-20,000 tests per day the previous week. (00:32:23) Drive-through coronavirus testing centers were established in [[Washington state]] and [[New York]]. (00:32:50) [[South Korea]] conducted an average of 15,000 coronavirus tests per day, which helped control its outbreak. (00:39:09) The [[The New York Times|New York Times]] reported that [[Senate]] [[Republican Party|Republicans]] unveiled an economic rescue plan providing hundreds of billions in loans to corporations and small businesses, corporate tax cuts, and $1,200 checks for taxpayers earning up to $75,000, with amounts tapering to zero for those earning over $99,000. (00:40:45) [[Mitch McConnell]], the [[Senate Majority Leader]], introduced the economic relief proposal after private talks with [[Republican Party|Republicans]] in the [[White House]]. (00:41:49) The [[Republican Party|Republican]] relief proposal included an additional $500 per child for eligible individuals and couples. (00:45:07) The [[Republican Party|Republican]] relief plan proposed moving the income tax filing deadline from April 15 to July 15. (00:45:56) The [[Republican Party|Republican]] plan authorized over $200 billion in support for hard-hit industries, including $50 billion for commercial airlines and $8 billion for air cargo carriers. (00:55:09) [[ProPublica]] reported that [[Richard Burr]], as chair of the [[Senate Intelligence Committee]], sold between $600,000 and $1.72 million in stocks in 33 transactions a week before the market declined by 30%, after receiving daily coronavirus briefings. (00:56:44) [[National Public Radio|NPR]] obtained a recording from February 27 in which [[Richard Burr]] gave a dire preview of the coronavirus's economic impact to a VIP group at the [[Capitol Hill Club]], whose members paid up to $10,000 for access. (00:57:55) In a February 7 op-ed, [[Richard Burr]] assured the public the [[United States]] was better prepared than ever for public health threats like the coronavirus. (00:58:18) [[Richard Burr]] sold up to $150,000 in shares of [[Wyndham Hotels & Resorts]] and up to $100,000 in shares of [[Extended Stay America]], companies whose values later plummeted.
@@ -13639,7 +13639,7 @@
 (00:38:06) Nicholas J. Fuentes attributed [[Italian Republic|Italy]]'s severe outbreak to cultural practices like cheek-kissing, a large [[China|Chinese]] textile worker population in Northern [[Italian Republic|Italy]], and an elderly demographic.
 
 ### AF 2020-03-18 0567
-(00:40:58) Nicholas J. Fuentes argued that the coronavirus crisis would stress the insolvent [[Europe|Eurozone]] economy, potentially leading to the collapse of the [[Europe|European Union]] and empowering right-wing, Eurosceptic populist forces.
+(00:40:58) Nicholas J. Fuentes argued that the coronavirus crisis would stress the insolvent [[Europe|Eurozone]] economy, potentially leading to the collapse of the [[European Union]] and empowering right-wing, Eurosceptic populist forces.
 
 ### AF 2020-03-18 0567
 (00:45:08) Nicholas J. Fuentes stated the coronavirus originated in [[China]] from practices like eating bats and was spread globally due to openness, travel, and lax borders inherent to globalization.
@@ -13702,7 +13702,7 @@
 (00:04:15) Nicholas J. Fuentes stated that the [[United States]] was seeing widespread closures of bars, restaurants, and schools, with cities under lockdown and the [[Dow Jones & Company|Dow Jones]] Industrial Average down nearly 13%.
 
 ### AF 2020-03-16 0565
-(00:09:40) Nicholas J. Fuentes claimed he had been consistently covering the coronavirus outbreak since January 21st, 2020, when it was a small outbreak in [[City of Wuhan|Wuhan]], and had accurately predicted the shutdown of restaurants and the spread seen in [[Italian Republic|Italy]] would occur in the [[United States]].
+(00:09:40) Nicholas J. Fuentes claimed he had been consistently covering the coronavirus outbreak since January 21st, 2020, when it was a small outbreak in [[Wuhan]], and had accurately predicted the shutdown of restaurants and the spread seen in [[Italian Republic|Italy]] would occur in the [[United States]].
 
 ### AF 2020-03-16 0565
 (00:15:00) Nicholas J. Fuentes announced that the [[Democratic Party|Democratic]] primary contests scheduled for March 17th in [[Arizona]], [[State of Florida|Florida]], and [[State of Illinois|Illinois]] would proceed, while [[State of Ohio|Ohio]] had postponed its primary to June 2nd.
@@ -13762,7 +13762,7 @@
 (01:55:40) Nicholas J. Fuentes reported that the entire [[San Francisco Bay Area]], including the [[city]] of [[San Francisco Bay Area|San Francisco]], had been placed under a mandatory "shelter at home" order for three weeks, allowing only essential businesses to remain open.
 
 ### AF 2020-03-16 0565
-(01:57:40) Nicholas J. Fuentes predicted that similar total lockdowns and curfews would soon be implemented in other major cities like [[City of Chicago|Chicago]], [[New York|New York City]], and [[Los Angeles]].
+(01:57:40) Nicholas J. Fuentes predicted that similar total lockdowns and curfews would soon be implemented in other major cities like [[Chicago]], [[New York|New York City]], and [[Los Angeles]].
 
 ### AF 2020-03-16 0565
 (01:58:40) Nicholas J. Fuentes reported that the [[Dow Jones & Company|Dow Jones]] Industrial Average had fallen 3,000 points, a 12.9% drop, marking the largest one-day point plunge in history and the highest percentage drop since [[Black]] Monday in 1987.
@@ -13822,7 +13822,7 @@
 (01:45:05) Nicholas J. Fuentes disagreed with a claim that [[Israel]] could not survive in a "world of coronavirus first," stating "they're doing fine, actually."
 
 ### AF 2020-03-12 0563
-(01:45:29) Nicholas J. Fuentes stated that a viewer named "Boopers" reported being in [[City of Seattle|King County, Washington]] three weeks prior, an area with early coronavirus cases.
+(01:45:29) Nicholas J. Fuentes stated that a viewer named "Boopers" reported being in [[King County, Washington]] three weeks prior, an area with early coronavirus cases.
 
 ### AF 2020-03-12 0563
 (01:46:22) Nicholas J. Fuentes described his personal stockpile of food and snacks, including three [[United States|American]] sub sandwiches, taquitos, beef jerky, and various candies, in preparation for the coronavirus pandemic.
@@ -13873,7 +13873,7 @@
 (02:01:30) Nicholas J. Fuentes expressed concern about reports that the coronavirus could cause infertility.
 
 ### AF 2020-03-12 0563
-(02:02:11) Nicholas J. Fuentes noted that the [[City of Chicago|Chicago]] St. Patrick's Day Parade and the tradition of dyeing the [[City of Chicago|Chicago River]] were canceled due to the coronavirus.
+(02:02:11) Nicholas J. Fuentes noted that the [[Chicago]] St. Patrick's Day Parade and the tradition of dyeing the [[Chicago River]] were canceled due to the coronavirus.
 
 ### AF 2020-03-12 0563
 (02:03:22) Nicholas J. Fuentes expressed concern that an economic recession might affect his donation-based show revenue.
@@ -13885,7 +13885,7 @@
 (02:05:26) Nicholas J. Fuentes relayed a report from a viewer's friend in [[Italian Republic|Genoa]], [[Italian Republic|Italy]], that the coronavirus "hit fast."
 
 ### AF 2020-03-12 0563
-(02:06:02) Nicholas J. Fuentes stated he would probably have to postpone a planned spring trip to the [[United Kingdom]] and [[City of London|London]] due to the coronavirus pandemic.
+(02:06:02) Nicholas J. Fuentes stated he would probably have to postpone a planned spring trip to the [[United Kingdom]] and [[London]] due to the coronavirus pandemic.
 
 ### AF 2020-03-12 0563
 (02:06:38) Nicholas J. Fuentes sarcastically remarked that "President [[Jared Kushner|Kushner]] is taking care of everything" in response to the coronavirus crisis.
@@ -14533,7 +14533,7 @@
 (02:40:46) Nicholas J. Fuentes clarified that his opposition to the [[Iraq War]] was based on it not being in [[United States|America]]'s national interest, rather than a blanket opposition to all war, which he believes is sometimes necessary for self-defense or state interests.
 
 ### AF 2020-03-03 0556
-(02:45:56) Nicholas J. Fuentes argued that the majority of the federal budget is mandatory entitlement spending like [[Social Security]] and [[Health and Human Services|Medicare]], with defense spending being a smaller, discretionary portion that is easier to control and necessary for maintaining superpower status.
+(02:45:56) Nicholas J. Fuentes argued that the majority of the federal budget is mandatory entitlement spending like [[Social Security]] and [[Medicare]], with defense spending being a smaller, discretionary portion that is easier to control and necessary for maintaining superpower status.
 
 ### AF 2020-03-03 0556
 (02:46:56) Nicholas J. Fuentes pointed out a double standard where anti-war activists criticize [[United States|America]]'s military engagements but praise or ignore similar actions by [[Russia]], [[China]], or [[Iran]].
@@ -14659,7 +14659,7 @@
 (42:25:72) Nicholas J. Fuentes is planning a college tour for the upcoming semester.
 
 ### AF 2020-03-02 0555
-(01:07:14:62) Supporters of [[Joe Biden]] argued that [[Bernie Sanders]] would be a weaker general election candidate because his radical policy proposals, like [[Health and Human Services|Medicare]] for All, would scare away moderates and seniors.(01:15:24) Nicholas J. Fuentes met an attendee [[known]] as [[Minnesota]] Groyper at the [[AFPAC]] event and again at Harry's bar in [[Washington D.C.|Washington, D.C.]].
+(01:07:14:62) Supporters of [[Joe Biden]] argued that [[Bernie Sanders]] would be a weaker general election candidate because his radical policy proposals, like [[Medicare]] for All, would scare away moderates and seniors.(01:15:24) Nicholas J. Fuentes met an attendee [[known]] as [[Minnesota]] Groyper at the [[AFPAC]] event and again at Harry's bar in [[Washington D.C.|Washington, D.C.]].
 
 ### AF 2020-03-02 0555
 (01:15:49) [[Samuel J. Hyde|Sam Hyde]] of [[Million Dollar Extreme|MDE]] had seen some of Nicholas J. Fuentes's content prior to meeting him.
@@ -14893,7 +14893,7 @@
 (02:07:00) Nicholas J. Fuentes mocked the debate's conclusion, stating that watching two women "fuck up a debate" was not encouraging for having a woman in charge of the [[country]], and that the personal question segment was a perfect, botched end to a poorly arranged event.(01:22:46) [[Peter Buttigieg|Pete Buttigieg]] made a clever remark about the revolutions of the 1950s and 1960s during a [[Democratic Party|Democratic]] primary debate.
 
 ### AF 2020-02-25 0554
-(02:08:20) Nicholas J. Fuentes ate at [[Kamala Harris|Harris]] Pizza in [[City of Rock Island|Rock Island]] during a visit to the Quad Cities.
+(02:08:20) Nicholas J. Fuentes ate at [[Kamala Harris|Harris]] Pizza in [[Rock Island]] during a visit to the Quad Cities.
 
 ### AF 2020-02-24 0553
 (00:04:34) Nicholas J. Fuentes announced he would only host his show on Monday and Tuesday of that week, as he would be traveling to [[Washington D.C.|Washington, D.C.]] for [[AFPAC]] and [[Conservative Political Action Conference|CPAC]] events.
@@ -14953,10 +14953,10 @@
 (00:49:51) Nicholas J. Fuentes stated that [[Joe Biden]] needed to win first place in the upcoming [[State of South Carolina|South Carolina]] primary to remain viable in the race, as his core support among [[black]] voters was slipping to [[Bernie Sanders]].
 
 ### AF 2020-02-24 0553
-(00:53:34) Nicholas J. Fuentes predicted [[Bernie Sanders]] would be defeated in a general election, citing policies like [[Health and Human Services|Medicare]] for All as political suicide and characterizing [[Bernie Sanders|Sanders]] as uncharismatic and incompetent at explaining his plans.
+(00:53:34) Nicholas J. Fuentes predicted [[Bernie Sanders]] would be defeated in a general election, citing policies like [[Medicare]] for All as political suicide and characterizing [[Bernie Sanders|Sanders]] as uncharismatic and incompetent at explaining his plans.
 
 ### AF 2020-02-24 0553
-(00:55:54) Nicholas J. Fuentes claimed a majority of [[Democratic Party|Democrats]] in [[Iowa]], [[New Hampshire]], and [[State of Nevada|Nevada]] supported [[Health and Human Services|Medicare]] for All, which was fueling [[Bernie Sanders]]' primary success but would fail in a general election.
+(00:55:54) Nicholas J. Fuentes claimed a majority of [[Democratic Party|Democrats]] in [[Iowa]], [[New Hampshire]], and [[State of Nevada|Nevada]] supported [[Medicare]] for All, which was fueling [[Bernie Sanders]]' primary success but would fail in a general election.
 
 ### AF 2020-02-24 0553
 (01:01:37) Nicholas J. Fuentes noted that [[Donald Trump]], [[Hillary Clinton]], and [[Barack Obama]] had all attended [[AIPAC]] conferences during their campaigns.
@@ -14983,7 +14983,7 @@
 (01:26:45) [[Philip Haney]], a [[U.S. Department of Homeland Security|DHS]] whistleblower, died in a suicide that Nicholas J. Fuentes described as sketchy.
 
 ### AF 2020-02-24 0553
-(01:27:48) Nicholas J. Fuentes stated that his schedule had been nonstop since a [[City of Miami|Miami]] event on September 28th, including appearances at Politicon, in [[State of Florida|Florida]], at SAS, in [[Iowa]] for a speech, on the Milo show, in [[City of Phoenix|Phoenix]], in [[Boston]], and during the "Kruyper Wars."
+(01:27:48) Nicholas J. Fuentes stated that his schedule had been nonstop since a [[Miami]] event on September 28th, including appearances at Politicon, in [[State of Florida|Florida]], at SAS, in [[Iowa]] for a speech, on the Milo show, in [[Phoenix]], in [[Boston]], and during the "Kruyper Wars."
 
 ### AF 2020-02-24 0553
 (01:28:10) Nicholas J. Fuentes cited [[Google|YouTube]] bans and organizing for [[AFPAC]] as reasons he had not been doing much reading.
@@ -15001,7 +15001,7 @@
 (01:32:07) Nicholas J. Fuentes stated he does not know much about Pope [[Ron Paul|John Paul]] I, the last Italian pope, but said if he is Italian, he is "based."
 
 ### AF 2020-02-24 0553
-(01:32:37) When asked why nationalists never protest, Nicholas J. Fuentes sarcastically referenced the "Unite the Right" rally in [[City of Charlottesville|Charlottesville]] on August 12, 2017, implying that such gatherings lead to arrests and negative consequences.
+(01:32:37) When asked why nationalists never protest, Nicholas J. Fuentes sarcastically referenced the "Unite the Right" rally in [[Charlottesville]] on August 12, 2017, implying that such gatherings lead to arrests and negative consequences.
 
 ### AF 2020-02-24 0553
 (01:34:10) Nicholas J. Fuentes expressed excitement to see 2020 [[Conservative Political Action Conference|CPAC]] infiltration videos from his supporters.
@@ -15445,7 +15445,7 @@
 (00:29:25) Nicholas J. Fuentes shifted the topic to the coronavirus pandemic, citing a [[CBS News|CBS]] report that [[China]]'s Hubei province reported 242 new deaths and 14,840 new cases, bringing the worldwide death toll to at least 1,357 and confirmed cases to over 60,000.
 
 ### AF 2020-02-12 0545
-(00:31:15) Nicholas J. Fuentes reported the [[Centers for Disease Control and Prevention|CDC]] announced a new case in an [[United States|American]] evacuee from [[City of Wuhan|Wuhan]], bringing the total [[United States|U.S]]. cases to 14.
+(00:31:15) Nicholas J. Fuentes reported the [[Centers for Disease Control and Prevention|CDC]] announced a new case in an [[United States|American]] evacuee from [[Wuhan]], bringing the total [[United States|U.S]]. cases to 14.
 
 ### AF 2020-02-12 0545
 (00:31:33) Nicholas J. Fuentes expressed skepticism about official coronavirus case numbers, citing faulty testing kits in the [[United States]] and the [[Chinese government]]'s control of data.
@@ -15466,10 +15466,10 @@
 (00:39:20) Nicholas J. Fuentes reported a new finding that the incubation period for COVID-19 was at least 24 days, longer than the standard 14-day quarantine period, potentially allowing infected individuals to be released.
 
 ### AF 2020-02-12 0545
-(00:41:12) Nicholas J. Fuentes cited a [[World Health Organization]] report stating scientists had not found the animal source of COVID-19, noting the virus's genetic sequence matched bats but no bats were found at the [[City of Wuhan|Wuhan]] wet market originally cited as the origin.
+(00:41:12) Nicholas J. Fuentes cited a [[World Health Organization]] report stating scientists had not found the animal source of COVID-19, noting the virus's genetic sequence matched bats but no bats were found at the [[Wuhan]] wet market originally cited as the origin.
 
 ### AF 2020-02-12 0545
-(00:42:42) Nicholas J. Fuentes pointed out that the [[City of Wuhan|Wuhan]] wet market was 20 miles from a sophisticated virus research laboratory authorized to handle high-level pathogens, implying a possible lab origin for the virus.
+(00:42:42) Nicholas J. Fuentes pointed out that the [[Wuhan]] wet market was 20 miles from a sophisticated virus research laboratory authorized to handle high-level pathogens, implying a possible lab origin for the virus.
 
 ### AF 2020-02-12 0545
 (00:45:49) Nicholas J. Fuentes cited an [[National Public Radio|NPR]] report quoting a [[World Health Organization]] chief scientist [[who]] expressed optimism that the spread of COVID-19 was slowing and could be contained, and that a vaccine could be available in 18 months.
@@ -15610,7 +15610,7 @@
 (01:19:28) Nicholas J. Fuentes, in response to a viewer, stated that if a woman cheats on her man it is worse than if a man cheats on his woman, arguing it represents a total subversion of the traditional marital power structure where the wife belongs to the man.
 
 ### AF 2020-02-10 0543
-(01:21:03) Nicholas J. Fuentes stated that rural people in the [[Midwest]], [[Southern United States|South]], and mountainous regions are "the most based [[United States|Americans]]," not necessarily by [[region]] but by level of development, contrasting them with cities like [[City of Chicago|Chicago]].
+(01:21:03) Nicholas J. Fuentes stated that rural people in the [[Midwest]], [[Southern United States|South]], and mountainous regions are "the most based [[United States|Americans]]," not necessarily by [[region]] but by level of development, contrasting them with cities like [[Chicago]].
 
 ### AF 2020-02-10 0543
 (01:22:20) Nicholas J. Fuentes confirmed that the [[AFPAC]] event would be streamed online.
@@ -15649,7 +15649,7 @@
 (04:00:08) [[Tucker Carlson]] compared periods of intense news coverage to Christmas, a sentiment Nicholas J. Fuentes stated he often shared.
 
 ### AF 2020-02-06 0541
-(08:35:66) The [[United States|America]] First show began on [[Right Side Broadcasting Network|RSBN]] on February 6, 2017, before Nicholas J. Fuentes moved to his own channel after the [[City of Charlottesville|Charlottesville rally]].
+(08:35:66) The [[United States|America]] First show began on [[Right Side Broadcasting Network|RSBN]] on February 6, 2017, before Nicholas J. Fuentes moved to his own channel after the [[Charlottesville rally]].
 
 ### AF 2020-02-06 0541
 (11:30:46) [[Kassy Dillon|Cassie Dillon]] was responsible for introducing Nicholas J. Fuentes to [[Right Side Broadcasting Network|RSBN]], which led to the creation of the [[United States|America]] First show.
@@ -15679,7 +15679,7 @@
 (55:11:48) Nicholas J. Fuentes expressed disdain for individuals [[who]] become "blackpilled" or consumed by despair, framing the acceptance of life's inherent suffering as a mark of maturity.
 
 ### AF 2020-02-06 0541
-(57:24:44) Nicholas J. Fuentes recounted an incident in [[City of Phoenix|Phoenix]] where a man offered his group of female acquaintances to kiss at midnight, [[who]] were subsequently described as unattractive and non-white.
+(57:24:44) Nicholas J. Fuentes recounted an incident in [[Phoenix]] where a man offered his group of female acquaintances to kiss at midnight, [[who]] were subsequently described as unattractive and non-white.
 
 ### AF 2020-02-06 0541
 (59:41:22) Nicholas J. Fuentes argued that obesity, particularly in women, was repulsive and easily avoidable, stating he often went 24 hours without eating.
@@ -15781,7 +15781,7 @@
 (01:29:47) Nicholas J. Fuentes stated he buys his suits and dress shirts from [[Macy's]].
 
 ### AF 2020-02-05 0540
-(01:30:20) Nicholas J. Fuentes commented on a claim that [[Peter Buttigieg|Pete Buttigieg]] is from the same [[City of Chicago|Chicago]] political circle as [[Barack Obama]], saying he did not know if it was true.
+(01:30:20) Nicholas J. Fuentes commented on a claim that [[Peter Buttigieg|Pete Buttigieg]] is from the same [[Chicago]] political circle as [[Barack Obama]], saying he did not know if it was true.
 
 ### AF 2020-02-05 0540
 (01:32:23) Nicholas J. Fuentes criticized [[Barnes & Noble]] for re-releasing classic novels with new covers promoting diversity, using the example of [[Frankenstein]] featuring a stereotypical "urban" [[black]] character.
@@ -15997,7 +15997,7 @@
 (34:18:80) Nicholas J. Fuentes noted the upcoming three-year anniversary of his show, [[America First]].
 
 ### AF 2020-02-03 0538
-(35:03:84) Nicholas J. Fuentes stated experts were declaring the novel coronavirus originating in [[City of Wuhan|Wuhan]], [[China]] would become an unstoppable global pandemic.
+(35:03:84) Nicholas J. Fuentes stated experts were declaring the novel coronavirus originating in [[Wuhan]], [[China]] would become an unstoppable global pandemic.
 
 ### AF 2020-02-03 0538
 (35:46:90) Nicholas J. Fuentes cited global coronavirus figures of 20,000 confirmed cases, 21,000 suspected cases, 426 fatalities, and 2,600 in serious condition, with only 600 recoveries in [[China]].
@@ -16069,7 +16069,7 @@
 (01:51:29) Nicholas J. Fuentes claimed victory in the "Thought Wars," stating all the e-girls except [[Tara McCarthy]] eventually came around to his perspective.
 
 ### AF 2020-02-03 0538
-(01:53:19) While in [[City of Miami|Miami]], Nicholas J. Fuentes and [[Steve Franssen]] attempted to "red pill" [[Kathy Zhu]] on race during a conversation.
+(01:53:19) While in [[Miami]], Nicholas J. Fuentes and [[Steve Franssen]] attempted to "red pill" [[Kathy Zhu]] on race during a conversation.
 
 ### AF 2020-02-03 0538
 (01:53:49) Nicholas J. Fuentes, [[Faith Goldy]], and [[Brittany Venti]] were together on one occasion, during which they made [[Brittany Venti]] burn her tarot cards in a fire.
@@ -16084,7 +16084,7 @@
 (01:57:22) Nicholas J. Fuentes tweeted at [[Millennial Woes]] asking why he should listen to someone [[who]] "hover-hands" about women, referencing a photo of [[Millennial Woes]] with [[Brittany Pettibone]].
 
 ### AF 2020-02-03 0538
-(01:58:35) During a dinner in [[City of Miami|Miami]], [[Kathy Zhu]] asked Nicholas J. Fuentes how she could be "based and red-pilled," to which he replied she never would be because women generally are not and she was a "cringe libertarian."
+(01:58:35) During a dinner in [[Miami]], [[Kathy Zhu]] asked Nicholas J. Fuentes how she could be "based and red-pilled," to which he replied she never would be because women generally are not and she was a "cringe libertarian."
 
 ### AF 2020-02-03 0538
 (02:00:04) Nicholas J. Fuentes stated he knew [[Kathy Zhu]] was "simping" for his attention during their interactions and that she temporarily promoted his talking points on Telegram before the relationship soured.
@@ -16144,7 +16144,7 @@
 (02:44:25) [[Rush Limbaugh]] was diagnosed with lung cancer, a development Nicholas J. Fuentes described as a shame, stating he liked [[Limbaugh]] despite finding him a bit of a "boomer."
 
 ### AF 2020-02-03 0538
-(02:45:08) A 6'5" supporter provided pizza for Nicholas J. Fuentes and others in [[City of Miami|Miami]] after a debate with [[Jacob Wohl]], when they were starving with no food at an after-party.
+(02:45:08) A 6'5" supporter provided pizza for Nicholas J. Fuentes and others in [[Miami]] after a debate with [[Jacob Wohl]], when they were starving with no food at an after-party.
 
 ### AF 2020-02-03 0538
 (02:47:24) When asked what [[Star Wars]] planet he would live on, Nicholas J. Fuentes chose [[Naboo]], citing its pleasant, Europa-like environment over options like [[Coruscant]], [[Mustafar]], [[Tatooine]], or [[Kashyyyk]].
@@ -16198,7 +16198,7 @@
 (00:08:22) Nicholas J. Fuentes characterized the "Groyper Wars" as a period where conservative personalities had to choose between aligning with [[Charlie Kirk]] and [[Turning Point USA]] or supporting [[United States|America]] First nationalism.
 
 ### AF 2020-01-31 0537
-(00:09:01) Nicholas J. Fuentes recounted his previous speaking engagement at a [[City of Miami|Miami]] event in September, which he stated was organized by people affiliated with the [[Proud Boys]] and attended by [[Kathy Zhu]] and [[Jacob Wohl]].
+(00:09:01) Nicholas J. Fuentes recounted his previous speaking engagement at a [[Miami]] event in September, which he stated was organized by people affiliated with the [[Proud Boys]] and attended by [[Kathy Zhu]] and [[Jacob Wohl]].
 
 ### AF 2020-01-31 0537
 (00:09:53) Nicholas J. Fuentes cited the successful "Groyper Leadership Summit" held in December in [[West Palm Beach]], [[State of Florida|Florida]], as evidence of the movement's growing momentum.
@@ -16207,13 +16207,13 @@
 (00:10:23) Nicholas J. Fuentes stated that [[AFPAC]] would be a ticketed, vetted dinner event held concurrently with the [[Conservative Political Action Conference]] ([[Conservative Political Action Conference|CPAC]]) in [[Washington D.C.|Washington, D.C.]].
 
 ### AF 2020-01-31 0537
-(00:15:10) Nicholas J. Fuentes announced that the [[United Kingdom]] had formally left the [[Europe|European Union]], fulfilling the 2016 Brexit referendum.
+(00:15:10) Nicholas J. Fuentes announced that the [[United Kingdom]] had formally left the [[European Union]], fulfilling the 2016 Brexit referendum.
 
 ### AF 2020-01-31 0537
 (00:15:40) Nicholas J. Fuentes stated that former Prime Minister [[David Cameron]] resigned after the Brexit referendum, leading to [[Theresa May]]'s ascension.
 
 ### AF 2020-01-31 0537
-(00:16:26) Nicholas J. Fuentes stated that Prime Minister [[Boris Johnson]] won a large parliamentary majority and successfully executed the [[United Kingdom|UK]]'s departure from the [[Europe|European Union]].
+(00:16:26) Nicholas J. Fuentes stated that Prime Minister [[Boris Johnson]] won a large parliamentary majority and successfully executed the [[United Kingdom|UK]]'s departure from the [[European Union]].
 
 ### AF 2020-01-31 0537
 (00:19:47) Nicholas J. Fuentes framed Brexit as a major victory for nationalism and populism, which began with the 2016 referendum and the subsequent election of [[Donald Trump]].
@@ -16228,7 +16228,7 @@
 (00:28:36) Nicholas J. Fuentes posed the question of whether [[Donald Trump]] could emulate [[Boris Johnson]]'s late-term success by rallying his administration to deliver on key promises in his final year.
 
 ### AF 2020-01-31 0537
-(00:30:26) Nicholas J. Fuentes described Brexit as a blow against globalism, specifically targeting the globalization of government represented by the [[Europe|European Union]].
+(00:30:26) Nicholas J. Fuentes described Brexit as a blow against globalism, specifically targeting the globalization of government represented by the [[European Union]].
 
 ### AF 2020-01-31 0537
 (00:32:25) Nicholas J. Fuentes reported that confirmed global coronavirus cases had risen to 12,000 with 259 fatalities, and suspected cases in [[China]] had reached 18,000.
@@ -16237,7 +16237,7 @@
 (00:35:23) Nicholas J. Fuentes detailed the [[United States]]' public health emergency declaration, which included a 14-day mandatory quarantine for [[United States|U.S]]. citizens returning from Hubei province, [[China]], and an entry ban for most foreign nationals recently in [[China]].
 
 ### AF 2020-01-31 0537
-(00:36:34) Nicholas J. Fuentes noted that the quarantine of [[United States|Americans]] evacuated from [[City of Wuhan|Wuhan]] at March Air Reserve Base in [[Southern California]] marked the first federal quarantine order in the [[United States|U.S]]. in 50 years.
+(00:36:34) Nicholas J. Fuentes noted that the quarantine of [[United States|Americans]] evacuated from [[Wuhan]] at March Air Reserve Base in [[Southern California]] marked the first federal quarantine order in the [[United States|U.S]]. in 50 years.
 
 ### AF 2020-01-31 0537
 (00:42:28) Nicholas J. Fuentes raised the possibility that the coronavirus was a "designer virus," citing unverified claims from a doctor on [[Twitter]] that it contained HIV proteins.
@@ -16246,7 +16246,7 @@
 (00:44:55) Nicholas J. Fuentes expressed distrust in the official coronavirus information released by the [[CCP|Chinese Communist Party]], the [[Centers for Disease Control and Prevention|CDC]], and the [[World Health Organization]].
 
 ### AF 2020-01-31 0537
-(00:48:17) Nicholas J. Fuentes pointed out that [[City of Wuhan|Wuhan]] was home to [[China]]'s largest virus bank, which he suggested was a suspicious coincidence given the origin of the coronavirus outbreak there.
+(00:48:17) Nicholas J. Fuentes pointed out that [[Wuhan]] was home to [[China]]'s largest virus bank, which he suggested was a suspicious coincidence given the origin of the coronavirus outbreak there.
 
 ### AF 2020-01-31 0537
 (00:49:58) Nicholas J. Fuentes referenced the previous SARS outbreak, another coronavirus, which also originated in [[China]].
@@ -16402,7 +16402,7 @@
 (02:16:15) Nicholas J. Fuentes stated that he played a three-valve euphonium in school before his parents purchased a four-valve silver euphonium for him in high school.
 
 ### AF 2020-01-31 0537
-(02:17:55) Nicholas J. Fuentes reminisced about playing [[John]] Williams, [[City of Chicago|Chicago]], and [[Earth]], Wind & Fire music in his high school marching band.
+(02:17:55) Nicholas J. Fuentes reminisced about playing [[John]] Williams, [[Chicago]], and [[Earth]], Wind & Fire music in his high school marching band.
 
 ### AF 2020-01-31 0537
 (02:19:45) Nicholas J. Fuentes defended living with his parents as emblematic of the strong family values promoted by the [[United States|America]] First movement.
@@ -16528,7 +16528,7 @@
 (00:58:06) Nicholas J. Fuentes characterized the relationship between the [[United States]] and [[Israel]] as parasitic, arguing that [[United States|U.S]]. foreign policy had been hijacked by [[Jared Kushner]] and the [[Israel|Israeli]] government to benefit [[Israel]] at [[United States|America]]'s expense.
 
 ### AF 2020-01-28 0534
-(01:00:00) Nicholas J. Fuentes listed several actions taken by the [[Donald Trump]] administration at [[Israel]]'s behest, including recognizing [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], designating [[Iran|Iran's]] [[Iran|IRGC]] as a terrorist group, solidifying aid, revoking [[Palestinian]] aid, and moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]].
+(01:00:00) Nicholas J. Fuentes listed several actions taken by the [[Donald Trump]] administration at [[Israel]]'s behest, including recognizing [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], designating [[Iran|Iran's]] [[Iran|IRGC]] as a terrorist group, solidifying aid, revoking [[Palestinian]] aid, and moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]].
 
 ### AF 2020-01-28 0534
 (01:03:15) Nicholas J. Fuentes asserted that figures like [[Sheldon Adelson]], [[Benjamin Netanyahu|Bibi]], and [[Jared Kushner]] were "running the show" in [[United States|U.S]]. foreign policy regarding [[Israel]], which he considered a disgrace.
@@ -16681,7 +16681,7 @@
 (03:07:00) Nicholas J. Fuentes claimed the modern education system and workforce were being restructured to reward feminine traits like compliance, submission, and agreeableness over masculine virtues like competition and aggression, leading to the "empowerment of women" as a societal disaster.
 
 ### AF 2020-01-24 0532
-(03:24:40) Nicholas J. Fuentes cited a report that a new 1,000-bed hospital built with prefabricated materials in [[City of Wuhan|Wuhan]] could be completed within six days using 35 diggers and 10 bulldozers to address a shortage of medical resources.
+(03:24:40) Nicholas J. Fuentes cited a report that a new 1,000-bed hospital built with prefabricated materials in [[Wuhan]] could be completed within six days using 35 diggers and 10 bulldozers to address a shortage of medical resources.
 
 ### AF 2020-01-24 0532
 (03:44:20) Nicholas J. Fuentes expressed skepticism that the official [[China|Chinese]] figure of approximately 1,300 coronavirus cases warranted the extreme response of quarantining 40 million people, building emergency hospitals, and causing global panic, suggesting the true scale of the outbreak was being underreported.
@@ -16867,7 +16867,7 @@
 (00:44:26) Nicholas J. Fuentes transitioned to discussing the coronavirus outbreak, citing a [[Fox News]] report that the virus had killed at least six people and sickened about 300 others since first reported in [[China]] at the end of 2019.
 
 ### AF 2020-01-21 0529
-(00:45:16) Nicholas J. Fuentes stated that the first [[United States|U.S]]. case of the coronavirus was confirmed in [[City of Seattle|Seattle]] after a man arrived from [[China]] before enhanced health screenings were announced at major [[United States|U.S]]. airports for passengers from [[City of Wuhan|Wuhan]].
+(00:45:16) Nicholas J. Fuentes stated that the first [[United States|U.S]]. case of the coronavirus was confirmed in [[Seattle]] after a man arrived from [[China]] before enhanced health screenings were announced at major [[United States|U.S]]. airports for passengers from [[Wuhan]].
 
 ### AF 2020-01-21 0529
 (00:46:32) Nicholas J. Fuentes explained the coronavirus was in the same family as [[SARS]] and [[MERS]], but that health officials did not yet know its mortality rate or precise transmission vectors.
@@ -16975,7 +16975,7 @@
 (01:13:40) Nicholas J. Fuentes claimed that hit pieces and subversion tactics against his show had intensified because his ideas about demographics and immigration were successfully penetrating the mainstream narrative.
 
 ### AF 2020-01-16 0526
-(01:15:20) [[Greg Abbott]], the Governor of [[State of Texas|Texas]], was photographed kissing the Western Wall in [[City of Jerusalem|Jerusalem]], which Nicholas J. Fuentes described as a pathetic act of subservience.
+(01:15:20) [[Greg Abbott]], the Governor of [[State of Texas|Texas]], was photographed kissing the Western Wall in [[Jerusalem]], which Nicholas J. Fuentes described as a pathetic act of subservience.
 
 ### AF 2020-01-16 0526
 (01:23:40) [[Michelle Malkin]] gave a shout-out to Nicholas J. Fuentes during a speech at a [[New York Young Republican Club]] event, which he described as courageous given the flak she had taken for her support.
@@ -17047,7 +17047,7 @@
 (00:07:44) Nicholas J. Fuentes referenced a prior incident where [[Paramount Global|MTV]] and a photographer used material from an interview to produce negative profiles, drawing a parallel to the recent request from [[CBS News]].
 
 ### AF 2020-01-09 0522
-(00:09:09) Nicholas J. Fuentes stated that after the 2017 [[City of Charlottesville|Charlottesville]] rally, a reporter from [[NBC]] conducted a friendly interview with him which was later edited into a negative segment for the [[Today Show]] that labeled him a white supremacist.
+(00:09:09) Nicholas J. Fuentes stated that after the 2017 [[Charlottesville]] rally, a reporter from [[NBC]] conducted a friendly interview with him which was later edited into a negative segment for the [[Today Show]] that labeled him a white supremacist.
 
 ### AF 2020-01-09 0522
 (00:12:50) Nicholas J. Fuentes announced that border apprehensions in December 2019 had fallen to 33,000, down from a peak of 150,000 in May 2019, which he attributed to policies enacted by the [[Donald Trump]] administration.
@@ -17131,7 +17131,7 @@
 (00:30:04) Nicholas J. Fuentes claimed [[Donald Trump|Trump]] was up against the [[U.S. Department of Defense|Pentagon]], the [[U.S. Department of Defense|DOD]], the military-industrial complex, the [[Israel lobby]], and donor [[Sheldon Adelson]], [[who]] had previously said the [[United States]] should nuke [[Iran]].
 
 ### AF 2020-01-07 0520
-(00:31:04) Nicholas J. Fuentes noted that [[Donald Trump|Trump]]'s administration had named the [[Iran|IRGC]] a terrorist group, recognized [[Israel]]i sovereignty over the [[Israel|Golan Heights]], and moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], delivering on priorities for Zionist donors.
+(00:31:04) Nicholas J. Fuentes noted that [[Donald Trump|Trump]]'s administration had named the [[Iran|IRGC]] a terrorist group, recognized [[Israel]]i sovereignty over the [[Israel|Golan Heights]], and moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], delivering on priorities for Zionist donors.
 
 ### AF 2020-01-07 0520
 (00:31:35) Nicholas J. Fuentes asserted that [[Israel]] and [[AIPAC]] were unhappy with the [[Donald Trump|Trump]] administration's cancellation of regime change in [[Syria]], attempts to pull troops from the [[region]], and decision not to retaliate militarily after the Gulf of Oman tanker incidents and the downing of a [[United States|U.S.]] drone.
@@ -17158,7 +17158,7 @@
 (00:01:27) Nicholas J. Fuentes stated that tensions between the [[United States]] and [[Iran]] escalated after a series of rocket and missile attacks on [[United States|American]] bases in [[Iraq]] throughout December, culminating in a significant attack on a base in Kirkuk.
 
 ### AF 2020-01-06 0519
-(01:25:46) Nicholas J. Fuentes noted that the [[United States]] informed [[Israel]] about the strike that killed [[Qasem Soleimani]] before notifying the [[United States Capitol|U.S. Congress]] or [[Europe|European]] allies, and that [[Israel]] subsequently stated it would not get involved in the conflict.(01:30:04) [[Iran]] has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and [[Syria]].
+(01:25:46) Nicholas J. Fuentes noted that the [[United States]] informed [[Israel]] about the strike that killed [[Qasem Soleimani]] before notifying the [[U.S. Congress]] or [[Europe|European]] allies, and that [[Israel]] subsequently stated it would not get involved in the conflict.(01:30:04) [[Iran]] has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and [[Syria]].
 
 ### AF 2020-01-06 0519
 (01:36:50) Nicholas J. Fuentes considered debating [[Hasan Piker|Vaush]] on a third-party platform but cited [[Hasan Piker|Vaush]]'s physical appearance, alleged autism, and debate style as reasons against it.
@@ -17428,7 +17428,7 @@
 (50:09:48) [[Fox News]] published an article reporting that Nicholas J. Fuentes had "fired back" at critics including [[Nikki Haley]], [[Meghan McCain]], [[Megyn Kelly]], and [[Michael Avenatti]] over the confrontation with [[Ben Shapiro]].
 
 ### AF 2019-12-23 0517
-(51:08:48) [[Fox News]] initially described Nicholas J. Fuentes as a "conservative activist" in its article about the [[Ben Shapiro]] confrontation, but later updated the article to describe him as a "far-right activist" and added background about [[City of Charlottesville|Charlottesville]] and [[United States Holocaust Memorial Museum|Holocaust]] denial allegations.
+(51:08:48) [[Fox News]] initially described Nicholas J. Fuentes as a "conservative activist" in its article about the [[Ben Shapiro]] confrontation, but later updated the article to describe him as a "far-right activist" and added background about [[Charlottesville]] and [[United States Holocaust Memorial Museum|Holocaust]] denial allegations.
 
 ### AF 2019-12-23 0517
 (52:20:48) [[Nikki Haley]] criticized Nicholas J. Fuentes for confronting [[Ben Shapiro]] in front of his family, calling it "wrong on every level" and a poor way to get a point across.
@@ -17488,7 +17488,7 @@
 (01:26:14) Nicholas J. Fuentes stated that he watched the film *Joker* and viewed related videos from the [[Groyper Leadership Summit]].
 
 ### AF 2019-12-23 0517
-(01:26:35) Nicholas J. Fuentes recounted an encounter on a flight from [[City of Las Vegas|Las Vegas]] to [[City of Chicago|Chicago]] with a [[Jews|Jewish]], Zionist member of [[Turning Point USA]].
+(01:26:35) Nicholas J. Fuentes recounted an encounter on a flight from [[Las Vegas]] to [[Chicago]] with a [[Jews|Jewish]], Zionist member of [[Turning Point USA]].
 
 ### AF 2019-12-23 0517
 (01:27:17) During the flight encounter, Nicholas J. Fuentes told the [[Turning Point USA]] member that his movement would win and normalize its activities within a year.
@@ -17668,7 +17668,7 @@
 (02:05:00) Nicholas J. Fuentes explained his hair was messy because he had to rush after his dad woke him from a 15-hour nap to attend a Christmas event.
 
 ### AF 2019-12-23 0517
-(02:05:37) Nicholas J. Fuentes described a dream where he was at a [[City of Chicago|Chicago]] arcade called Safariland and was afraid to go on the Tilt-A-Whirl with [[Jaden]].
+(02:05:37) Nicholas J. Fuentes described a dream where he was at a [[Chicago]] arcade called Safariland and was afraid to go on the Tilt-A-Whirl with [[Jaden]].
 
 ### AF 2019-12-23 0517
 (02:06:08) Nicholas J. Fuentes looked forward to [[Turning Point USA]] getting humiliated more in the future.
@@ -17731,7 +17731,7 @@
 (02:14:52) Nicholas J. Fuentes admitted he lifted the line "if Groypers lead, the [[country]] will follow" from *Star Wars: Episode IX*, which he watched before his summit speech.
 
 ### AF 2019-12-23 0517
-(02:15:02) Nicholas J. Fuentes saw *Star Wars: Episode IX* in [[City of Las Vegas|Las Vegas]] with [[Jaden]], [[Jake Lloyd]], and another [[person]], noting the film's themes mirrored their movement's struggle.
+(02:15:02) Nicholas J. Fuentes saw *Star Wars: Episode IX* in [[Las Vegas]] with [[Jaden]], [[Jake Lloyd]], and another [[person]], noting the film's themes mirrored their movement's struggle.
 
 ### AF 2019-12-23 0517
 (02:16:39) Nicholas J. Fuentes declined to share his SAT or ACT score but stated he had a good score.
@@ -17971,7 +17971,7 @@
 (02:09:43) Nicholas J. Fuentes stated that the experience of a "girl sponsored resolution" was a red pill on the 19th Amendment and women in politics, adding that you can never count on them.
 
 ### AF 2019-12-18 0516
-(02:10:29) Nicholas J. Fuentes listed the countries he represented in [[United Nations|Model UN]], including [[Peru]], the [[United States]], [[France]], the [[United Kingdom]], [[Denmark]], [[Iraq]], [[Iran]], [[Gaza Strip|Palestine]], [[Saudi Arabia]], [[China]], [[Russia]], and [[South Korea]].
+(02:10:29) Nicholas J. Fuentes listed the countries he represented in [[United Nations|Model UN]], including [[Peru]], the [[United States]], [[France]], the [[United Kingdom]], [[Denmark]], [[Iraq]], [[Iran]], [[Palestine]], [[Saudi Arabia]], [[China]], [[Russia]], and [[South Korea]].
 
 ### AF 2019-12-18 0516
 (02:11:27) Nicholas J. Fuentes stated he represented [[Sergey Lavrov]], the Foreign Minister of [[Russia]], in a 2014 Northwestern [[United Nations|Model UN]] crisis cabinet.
@@ -18016,7 +18016,7 @@
 (00:14:14) Nicholas J. Fuentes argued that anti-[[BDS]] laws passed in the [[United States]] with wide bipartisan support and were prioritized before issues like infrastructure or trade deals.
 
 ### AF 2019-12-16 0514
-(00:15:09) Nicholas J. Fuentes noted that [[Brazil]] was moving its [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]], and that leaders like [[Jair Bolsonaro]] and [[Matteo Salvini]] were advocating for Zionism.
+(00:15:09) Nicholas J. Fuentes noted that [[Brazil]] was moving its [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]], and that leaders like [[Jair Bolsonaro]] and [[Matteo Salvini]] were advocating for Zionism.
 
 ### AF 2019-12-16 0514
 (00:15:37) Nicholas J. Fuentes referenced a legal definition of anti-Semitism in the [[United States]] that includes believing [[Jews]] work together internationally or have dual allegiance to [[Israel]].
@@ -18145,7 +18145,7 @@
 (01:48:25) Nicholas J. Fuentes mentioned that commentator [[Peter Brimelow]] frequently urges him to stop using [[Gmail]] over security concerns, but Nicholas J. Fuentes balances such risks with practicality.
 
 ### AF 2019-12-16 0514
-(01:49:55) Nicholas J. Fuentes lamented the demographic transformation of [[City of Chicago|Chicago]] neighborhoods, using the example of Taylor Street in Little [[Italian Republic|Italy]] becoming predominantly Mexican, which he described as sad but not hateful.
+(01:49:55) Nicholas J. Fuentes lamented the demographic transformation of [[Chicago]] neighborhoods, using the example of Taylor Street in Little [[Italian Republic|Italy]] becoming predominantly Mexican, which he described as sad but not hateful.
 
 ### AF 2019-12-16 0514
 (01:50:50) A McDonald's employee informed Nicholas J. Fuentes that his crew turns on the stream during slow periods and are now "epic based and red pilled."
@@ -18358,7 +18358,7 @@
 (01:08:34) Nicholas J. Fuentes agreed to participate in the [[Paramount Global|MTV]] project after producers promised to portray him in a positive light, offered creative control, and suggested he could review the final cut before it aired.
 
 ### AF 2019-12-10 0510
-(01:10:25) Producers from [[Paramount Global|MTV]] filmed Nicholas J. Fuentes at his home for a week in February 2018, recording him doing his show, driving, attending an anti-gun protest in [[City of Chicago|Chicago]], and meeting with a former [[Ku Klux Klan|KKK]] member named [[Shane Johnson]].
+(01:10:25) Producers from [[Paramount Global|MTV]] filmed Nicholas J. Fuentes at his home for a week in February 2018, recording him doing his show, driving, attending an anti-gun protest in [[Chicago]], and meeting with a former [[Ku Klux Klan|KKK]] member named [[Shane Johnson]].
 
 ### AF 2019-12-10 0510
 (01:11:47) After filming, [[Paramount Global|MTV]] postponed the "True Life" episode indefinitely and did not communicate with Nicholas J. Fuentes for approximately a year and a half before notifying him of a new air date for a repurposed documentary.
@@ -18430,7 +18430,7 @@
 (00:11:22) Nicholas J. Fuentes stated that speeches from himself, [[Jake Lloyd]], and [[Patrick Casey]] would be live-streamed at the Groiper Summit.
 
 ### AF 2019-12-05 0508
-(00:11:39) Nicholas J. Fuentes referenced a successful event held in [[City of Miami|Miami]] in late September.
+(00:11:39) Nicholas J. Fuentes referenced a successful event held in [[Miami]] in late September.
 
 ### AF 2019-12-05 0508
 (00:12:35) Nicholas J. Fuentes criticized the 2019 [[Google|YouTube]] Rewind video for being a sanitized top-ten list without original content, contrasting it with the 2018 version which featured drag queens and left-wing messaging.
@@ -18469,7 +18469,7 @@
 (00:35:30) Nicholas J. Fuentes stated that deregulation was an agenda item of the [[Heritage Foundation]] and the [[American Enterprise Institute]], not a core "[[United States|America]] First" priority.
 
 ### AF 2019-12-05 0508
-(00:42:09) Nicholas J. Fuentes argued that even if [[Donald Trump]] had suggested withholding aid for investigations, it would not be illegal, as [[Donald Trump|the president]] is the chief law enforcement officer and has a responsibility to investigate potential corruption.
+(00:42:09) Nicholas J. Fuentes argued that even if [[Donald Trump]] had suggested withholding aid for investigations, it would not be illegal, as [[the president]] is the chief law enforcement officer and has a responsibility to investigate potential corruption.
 
 ### AF 2019-12-05 0508
 (00:44:01) Nicholas J. Fuentes stated that the impeachment investigation had expanded from the initial allegation to focus on obstruction of justice and impropriety in [[the White House]]'s conduct during the investigation.
@@ -18565,7 +18565,7 @@
 (01:26:54) Nicholas J. Fuentes stated that his speech in [[Davenport]] was well-received by an older audience, though he faced questions about assimilation that he believed missed the core issue of race and demographics.
 
 ### AF 2019-12-03 0506
-(01:32:52) Nicholas J. Fuentes recounted traveling to events throughout the year in locations including [[City of Chicago|Chicago]], [[CPAC]], [[Iowa State University]], [[India|Indiana]], [[State of Michigan|Michigan]], [[City of Miami|Miami]], and [[Tennessee]].
+(01:32:52) Nicholas J. Fuentes recounted traveling to events throughout the year in locations including [[Chicago]], [[CPAC]], [[Iowa State University]], [[India|Indiana]], [[State of Michigan|Michigan]], [[Miami]], and [[Tennessee]].
 
 ### AF 2019-12-03 0506
 (01:49:90) Nicholas J. Fuentes described trying a "taco pizza," a local specialty of the [[Quad Cities]] [[region]] spanning [[Iowa]] and [[State of Illinois|Illinois]].
@@ -18673,7 +18673,7 @@
 (01:28:50) Nicholas J. Fuentes argued that his recent conflicts with figures on the right, including [[Owen Benjamin]], [[Vox Day]], [[Richard Spencer]], [[Kathy Zhu]], and [[Stefan Molyneux]], were instigated by the other parties, not by him.
 
 ### AF 2019-12-03 0506
-(01:29:43) [[Costin Alamariu|Bronze Age Pervert]] publicly criticized and fear-mongered about the upcoming Groyper Summit, comparing it to the [[City of Charlottesville|Charlottesville rally]], which Nicholas J. Fuentes stated was factually incorrect.
+(01:29:43) [[Costin Alamariu|Bronze Age Pervert]] publicly criticized and fear-mongered about the upcoming Groyper Summit, comparing it to the [[Charlottesville rally]], which Nicholas J. Fuentes stated was factually incorrect.
 
 ### AF 2019-12-03 0506
 (01:30:20) Nicholas J. Fuentes criticized [[Costin Alamariu|Bronze Age Pervert]]'s brand as "cringe" and characterized by "baby talk, gay stuff," but stated he had previously refrained from public criticism.
@@ -18691,7 +18691,7 @@
 (01:35:09) Nicholas J. Fuentes stated that tickets for the "Groyper Leadership Summit" in [[State of Florida|Florida]] could be requested via an email listed on his Telegram and [[Twitter]], with a vetting process for attendees.
 
 ### AF 2019-12-03 0506
-(01:35:53) Nicholas J. Fuentes defended the security and privacy measures for the Groyper Summit, citing the successful [[organization]] of a dozen events that year, including one in [[City of Miami|Miami]], without fallout for any of the roughly 500 combined attendees.
+(01:35:53) Nicholas J. Fuentes defended the security and privacy measures for the Groyper Summit, citing the successful [[organization]] of a dozen events that year, including one in [[Miami]], without fallout for any of the roughly 500 combined attendees.
 
 ### AF 2019-12-03 0506
 (01:37:13) Nicholas J. Fuentes acknowledged heightened media scrutiny and the concurrent presence of a [[Turning Point USA]] event in [[West Palm Beach]] the same weekend as the Groyper Summit.
@@ -18727,7 +18727,7 @@
 (01:56:31) Nicholas J. Fuentes sarcastically repeated his claim of being a [[China|Chinese]] agent, making a slanted-eye gesture to the camera.
 
 ### AF 2019-12-03 0506
-(01:56:51) Nicholas J. Fuentes recounted a past argument with [[Kathy Zhu]] in [[City of Miami|Miami]], where she claimed [[China|Chinese]] people sometimes have lighter skin than white people, to which he responded with a racially insensitive gesture.
+(01:56:51) Nicholas J. Fuentes recounted a past argument with [[Kathy Zhu]] in [[Miami]], where she claimed [[China|Chinese]] people sometimes have lighter skin than white people, to which he responded with a racially insensitive gesture.
 
 ### AF 2019-12-03 0506
 (02:00:06) Nicholas J. Fuentes stated he was no longer interested in arguing online with irrelevant critics on the right, drawing a parallel to how he stopped engaging with "wig nats" earlier in the year to focus on growth and real opponents.
@@ -19462,10 +19462,10 @@
 (00:11:29) Nicholas J. Fuentes announced the 500th episode of his show, marking nearly three years on air, though he noted technical discrepancies in the numbering due to unnumbered early episodes and shows produced for [[Right Side Broadcasting Network|RSBN]].
 
 ### AF 2019-11-15 0500
-(00:41:85) Nicholas J. Fuentes stated that his show began on his current channel in August 2017, immediately following the [[City of Charlottesville|Charlottesville rally]].
+(00:41:85) Nicholas J. Fuentes stated that his show began on his current channel in August 2017, immediately following the [[Charlottesville rally]].
 
 ### AF 2019-11-15 0500
-(00:47:89) Nicholas J. Fuentes described the first major wave of social media purges occurring in December 2017, following the [[City of Charlottesville|Charlottesville rally]], which included significant terms of service changes on [[Twitter]].
+(00:47:89) Nicholas J. Fuentes described the first major wave of social media purges occurring in December 2017, following the [[Charlottesville rally]], which included significant terms of service changes on [[Twitter]].
 
 ### AF 2019-11-15 0500
 (01:03:59) Nicholas J. Fuentes reflected that the story of his show and his personal evolution serves as a cultural artifact of Generation Z and the dissident right-wing movement in [[United States|America]] in the aftermath of the [[Donald Trump|Trump]] election.
@@ -19501,13 +19501,13 @@
 (03:23:25) Nicholas J. Fuentes noted that his [[Right Side Broadcasting Network|RSBN]] show was initially canceled in May 2017 due to low viewership but was brought back by popular demand on May 29, 2017, running until August 2017.
 
 ### AF 2019-11-15 0500
-(03:24:50) Nicholas J. Fuentes stated he was released from [[Right Side Broadcasting Network|RSBN]] following the [[City of Charlottesville|Charlottesville rally]], though he was not present for the preceding "Tiki torch" march.
+(03:24:50) Nicholas J. Fuentes stated he was released from [[Right Side Broadcasting Network|RSBN]] following the [[Charlottesville rally]], though he was not present for the preceding "Tiki torch" march.
 
 ### AF 2019-11-15 0500
 (03:25:50) Nicholas J. Fuentes described the [[Right Side Broadcasting Network|RSBN]] period as a transition from a libertarian perspective to a more hardened nationalist worldview, influenced by debates with peers at [[Boston University]].
 
 ### AF 2019-11-15 0500
-(03:27:37) Nicholas J. Fuentes identified the third era of his show, from August 2017 to January 2018, as a partnership with [[James Allsup]] under the company [[America First Media]], formed in the aftermath of [[City of Charlottesville|Charlottesville]] to create a paleoconservative movement distinct from the alt-right.
+(03:27:37) Nicholas J. Fuentes identified the third era of his show, from August 2017 to January 2018, as a partnership with [[James Allsup]] under the company [[America First Media]], formed in the aftermath of [[Charlottesville]] to create a paleoconservative movement distinct from the alt-right.
 
 ### AF 2019-11-15 0500
 (03:28:09) Nicholas J. Fuentes noted that his partner [[James Allsup]]'s [[Google|YouTube]] channel, which had approximately 500,000 subscribers, was demonetized in the summer of 2019 and completely shut down in September 2019 despite having no strikes.
@@ -19519,13 +19519,13 @@
 (03:35:55) Nicholas J. Fuentes described the independent era from January 2018 to February 2019 as a period of development where he integrated lessons from previous phases into a comprehensive worldview and refined his presentation on taboo subjects.
 
 ### AF 2019-11-15 0500
-(03:37:47) Nicholas J. Fuentes identified the fifth and current era of his show, beginning in February 2019, as "the rise of [[United States|America]] First," marked by events like [[Conservative Political Action Conference|CPAC]], the Trainwrecks TV debate, a [[City of Miami|Miami]] meetup, college speaking engagements, and the Groyper Wars, leading to mainstream notoriety.
+(03:37:47) Nicholas J. Fuentes identified the fifth and current era of his show, beginning in February 2019, as "the rise of [[United States|America]] First," marked by events like [[Conservative Political Action Conference|CPAC]], the Trainwrecks TV debate, a [[Miami]] meetup, college speaking engagements, and the Groyper Wars, leading to mainstream notoriety.
 
 ### AF 2019-11-15 0500
 (04:08:93) Nicholas J. Fuentes thanked long-[[time]] viewers, including those from his [[Right Side Broadcasting Network|RSBN]] days and his earlier high school show, "The Nicholas J. Fuentes Show."
 
 ### AF 2019-11-15 0500
-(04:40:42) Nicholas J. Fuentes thanked [[Savant]] for developing and maintaining the Nicholas J. Fuentes website for free since shortly before the [[City of Charlottesville|Charlottesville rally]].
+(04:40:42) Nicholas J. Fuentes thanked [[Savant]] for developing and maintaining the Nicholas J. Fuentes website for free since shortly before the [[Charlottesville rally]].
 
 ### AF 2019-11-15 0500
 (04:41:39) Nicholas J. Fuentes thanked [[Simon]] from [[State of Florida|Florida]] for helping to build the "[[United States|America]] First" computer used for broadcasting the show.
@@ -19555,13 +19555,13 @@
 (01:44:46) Nicholas J. Fuentes stated that the [[Catholic Church]] compiled the Bible, evangelized the world, and was the church founded by [[Jesus Christ|Christ]].
 
 ### AF 2019-11-15 0500
-(01:47:06) Nicholas J. Fuentes revealed that he campaigned for [[Ted Cruz]] in the [[State of Illinois|Illinois]] primary on March 15, 2016, door-knocking in neighborhoods like Little Village and McKinley Park in [[City of Chicago|Chicago]].
+(01:47:06) Nicholas J. Fuentes revealed that he campaigned for [[Ted Cruz]] in the [[State of Illinois|Illinois]] primary on March 15, 2016, door-knocking in neighborhoods like Little Village and McKinley Park in [[Chicago]].
 
 ### AF 2019-11-15 0500
 (01:49:14) Nicholas J. Fuentes stated that by mid-March 2016, he had switched his support from [[Ted Cruz]] to [[Donald Trump]].
 
 ### AF 2019-11-15 0500
-(01:49:39) Nicholas J. Fuentes recalled that a supporter joined him in [[City of Miami|Miami]] and confronted [[Charlie Kirk]] at the [[University of Florida]] in the name of [[United States|America]] First.
+(01:49:39) Nicholas J. Fuentes recalled that a supporter joined him in [[Miami]] and confronted [[Charlie Kirk]] at the [[University of Florida]] in the name of [[United States|America]] First.
 
 ### AF 2019-11-15 0500
 (01:52:48) Nicholas J. Fuentes claimed that [[Owen Benjamin]] leads a group of followers [[who]] call themselves "bears," referring to [[Benjamin Netanyahu|Benjamin]] as "the bear [[Jews|Jew]]."
@@ -19597,7 +19597,7 @@
 (02:11:23) Nicholas J. Fuentes described [[Kassy Dillon|Cassie Dillon]]'s show as "the worst show I had ever seen in my life" and said he had to pretend to like it while trying to secure his own show on the network.
 
 ### AF 2019-11-15 0500
-(02:15:10) Nicholas J. Fuentes expressed gratitude to [[Stefan Molyneux]] for interviewing him on his show when Fuentes had only around 5,000 [[Twitter]] followers and was considered a nobody, before the [[City of Charlottesville|Charlottesville rally]].
+(02:15:10) Nicholas J. Fuentes expressed gratitude to [[Stefan Molyneux]] for interviewing him on his show when Fuentes had only around 5,000 [[Twitter]] followers and was considered a nobody, before the [[Charlottesville rally]].
 
 ### AF 2019-11-15 0500
 (02:17:52) Nicholas J. Fuentes asserted that [[Ben Shapiro]] did not win their recent conflict, despite [[Ben Shapiro|Shapiro]] claiming victory.
@@ -19714,7 +19714,7 @@
 (53:35:00) An Examiner writer called [[Michelle Malkin]] a "Nazi and an anti-Semite" because she opposes F1 visas, according to Nicholas J. Fuentes.
 
 ### AF 2019-11-13 0498
-(57:03:00) [[Richard Spencer]], [[who]] founded the "alt-right," does not believe in [[United States|America]], supports the [[Europe|European Union]], and supports gun control, according to Nicholas J. Fuentes.
+(57:03:00) [[Richard Spencer]], [[who]] founded the "alt-right," does not believe in [[United States|America]], supports the [[European Union]], and supports gun control, according to Nicholas J. Fuentes.
 
 ### AF 2019-11-13 0498
 (58:11:00) [[Richard Spencer]] said "I spit on the Lord," according to secondhand reports cited by Nicholas J. Fuentes.
@@ -19846,7 +19846,7 @@
 (00:46:30) Nicholas J. Fuentes summarized that the Q&A at the [[University of Florida]] covered topics including the ideological consequences of mass immigration, LGBT issues, donor influence, affirmative action, and the firing of [[Ashley St Claire|Ashley St. Clair]] for taking a picture with him.
 
 ### AF 2019-11-12 0497
-(00:47:46) Nicholas J. Fuentes observed that [[Charlie Kirk]]'s primary tactic during the Q&A was to repeatedly ask questioners if they opposed [[Donald Trump]]'s immigration policy in an attempt to get them on record disagreeing with [[Donald Trump|the president]].
+(00:47:46) Nicholas J. Fuentes observed that [[Charlie Kirk]]'s primary tactic during the Q&A was to repeatedly ask questioners if they opposed [[Donald Trump]]'s immigration policy in an attempt to get them on record disagreeing with [[the president]].
 
 ### AF 2019-11-12 0497
 (00:50:50) Nicholas J. Fuentes argued that [[Charlie Kirk]] trying to shackle his globalist immigration agenda to [[Donald Trump]] only hurt [[Donald Trump]] by associating him with unpopular policies.
@@ -19933,7 +19933,7 @@
 (24:42:37) The *Guardian* identified Nicholas J. Fuentes as a 21-year-old activist whose podcast, *[[United States|America]] First*, specifically targeted [[Turning Point USA]] and [[Charlie Kirk]].
 
 ### AF 2019-11-11 0496
-(25:23:01) Two Nicholas J. Fuentes supporters told the *Guardian* that the pro-[[Donald Trump|Trump]] movement was infected with "fake conservatism" and [[Donald Trump|the president]] was at the mercy of a "deep state" cabal.
+(25:23:01) Two Nicholas J. Fuentes supporters told the *Guardian* that the pro-[[Donald Trump|Trump]] movement was infected with "fake conservatism" and [[the president]] was at the mercy of a "deep state" cabal.
 
 ### AF 2019-11-11 0496
 (26:27:59) Nicholas J. Fuentes stated that the [[University of California, Los Angeles|UCLA]] protest received widespread media coverage in outlets including the *[[Washington Post]]*, *[[Fox News]]*, *Newsweek*, *Salon*, *[[Time]]*, the *[[The New York Post|New York Post]]*, the *Examiner*, the *Independent*, and the *Guardian*.
@@ -20026,7 +20026,7 @@
 (01:11:43:57) Nicholas J. Fuentes outlined the third pillar of his movement as "no dual loyalty," opposing the influence of the [[Israel]] lobby, anti-[[BDS]] laws, and putting [[Israel]]'s interests before those of the [[United States]].
 
 ### AF 2019-11-11 0496
-(01:12:54:69) Nicholas J. Fuentes stated that when asked if [[Donald Trump|the president]] should make a decision that helps [[United States|Americans]] but hurts [[Israel|Israelis]], [[Charlie Kirk]] called it a false question and said "God bless [[Israel]]."
+(01:12:54:69) Nicholas J. Fuentes stated that when asked if [[the president]] should make a decision that helps [[United States|Americans]] but hurts [[Israel|Israelis]], [[Charlie Kirk]] called it a false question and said "God bless [[Israel]]."
 
 ### AF 2019-11-11 0496
 (01:14:34:77) Nicholas J. Fuentes argued that the mainstream conservative conversation controlled by globalists avoids his movement's platform to keep voters in a "controlled conversation" about GDP, tax cuts, and [[Israel]].(01:17:13) [[Charlie Kirk]] and other establishment figures appeal to donors and ideology, while figures like Nicholas J. Fuentes appeal directly to the [[United States|American]] people and voters.
@@ -20125,7 +20125,7 @@
 (01:41:58) An article in [[Washington Post|The Washington Post]] and the Canadian [[National Post]] about [[University of California, Los Angeles|UCLA]] mentioned Nicholas J. Fuentes and quoted him.
 
 ### AF 2019-11-11 0496
-(01:43:19) A female supporter from [[City of Chicago|Chicago]] writing a positive article about Nicholas J. Fuentes asked for his take on Pachamama statues brought to the Vatican.
+(01:43:19) A female supporter from [[Chicago]] writing a positive article about Nicholas J. Fuentes asked for his take on Pachamama statues brought to the Vatican.
 
 ### AF 2019-11-11 0496
 (01:43:39) Nicholas J. Fuentes opposed the Pachamama statues brought into the Vatican, calling them gross, offensive, insulting, and having no place in a [[Catholic church]].
@@ -20542,7 +20542,7 @@
 (01:18:47) Nicholas J. Fuentes stated that he liked [[Dave Smith]], considered him a [[person]] of integrity and intelligence, and appreciated that Smith had invited him on his show.
 
 ### AF 2019-11-05 0492
-(01:19:33) Nicholas J. Fuentes recounted being attacked online as "controlled opposition," citing a tweet where he suggested [[Steven Crowder|Steve Bannon]] should lead a think tank and that [[Jason Richwine]] and [[Darren Beattie]] should be hired.
+(01:19:33) Nicholas J. Fuentes recounted being attacked online as "controlled opposition," citing a tweet where he suggested [[Steve Bannon]] should lead a think tank and that [[Jason Richwine]] and [[Darren Beattie]] should be hired.
 
 ### AF 2019-11-05 0492
 (01:20:20) Nicholas J. Fuentes rejected the idea that God would want humanity to use technology for surveillance or genetic self-improvement, arguing that such transhumanist views were contrary to [[Christianity|Christian]] doctrine which holds that salvation comes through [[Jesus Christ]], not technology.
@@ -20644,7 +20644,7 @@
 (01:53:55) Nicholas J. Fuentes advised against preemptively accusing [[Turning Point USA]] of using plants at events, stating it should only be addressed if a plant actually reveals themselves, otherwise it would sound "crazy."
 
 ### AF 2019-11-05 0492
-(01:57:44) Nicholas J. Fuentes warned against putting up posters at events, citing a case in [[City of Chicago|Chicago]] where fingerprints were taken from posters, and recommended focusing solely on asking questions.
+(01:57:44) Nicholas J. Fuentes warned against putting up posters at events, citing a case in [[Chicago]] where fingerprints were taken from posters, and recommended focusing solely on asking questions.
 
 ### AF 2019-11-05 0492
 (02:00:39) Nicholas J. Fuentes joked that if a [[Turning Point USA]] staffer touched an activist, they should let out a "blood-curdling scream" to draw attention, though he clarified he was not seriously advising people to scream "rape."
@@ -20725,7 +20725,7 @@
 (02:42:45) Nicholas J. Fuentes revealed he was investigating rumors of a sexual misconduct cover-up within [[Turning Point USA]], involving conferences, hotel rooms, and communications, and warned others to stay out of his way.
 
 ### AF 2019-11-04 0491
-(02:52:53) Nicholas J. Fuentes stated he had a contentious personal and ideological relationship with [[Richard Spencer]], citing [[Richard Spencer|Spencer]]'s past statements against [[Christianity]], [[United States|America]], the [[U.S. Constitution|Second Amendment]], and his support for the [[Europe|European Union]].
+(02:52:53) Nicholas J. Fuentes stated he had a contentious personal and ideological relationship with [[Richard Spencer]], citing [[Richard Spencer|Spencer]]'s past statements against [[Christianity]], [[United States|America]], the [[U.S. Constitution|Second Amendment]], and his support for the [[European Union]].
 
 ### AF 2019-11-04 0491
 (03:04:35) Nicholas J. Fuentes identified three primary threats to the [[America First]] movement: outright counterattacks from groups like [[Turning Point USA]], grifter subversion from individuals seeking to sanitize the movement's message for profit, and internal bitterness/resentment aimed at sowing division over credit and tactics.
@@ -21328,7 +21328,7 @@
 (02:00:06) A new supporter declared himself "officially a Groyper" after the events of the week involving Nicholas J. Fuentes and [[Charlie Kirk]].
 
 ### AF 2019-10-31 0489
-(02:00:59) Nicholas J. Fuentes described the confrontation with [[Charlie Kirk]] as a "1683 [[City of Vienna|Vienna]] moment," a major victory where they humiliated and made a "laughing [[stock]]" of one of their opponents' best figures.
+(02:00:59) Nicholas J. Fuentes described the confrontation with [[Charlie Kirk]] as a "1683 [[Vienna]] moment," a major victory where they humiliated and made a "laughing [[stock]]" of one of their opponents' best figures.
 
 ### AF 2019-10-31 0489
 (02:01:00) [[Owen Benjamin]] gave Nicholas J. Fuentes credit for his work against [[Charlie Kirk]] on his show, which Fuentes saw as an attempt to crawl back after previous attacks.
@@ -21562,7 +21562,7 @@
 (02:10:11) Nicholas J. Fuentes stated that criticizing [[Donald Trump]] is counterproductive during the Groyper campaign, as they are using [[Donald Trump|Trump's]] message to reveal the hypocrisy of [[Turning Point USA]].
 
 ### AF 2019-10-30 0488
-(02:10:58) Nicholas J. Fuentes cited a quote attributed to [[Dan Crenshaw]] by [[Christians United for Israel]]: "Our morality doesn't come from government. It comes from [[City of Jerusalem|Jerusalem]]."
+(02:10:58) Nicholas J. Fuentes cited a quote attributed to [[Dan Crenshaw]] by [[Christians United for Israel]]: "Our morality doesn't come from government. It comes from [[Jerusalem]]."
 
 ### AF 2019-10-30 0488
 (02:11:49) Nicholas J. Fuentes recalled watching the film *Joker* with [[Joe the Boomer]] and sensing a change in the air, anticipating the current cultural shift.
@@ -22186,7 +22186,7 @@
 (00:48:40) Nicholas J. Fuentes recounted that an attendee at the [[University of New Hampshire]] event asked [[Charlie Kirk]] why he denied that [[Israel]] deliberately attacked the USS Liberty and whether he would debate Nicholas J. Fuentes, to which [[Charlie Kirk]] replied "no, thanks."
 
 ### AF 2019-10-24 0484
-(00:51:40) Nicholas J. Fuentes described another questioner [[who]] challenged [[Charlie Kirk]] on a speech he gave in [[City of Jerusalem|Jerusalem]] where he said [[United States|America]] is defined by ideas, not its people or land, contrasting it with his support for [[Israel]] as a [[Israel|Jewish state]].
+(00:51:40) Nicholas J. Fuentes described another questioner [[who]] challenged [[Charlie Kirk]] on a speech he gave in [[Jerusalem]] where he said [[United States|America]] is defined by ideas, not its people or land, contrasting it with his support for [[Israel]] as a [[Israel|Jewish state]].
 
 ### AF 2019-10-24 0484
 (01:05:00) Nicholas J. Fuentes reported on the case of [[James Younger]], a seven-year-old boy in [[State of Texas|Texas]] whose mother, [[Anne Georgulas]], sought to transition him to a girl against his wishes during a divorce from the father, [[Jeff Younger]].
@@ -22291,7 +22291,7 @@
 (00:54:11) Nicholas J. Fuentes stated that his public arguments about demographic change were making the topic mainstream.
 
 ### AF 2019-10-21 0481
-(01:00:05) Nicholas J. Fuentes criticized the organizers of a [[City of Miami|Miami]] free speech event, alleging they failed to refund ticket buyers, did not livestream the event as promised, and monetized the footage on [[FreeSpeech.tv]] without compensating him.
+(01:00:05) Nicholas J. Fuentes criticized the organizers of a [[Miami]] free speech event, alleging they failed to refund ticket buyers, did not livestream the event as promised, and monetized the footage on [[FreeSpeech.tv]] without compensating him.
 
 ### AF 2019-10-21 0481
 (01:02:58) Nicholas J. Fuentes criticized [[Jordan Peterson]] and [[Owen Benjamin]] for obfuscating their [[Christianity|Christian]] beliefs, noting that [[Owen Benjamin]] had publicly stated he did not believe [[Jesus Christ]] was God.
@@ -22438,7 +22438,7 @@
 (25:30:02) Nicholas J. Fuentes commented on a soccer match between [[United Kingdom|England]] and [[Bulgaria]] that was stopped due to racist chanting, calling the Bulgarian fans "baste."
 
 ### AF 2019-10-14 0476
-(26:56:38) Nicholas J. Fuentes speculated that internet personality [[Jacob Sartorius]] might be speaking at a future event, referencing "[[City of Charlottesville|Charlottesville]] 4."
+(26:56:38) Nicholas J. Fuentes speculated that internet personality [[Jacob Sartorius]] might be speaking at a future event, referencing "[[Charlottesville]] 4."
 
 ### AF 2019-10-14 0476
 (27:44:50) Nicholas J. Fuentes responded to a question about the historical [[Russian Empire]], stating he considered it "based."
@@ -22483,7 +22483,7 @@
 (00:31:40) Nicholas J. Fuentes argued that [[Turkey]]'s justification for its military operation in [[Syria]]—to prevent a terrorist corridor along its border—mirrored the justification used by [[Israel]] for its airstrikes in [[Syria]] and [[Iraq]].
 
 ### AF 2019-10-09 0474
-(00:33:40) Nicholas J. Fuentes asserted that the widespread condemnation of [[Turkey]]'s operation by the [[Europe|European Union]], the [[United States]], and [[Congress]] was primarily because it complicated [[United States|American]] leverage and the interests of the military-industrial complex and the [[Israel lobby]] in the [[region]].
+(00:33:40) Nicholas J. Fuentes asserted that the widespread condemnation of [[Turkey]]'s operation by the [[European Union]], the [[United States]], and [[Congress]] was primarily because it complicated [[United States|American]] leverage and the interests of the military-industrial complex and the [[Israel lobby]] in the [[region]].
 
 ### AF 2019-10-09 0474
 (00:38:40) Nicholas J. Fuentes stated that [[Bashar al-Assad]] had consolidated control over most of [[Syria]] following the [[civil war]], with only a few rebel and [[Islamic State of Iraq and Syria|ISIS]] enclaves remaining.
@@ -22552,13 +22552,13 @@
 (00:00:00) Nicholas J. Fuentes announced the return of his regular show, marking the first official episode back after a break and a previous show focused on e-drama.
 
 ### AF 2019-10-02 0471
-(00:01:27) Nicholas J. Fuentes stated that the featured story for the episode was the two-year anniversary of the [[City of Las Vegas|Las Vegas]] shooting, an event for which the [[Federal Bureau of Investigation|FBI]] closed its case in August 2018 without determining a motive.
+(00:01:27) Nicholas J. Fuentes stated that the featured story for the episode was the two-year anniversary of the [[Las Vegas]] shooting, an event for which the [[Federal Bureau of Investigation|FBI]] closed its case in August 2018 without determining a motive.
 
 ### AF 2019-10-02 0471
 (00:03:42) [[Donald Trump]] held his first summit with [[North Korea]] in [[Singapore]] in June 2018, initiating negotiations that had, according to Nicholas J. Fuentes, yielded no progress on denuclearization two years later.
 
 ### AF 2019-10-02 0471
-(00:04:09) [[Bernie Sanders]] underwent a heart procedure for a blocked artery in [[City of Las Vegas|Las Vegas]], forcing him to cancel all campaign events, a development Nicholas J. Fuentes argued confirmed the 78-year-old senator was unfit for the presidency.
+(00:04:09) [[Bernie Sanders]] underwent a heart procedure for a blocked artery in [[Las Vegas]], forcing him to cancel all campaign events, a development Nicholas J. Fuentes argued confirmed the 78-year-old senator was unfit for the presidency.
 
 ### AF 2019-10-02 0471
 (00:05:02) Nicholas J. Fuentes contrasted the health of [[Donald Trump]], whom he described as generally high-energy, with that of [[Bernie Sanders]] and [[Joe Biden]], whom he characterized as confused and slurring his words during debates.
@@ -22597,16 +22597,16 @@
 (00:42:48) Nicholas J. Fuentes argued that [[North Korea]]'s provocative missile tests signaled desperation for sanctions relief rather than strength, indicating the [[United States|U.S]]. pressure campaign was working.
 
 ### AF 2019-10-02 0471
-(00:48:49) Nicholas J. Fuentes accused the [[United States|U.S. government]], media, and [[big tech]] companies of colluding to suppress questions and investigation into events like the [[City of Las Vegas|Las Vegas]] shooting and the [[Jeffrey Epstein]] case.
+(00:48:49) Nicholas J. Fuentes accused the [[United States|U.S. government]], media, and [[big tech]] companies of colluding to suppress questions and investigation into events like the [[Las Vegas]] shooting and the [[Jeffrey Epstein]] case.
 
 ### AF 2019-10-02 0471
 (00:49:37) Nicholas J. Fuentes cited Operation Northwoods, a declassified 1962 plan, as evidence that the [[United States|U.S. government]] had previously planned false flag terror attacks on [[United States|American]] citizens to create a pretext for war with [[Cuba]].
 
 ### AF 2019-10-02 0471
-(00:50:50) Nicholas J. Fuentes contrasted the rapid attribution of motives in shootings like El Paso and New Zealand with the [[Federal Bureau of Investigation|FBI]]'s failure to determine a motive for the [[City of Las Vegas|Las Vegas]] shooting after a year-long investigation.
+(00:50:50) Nicholas J. Fuentes contrasted the rapid attribution of motives in shootings like El Paso and New Zealand with the [[Federal Bureau of Investigation|FBI]]'s failure to determine a motive for the [[Las Vegas]] shooting after a year-long investigation.
 
 ### AF 2019-10-02 0471
-(00:52:52) Nicholas J. Fuentes accused [[Mark Zuckerberg]], [[Google]], and [[Twitter|Jack Dorsey]] of cooperating with government and media interests to ban users [[who]] asked questions about events like the [[City of Las Vegas|Las Vegas]] shooting, [[Sandy Hook]], and [[Jeffrey Epstein]].
+(00:52:52) Nicholas J. Fuentes accused [[Mark Zuckerberg]], [[Google]], and [[Twitter|Jack Dorsey]] of cooperating with government and media interests to ban users [[who]] asked questions about events like the [[Las Vegas]] shooting, [[Sandy Hook]], and [[Jeffrey Epstein]].
 
 ### AF 2019-10-02 0471
 (00:54:22) Nicholas J. Fuentes argued that the real societal division was not between left and right but between a transnational globalist elite and the general populace, with the elite using media to create an illusion of [[democratic]] choice.
@@ -22621,16 +22621,16 @@
 (00:17:18) Nicholas J. Fuentes was also banned from [[Shopify]], which hosted his [[United States|America]] First merchandise store.
 
 ### AF 2019-10-01 0470
-(00:21:48) Nicholas J. Fuentes debated [[Jacob Wall]] on foreign policy and [[Israel]] at a Demand Free Speech event in [[City of Miami|Miami]].
+(00:21:48) Nicholas J. Fuentes debated [[Jacob Wall]] on foreign policy and [[Israel]] at a Demand Free Speech event in [[Miami]].
 
 ### AF 2019-10-01 0470
-(00:27:64) The Demand Free Speech event in [[City of Miami|Miami]] was originally conceived as a roast of [[Milo]], with Nicholas J. Fuentes scheduled for an undercard debate.
+(00:27:64) The Demand Free Speech event in [[Miami]] was originally conceived as a roast of [[Milo]], with Nicholas J. Fuentes scheduled for an undercard debate.
 
 ### AF 2019-10-01 0470
 (00:34:48) [[Milo]] withdrew from the Demand Free Speech event, leading organizers to promote Nicholas J. Fuentes and [[Jacob Wall]] as the main event.
 
 ### AF 2019-10-01 0470
-(01:02:12) Nicholas J. Fuentes debated [[Jacob Wall]] at a restaurant in [[City of Miami|Miami]] after a last-minute venue cancellation, with an audience of 80 to 100 people, predominantly from [[State of Florida|Florida]].
+(01:02:12) Nicholas J. Fuentes debated [[Jacob Wall]] at a restaurant in [[Miami]] after a last-minute venue cancellation, with an audience of 80 to 100 people, predominantly from [[State of Florida|Florida]].
 
 ### AF 2019-10-01 0470
 (01:21:48) [[Ashley St Claire|Ashley St. Clair]] was fired from [[Turning Point USA]] after being photographed at a party with Nicholas J. Fuentes, [[Cathy Zhu]], [[Timothy Gionet|Baked Alaska]], [[Steve Franson]], [[Ali Alexander]], and [[Jacob Wall]].
@@ -22639,7 +22639,7 @@
 (01:22:82) [[Jared Holt]] of [[Right Wing Watch]] wrote an article about the photograph of [[Ashley St Claire|Ashley St. Clair]] with Nicholas J. Fuentes, which prompted an inquiry to [[Turning Point USA]].
 
 ### AF 2019-10-01 0470
-(01:32:66) [[Ashley St Claire|Ashley St. Clair]] told Nicholas J. Fuentes that [[Charlie Kirk]] was "a really great guy" during a conversation at a party in [[City of Miami|Miami]].
+(01:32:66) [[Ashley St Claire|Ashley St. Clair]] told Nicholas J. Fuentes that [[Charlie Kirk]] was "a really great guy" during a conversation at a party in [[Miami]].
 
 ### AF 2019-10-01 0470
 (01:56:30) [[Wilt Chamberlain|Will Chamberlain]], [[Ian Miles Cheong]], and [[Brad Palumbo]] from [[The Washington Examiner]] criticized [[Ashley St Claire|Ashley St. Clair]] and [[Cathy Zhu]] for their association with Nicholas J. Fuentes.
@@ -22651,7 +22651,7 @@
 (02:01:14) [[Ian Miles Cheong]] had previously followed Nicholas J. Fuentes on [[Twitter]], defended him, and appeared on a podcast discussing anti-white media.
 
 ### AF 2019-09-25 0469
-(01:31:58) Nicholas J. Fuentes announced he would be traveling to [[City of Miami|Miami]] for a debate event against [[Jacob Wohl]] scheduled for that Saturday.
+(01:31:58) Nicholas J. Fuentes announced he would be traveling to [[Miami]] for a debate event against [[Jacob Wohl]] scheduled for that Saturday.
 
 ### AF 2019-09-24 0468
 (01:42:84) Nicholas J. Fuentes argued that [[Donald Trump]] could be impeached by the [[Democratic Party|Democrat]]-controlled [[House]] but would likely be acquitted by the [[Republican Party|Republican]]-controlled [[Senate]], allowing him to remain in office.
@@ -22687,7 +22687,7 @@
 (22:43:76) Nicholas J. Fuentes listed aggressive immigration policies, naming globalists, and "shitting on women" as reasons he originally supported [[Donald Trump]], which he felt were re-emerging.
 
 ### AF 2019-09-24 0468
-(28:07:36) Nicholas J. Fuentes characterized the sudden emergence of the [[Ukraine]] scandal in the news as artificial and astroturfed, comparing it to the memory-holing of the [[City of Las Vegas|Las Vegas]] shooting and the [[Jeffrey Epstein]] case.
+(28:07:36) Nicholas J. Fuentes characterized the sudden emergence of the [[Ukraine]] scandal in the news as artificial and astroturfed, comparing it to the memory-holing of the [[Las Vegas]] shooting and the [[Jeffrey Epstein]] case.
 
 ### AF 2019-09-24 0468
 (29:29:92) Nicholas J. Fuentes suggested the [[Ukraine]] scandal appeared out of nowhere and was quickly leveraged by the [[Democratic Party]] to build momentum for impeachment, indicating coordination by powerful interests.
@@ -22765,10 +22765,10 @@
 (00:09:40) Nicholas J. Fuentes characterized the bans from [[Peter Thiel|PayPal]], [[Venmo]], and [[Stripe]] as a form of financial censorship targeting his political views, noting these three companies collectively handled approximately 97% of online payment gateways.
 
 ### AF 2019-09-20 0466
-(00:10:00) Nicholas J. Fuentes announced that a scheduled debate event in [[City of Miami|Miami]] on September 28th, featuring himself, [[Jacob Wohl]], [[Kathy Zhu]], [[Ali Alexander]], [[Timothy Gionet|Baked Alaska]], and [[Joe Biggs]], had been moved from a yacht to a conventional hall due to booking complications.
+(00:10:00) Nicholas J. Fuentes announced that a scheduled debate event in [[Miami]] on September 28th, featuring himself, [[Jacob Wohl]], [[Kathy Zhu]], [[Ali Alexander]], [[Timothy Gionet|Baked Alaska]], and [[Joe Biggs]], had been moved from a yacht to a conventional hall due to booking complications.
 
 ### AF 2019-09-20 0466
-(00:11:00) Nicholas J. Fuentes announced that the ticket price for the [[City of Miami|Miami]] debate event was reduced from $150 to $50 following the venue change, and that previous ticket buyers would receive a $100 refund.
+(00:11:00) Nicholas J. Fuentes announced that the ticket price for the [[Miami]] debate event was reduced from $150 to $50 following the venue change, and that previous ticket buyers would receive a $100 refund.
 
 ### AF 2019-09-20 0466
 (00:16:00) Nicholas J. Fuentes reported that the [[United States]] [[U.S. Department of Defense|Department of Defense]], under Secretary [[Mark Esper]], announced it would send additional troops to [[Saudi Arabia]] and the [[United Arab Emirates]] following an attack on [[Saudi Arabia|Saudi]] oil facilities that the [[United States|U.S]]. blamed on [[Iran]].
@@ -22789,7 +22789,7 @@
 (00:30:00) Nicholas J. Fuentes stated that the [[United States]] had previously secured a "third safe [[country]]" agreement with [[Guatemala]] and was pressuring [[Mexico]] to increase border security to stem the flow of migrants.
 
 ### AF 2019-09-20 0466
-(00:34:00) Nicholas J. Fuentes linked a spike in violent crime in [[City of Minneapolis|Minneapolis]] to migrants from [[Somalia]], arguing that people bring the violent tendencies of their home countries with them when they immigrate.
+(00:34:00) Nicholas J. Fuentes linked a spike in violent crime in [[Minneapolis]] to migrants from [[Somalia]], arguing that people bring the violent tendencies of their home countries with them when they immigrate.
 
 ### AF 2019-09-20 0466
 (00:34:50) Nicholas J. Fuentes reported that millions of people globally participated in climate strikes inspired by activist [[Greta Thunberg]], with protests occurring in countries including [[Australia]], [[Ghana]], [[Thailand]], [[India]], [[Germany]], and the [[United Kingdom]].
@@ -22816,10 +22816,10 @@
 (08:51:94) Nicholas J. Fuentes previously created a video criticizing [[Lilly Singh]], which he referenced but stated he could not discuss in detail due to platform community guidelines.
 
 ### AF 2019-09-19 0465
-(14:59:64) Nicholas J. Fuentes argued that mainstream conservative opinion, as seen on [[Fox News]] and from [[Turning Point USA]], attributes rising crime in cities like [[City of Minneapolis|Minneapolis]] solely to [[Democratic Party|Democratic]] policy, not racial demographics.
+(14:59:64) Nicholas J. Fuentes argued that mainstream conservative opinion, as seen on [[Fox News]] and from [[Turning Point USA]], attributes rising crime in cities like [[Minneapolis]] solely to [[Democratic Party|Democratic]] policy, not racial demographics.
 
 ### AF 2019-09-19 0465
-(17:23:62) [[City of Minneapolis|Minneapolis]] saw its violent crime rate rise to levels on par with [[City of Chicago|Chicago]], a change Nicholas J. Fuentes attributed to demographic shifts rather than solely political leadership.
+(17:23:62) [[Minneapolis]] saw its violent crime rate rise to levels on par with [[Chicago]], a change Nicholas J. Fuentes attributed to demographic shifts rather than solely political leadership.
 
 ### AF 2019-09-19 0465
 (20:06:74) Economist [[Thomas Sowell]] argued that high crime rates among African [[United States|Americans]] resulted from factors like fatherless households and a welfare state, a theory Nicholas J. Fuentes challenged by pointing to recently-arrived [[Somalia|Somalis]] exhibiting similar behavior.
@@ -22957,7 +22957,7 @@
 (00:04:00) [[Chelsea Handler]] hosted a [[Netflix]] special discussing white privilege, which Nicholas J. Fuentes cited as an example of a [[Jews|Jewish]] [[person]] leading conversations critical of white people.
 
 ### AF 2019-09-16 0462
-(00:46:30) Nicholas J. Fuentes promoted an upcoming debate event in [[City of Miami|Miami]] featuring himself debating [[Jacob Wohl]], with an undercard debate between [[Cathy Zhu]] and a nationalist woman named Bernadette.
+(00:46:30) Nicholas J. Fuentes promoted an upcoming debate event in [[Miami]] featuring himself debating [[Jacob Wohl]], with an undercard debate between [[Cathy Zhu]] and a nationalist woman named Bernadette.
 
 ### AF 2019-09-13 0461
 (18:35:90) [[Israel Defense Forces|Mossad]] agents from the company Urban Moving Systems were arrested on [[September 11 attacks|September 11]], 2001, after being observed filming the collapse of the World Trade Center, an incident Nicholas J. Fuentes cited as evidence of ongoing [[Israel|Israeli]] espionage in the [[United States]].
@@ -22966,7 +22966,7 @@
 (22:08:82) [[Sheldon Adelson]] was the single largest individual donor to [[Donald Trump]]'s last presidential election campaign, which Nicholas J. Fuentes cited as a reason for the administration's lenient response to [[Israel|Israeli]] espionage.
 
 ### AF 2019-09-13 0461
-(22:21:46) [[Steven Crowder|Steve Bannon]] solicited campaign funds from the [[Zionist Organization of America]] while working for the [[Donald Trump|Trump]] campaign, according to Nicholas J. Fuentes.
+(22:21:46) [[Steve Bannon]] solicited campaign funds from the [[Zionist Organization of America]] while working for the [[Donald Trump|Trump]] campaign, according to Nicholas J. Fuentes.
 
 ### AF 2019-09-13 0461
 (36:17:40) Nicholas J. Fuentes argued that independent mega-celebrities like [[Felix Kjellberg|PewDiePie]], [[Kanye West]], [[Elon Musk]], and [[Notch]], [[who]] possess substantial wealth and loyal fan bases outside traditional establishment power structures, represent a potential path for introducing new political ideas and challenging mainstream narratives.
@@ -23125,7 +23125,7 @@
 (05:23:52) Nicholas J. Fuentes stated it was well-documented that [[George W. Bush]] had plans to invade [[Afghanistan]] on his desk on September 10, 2001, providing a pretext for war after the attacks.
 
 ### AF 2019-09-11 0459
-(05:24:28) Nicholas J. Fuentes pointed to the [[Jeffrey Epstein]] case, the [[City of Las Vegas|Las Vegas]] shooting, and declassified plans like Operation Northwoods as evidence that government complicity in events like [[September 11 attacks|9/11]] was within the realm of possibility.
+(05:24:28) Nicholas J. Fuentes pointed to the [[Jeffrey Epstein]] case, the [[Las Vegas]] shooting, and declassified plans like Operation Northwoods as evidence that government complicity in events like [[September 11 attacks|9/11]] was within the realm of possibility.
 
 ### AF 2019-09-11 0459
 (05:26:03) Nicholas J. Fuentes disputed only the "key details" of [[September 11 attacks|9/11]], such as the collapse of World Trade Center Building 7, while acknowledging the towers fell and thousands were killed.
@@ -23137,7 +23137,7 @@
 (01:09:00) Nicholas J. Fuentes argued that [[Donald Trump]]'s foreign policy doctrine favored diplomacy over military intervention, citing ongoing negotiations with the [[Afghanistan|Taliban]] in [[Afghanistan]], [[Iran]], [[North Korea]], and the government of [[Nicolás Maduro]] in [[Venezuela]].
 
 ### AF 2019-09-10 0458
-(01:30:00) Nicholas J. Fuentes claimed that [[John Bolton]] was used as a "bad cop" within the [[Donald Trump|Trump administration]] to strengthen [[Donald Trump|the president's]] negotiating position, particularly ahead of the 2018 summit with [[Kim Jong Un|Kim Jong-un]] of [[North Korea]].
+(01:30:00) Nicholas J. Fuentes claimed that [[John Bolton]] was used as a "bad cop" within the [[Donald Trump|Trump administration]] to strengthen [[the president's]] negotiating position, particularly ahead of the 2018 summit with [[Kim Jong Un|Kim Jong-un]] of [[North Korea]].
 
 ### AF 2019-09-10 0458
 (02:32:00) In August 2019, the [[Anti-Defamation League|ADL]] published a list of [[Google|YouTube]] channels it accused of pushing anti-Semitic content, which included the channel of Nicholas J. Fuentes.
@@ -23176,16 +23176,16 @@
 (02:23:00) Nicholas J. Fuentes contrasted his own public, live-streamed format with the secretive, meetup-oriented model of groups like TRS, which he implied made them more susceptible to infiltration and shady activity.
 
 ### AF 2019-09-09 0457
-(02:26:00) Nicholas J. Fuentes stated that normal people would not want to associate with movements that involved figures like Chris Cantwell, the [[Ku Klux Klan|KKK]], or individuals with criminal histories like heroin dealing.(01:08:41) Nicholas J. Fuentes announced that a viewer named Bakers had purchased a ticket for an upcoming event in [[City of Miami|Miami]].
+(02:26:00) Nicholas J. Fuentes stated that normal people would not want to associate with movements that involved figures like Chris Cantwell, the [[Ku Klux Klan|KKK]], or individuals with criminal histories like heroin dealing.(01:08:41) Nicholas J. Fuentes announced that a viewer named Bakers had purchased a ticket for an upcoming event in [[Miami]].
 
 ### AF 2019-09-09 0457
-(01:08:56) Nicholas J. Fuentes stated that ticket sales for the [[City of Miami|Miami]] yacht event had been rapid, with only about 200-250 spots available.
+(01:08:56) Nicholas J. Fuentes stated that ticket sales for the [[Miami]] yacht event had been rapid, with only about 200-250 spots available.
 
 ### AF 2019-09-09 0457
 (01:09:19) Nicholas J. Fuentes mentioned having previously debated [[Jacob Wohl]] on his show.
 
 ### AF 2019-09-09 0457
-(01:09:41) Nicholas J. Fuentes framed the [[City of Miami|Miami]] yacht event as a potential opportunity for crossover appeal and mainstream outreach.
+(01:09:41) Nicholas J. Fuentes framed the [[Miami]] yacht event as a potential opportunity for crossover appeal and mainstream outreach.
 
 ### AF 2019-09-09 0457
 (01:10:03) Nicholas J. Fuentes stated he hardly uses [[Twitter]] anymore, preferring [[Telegram]] for its lack of character limits and restrictive terms of service.
@@ -23209,10 +23209,10 @@
 (01:13:13) Nicholas J. Fuentes warned that without internet free speech protections, platforms like [[Twitter]], [[Instagram]], and [[Facebook]] would use improved algorithms to shut down such conversations and cause a rapid leftward shift in discourse.
 
 ### AF 2019-09-09 0457
-(01:13:48) Nicholas J. Fuentes confirmed that [[Milo Yiannopoulos]] was initially the headliner for the [[City of Miami|Miami]] yacht event, with himself as a guest debater, and that ticket prices were lowered from an early bird price of $200 to $150.
+(01:13:48) Nicholas J. Fuentes confirmed that [[Milo Yiannopoulos]] was initially the headliner for the [[Miami]] yacht event, with himself as a guest debater, and that ticket prices were lowered from an early bird price of $200 to $150.
 
 ### AF 2019-09-09 0457
-(01:14:36) Nicholas J. Fuentes described the [[City of Miami|Miami]] event venue as a four-decker yacht in [[City of Miami|Miami]] Harbor.
+(01:14:36) Nicholas J. Fuentes described the [[Miami]] event venue as a four-decker yacht in [[Miami]] Harbor.
 
 ### AF 2019-09-09 0457
 (01:15:35) Nicholas J. Fuentes stated that, based on his research, sourdough bread from [[Panera Bread]] is healthy due to a low glycemic index.
@@ -23242,7 +23242,7 @@
 (01:23:29) Nicholas J. Fuentes claimed that if [[Marianne Williamson]]'s proposed $500 billion reparations package were enacted, it would act as a subsidy for companies like [[Nike]] and luxury goods, rather than solving underlying issues.
 
 ### AF 2019-09-09 0457
-(01:24:36) Nicholas J. Fuentes joked that a reparations payout would lead to flash mobs and chaos on shopping avenues like [[State of Michigan|Michigan]] Avenue in [[City of Chicago|Chicago]] and Rodeo Drive.
+(01:24:36) Nicholas J. Fuentes joked that a reparations payout would lead to flash mobs and chaos on shopping avenues like [[State of Michigan|Michigan]] Avenue in [[Chicago]] and Rodeo Drive.
 
 ### AF 2019-09-09 0457
 (01:25:14) Nicholas J. Fuentes sarcastically suggested that [[black]] [[United States|Americans]] would spend reparations money responsibly on books from [[Barnes & Noble]].
@@ -23257,13 +23257,13 @@
 (01:27:26) Nicholas J. Fuentes mocked an Australian viewer's comment about his height, insisting he is "six foot nine" in the [[United States|American]] measurement system.
 
 ### AF 2019-09-09 0457
-(01:28:32) Nicholas J. Fuentes confirmed that a viewer named Demetri had bought a ticket to the [[City of Miami|Miami]] event.
+(01:28:32) Nicholas J. Fuentes confirmed that a viewer named Demetri had bought a ticket to the [[Miami]] event.
 
 ### AF 2019-09-09 0457
-(01:29:01) Nicholas J. Fuentes described common sights in [[City of Chicago|Chicago]] where individuals, often minorities, perform tricks or dances on highway exits for money.
+(01:29:01) Nicholas J. Fuentes described common sights in [[Chicago]] where individuals, often minorities, perform tricks or dances on highway exits for money.
 
 ### AF 2019-09-09 0457
-(01:29:30) Nicholas J. Fuentes confirmed that Hawaiian shirts would be appropriate attire for the [[City of Miami|Miami]] yacht event.
+(01:29:30) Nicholas J. Fuentes confirmed that Hawaiian shirts would be appropriate attire for the [[Miami]] yacht event.
 
 ### AF 2019-09-09 0457
 (01:29:41) Nicholas J. Fuentes responded to a claim about TRS security being run by a "heroin addict [[who]] likes trannies and works with the feds" by saying it was not surprising and that he had been vindicated in his past criticisms of TRS.
@@ -23296,7 +23296,7 @@
 (01:36:48) Nicholas J. Fuentes acknowledged a viewer's mention of the [[Mordechai Vanunu]] case in relation to a "femoid question."
 
 ### AF 2019-09-09 0457
-(01:36:56) Nicholas J. Fuentes responded to jokes comparing the [[City of Miami|Miami]] yacht event to the [[USS Liberty]] incident.
+(01:36:56) Nicholas J. Fuentes responded to jokes comparing the [[Miami]] yacht event to the [[USS Liberty]] incident.
 
 ### AF 2019-09-09 0457
 (01:38:25) Nicholas J. Fuentes dismissed a demand to join "K-populism."
@@ -23311,7 +23311,7 @@
 (01:41:30) Nicholas J. Fuentes agreed with a viewer identifying as a "[[United States|US]] Pajit" [[who]] stated that "[[Europe]] should be ethnically white."
 
 ### AF 2019-09-09 0457
-(01:41:44) Nicholas J. Fuentes told a viewer it was "definitely not" okay to attend the [[City of Miami|Miami]] event in blackface.
+(01:41:44) Nicholas J. Fuentes told a viewer it was "definitely not" okay to attend the [[Miami]] event in blackface.
 
 ### AF 2019-09-09 0457
 (01:42:00) Nicholas J. Fuentes praised [[Father Purdy]] as an "awesome and well-spoken priest."
@@ -23356,7 +23356,7 @@
 (01:52:52) Nicholas J. Fuentes sarcastically dismissed a viewer's observation about [[State of California|California]] elementary school teachers with "[[Jews|Jewish]] last names" hanging LGBTQ flags as a "purely coincidence."
 
 ### AF 2019-09-09 0457
-(01:53:38) Nicholas J. Fuentes criticized the [[North Dakota]] [[constitution]] for only recognizing "two biological genders," arguing(01:08:44) Nicholas J. Fuentes announced that a viewer named Bakers had purchased a ticket for an upcoming event in [[City of Miami|Miami]].
+(01:53:38) Nicholas J. Fuentes criticized the [[North Dakota]] [[constitution]] for only recognizing "two biological genders," arguing(01:08:44) Nicholas J. Fuentes announced that a viewer named Bakers had purchased a ticket for an upcoming event in [[Miami]].
 
 ### AF 2019-09-09 0457
 (01:09:19) Nicholas J. Fuentes stated that he had previously debated [[Jacob Wohl]] on his show.
@@ -23371,10 +23371,10 @@
 (01:12:01) Nicholas J. Fuentes identified Ricky Vaughn as one of the most influential people in the 2016 election, [[who]] was named by [[Time|Time Magazine]].
 
 ### AF 2019-09-09 0457
-(01:13:46) Nicholas J. Fuentes encouraged a viewer named Josh Sears to attend the event in [[City of Miami|Miami]].
+(01:13:46) Nicholas J. Fuentes encouraged a viewer named Josh Sears to attend the event in [[Miami]].
 
 ### AF 2019-09-09 0457
-(01:14:14) Nicholas J. Fuentes revealed that [[Milo Yiannopoulos]] was initially the headliner for the [[City of Miami|Miami]] yacht event, with himself as a guest debater.
+(01:14:14) Nicholas J. Fuentes revealed that [[Milo Yiannopoulos]] was initially the headliner for the [[Miami]] yacht event, with himself as a guest debater.
 
 ### AF 2019-09-09 0457
 (01:15:03) Nicholas J. Fuentes relayed a claim from a viewer named Really Good Comics that a caustic chemical used in Drano is also applied to bread to darken its color.
@@ -23428,7 +23428,7 @@
 (01:35:25) Nicholas J. Fuentes described the film *The Cuck* as "[[Jews|Jewish]] propaganda" depicting a white "alt-right guy" [[who]] commits a shooting.
 
 ### AF 2019-09-09 0457
-(01:36:36) Nicholas J. Fuentes mocked viewers making repeated jokes connecting the [[City of Miami|Miami]] yacht event to the USS Liberty incident.
+(01:36:36) Nicholas J. Fuentes mocked viewers making repeated jokes connecting the [[Miami]] yacht event to the USS Liberty incident.
 
 ### AF 2019-09-09 0457
 (01:37:55) Nicholas J. Fuentes recommended authors [[Edward Feser]], [[Fulton Sheen]], and [[G.K. Chesterton|G. K. Chesterton]] to a former Jehovah's Witness seeking to learn about [[Christianity]].
@@ -23479,7 +23479,7 @@
 (01:55:27) Nicholas J. Fuentes stated his church was unaware of his show and that he did not discuss his opposition to race mixing with them, though the Church says it is not a sin.
 
 ### AF 2019-09-09 0457
-(01:56:56) Nicholas J. Fuentes argued that a ticketed speaking event in [[City of Miami|Miami]] was not equivalent to the regular, decentralized meetups organized by the podcast "TRS."
+(01:56:56) Nicholas J. Fuentes argued that a ticketed speaking event in [[Miami]] was not equivalent to the regular, decentralized meetups organized by the podcast "TRS."
 
 ### AF 2019-09-09 0457
 (01:57:27) Nicholas J. Fuentes greeted a content creator named Sticks in the chat.
@@ -23506,10 +23506,10 @@
 (00:01:26) Nicholas J. Fuentes hosts the political commentary program [[United States|America]] First.
 
 ### AF 2019-09-06 0456
-(00:09:55) Nicholas J. Fuentes announced he will be the headline speaker at an event in [[City of Miami|Miami]], [[State of Florida|Florida]] on September 28th, organized by the website demandfreespeech.org, which will feature debates and be held on a yacht with 250 available tickets.
+(00:09:55) Nicholas J. Fuentes announced he will be the headline speaker at an event in [[Miami]], [[State of Florida|Florida]] on September 28th, organized by the website demandfreespeech.org, which will feature debates and be held on a yacht with 250 available tickets.
 
 ### AF 2019-09-06 0456
-(00:11:36) Nicholas J. Fuentes confirmed he will debate [[Jacob Wohl]] on [[Donald Trump]]'s foreign policy, with a focus on [[Israel]], at the upcoming demandfreespeech.org event in [[City of Miami|Miami]].
+(00:11:36) Nicholas J. Fuentes confirmed he will debate [[Jacob Wohl]] on [[Donald Trump]]'s foreign policy, with a focus on [[Israel]], at the upcoming demandfreespeech.org event in [[Miami]].
 
 ### AF 2019-09-06 0456
 (00:11:48) Nicholas J. Fuentes listed [[Will Witt]] from [[Prager University]], [[Jacob Wohl]], and [[Joe Biggs]] as confirmed attendees for the demandfreespeech.org event, with organizers also attempting to invite [[Gavin McInnes]] and other online personalities.
@@ -23530,7 +23530,7 @@
 (00:25:58) Nicholas J. Fuentes suggested that for the [[Republican Party]] to remain competitive in future northern battleground states like [[Minnesota]], it may need to adopt policy platforms such as [[universal]] healthcare and education, moving away from its traditional focus on corporate tax cuts and foreign intervention.
 
 ### AF 2019-09-06 0456
-(00:28:06) Nicholas J. Fuentes cited [[Steven Crowder|Steve Bannon]] and [[Tucker Carlson]]'s proposal for the [[Republican Party]] to reinvent itself as a multi-ethnic working-class party as a potential, though unlikely, strategy for political survival.
+(00:28:06) Nicholas J. Fuentes cited [[Steve Bannon]] and [[Tucker Carlson]]'s proposal for the [[Republican Party]] to reinvent itself as a multi-ethnic working-class party as a potential, though unlikely, strategy for political survival.
 
 ### AF 2019-09-06 0456
 (00:29:13) Nicholas J. Fuentes stated that while past immigration policies have jeopardized the long-term viability of the [[Republican Party]], the immigration agenda of [[Donald Trump]] appears to be yielding positive results.
@@ -23704,7 +23704,7 @@
 (01:56:31) Nicholas J. Fuentes dismissed the Netflix comedy special "Sticks and Stones" by [[Dave Chappelle]], rejecting the idea that a [[black]] comedian could save [[United States|America]] from [[the left]].
 
 ### AF 2019-09-04 0454
-(01:57:10) Nicholas J. Fuentes defended his critique of [[Boston]]'s food, calling its pizza trash and its burgers mediocre compared to [[City of Chicago|Chicago]]'s.
+(01:57:10) Nicholas J. Fuentes defended his critique of [[Boston]]'s food, calling its pizza trash and its burgers mediocre compared to [[Chicago]]'s.
 
 ### AF 2019-09-04 0454
 (01:58:05) Nicholas J. Fuentes was unsurprised to hear that [[Ian Miles Cheong]] defended [[ContraPoints]] on [[Twitter]], calling it cringe.
@@ -23800,7 +23800,7 @@
 (00:48:19) Nicholas J. Fuentes stated that [[Donald Trump]] himself identified personnel and staffing as his administration's biggest problem in an interview with a reporter.
 
 ### AF 2019-08-29 0451
-(00:30:59) [[Jeffrey Epstein]] was indicted for child sex trafficking before his death in jail on August 10th, 2019, a death officially ruled a suicide by the medical examiner. (00:33:04) [[Jeffrey Epstein]] was [[Jews|Jewish]]. (00:33:50) [[Jeffrey Epstein]]'s criminal case was officially dismissed by Judge [[Richard Berman]] on August 29th, 2019, citing his death. (00:34:24) Judge [[Richard Berman]] allowed accusers of [[Jeffrey Epstein]] to deliver victim impact statements in court on August 27th, 2019, even though the accused was not present. (00:35:04) [[State of Florida|Florida]] prosecutors previously offered [[Jeffrey Epstein]] a plea deal without input from his accusers years prior to the 2019 case. (00:35:57) [[Jeffrey Epstein]]'s private plane was [[known]] as the "Lolita Express." (00:57:55) [[Kim Kardashian]] announced a new album by [[Kanye West]] titled "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," scheduled for release on September 27th, 2019. (01:07:06) A comprehensive new study published in *Science* magazine concluded there is no single "gay gene," with same-sex sexual behavior influenced by many genetic variants and environmental factors. (01:18:11) Only ten [[Democratic Party|Democratic]] candidates qualified for the third 2020 presidential primary debate on September 12th in [[City|Houston]]: [[Joe Biden]], [[Bernie Sanders]], [[Elizabeth Warren]], [[Kamala Harris]], [[Peter Buttigieg|Pete Buttigieg]], [[Andrew Yang]], [[Cory Booker]], [[Beto O'Rourke]], [[Julian Castro]], and [[Amy Klobuchar]]. (01:18:59) [[Tulsi Gabbard]] and billionaire activist [[Tom Steyer]] failed to qualify for the September 2019 [[Democratic Party|Democratic]] debate, with Gabbard needing two more qualifying polls and [[Tom Steyer|Steyer]] needing one. (01:21:04) [[Democratic Party|Democratic]] candidates [[Kirsten Gillibrand]], [[John Hickenlooper]], [[Jay Inslee]], [[Seth Moulton]], and [[Eric Swalwell]] dropped out of the 2020 presidential race by late August 2019. (01:22:28) [[Joe Biden]] maintained a double-digit lead in most national and state polls for the [[Democratic Party|Democratic]] nomination through August 2019, despite attacks from rivals and personal scandals. (01:25:58) [[Elizabeth Warren]] was rising in the polls as the main competitor to [[Joe Biden]] for the [[Democratic Party|Democratic]] nomination by late August 2019, while [[Kamala Harris]]'s support was fading and [[Peter Buttigieg|Pete Buttigieg]] had failed to surge. (01:26:37) Nicholas J. Fuentes predicted that if [[Joe Biden]] won the [[Democratic Party|Democratic]] nomination, the contest for his running mate would likely be between [[Kamala Harris]] and [[Elizabeth Warren]]. (01:29:12) [[Donald Trump]] was co-opted by the deep state within two years of his presidency, according to Nicholas J. Fuentes, transforming from an unconventional outsider into a figure virtually indistinguishable from establishment [[Republican Party|Republicans]] like [[Mitt Romney]], [[Ted Cruz]], and [[Marco Rubio]]. (01:31:14) [[Barack Obama]]'s presidency failed to end the forever wars or stop deficit spending, despite his anti-establishment "hope and change" rhetoric, paralleling [[Donald Trump]]'s experience according to Nicholas J. Fuentes. (01:33:04) [[Jeffrey Epstein]] was about to give up information on the [[United Kingdom|British]] Royal Family, the [[Israel|Israeli government]], [[Los Angeles|Hollywood]] celebrities, and [[Bill Clinton]] before he was murdered in jail, according to Nicholas J. Fuentes. (01:34:36) Nicholas J. Fuentes argued that the powers that be killed [[Jeffrey Epstein]] in a transparent manner to send a message of intimidation and demonstrate their capability to silence anyone, even with public knowledge. (01:39:27) The media's ability to distract the public from major events like the [[Jeffrey Epstein]] case or the [[City of Las Vegas|Las Vegas]] mass shooting demonstrates a population that lacks the agency to achieve reform, according to Nicholas J. Fuentes. (01:48:55) Nicholas J. Fuentes argued that the only enduring "white pill" or source of hope is the belief that "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," transcending the temporal power of figures like [[Jeffrey Epstein]].
+(00:30:59) [[Jeffrey Epstein]] was indicted for child sex trafficking before his death in jail on August 10th, 2019, a death officially ruled a suicide by the medical examiner. (00:33:04) [[Jeffrey Epstein]] was [[Jews|Jewish]]. (00:33:50) [[Jeffrey Epstein]]'s criminal case was officially dismissed by Judge [[Richard Berman]] on August 29th, 2019, citing his death. (00:34:24) Judge [[Richard Berman]] allowed accusers of [[Jeffrey Epstein]] to deliver victim impact statements in court on August 27th, 2019, even though the accused was not present. (00:35:04) [[State of Florida|Florida]] prosecutors previously offered [[Jeffrey Epstein]] a plea deal without input from his accusers years prior to the 2019 case. (00:35:57) [[Jeffrey Epstein]]'s private plane was [[known]] as the "Lolita Express." (00:57:55) [[Kim Kardashian]] announced a new album by [[Kanye West]] titled "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," scheduled for release on September 27th, 2019. (01:07:06) A comprehensive new study published in *Science* magazine concluded there is no single "gay gene," with same-sex sexual behavior influenced by many genetic variants and environmental factors. (01:18:11) Only ten [[Democratic Party|Democratic]] candidates qualified for the third 2020 presidential primary debate on September 12th in [[City|Houston]]: [[Joe Biden]], [[Bernie Sanders]], [[Elizabeth Warren]], [[Kamala Harris]], [[Peter Buttigieg|Pete Buttigieg]], [[Andrew Yang]], [[Cory Booker]], [[Beto O'Rourke]], [[Julian Castro]], and [[Amy Klobuchar]]. (01:18:59) [[Tulsi Gabbard]] and billionaire activist [[Tom Steyer]] failed to qualify for the September 2019 [[Democratic Party|Democratic]] debate, with Gabbard needing two more qualifying polls and [[Tom Steyer|Steyer]] needing one. (01:21:04) [[Democratic Party|Democratic]] candidates [[Kirsten Gillibrand]], [[John Hickenlooper]], [[Jay Inslee]], [[Seth Moulton]], and [[Eric Swalwell]] dropped out of the 2020 presidential race by late August 2019. (01:22:28) [[Joe Biden]] maintained a double-digit lead in most national and state polls for the [[Democratic Party|Democratic]] nomination through August 2019, despite attacks from rivals and personal scandals. (01:25:58) [[Elizabeth Warren]] was rising in the polls as the main competitor to [[Joe Biden]] for the [[Democratic Party|Democratic]] nomination by late August 2019, while [[Kamala Harris]]'s support was fading and [[Peter Buttigieg|Pete Buttigieg]] had failed to surge. (01:26:37) Nicholas J. Fuentes predicted that if [[Joe Biden]] won the [[Democratic Party|Democratic]] nomination, the contest for his running mate would likely be between [[Kamala Harris]] and [[Elizabeth Warren]]. (01:29:12) [[Donald Trump]] was co-opted by the deep state within two years of his presidency, according to Nicholas J. Fuentes, transforming from an unconventional outsider into a figure virtually indistinguishable from establishment [[Republican Party|Republicans]] like [[Mitt Romney]], [[Ted Cruz]], and [[Marco Rubio]]. (01:31:14) [[Barack Obama]]'s presidency failed to end the forever wars or stop deficit spending, despite his anti-establishment "hope and change" rhetoric, paralleling [[Donald Trump]]'s experience according to Nicholas J. Fuentes. (01:33:04) [[Jeffrey Epstein]] was about to give up information on the [[United Kingdom|British]] Royal Family, the [[Israel|Israeli government]], [[Los Angeles|Hollywood]] celebrities, and [[Bill Clinton]] before he was murdered in jail, according to Nicholas J. Fuentes. (01:34:36) Nicholas J. Fuentes argued that the powers that be killed [[Jeffrey Epstein]] in a transparent manner to send a message of intimidation and demonstrate their capability to silence anyone, even with public knowledge. (01:39:27) The media's ability to distract the public from major events like the [[Jeffrey Epstein]] case or the [[Las Vegas]] mass shooting demonstrates a population that lacks the agency to achieve reform, according to Nicholas J. Fuentes. (01:48:55) Nicholas J. Fuentes argued that the only enduring "white pill" or source of hope is the belief that "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," transcending the temporal power of figures like [[Jeffrey Epstein]].
 
 ### AF 2019-08-28 0450
 (00:15:55) Nicholas J. Fuentes argued that the universalist, anti-racial ideals in [[Martin Luther King Jr.]]'s "I Have a Dream" speech are a weapon used against white people in [[United States|America]], impeding white identity and enabling multiracialism.
@@ -23854,7 +23854,7 @@
 (00:04:35) Nicholas J. Fuentes stated that a [[Right Wing Watch]] article written about him, combined with the [[El Paso]] shooting, led him to believe his show [[America First]] would be terminated.
 
 ### AF 2019-08-26 0448
-(00:22:41) Nicholas J. Fuentes stated that he attended and spoke at the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally and had spoken to [[American Renaissance]].
+(00:22:41) Nicholas J. Fuentes stated that he attended and spoke at the [[Charlottesville]] "Unite the Right" rally and had spoken to [[American Renaissance]].
 
 ### AF 2019-08-26 0448
 (00:28:56) [[Jack Posobiec]] was reported to be an early follower of a [[Jews|Jewish]] social media account that was reporting channels like those of Nicholas J. Fuentes and [[James Allsup|James Alsup]].
@@ -23866,7 +23866,7 @@
 (00:36:32) Nicholas J. Fuentes stated that the demographic statistics he cited came from [[Pew Research]], not from sources like [[Peter Brimelow]] at [[VDARE.com|V-Dare]] or [[Jared Taylor]] at [[American Renaissance]].
 
 ### AF 2019-08-26 0448
-(00:42:36) Nicholas J. Fuentes used the transformation of [[City of Chicago|Chicago]]'s [[Little Italy]] neighborhood into a predominantly Mexican area as an example of demographic change with tangible consequences.
+(00:42:36) Nicholas J. Fuentes used the transformation of [[Chicago]]'s [[Little Italy]] neighborhood into a predominantly Mexican area as an example of demographic change with tangible consequences.
 
 ### AF 2019-08-26 0448
 (00:46:42) Nicholas J. Fuentes argued that censorship targets specific factual claims, such as the overrepresentation of [[Jews]] in executive media positions and IQ disparities between racial groups.
@@ -24061,7 +24061,7 @@
 (00:24:05) Nicholas J. Fuentes argued that a recession before the 2020 election would make it virtually impossible for [[Donald Trump]] to win re-election, citing unfulfilled promises on immigration, ongoing foreign wars, and unresolved trade issues.
 
 ### AF 2019-08-20 0444
-(00:28:54) Nicholas J. Fuentes attended the 2017 "Unite the Right" rally in [[City of Charlottesville|Charlottesville]], [[State of Virginia|Virginia]], which was organized to protest the removal of a statue of Confederate General [[Robert E. Lee]] from a public park.
+(00:28:54) Nicholas J. Fuentes attended the 2017 "Unite the Right" rally in [[Charlottesville]], [[State of Virginia|Virginia]], which was organized to protest the removal of a statue of Confederate General [[Robert E. Lee]] from a public park.
 
 ### AF 2019-08-20 0444
 (00:31:45) Nicholas J. Fuentes argued that the removal of statues of figures like [[Robert E. Lee]], [[Thomas Jefferson]], and [[George Washington]] was part of a deliberate effort to redefine the [[United States]] with new "founding fathers" like [[Martin Luther King Jr.]], [[Rosa Parks]], and [[Malcolm X]].
@@ -24142,7 +24142,7 @@
 (10:21:820) Nicholas J. Fuentes stated that [[Christianity|Christian]] Zionism is the "most cucked" heresy because it teaches that a group of people [[who]] reject [[Jesus Christ|Christ]] are spiritually superior and have VIP access to heaven.
 
 ### AF 2019-08-19 0443
-(11:07:340) Nicholas J. Fuentes argued that [[Antifa]] were the instigators of violence at the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally, citing police confiscation of hundreds of hidden weapons from [[Antifa]] beforehand.
+(11:07:340) Nicholas J. Fuentes argued that [[Antifa]] were the instigators of violence at the [[Charlottesville]] "Unite the Right" rally, citing police confiscation of hundreds of hidden weapons from [[Antifa]] beforehand.
 
 ### AF 2019-08-19 0443
 (11:51:720) Nicholas J. Fuentes sarcastically remarked that it was surprising the judge in the [[Proud Boys]] [[January 6th Attack|January 6th]] case had the last name "[[Steven Crowder|Stein]]-Glass," implying [[Jews|Jewish]] bias.
@@ -24184,10 +24184,10 @@
 (00:06:22) Nicholas J. Fuentes stated this was his final broadcast before turning 21 years old.
 
 ### AF 2019-08-16 0442
-(00:09:34) Nicholas J. Fuentes referenced a police shootout in [[City of Philadelphia|Philadelphia]] involving a 34-year-old [[black]] suspect [[who]] shot six police officers in an 85% [[black]] neighborhood.
+(00:09:34) Nicholas J. Fuentes referenced a police shootout in [[Philadelphia]] involving a 34-year-old [[black]] suspect [[who]] shot six police officers in an 85% [[black]] neighborhood.
 
 ### AF 2019-08-16 0442
-(00:13:15) Nicholas J. Fuentes reported that residents in the [[City of Philadelphia|Philadelphia]] neighborhood where six police officers were shot were planning a protest against the arrest of the suspect.
+(00:13:15) Nicholas J. Fuentes reported that residents in the [[Philadelphia]] neighborhood where six police officers were shot were planning a protest against the arrest of the suspect.
 
 ### AF 2019-08-16 0442
 (00:19:08) Nicholas J. Fuentes argued that the actions of [[Rashida Tlaib]] in canceling her visit vindicated Zionist claims about [[Islam|Muslims]] being subversive towards [[Israel]].
@@ -24271,7 +24271,7 @@
 (02:56:56) [[Benjamin Netanyahu|Bibi Netanyahu]] received 27 standing ovations during an address to the [[United States Congress]], which Nicholas J. Fuentes cited as an example of political deference to [[Israel]].
 
 ### AF 2019-08-14 0440
-(03:00:00) Nicholas J. Fuentes listed [[Ben Shapiro]], [[AIPAC]], [[Charlie Kirk]], and [[Mike Johnson|Kevin McCarthy]] as figures [[who]] demonstrate public support for [[Israel]].
+(03:00:00) Nicholas J. Fuentes listed [[Ben Shapiro]], [[AIPAC]], [[Charlie Kirk]], and [[Kevin McCarthy]] as figures [[who]] demonstrate public support for [[Israel]].
 
 ### AF 2019-08-13 0439
 (00:04:42) Nicholas J. Fuentes announced his return to hosting his show on a Tuesday evening, expressing excitement for the episode's content.
@@ -24313,7 +24313,7 @@
 (01:34:53) Nicholas J. Fuentes listed several incidents of left-wing violence he argued were ignored by the media, including the [[City|Dayton, Ohio]] shooting by an [[Antifa]] member, a school shooting in [[State of Colorado|Colorado]] by a transgender student, the [[City|Sutherland Springs, Texas]] church shooting, and the [[Congressional baseball shooting]] targeting [[Steve Scalise]].
 
 ### AF 2019-08-13 0439
-(01:38:20) Nicholas J. Fuentes argued that Zionist militias like the [[Irgun]], led by [[Menachem Begin]], invented modern terrorist techniques such as bus bombings and suicide bombings in the 1930s and 1940s against [[United Kingdom|Great Britain]] and Arab populations in [[Gaza Strip|Palestine]].
+(01:38:20) Nicholas J. Fuentes argued that Zionist militias like the [[Irgun]], led by [[Menachem Begin]], invented modern terrorist techniques such as bus bombings and suicide bombings in the 1930s and 1940s against [[United Kingdom|Great Britain]] and Arab populations in [[Palestine]].
 
 ### AF 2019-08-13 0439
 (01:40:07) Nicholas J. Fuentes contended that right-wing terrorism occurs more frequently because its perpetrators are disenfranchised and lack institutional power, whereas left-wing violence is conducted through [[state]] apparatuses like the government, media, and tech companies.
@@ -24322,7 +24322,7 @@
 (01:42:28) Nicholas J. Fuentes claimed that [[Antifa]] was responsible for the mass shooting in [[City|Dayton, Ohio]] and the firebombing in [[City|Tacoma, Washington]], and that social media platforms like [[Facebook]] allow calls for violence against right-wing figures.
 
 ### AF 2019-08-13 0439
-(01:45:46) Nicholas J. Fuentes contrasted the media treatment of [[James Fields]], [[who]] drove through [[Heather Heyer]] in [[City of Charlottesville|Charlottesville]], with the treatment of thousands of [[Antifa]] members [[who]] he said descended on [[City of Charlottesville|Charlottesville]] with weapons, arguing the latter was not labeled terrorism.
+(01:45:46) Nicholas J. Fuentes contrasted the media treatment of [[James Fields]], [[who]] drove through [[Heather Heyer]] in [[Charlottesville]], with the treatment of thousands of [[Antifa]] members [[who]] he said descended on [[Charlottesville]] with weapons, arguing the latter was not labeled terrorism.
 
 ### AF 2019-08-13 0439
 (01:46:58) Nicholas J. Fuentes stated that [[Ben Shapiro]] omitted [[Alan Dershowitz]]'s name when reading a list of people named in unsealed [[Jeffrey Epstein|Epstein]] documents, which he presented as an example of [[Ben Shapiro|Shapiro]] running interference for fellow [[Jews]].
@@ -24337,28 +24337,28 @@
 (00:33:86) Nicholas J. Fuentes uploaded a premium show discussing [[Jeffrey Epstein]] and reviewing the film *Once Upon a [[Time]] in [[Los Angeles|Hollywood]]* by [[Quentin Tarantino]].
 
 ### AF 2019-08-12 0438
-(00:46:62) The [[City of Charlottesville|Charlottesville]] police and the governor of [[State of Virginia|Virginia]] declared the Unite the Right rally an unlawful assembly and dispersed the crowd, preventing Nicholas J. Fuentes from reaching the designated rally point at Lee Park.
+(00:46:62) The [[Charlottesville]] police and the governor of [[State of Virginia|Virginia]] declared the Unite the Right rally an unlawful assembly and dispersed the crowd, preventing Nicholas J. Fuentes from reaching the designated rally point at Lee Park.
 
 ### AF 2019-08-12 0438
-(00:52:98) Nicholas J. Fuentes attended the Unite the Right rally in [[City of Charlottesville|Charlottesville]], where he met individuals including [[James Allsup]], [[Millennial Matt]], and Brittany Venti, and made his first appearance on *The Weekly Sweat* podcast.
+(00:52:98) Nicholas J. Fuentes attended the Unite the Right rally in [[Charlottesville]], where he met individuals including [[James Allsup]], [[Millennial Matt]], and Brittany Venti, and made his first appearance on *The Weekly Sweat* podcast.
 
 ### AF 2019-08-12 0438
 (01:11:54) Nicholas J. Fuentes stated that counter-demonstrators from [[Antifa]] outnumbered Unite the Right rally attendees by approximately two-to-one and came armed with weapons including bottles of urine, feces, bricks, and lead pipes.
 
 ### AF 2019-08-12 0438
-(01:13:00) Nicholas J. Fuentes claimed only one individual was photographed with a Nazi flag at the entire [[City of Charlottesville|Charlottesville]] rally, and that [[person]] was never publicly identified or doxed.
+(01:13:00) Nicholas J. Fuentes claimed only one individual was photographed with a Nazi flag at the entire [[Charlottesville]] rally, and that [[person]] was never publicly identified or doxed.
 
 ### AF 2019-08-12 0438
-(01:14:50) Nicholas J. Fuentes characterized the [[City of Charlottesville|Charlottesville]] rally as a peaceful demonstration against the destruction of the [[country]]'s racial and cultural identity, which was shut down through collusion between the media, government, and far-left groups.
+(01:14:50) Nicholas J. Fuentes characterized the [[Charlottesville]] rally as a peaceful demonstration against the destruction of the [[country]]'s racial and cultural identity, which was shut down through collusion between the media, government, and far-left groups.
 
 ### AF 2019-08-12 0438
-(01:17:44) Nicholas J. Fuentes stated that a clip posted by [[Ben Shapiro]] showing him making controversial statements about interracial relationships generated significant media attention prior to the [[City of Charlottesville|Charlottesville]] rally.
+(01:17:44) Nicholas J. Fuentes stated that a clip posted by [[Ben Shapiro]] showing him making controversial statements about interracial relationships generated significant media attention prior to the [[Charlottesville]] rally.
 
 ### AF 2019-08-12 0438
-(01:17:96) Nicholas J. Fuentes decided to attend the [[City of Charlottesville|Charlottesville]] rally after being encouraged to do so by Faith Goldy via [[Twitter]].
+(01:17:96) Nicholas J. Fuentes decided to attend the [[Charlottesville]] rally after being encouraged to do so by Faith Goldy via [[Twitter]].
 
 ### AF 2019-08-12 0438
-(01:20:24) [[David Duke]], [[Mike Cernovich|Mike Enoch]], and [[Richard Spencer]] were listed as speakers for the [[City of Charlottesville|Charlottesville]] rally, which initially dissuaded Nicholas J. Fuentes from agreeing to attend or speak.
+(01:20:24) [[David Duke]], [[Mike Cernovich|Mike Enoch]], and [[Richard Spencer]] were listed as speakers for the [[Charlottesville]] rally, which initially dissuaded Nicholas J. Fuentes from agreeing to attend or speak.
 
 ### AF 2019-08-12 0438
 (01:22:52) Nicholas J. Fuentes's employment at [[Right Side Broadcasting Network|RSBN]] ([[Right Side Broadcasting Network]]) was questioned following the controversy over the clip posted by [[Ben Shapiro]].
@@ -24373,7 +24373,7 @@
 (02:41:60) Nicholas J. Fuentes stated that [[Jeffrey Epstein]] was a [[Jews|Jew]] [[who]] worked with former [[Israel|Israeli]] Prime Minister [[Ehud Barak]] and the [[Israel Defense Forces|Mossad]].
 
 ### AF 2019-08-12 0438
-(02:46:94) Nicholas J. Fuentes compared the public forgetting of the [[Jeffrey Epstein]] case to the public forgetting of the 2017 [[City of Las Vegas|Las Vegas]] mass shooting, where the [[Federal Bureau of Investigation|FBI]] concluded the investigation without determining a motive.
+(02:46:94) Nicholas J. Fuentes compared the public forgetting of the [[Jeffrey Epstein]] case to the public forgetting of the 2017 [[Las Vegas]] mass shooting, where the [[Federal Bureau of Investigation|FBI]] concluded the investigation without determining a motive.
 
 ### AF 2019-08-12 0438
 (02:48:50) Nicholas J. Fuentes argued that the warden of the Metropolitan Correctional Center where [[Jeffrey Epstein]] died, Lamine N'Diaye, was an unqualified diversity hire.
@@ -24445,7 +24445,7 @@
 (00:22:00) Nicholas J. Fuentes stated that under [[Matteo Salvini]]'s tenure as Interior Minister, illegal migrant crossings into [[Europe]] from [[African continent|Africa]] decreased by 94%.
 
 ### AF 2019-08-09 0437
-(00:23:00) Nicholas J. Fuentes argued that a [[Matteo Salvini]]-led government in [[Italian Republic|Italy]] would represent a major populist, nationalist, and anti-migration shift within a founding [[Europe|European Union]] member [[state]].
+(00:23:00) Nicholas J. Fuentes argued that a [[Matteo Salvini]]-led government in [[Italian Republic|Italy]] would represent a major populist, nationalist, and anti-migration shift within a founding [[European Union]] member [[state]].
 
 ### AF 2019-08-09 0437
 (00:24:00) Nicholas J. Fuentes expressed pessimism about a right-wing revival in the [[United States]], citing entrenched leftist institutions, and suggested hope lay in nationalist movements in [[Europe]].
@@ -24514,13 +24514,13 @@
 (00:04:36) Nicholas J. Fuentes referenced an ongoing feud with [[The Daily Wire]], [[Ben Shapiro]], and other figures he described as "Conservative Inc." going after him.
 
 ### AF 2019-08-08 0436
-(00:05:34) Nicholas J. Fuentes cited a pattern of social media crackdowns following mass casualty events like the [[City of Charlottesville|Charlottesville rally]], the Pittsburgh synagogue shooting by [[Robert Bowers]], the [[New Zealand mosque shooting]], and the [[El Paso shooting]].
+(00:05:34) Nicholas J. Fuentes cited a pattern of social media crackdowns following mass casualty events like the [[Charlottesville rally]], the Pittsburgh synagogue shooting by [[Robert Bowers]], the [[New Zealand mosque shooting]], and the [[El Paso shooting]].
 
 ### AF 2019-08-08 0436
 (00:12:00) Nicholas J. Fuentes contrasted the responses of [[Alexandria Ocasio-Cortez]] and [[Tucker Carlson]] to the [[El Paso shooting]], noting [[Alexandria Ocasio-Cortez]] leaned into racial identity politics while [[Tucker Carlson]] downplayed white supremacy as an issue.
 
 ### AF 2019-08-08 0436
-(00:13:49) [[Tucker Carlson]] characterized white supremacy and racial politics as tools used by the [[Democratic Party]] to divide people and distract from class conflict, an analysis Nicholas J. Fuentes noted was similar to [[Steven Crowder|Steve Bannon]]'s approach.
+(00:13:49) [[Tucker Carlson]] characterized white supremacy and racial politics as tools used by the [[Democratic Party]] to divide people and distract from class conflict, an analysis Nicholas J. Fuentes noted was similar to [[Steve Bannon]]'s approach.
 
 ### AF 2019-08-08 0436
 (00:15:02) Nicholas J. Fuentes noted that [[Tucker Carlson]] operated under limitations due to his platform on [[Fox News]] and the need to maintain advertisers.
@@ -24541,7 +24541,7 @@
 (00:31:49) Nicholas J. Fuentes criticized a privacy rule within the [[U.S. Department of Homeland Security|DHS]] that prevented the release of criminal records for detained immigrants, which he argued could counter media narratives portraying them solely as family-oriented individuals.
 
 ### AF 2019-08-08 0436
-(00:32:44) Nicholas J. Fuentes argued that personnel within the [[Donald Trump|Trump]] administration, such as [[Kevin McAleenan]] and his subordinates, were thwarting [[Donald Trump|the president's]] immigration agenda and needed to be replaced for any meaningful progress.
+(00:32:44) Nicholas J. Fuentes argued that personnel within the [[Donald Trump|Trump]] administration, such as [[Kevin McAleenan]] and his subordinates, were thwarting [[the president's]] immigration agenda and needed to be replaced for any meaningful progress.
 
 ### AF 2019-08-08 0436
 (00:34:02) An estimated 100,000 undocumented immigrants entered the [[United States]] in June 2019 alone, a number Nicholas J. Fuentes stated far exceeded the scale of even the most successful [[U.S. Immigration and Customs Enforcement|ICE]] deportation operations.
@@ -24589,7 +24589,7 @@
 (03:14:18) Critics of Nicholas J. Fuentes called for his removal from [[Twitter]] and [[Google|YouTube]] in response to the article.
 
 ### AF 2019-08-07 0435
-(03:25:98) Nicholas J. Fuentes attended the "Unite the Right" rally in [[City of Charlottesville|Charlottesville]].
+(03:25:98) Nicholas J. Fuentes attended the "Unite the Right" rally in [[Charlottesville]].
 
 ### AF 2019-08-07 0435
 (03:30:58) Nicholas J. Fuentes was secretly recorded at the [[Leadership Institute]] making statements about a "certain group of people" being "out to get" him.
@@ -24877,7 +24877,7 @@
 (42:56:00) Nicholas J. Fuentes argued that the trade war with [[China]] was beneficial for the [[United States]], criticizing free trade advocates and stating that endless trade wars were preferable to trade deficits that transfer [[United States|American]] assets and technology abroad.
 
 ### AF 2019-08-06 0434
-(43:28:00) Nicholas J. Fuentes analyzed that [[China|Chinese]] President [[Xi Jinping]] was resisting a trade deal in the hope that [[Donald Trump|Trump]] would lose the 2020 election, believing a [[Democratic Party|Democratic]] successor would be more accommodating to [[City of Beijing|Beijing]].
+(43:28:00) Nicholas J. Fuentes analyzed that [[China|Chinese]] President [[Xi Jinping]] was resisting a trade deal in the hope that [[Donald Trump|Trump]] would lose the 2020 election, believing a [[Democratic Party|Democratic]] successor would be more accommodating to [[Beijing]].
 
 ### AF 2019-08-06 0434
 (46:49:00) Nicholas J. Fuentes dismissed an analogy by [[Ben Shapiro]] comparing a national trade deficit to an individual's deficit with a grocery store, calling it irrelevant to international trade between sovereign nations.
@@ -24901,10 +24901,10 @@
 (01:16:49) Nicholas J. Fuentes argued that the systematic suppression of 62 million people [[who]] voted for [[Donald Trump]] and shared grievances about immigration, through deplatforming and employment termination, could lead to increased anger and acts of violence.
 
 ### AF 2019-08-05 0433
-(01:18:49) Nicholas J. Fuentes suggested that political actors like [[Joe Biden]] and [[Jake Tapper]] might politically benefit from mass shootings that align with narratives about white nationalism, as seen with [[Joe Biden]]'s campaign launch focusing on [[City of Charlottesville|Charlottesville]].
+(01:18:49) Nicholas J. Fuentes suggested that political actors like [[Joe Biden]] and [[Jake Tapper]] might politically benefit from mass shootings that align with narratives about white nationalism, as seen with [[Joe Biden]]'s campaign launch focusing on [[Charlottesville]].
 
 ### AF 2019-08-05 0433
-(01:34:44) Nicholas J. Fuentes read an excerpt from an article by [[Patrick Buchanan|Pat Buchanan]], written after the [[City of Charlottesville|Charlottesville rally]], which argued that Western imperialism and figures like [[Winston Churchill]] embodied a belief in racial superiority, framing the contemporary condemnation of white supremacy as a radical experiment.
+(01:34:44) Nicholas J. Fuentes read an excerpt from an article by [[Patrick Buchanan|Pat Buchanan]], written after the [[Charlottesville rally]], which argued that Western imperialism and figures like [[Winston Churchill]] embodied a belief in racial superiority, framing the contemporary condemnation of white supremacy as a radical experiment.
 
 ### AF 2019-08-05 0433
 (01:40:46) Nicholas J. Fuentes noted the shooter's last name, Betts, had Semitic connotations and speculated he could be [[Jews|Jewish]], contrary to initial media reports labeling him a white male.
@@ -24964,13 +24964,13 @@
 (00:07:00) Nicholas J. Fuentes stated the [[Democratic Party|Democratic National Committee]] used a new procedure to ensure an even distribution of top-tier, second-tier, and bottom-tier candidates across the two debate nights, unlike the lopsided June debate.
 
 ### AF 2019-07-30 0430
-(00:08:00) Nicholas J. Fuentes identified the main substantive division in the [[Democratic Party]] as being between supporters of [[Health and Human Services|Medicare]] for All, like [[Elizabeth Warren]] and [[Bernie Sanders]], [[who]] would make private insurance illegal, and supporters of a public option, like [[Peter Buttigieg|Pete Buttigieg]].
+(00:08:00) Nicholas J. Fuentes identified the main substantive division in the [[Democratic Party]] as being between supporters of [[Medicare]] for All, like [[Elizabeth Warren]] and [[Bernie Sanders]], [[who]] would make private insurance illegal, and supporters of a public option, like [[Peter Buttigieg|Pete Buttigieg]].
 
 ### AF 2019-07-30 0430
-(00:09:00) Nicholas J. Fuentes cited polling showing [[Health and Human Services|Medicare]] for All polls poorly with independents and [[Republican Party|Republicans]], while a public option polls significantly better across all voter groups.
+(00:09:00) Nicholas J. Fuentes cited polling showing [[Medicare]] for All polls poorly with independents and [[Republican Party|Republicans]], while a public option polls significantly better across all voter groups.
 
 ### AF 2019-07-30 0430
-(00:12:00) Nicholas J. Fuentes argued that the healthcare debate between [[Health and Human Services|Medicare]] for All and a public option was ultimately unimportant, as all [[Democratic Party|Democratic]] candidates supported the goal of [[universal]] healthcare, which he believed would be a winning issue against the [[Republican Party]].
+(00:12:00) Nicholas J. Fuentes argued that the healthcare debate between [[Medicare]] for All and a public option was ultimately unimportant, as all [[Democratic Party|Democratic]] candidates supported the goal of [[universal]] healthcare, which he believed would be a winning issue against the [[Republican Party]].
 
 ### AF 2019-07-30 0430
 (00:13:30) Nicholas J. Fuentes stated that during the immigration portion of the debate, most frontrunners, including [[Elizabeth Warren]] and [[Peter Buttigieg|Pete Buttigieg]], supported decriminalizing illegal immigration, with [[Elizabeth Warren]] arguing it would take a tool away from [[Donald Trump]] to separate families.
@@ -25015,7 +25015,7 @@
 (00:39:00) Nicholas J. Fuentes expressed confidence that [[Donald Trump]] would be capable of defeating any of the [[Democratic Party|Democratic]] candidates, whether it was "the screaming [[Jews|Jew]]" [[Bernie Sanders]], "the little homosexual" [[Peter Buttigieg|Pete Buttigieg]], or "the shrieking, harpy student council president" [[Elizabeth Warren]].
 
 ### AF 2019-07-29 0429
-(03:32:44) Nicholas J. Fuentes argued that the primary difference between well-functioning cities like [[Burlington, Vermont]] and [[Portland, Maine]] and troubled cities like [[Baltimore]] and [[City of Chicago|Chicago]] is demographic composition, not political party management.
+(03:32:44) Nicholas J. Fuentes argued that the primary difference between well-functioning cities like [[Burlington, Vermont]] and [[Portland, Maine]] and troubled cities like [[Baltimore]] and [[Chicago]] is demographic composition, not political party management.
 
 ### AF 2019-07-29 0429
 (04:34:70) Nicholas J. Fuentes contended that the problems in cities like [[Baltimore]] are not caused by welfare policies, the "culture of poverty," or [[Lyndon B. Johnson|Lyndon Johnson]]'s Great Society, but are inherent to the demographics of their populations.
@@ -25690,7 +25690,7 @@
 (01:42:17) Nicholas J. Fuentes joked that his vacation was at "[[National Aeronautics and Space Administration|NASA]] Space Camp," where he went on a G-force spinner, ate space [[ice]] cream, and high-fived astronauts, calling it a "perk of being controlled opposition."
 
 ### AF 2019-07-22 0424
-(01:42:37) Nicholas J. Fuentes criticized the expansion of [[Portillo's]] restaurant chain outside of [[City of Chicago|Chicago]], arguing that regional foods like [[City of Chicago|Chicago]] hot dogs and Italian beef should remain local and not be disseminated.
+(01:42:37) Nicholas J. Fuentes criticized the expansion of [[Portillo's]] restaurant chain outside of [[Chicago]], arguing that regional foods like [[Chicago]] hot dogs and Italian beef should remain local and not be disseminated.
 
 ### AF 2019-07-22 0424
 (01:44:16) Nicholas J. Fuentes disavowed a viewer's question about a romantic getaway with [[Brittany Venti]], stating it was just a "fun week" with friends.
@@ -25810,13 +25810,13 @@
 (00:01:44) Nicholas J. Fuentes stated the episode would focus on [[Megan Rapinoe]], a player on [[the United States]] Women's National Soccer Team, rather than the sporting event itself.
 
 ### AF 2019-07-10 0422
-(00:04:37) Nicholas J. Fuentes stated the episode would also discuss violent incidents in [[City of Chicago|Chicago]] over the Fourth of July weekend.
+(00:04:37) Nicholas J. Fuentes stated the episode would also discuss violent incidents in [[Chicago]] over the Fourth of July weekend.
 
 ### AF 2019-07-10 0422
 (00:05:58) Nicholas J. Fuentes characterized the Fourth of July in [[Washington D.C.|Washington, D.C.]] as a conflict between "[[Israel]] proxies" and "[[Qatar|Qatari]] proxies" battling for influence using foreign money.
 
 ### AF 2019-07-10 0422
-(00:06:23) Nicholas J. Fuentes stated the episode would cover a flash mob robbery at a [[Walgreens]] in [[City of Philadelphia|Philadelphia]] and an [[National Football League|NFL]] superstar arrested in a convenience store incident.
+(00:06:23) Nicholas J. Fuentes stated the episode would cover a flash mob robbery at a [[Walgreens]] in [[Philadelphia]] and an [[National Football League|NFL]] superstar arrested in a convenience store incident.
 
 ### AF 2019-07-10 0422
 (00:07:04) Nicholas J. Fuentes announced he would provide a brief update on [[Facebook]]'s terms of service and, if [[time]] permitted, discuss a lawsuit against [[Donald Trump]] for blocking people on [[Twitter]].
@@ -25837,22 +25837,22 @@
 (00:16:30) Nicholas J. Fuentes cited a report that [[Facebook]] was tracking users [[who]] created memes calling [[Mark Zuckerberg]] an alien.
 
 ### AF 2019-07-10 0422
-(00:17:17) Nicholas J. Fuentes stated the episode would discuss gun violence in [[City of Chicago|Chicago]] before moving to the Women's World Cup story.
+(00:17:17) Nicholas J. Fuentes stated the episode would discuss gun violence in [[Chicago]] before moving to the Women's World Cup story.
 
 ### AF 2019-07-10 0422
-(00:21:06) Nicholas J. Fuentes cited the shooting rate in [[City of Chicago|Chicago]]'s Garfield Park neighborhood as 450, contrasting it with the near-zero murder rate in his own suburban area.
+(00:21:06) Nicholas J. Fuentes cited the shooting rate in [[Chicago]]'s Garfield Park neighborhood as 450, contrasting it with the near-zero murder rate in his own suburban area.
 
 ### AF 2019-07-10 0422
-(00:22:16) Nicholas J. Fuentes argued that high crime rates in certain [[City of Chicago|Chicago]] neighborhoods are not due to poverty, income, or politics, but simply because "the people in my neighborhood don't shoot each other."
+(00:22:16) Nicholas J. Fuentes argued that high crime rates in certain [[Chicago]] neighborhoods are not due to poverty, income, or politics, but simply because "the people in my neighborhood don't shoot each other."
 
 ### AF 2019-07-10 0422
 (00:23:23) Nicholas J. Fuentes dismissed policy solutions like economic freedom zones, charter schools, or private vouchers, arguing that no amount of police would stop people from killing each other "if that's what they're hell bent on doing."
 
 ### AF 2019-07-10 0422
-(00:24:13) Nicholas J. Fuentes connected the [[City of Chicago|Chicago]] violence to other incidents, including a "flash mob" robbery at a [[Walgreens]] in [[City of Philadelphia|Philadelphia]] and a brawl at [[Disney|Disneyland]].
+(00:24:13) Nicholas J. Fuentes connected the [[Chicago]] violence to other incidents, including a "flash mob" robbery at a [[Walgreens]] in [[Philadelphia]] and a brawl at [[Disney|Disneyland]].
 
 ### AF 2019-07-10 0422
-(00:25:22) Nicholas J. Fuentes referenced a similar "flash mob" robbery that occurred at a [[The North Face|North Face]] store in [[City of Milwaukee|Milwaukee]], [[Wisconsin]].
+(00:25:22) Nicholas J. Fuentes referenced a similar "flash mob" robbery that occurred at a [[The North Face|North Face]] store in [[Milwaukee]], [[Wisconsin]].
 
 ### AF 2019-07-10 0422
 (00:26:47) Nicholas J. Fuentes argued that [[the United States]] is comprised of two groups: one that follows laws and social norms without constant policing, and another that requires constant surveillance and barriers to prevent theft, violence, and drug use.
@@ -25861,7 +25861,7 @@
 (00:27:27) Nicholas J. Fuentes claimed the group of people requiring constant policing is increasing due to higher birth rates and immigration across the southern border, while the law-abiding group is decreasing.
 
 ### AF 2019-07-10 0422
-(00:28:46) Nicholas J. Fuentes identified the group responsible for high crime in [[City of Chicago|Chicago]] and other cities as "the [[Democratic Party|Democrats]]."
+(00:28:46) Nicholas J. Fuentes identified the group responsible for high crime in [[Chicago]] and other cities as "the [[Democratic Party|Democrats]]."
 
 ### AF 2019-07-10 0422
 (00:30:31) Nicholas J. Fuentes stated the [[United States]] won the Women's World Cup by beating the [[Kingdom of the Netherlands|Netherlands]] 2-0.
@@ -25900,7 +25900,7 @@
 (00:47:33) Nicholas J. Fuentes sarcastically reaffirmed his belief in total equality between men and women, his love and respect for women, and his support for lesbians playing soccer as "what [[United States|America]]'s all about."
 
 ### AF 2019-07-10 0422
-(00:48:23) Nicholas J. Fuentes sarcastically stated that people of all races killing each other in [[City of Chicago|Chicago]] are equal and just need to "come together as one people, united in equality and support for [[Israel]], interest rates in gay marriage."
+(00:48:23) Nicholas J. Fuentes sarcastically stated that people of all races killing each other in [[Chicago]] are equal and just need to "come together as one people, united in equality and support for [[Israel]], interest rates in gay marriage."
 
 ### AF 2019-07-10 0422
 (00:48:56) Nicholas J. Fuentes directly addressed journalist [[Joseph Bernstein|Joe Bernstein]], telling him to "put the notebook down" and denying he was saying [[black]] people commit crimes or hates women, instead claiming "everybody's equal."
@@ -25963,13 +25963,13 @@
 (00:38:42) Nicholas J. Fuentes argued that the judiciary and unelected bureaucrats ultimately make the most important decisions in the [[United States]], citing the census case as an example where the executive branch was blocked from performing a basic administrative duty.
 
 ### AF 2019-07-02 0419
-(00:40:18) Nicholas J. Fuentes described a bureaucratic process where low-level, unelected officials settle most legal interpretations and enforcement, with disputes only reaching high-level appointees or [[Donald Trump|the president]] in rare cases of significant disagreement.
+(00:40:18) Nicholas J. Fuentes described a bureaucratic process where low-level, unelected officials settle most legal interpretations and enforcement, with disputes only reaching high-level appointees or [[the president]] in rare cases of significant disagreement.
 
 ### AF 2019-07-02 0419
 (00:42:42) Nicholas J. Fuentes concluded that the [[United States]] government is fundamentally broken because it cannot perform basic functions like determining [[who]] is in the [[country]] legally, a failure he attributed to an unaccountable bureaucracy and judiciary.
 
 ### AF 2019-07-01 0418
-(00:10:00) Nicholas J. Fuentes announced the show's feature would focus on [[Antifa]] and an attack on journalist [[Andy Ngo]] in [[City of Portland|Portland]].
+(00:10:00) Nicholas J. Fuentes announced the show's feature would focus on [[Antifa]] and an attack on journalist [[Andy Ngo]] in [[Portland]].
 
 ### AF 2019-07-01 0418
 (00:52:00) Nicholas J. Fuentes argued that media coverage of the [[Donald Trump]]-[[Kim Jong Un|Kim Jong-un]] summit was overwhelmingly negative, focusing on criticism instead of the diplomatic achievement.
@@ -25978,10 +25978,10 @@
 (01:44:00) Nicholas J. Fuentes clarified that [[Antifa]] is not a single, centralized [[organization]] but a decentralized movement or style of protest composed of independent cells.
 
 ### AF 2019-07-01 0418
-(02:20:00) Nicholas J. Fuentes stated that [[Antifa]] significantly outnumbered and attacked participants at the 2017 [[City of Charlottesville|Charlottesville]] "Unite the Right" rally, which he witnessed firsthand.
+(02:20:00) Nicholas J. Fuentes stated that [[Antifa]] significantly outnumbered and attacked participants at the 2017 [[Charlottesville]] "Unite the Right" rally, which he witnessed firsthand.
 
 ### AF 2019-07-01 0418
-(02:32:00) Nicholas J. Fuentes argued that internet censorship campaigns against figures like [[Andrew Anglin]] of the [[Daily Stormer]] began concurrently with [[Antifa]]'s rise after the [[City of Charlottesville|Charlottesville]] rally.
+(02:32:00) Nicholas J. Fuentes argued that internet censorship campaigns against figures like [[Andrew Anglin]] of the [[Daily Stormer]] began concurrently with [[Antifa]]'s rise after the [[Charlottesville]] rally.
 
 ### AF 2019-07-01 0418
 (03:08:00) Nicholas J. Fuentes criticized conservative commentators for highlighting that [[Andy Ngo]] was a "gay Asian man" when condemning [[Antifa]]'s attack, arguing it revealed an implicit hierarchy of victimhood that devalued white victims.
@@ -26077,7 +26077,7 @@
 (00:17:10) Rumors indicated that the upcoming [[U.S. Immigration and Customs Enforcement|ICE]] raids would [[target]] 2,000 individuals, a number Nicholas J. Fuentes contrasted with the 100,000 illegal immigrants apprehended at the border in May.
 
 ### AF 2019-06-21 0412
-(00:47:47) Nicholas J. Fuentes stated that an [[NBC News|NBC]] producer contacted him to appear on a panel to discuss the [[City of Charlottesville|Charlottesville rally]] and a mosque shooting, seeking a "white nationalist" perspective, but he declined the invitation.
+(00:47:47) Nicholas J. Fuentes stated that an [[NBC News|NBC]] producer contacted him to appear on a panel to discuss the [[Charlottesville rally]] and a mosque shooting, seeking a "white nationalist" perspective, but he declined the invitation.
 
 ### AF 2019-06-20 0411
 (00:24:25) Nicholas J. Fuentes observed that defense contractors and the [[Israel]] lobby view escalating tensions in the [[Middle East]] as beneficial for their interests.
@@ -26092,7 +26092,7 @@
 (01:59:59) Nicholas J. Fuentes criticized journalists like [[Will Sommer]], [[Jared Holt]], and [[Christopher Mathias]] for focusing on white nationalism as the primary domestic terror threat while ignoring threats from Islamic extremism.
 
 ### AF 2019-06-20 0411
-(02:16:47) Nicholas J. Fuentes recounted being contacted by an [[NBCUniversal]] producer to appear on a panel defending white nationalism, focusing on events like the [[City of Charlottesville|Charlottesville]] rally and the [[New York|Christchurch]] mosque shooting.
+(02:16:47) Nicholas J. Fuentes recounted being contacted by an [[NBCUniversal]] producer to appear on a panel defending white nationalism, focusing on events like the [[Charlottesville]] rally and the [[New York|Christchurch]] mosque shooting.
 
 ### AF 2019-06-20 0411
 (02:32:43) Nicholas J. Fuentes listed several international terrorist attacks by [[Islam|Muslims]] that occurred in the weeks following the [[New York|Christchurch]] mosque shooting, including incidents in the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], and [[Indonesia]].
@@ -26116,7 +26116,7 @@
 (06:38:25) Nicholas J. Fuentes concluded that the primary drivers for war with [[Iran]] were war profiteering by defense contractors and the strategic interests of the [[Israel]] lobby.
 
 ### AF 2019-06-20 0411
-(07:11:35) Nicholas J. Fuentes expressed hope that [[Donald Trump]] would resist calls for war with [[Iran]], citing [[Donald Trump|the president's]] downplaying of the tanker and drone incidents as evidence of his restraint.
+(07:11:35) Nicholas J. Fuentes expressed hope that [[Donald Trump]] would resist calls for war with [[Iran]], citing [[the president's]] downplaying of the tanker and drone incidents as evidence of his restraint.
 
 ### AF 2019-06-19 0410
 (00:00:06) Nicholas J. Fuentes announced the topics for his show, which included a discussion on [[black]] reparations hearings in the [[House Judiciary Committee]] and a legislative proposal by [[Josh Hawley]] to address tech censorship.
@@ -26125,7 +26125,7 @@
 (00:09:39) Following a purge of figures like [[Alex Jones]] from [[Facebook]], Nicholas J. Fuentes started a [[Telegram]] channel and an official subreddit called "Nicker Nation" to provide alternative platforms for his audience.
 
 ### AF 2019-06-19 0410
-(00:11:10) Nicholas J. Fuentes planned to review [[Donald Trump]]'s 2019 re-election rally in [[City of Orlando|Orlando]], which he characterized as lacking the focus and insurgent energy of the 2016 campaign.
+(00:11:10) Nicholas J. Fuentes planned to review [[Donald Trump]]'s 2019 re-election rally in [[Orlando]], which he characterized as lacking the focus and insurgent energy of the 2016 campaign.
 
 ### AF 2019-06-19 0410
 (00:12:34) Nicholas J. Fuentes argued that [[Donald Trump]]'s 2019 rally message on issues like socialism was indistinguishable from traditional [[Republican Party]] figures like [[Marco Rubio]] and failed to emphasize core 2016 themes like immigration, trade, and foreign policy.
@@ -26308,7 +26308,7 @@
 (02:19:29) Nicholas J. Fuentes predicted [[Joe Biden]] could be sidelined due to health complications or death before the 2020 election.
 
 ### AF 2019-06-18 0409
-(02:20:32) Nicholas J. Fuentes noted that [[Donald Trump]] praised [[Marco Rubio]] and [[Lindsey Graham]] during his rally, which he considered evidence of [[Donald Trump|the president's]] alignment with neoconservative figures.
+(02:20:32) Nicholas J. Fuentes noted that [[Donald Trump]] praised [[Marco Rubio]] and [[Lindsey Graham]] during his rally, which he considered evidence of [[the president's]] alignment with neoconservative figures.
 
 ### AF 2019-06-18 0409
 (02:21:00) Nicholas J. Fuentes suggested [[Donald Trump]] would need to address "sex censorship" or online platform bans to prevent his supporter base from being eradicated.
@@ -26335,7 +26335,7 @@
 (00:05:20) Nicholas J. Fuentes argued that [[Harvard University|Harvard]] University, as a private institution, had the right to rescind [[Kyle Kashuv]]'s admission.
 
 ### AF 2019-06-17 0408
-(00:09:30) Nicholas J. Fuentes announced he was considering live-streaming and reacting to a [[Donald Trump]] campaign rally in [[City of Orlando|Orlando]], [[State of Florida|Florida]] scheduled for the following day.
+(00:09:30) Nicholas J. Fuentes announced he was considering live-streaming and reacting to a [[Donald Trump]] campaign rally in [[Orlando]], [[State of Florida|Florida]] scheduled for the following day.
 
 ### AF 2019-06-17 0408
 (00:12:10) A Father's Day advertisement from the sports retailer Champions depicted a white father with a [[black]] son, which Nicholas J. Fuentes characterized as deliberate social programming.
@@ -26371,7 +26371,7 @@
 (08:48:00) An individual Nicholas J. Fuentes met at [[Conservative Political Action Conference|CPAC]] in [[Washington D.C.|Washington, D.C.]] reprimanded him for using the term "Ziocons" and later tweeted an accusation that Fuentes was being funded by [[Iran|Iranian]] front groups.
 
 ### AF 2019-06-13 0406
-(09:37:00) The individual [[who]] accused Nicholas J. Fuentes of being an [[Iran|Iranian]] proxy was reportedly born in [[City of Jerusalem|Jerusalem]] and is an [[Israel|Israeli]] Zionist.
+(09:37:00) The individual [[who]] accused Nicholas J. Fuentes of being an [[Iran|Iranian]] proxy was reportedly born in [[Jerusalem]] and is an [[Israel|Israeli]] Zionist.
 
 ### AF 2019-06-13 0406
 (10:49:00) Nicholas J. Fuentes suggested that his criticism of Zionists could lead to him being targeted, referencing the deaths of [[Seth Rich]] and the [[Obama]]-era policy allowing drone strikes against [[United States|American]] citizens.
@@ -26476,7 +26476,7 @@
 (00:21:46) Nicholas J. Fuentes argued that social media companies began their censorship campaigns with figures like [[Andrew Anglin]] and [[Chuck Johnson]] before moving to mainstream conservatives like [[Steven Crowder]].
 
 ### AF 2019-06-11 0404
-(00:34:24) Nicholas J. Fuentes argued that [[Donald Trump]] could not pass meaningful immigration or trade reform because [[Republican Party]] leaders like [[Paul Ryan]], [[Mitch McConnell]], and [[Mike Johnson|Kevin McCarthy]] were funded by big business interests like the [[Charles Koch|Koch brothers]].
+(00:34:24) Nicholas J. Fuentes argued that [[Donald Trump]] could not pass meaningful immigration or trade reform because [[Republican Party]] leaders like [[Paul Ryan]], [[Mitch McConnell]], and [[Kevin McCarthy]] were funded by big business interests like the [[Charles Koch|Koch brothers]].
 
 ### AF 2019-06-11 0404
 (00:39:34) Nicholas J. Fuentes argued that [[Ronald Reagan]] did a disservice by conflating conservatism with the neoliberal, free-market ideology of [[Milton Friedman]] and the [[Mont Pelerin Society]].
@@ -26590,7 +26590,7 @@
 (00:01:04) Nicholas J. Fuentes observed that [[United States Holocaust Memorial Museum|Holocaust]] remembrance events and Gay Pride Month celebrations seemed to recur throughout the year, not just during their designated times.
 
 ### AF 2019-05-31 0398
-(00:13:51) Nicholas J. Fuentes noted that the private wall built by [[Steven Crowder|Steve Bannon]] and [[Kris Kobach|Chris Kobach]] constituted nearly half the length of new border wall constructed by the [[Donald Trump|Trump]] administration, which stood at 1.1 miles.
+(00:13:51) Nicholas J. Fuentes noted that the private wall built by [[Steve Bannon]] and [[Kris Kobach|Chris Kobach]] constituted nearly half the length of new border wall constructed by the [[Donald Trump|Trump]] administration, which stood at 1.1 miles.
 
 ### AF 2019-05-31 0398
 (00:33:46) Nicholas J. Fuentes argued that the [[Republican Party]] had adopted a begrudgingly supportive stance on LGBT issues, contrasting it with the more oppositional approach of [[Viktor Orbán]] and [[Hungary]].
@@ -26626,7 +26626,7 @@
 (37:03:660) Nicholas J. Fuentes expressed skepticism about [[Donald Trump]]'s follow-through on threats, citing examples with [[North Korea]], [[China]], and [[Mexico]].
 
 ### AF 2019-05-30 0397
-(41:39:260) Nicholas J. Fuentes cited Title 8, [[United States|U.S]]. Code Section 1182(f), a law stemming from the 1952 Immigration and Nationality Act, which grants [[Donald Trump|the president]] the authority to suspend the entry of any class of aliens deemed detrimental to the interests of the [[United States]].
+(41:39:260) Nicholas J. Fuentes cited Title 8, [[United States|U.S]]. Code Section 1182(f), a law stemming from the 1952 Immigration and Nationality Act, which grants [[the president]] the authority to suspend the entry of any class of aliens deemed detrimental to the interests of the [[United States]].
 
 ### AF 2019-05-30 0397
 (45:18:380) Nicholas J. Fuentes referenced a report of an [[White House|Oval Office]] meeting where [[Donald Trump]] confronted personnel official [[John McEntee]], accusing him of causing personnel problems within the administration.
@@ -26755,7 +26755,7 @@
 (00:38:09) Nicholas J. Fuentes reported that [[State of Louisiana|Louisiana]]'s [[state]] legislature passed a heartbeat abortion bill and that [[Democratic Party|Democratic]] Governor [[John Bel Edwards]] said he would sign it into law.
 
 ### AF 2019-05-29 0396
-(00:39:00) Nicholas J. Fuentes stated that [[State of Missouri|Missouri]]'s only abortion clinic in [[City of St. Louis|St. Louis]] was fighting the [[state]]'s refusal to renew its license, which could make [[State of Missouri|Missouri]] the first [[state]] in over 45 years without abortion services.
+(00:39:00) Nicholas J. Fuentes stated that [[State of Missouri|Missouri]]'s only abortion clinic in [[St. Louis]] was fighting the [[state]]'s refusal to renew its license, which could make [[State of Missouri|Missouri]] the first [[state]] in over 45 years without abortion services.
 
 ### AF 2019-05-29 0396
 (00:40:11) Nicholas J. Fuentes noted that a federal judge temporarily blocked [[State of Mississippi|Mississippi]]'s heartbeat abortion law after a challenge from the [[Center for Reproductive Rights]].
@@ -26770,10 +26770,10 @@
 (01:00:10) Nicholas J. Fuentes dismissed the film *Hidden Figures* and its thesis that [[black]] women mathematicians were critical to [[National Aeronautics and Space Administration|NASA]]'s moon mission, attributing [[United States|American]] rocket success instead to [[Germany|German]] scientists brought over under [[Project Paperclip]].
 
 ### AF 2019-05-27 0395
-(00:00:00) Nicholas J. Fuentes hosts the [[United States|America]] First show, announcing coverage of the [[Europe|European Union]] Parliament election results and an article from [[Michael Bloomberg|Bloomberg]] about immigration in [[State of Japan|Japan]].
+(00:00:00) Nicholas J. Fuentes hosts the [[United States|America]] First show, announcing coverage of the [[European Union]] Parliament election results and an article from [[Michael Bloomberg|Bloomberg]] about immigration in [[State of Japan|Japan]].
 
 ### AF 2019-05-27 0395
-(00:02:00) Nicholas J. Fuentes stated that nationalist parties in [[France]], [[Italian Republic|Italy]], [[Hungary]], and the [[United Kingdom]] performed well in the [[Europe|European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
+(00:02:00) Nicholas J. Fuentes stated that nationalist parties in [[France]], [[Italian Republic|Italy]], [[Hungary]], and the [[United Kingdom]] performed well in the [[European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
 
 ### AF 2019-05-27 0395
 (00:04:00) Nicholas J. Fuentes announced he would analyze a [[Michael Bloomberg|Bloomberg]] article detailing a new immigration program in [[State of Japan|Japan]] initiated under former Prime Minister [[Shinzo Abe]].
@@ -26788,7 +26788,7 @@
 (00:12:00) Nicholas J. Fuentes began analyzing a [[Michael Bloomberg|Bloomberg]] article which reported that [[Tokyo]] is becoming more ethnically diverse due to increased immigration and tourism, a trend the article framed as a positive development.
 
 ### AF 2019-05-27 0395
-(00:16:20) Nicholas J. Fuentes characterized the [[Michael Bloomberg|Bloomberg]] article's celebratory tone towards [[Tokyo]]'s increasing diversity as a "perverse and sick mentality" held by rootless cosmopolitans [[who]] want every [[city]] to resemble [[New York|New York City]] or [[City of London|London]].
+(00:16:20) Nicholas J. Fuentes characterized the [[Michael Bloomberg|Bloomberg]] article's celebratory tone towards [[Tokyo]]'s increasing diversity as a "perverse and sick mentality" held by rootless cosmopolitans [[who]] want every [[city]] to resemble [[New York|New York City]] or [[London]].
 
 ### AF 2019-05-27 0395
 (00:18:50) Nicholas J. Fuentes argued that [[State of Japan|Japan]]'s unique culture and racial homogeneity are inseparable and valuable, and that the push for immigration there sacrifices this cultural integrity for economic growth and propping up the welfare [[state]].
@@ -26803,16 +26803,16 @@
 (00:29:30) Nicholas J. Fuentes expressed sadness that [[State of Japan|Japan]], which he viewed as a last vestige of a homogeneous culture, is also succumbing to mass immigration, though he held out hope that the [[State of Japan|Japanese]] would resist more effectively than [[Europe|Europeans]].
 
 ### AF 2019-05-27 0395
-(00:30:00) Nicholas J. Fuentes began his analysis of the [[Europe|European Union]] Parliament elections, noting he would provide a detailed breakdown on the premium show.
+(00:30:00) Nicholas J. Fuentes began his analysis of the [[European Union]] Parliament elections, noting he would provide a detailed breakdown on the premium show.
 
 ### AF 2019-05-27 0395
-(00:31:50) Nicholas J. Fuentes explained that the [[Europe|European Union]] has a "[[democratic]] deficit" because the [[European Commission]], not the elected Parliament, drafts all legislation, rendering the elections largely symbolic.
+(00:31:50) Nicholas J. Fuentes explained that the [[European Union]] has a "[[democratic]] deficit" because the [[European Commission]], not the elected Parliament, drafts all legislation, rendering the elections largely symbolic.
 
 ### AF 2019-05-27 0395
 (00:35:00) Nicholas J. Fuentes reported that in [[France]], [[Marine Le Pen]]'s [[National Rally]] party narrowly beat President [[Emmanuel Macron]]'s coalition by 23% to 22%, a victory he considered modest given [[Emmanuel Macron|Macron]]'s deep unpopularity.
 
 ### AF 2019-05-27 0395
-(00:38:40) Nicholas J. Fuentes reported that in [[Italian Republic|Italy]], [[Matteo Salvini]]'s [[League]] party won a sweeping victory with 34% of the vote, making it one of the largest single parties in the [[Europe|European Union]] and prompting Salvini to call for new national elections.
+(00:38:40) Nicholas J. Fuentes reported that in [[Italian Republic|Italy]], [[Matteo Salvini]]'s [[League]] party won a sweeping victory with 34% of the vote, making it one of the largest single parties in the [[European Union]] and prompting Salvini to call for new national elections.
 
 ### AF 2019-05-27 0395
 (00:40:50) Nicholas J. Fuentes noted that as Interior Minister, [[Matteo Salvini]] reduced illegal immigration into [[Italian Republic|Italy]] by 92% since 2015.
@@ -26821,10 +26821,10 @@
 (00:41:00) Nicholas J. Fuentes reported that in [[Hungary]], Prime Minister [[Viktor Orbán]]'s [[Fidesz]] party won an outright majority with over 52% of the vote.
 
 ### AF 2019-05-27 0395
-(00:41:20) Nicholas J. Fuentes stated there was potential for [[Marine Le Pen]], [[Matteo Salvini]], and [[Viktor Orbán]] to form a Eurosceptic, nationalist coalition within the [[Europe|European Union]] Parliament.
+(00:41:20) Nicholas J. Fuentes stated there was potential for [[Marine Le Pen]], [[Matteo Salvini]], and [[Viktor Orbán]] to form a Eurosceptic, nationalist coalition within the [[European Union]] Parliament.
 
 ### AF 2019-05-27 0395
-(00:42:40) Nicholas J. Fuentes concluded that while nationalist gains in the [[Europe|European Union]] elections were modest, the significant takeaway was the collapse of the centrist establishment parties, which lost 70 seats and saw their combined share drop from 54% to 43%.
+(00:42:40) Nicholas J. Fuentes concluded that while nationalist gains in the [[European Union]] elections were modest, the significant takeaway was the collapse of the centrist establishment parties, which lost 70 seats and saw their combined share drop from 54% to 43%.
 
 ### AF 2019-05-27 0395
 (00:43:40) Nicholas J. Fuentes argued that the [[United States|America]] First movement benefits from political disorder and the destabilization of the neoliberal establishment, whether the challenge comes from the nationalist right or the radical left.
@@ -26845,10 +26845,10 @@
 (00:09:35) Nicholas J. Fuentes posed a question about whether solving the problems of modernity requires a religious foundation or if a secular right-wing movement is sufficient.
 
 ### AF 2019-05-24 0394
-(00:14:04) Nicholas J. Fuentes shifted the topic to [[E. Michael Jones]]'s book *The Slaughter of the Cities* and asked for an explanation of the chaos in modern [[United States|American]] cities like [[City of Chicago|Chicago]].
+(00:14:04) Nicholas J. Fuentes shifted the topic to [[E. Michael Jones]]'s book *The Slaughter of the Cities* and asked for an explanation of the chaos in modern [[United States|American]] cities like [[Chicago]].
 
 ### AF 2019-05-24 0394
-(00:20:49) Nicholas J. Fuentes attested to the destruction of ethnic neighborhoods in [[City of Chicago|Chicago]], citing his family's experience in the Italian neighborhood on Taylor Street, which became [[Hispanic]].
+(00:20:49) Nicholas J. Fuentes attested to the destruction of ethnic neighborhoods in [[Chicago]], citing his family's experience in the Italian neighborhood on Taylor Street, which became [[Hispanic]].
 
 ### AF 2019-05-24 0394
 (00:27:11) Nicholas J. Fuentes asked [[E. Michael Jones]] for his take on the 100th anniversary of the 19th Amendment (women's suffrage) and the role of women in politics.
@@ -27013,7 +27013,7 @@
 (00:45:40) Nicholas J. Fuentes described [[Washington D.C.|Washington, D.C.]] as an "evil [[city]]," citing its Masonic-inspired architecture, including the [[Washington D.C.|Washington]] Monument obelisk, and its layout shaped like a pentagram.
 
 ### AF 2019-05-14 0387
-(00:48:20) Nicholas J. Fuentes expressed a willingness to help the YouTuber "Soph," noting that she faced media harassment at age 14, while he felt abandoned by larger conservative figures like [[Mike Cernovich]] and [[Dave Rubin]] when he faced similar scrutiny at age 19 after the [[City of Charlottesville|Charlottesville]] rally.
+(00:48:20) Nicholas J. Fuentes expressed a willingness to help the YouTuber "Soph," noting that she faced media harassment at age 14, while he felt abandoned by larger conservative figures like [[Mike Cernovich]] and [[Dave Rubin]] when he faced similar scrutiny at age 19 after the [[Charlottesville]] rally.
 
 ### AF 2019-05-14 0387
 (00:50:58) Nicholas J. Fuentes stated that while he personally prefers to have biological children, he sees no inherent issue with adoption, criticizing only the trend of using international adoption as an alternative to having one's own children.
@@ -27031,7 +27031,7 @@
 (00:57:56) Nicholas J. Fuentes praised [[Tulsi Gabbard]] for her public criticisms of [[Benjamin Netanyahu|Netanyahu]], [[John Bolton]], [[Saudi Arabia]], and tech censorship, despite his general reluctance to support a female presidential candidate.
 
 ### AF 2019-05-14 0387
-(01:00:02) Nicholas J. Fuentes dismissed the argument that [[Democratic Party|Democratic]] policies alone are responsible for high crime rates in cities like [[City of Chicago|Chicago]] and [[City|Detroit]], sarcastically listing numerous African countries with similar issues to imply a different underlying cause.
+(01:00:02) Nicholas J. Fuentes dismissed the argument that [[Democratic Party|Democratic]] policies alone are responsible for high crime rates in cities like [[Chicago]] and [[City|Detroit]], sarcastically listing numerous African countries with similar issues to imply a different underlying cause.
 
 ### AF 2019-05-14 0387
 (01:03:20) Nicholas J. Fuentes stated that while intellectuals like [[Darren Beattie]], [[Ann Coulter]], and [[Patrick Buchanan]] can articulate a nationalist alternative, the [[United States]] currently lacks a viable political leader comparable to [[Viktor Orbán]] of [[Hungary]].
@@ -27043,7 +27043,7 @@
 (01:08:10) Nicholas J. Fuentes recounted that during his [[time]] at Boston University, his social circle avoided typical college parties and instead gathered at restaurants to debate politics, race, IQ, and the "[[Jews|Jewish]] question," which was the environment where he became politically radicalized.
 
 ### AF 2019-05-14 0387
-(01:16:46) Nicholas J. Fuentes claimed that many of [[Donald Trump]]'s original campaign and [[White House]] staffers have left their positions due to dissatisfaction with the administration's direction, a sentiment he stated is common among [[Donald Trump|the president's]] core supporters.
+(01:16:46) Nicholas J. Fuentes claimed that many of [[Donald Trump]]'s original campaign and [[White House]] staffers have left their positions due to dissatisfaction with the administration's direction, a sentiment he stated is common among [[the president's]] core supporters.
 
 ### AF 2019-05-14 0387
 (01:20:18) Nicholas J. Fuentes echoed [[Viktor Orbán]]'s view that accumulating financial capital is the foundational requirement for gaining political power and challenging established media and political institutions.
@@ -27262,7 +27262,7 @@
 (02:33:06) [[Brenton Tarrant]]'s [[New York|Christchurch]] manifesto stated his attack was intended to provoke gun control debates in [[United States|America]] and incite retaliatory violence from [[Islam|Muslims]], a strategy Nicholas J. Fuentes argued the media played into.
 
 ### AF 2019-04-29 0376
-(03:18:28) Nicholas J. Fuentes stated he attended the 2017 [[City of Charlottesville|Charlottesville]] rally specifically to protest the [[city]] council's vote to remove the [[Robert E. Lee]] monument and rename Lee Park.
+(03:18:28) Nicholas J. Fuentes stated he attended the 2017 [[Charlottesville]] rally specifically to protest the [[city]] council's vote to remove the [[Robert E. Lee]] monument and rename Lee Park.
 
 ### AF 2019-04-29 0376
 (04:28:46) Nicholas J. Fuentes announced he would not be speaking at the upcoming [[American Renaissance]] conference, citing personal and family reasons, despite previous plans to attend with speakers like [[Patrick Casey]] and [[Jared Taylor]].
@@ -27307,7 +27307,7 @@
 (00:19:33) Nicholas J. Fuentes criticized the withdrawal from the [[United Nations|U.N.]] Arms Trade Treaty as a deceptive, symbolic "red meat" action that did not address substantive issues like immigration, trade, and foreign wars.
 
 ### AF 2019-04-26 0375
-(00:22:05) Nicholas J. Fuentes pointed to [[Donald Trump|Trump]]'s bump [[stock]] ban as an example of [[Donald Trump|the president]] not being a reliable defender of gun rights, despite the symbolic action on the [[United Nations|U.N.]] treaty.
+(00:22:05) Nicholas J. Fuentes pointed to [[Donald Trump|Trump]]'s bump [[stock]] ban as an example of [[the president]] not being a reliable defender of gun rights, despite the symbolic action on the [[United Nations|U.N.]] treaty.
 
 ### AF 2019-04-26 0375
 (00:25:10) Nicholas J. Fuentes argued that reliable [[Republican Party|GOP]] voters should withhold their votes to leverage the party, drawing a parallel to how [[Democratic Party|Democrats]] take the [[black]] vote for granted.
@@ -27397,7 +27397,7 @@
 (00:39:35) Nicholas J. Fuentes criticized figures like [[Ben Shapiro]], [[Ari Mandel]], [[Elliott Hamilton]], and [[Harry Khachatrian]] for their focus on [[Israel]], suggesting their primary reason for being in the [[United States]] was financial, comparing it to a colonial relationship.
 
 ### AF 2019-04-22 0371
-(00:10:58) Nicholas J. Fuentes participated in a stream earlier in the day with [[Brittany Venti]], relating to her as a fellow streamer and "[[City of Charlottesville|Charlottesville]] alumnus."
+(00:10:58) Nicholas J. Fuentes participated in a stream earlier in the day with [[Brittany Venti]], relating to her as a fellow streamer and "[[Charlottesville]] alumnus."
 
 ### AF 2019-04-22 0371
 (00:19:58) Nicholas J. Fuentes reported that his video covering the debate between [[Jordan Peterson]] and [[Slavoj Žižek]] had reached approximately 45,000 views, a significant increase over his usual viewership.
@@ -27433,7 +27433,7 @@
 (03:21:00) Nicholas J. Fuentes argued that the media's credibility was damaged by its coverage of the [[Robert Mueller]] investigation, which he viewed as a delegitimizing event comparable to false claims about [[Weapons of Mass Destruction|WMDs]] in [[Iraq]].
 
 ### AF 2019-04-17 0368
-(01:39:00) Nicholas J. Fuentes reported that within the [[Donald Trump|Trump administration]], [[Jared Kushner]] reviewed and approved all matters before they reached [[Donald Trump|the president's]] desk, with Chief of Staff [[Mick Mulvaney]] deferring to him.
+(01:39:00) Nicholas J. Fuentes reported that within the [[Donald Trump|Trump administration]], [[Jared Kushner]] reviewed and approved all matters before they reached [[the president's]] desk, with Chief of Staff [[Mick Mulvaney]] deferring to him.
 
 ### AF 2019-04-17 0368
 (01:43:00) Nicholas J. Fuentes argued that the [[Republican Party]] lacked efficacy and "has to die," citing its failure to deliver on tax cuts and other promises despite controlling [[the White House]] and [[Congress]].
@@ -27442,7 +27442,7 @@
 (03:51:57) [[Democratic Party]] support for the statement that immigrants strengthen the [[country]] rose from 32% in 1994 to 83% in 2019, according to polling data cited by Nicholas J. Fuentes.
 
 ### AF 2019-04-16 0367
-(04:14:21) Nicholas J. Fuentes argued that the [[Democratic Party]]'s shift toward candidates like [[Bernie Sanders]] and policies like [[Health and Human Services|Medicare]] for All was a direct result of demographic change and non-white immigration.
+(04:14:21) Nicholas J. Fuentes argued that the [[Democratic Party]]'s shift toward candidates like [[Bernie Sanders]] and policies like [[Medicare]] for All was a direct result of demographic change and non-white immigration.
 
 ### AF 2019-04-16 0367
 (04:50:49) Nicholas J. Fuentes characterized [[Peter Buttigieg|Pete Buttigieg]] and [[Robert O'Rourke|Beto O'Rourke]] as candidates without substantive policy platforms, describing them as "chameleons" [[who]] would adapt to the party's prevailing ideological currents.
@@ -27490,10 +27490,10 @@
 (00:22:26) Nicholas J. Fuentes noted that some [[Islam|Muslims]] were observed laughing and posting celebratory emojis on social media in response to the Notre Dame fire.
 
 ### AF 2019-04-15 0366
-(00:29:23) Nicholas J. Fuentes contrasted mainstream conservative commentators' profound lament over the Notre Dame fire with their support for removing Confederate monuments like the [[Robert E. Lee]] statue in [[City of Charlottesville|Charlottesville]].
+(00:29:23) Nicholas J. Fuentes contrasted mainstream conservative commentators' profound lament over the Notre Dame fire with their support for removing Confederate monuments like the [[Robert E. Lee]] statue in [[Charlottesville]].
 
 ### AF 2019-04-15 0366
-(00:30:29) Nicholas J. Fuentes recalled that mainstream right-wing figures like [[Nikki Haley]] and [[Marco Rubio]] had characterized Confederate monuments as racist and deserving of removal during the [[City of Charlottesville|Charlottesville]] controversy.
+(00:30:29) Nicholas J. Fuentes recalled that mainstream right-wing figures like [[Nikki Haley]] and [[Marco Rubio]] had characterized Confederate monuments as racist and deserving of removal during the [[Charlottesville]] controversy.
 
 ### AF 2019-04-15 0366
 (00:31:39) Nicholas J. Fuentes drew a parallel between the Notre Dame fire and what he described as the legal, systematic displacement of white [[Europe|Europeans]] in their homelands through immigration policies.
@@ -27547,7 +27547,7 @@
 (00:19:24) Nicholas J. Fuentes noted the media's extensive coverage of the death of [[Saudi Arabia|Saudi]] journalist [[Jamal Khashoggi]], whom he described as having been friends with [[Osama bin Laden]] and connected to the [[Muslim Brotherhood]].
 
 ### AF 2019-04-11 0365
-(00:23:50) Nicholas J. Fuentes expressed disappointment in [[Donald Trump]]'s character after [[Donald Trump|the president]] claimed no knowledge of [[WikiLeaks]], despite having frequently cited its leaks during his 2016 campaign.
+(00:23:50) Nicholas J. Fuentes expressed disappointment in [[Donald Trump]]'s character after [[the president]] claimed no knowledge of [[WikiLeaks]], despite having frequently cited its leaks during his 2016 campaign.
 
 ### AF 2019-04-11 0365
 (00:33:58) Nicholas J. Fuentes suggested obtaining a second passport from a [[country]] without an extradition treaty with the [[United States|U.S]]., such as [[Venezuela]], [[Cuba]], or the [[Congo]].
@@ -27607,16 +27607,16 @@
 (01:26:84) Nicholas J. Fuentes analyzed the presentation by [[Benjamin Netanyahu|Bibi]] regarding a recent [[United States|U.S]]. policy announcement.
 
 ### AF 2019-04-09 0363
-(04:47:80) A separate clip from [[Ralph Retort]] featured [[Destiny|Destiny]] expressing a desire for violence against Nicholas J. Fuentes and people like him.
+(04:47:80) A separate clip from [[Ralph Retort]] featured [[Destiny]] expressing a desire for violence against Nicholas J. Fuentes and people like him.
 
 ### AF 2019-04-09 0363
-(05:00:54) Nicholas J. Fuentes and [[Carl Benjamin|Sargon of Akkad]] won a debate against [[Destiny|Destiny]] and [[Hasan Piker]], with a post-debate poll showing Team Right winning 56% to 44%.
+(05:00:54) Nicholas J. Fuentes and [[Carl Benjamin|Sargon of Akkad]] won a debate against [[Destiny]] and [[Hasan Piker]], with a post-debate poll showing Team Right winning 56% to 44%.
 
 ### AF 2019-04-09 0363
-(05:21:40) Nicholas J. Fuentes was banned from [[Twitch Inc.|Twitch]] for stating that interracial relationships should not be ubiquitously promoted in media, while [[Destiny|Destiny]] faced no platform consequences for advocating political violence and ethical child pornography.
+(05:21:40) Nicholas J. Fuentes was banned from [[Twitch Inc.|Twitch]] for stating that interracial relationships should not be ubiquitously promoted in media, while [[Destiny]] faced no platform consequences for advocating political violence and ethical child pornography.
 
 ### AF 2019-04-09 0363
-(08:39:24) [[Destiny|Destiny]] contacted friends at [[Twitch Inc.|Twitch]] to have Nicholas J. Fuentes banned without informing his own audience, according to Nicholas J. Fuentes.
+(08:39:24) [[Destiny]] contacted friends at [[Twitch Inc.|Twitch]] to have Nicholas J. Fuentes banned without informing his own audience, according to Nicholas J. Fuentes.
 
 ### AF 2019-04-09 0363
 (11:09:72) Nicholas J. Fuentes speculated that even critics like [[Jared Holt]] might distinguish between figures they consider a threat and those simply trying to make sense of current events.
@@ -27865,7 +27865,7 @@
 (33:55:720) [[Ben Shapiro]] was the subject of a glowing article in the [[The New York Times|New York Times]] and received an apology from *The Economist*, according to Nicholas J. Fuentes.
 
 ### AF 2019-03-29 0357
-(34:50:960) Nicholas J. Fuentes argued that political and media elites in capital cities like [[Washington D.C.|Washington, D.C.]], [[City of London|London]], [[Paris]], and [[Brussels]] see themselves as global citizens rather than representatives of their national populations.
+(34:50:960) Nicholas J. Fuentes argued that political and media elites in capital cities like [[Washington D.C.|Washington, D.C.]], [[London]], [[Paris]], and [[Brussels]] see themselves as global citizens rather than representatives of their national populations.
 
 ### AF 2019-03-29 0357
 (44:48:760) [[Kamala Harris]] supported reparations for slavery, a policy Nicholas J. Fuentes stated was supported by only 26% of [[United States|Americans]].
@@ -27883,7 +27883,7 @@
 (53:27:520) Nicholas J. Fuentes had previously participated in a livestream with [[Richard Spencer]], which he stated he did not regret but would not do again, calling [[Richard Spencer]] a "bad dude."
 
 ### AF 2019-03-29 0357
-(57:48:440) Nicholas J. Fuentes explained that [[Jews|Jewish people]] are a diaspora, with [[Ashkenazi Jews]] originating in [[Europe|Eastern Europe]], [[Sephardic Jews]] from the [[Middle East]], and [[Ethiopian Jews]], all claiming descent from tribes expelled from [[Gaza Strip|Palestine]] by the [[Rome|Roman Empire]].
+(57:48:440) Nicholas J. Fuentes explained that [[Jews|Jewish people]] are a diaspora, with [[Ashkenazi Jews]] originating in [[Europe|Eastern Europe]], [[Sephardic Jews]] from the [[Middle East]], and [[Ethiopian Jews]], all claiming descent from tribes expelled from [[Palestine]] by the [[Rome|Roman Empire]].
 
 ### AF 2019-03-29 0357
 (58:35:040) Nicholas J. Fuentes stated he would not interview [[E. Michael Jones]] after a viewer suggested it.
@@ -27895,7 +27895,7 @@
 (01:12:07:300) Nicholas J. Fuentes questioned the meme that half of the new "Zoomer right" was [[Hispanic]], stating it could be true but was likely just a meme.
 
 ### AF 2019-03-29 0357
-(01:15:02:380) Nicholas J. Fuentes discussed the possibility that if [[Donald Trump]] were reelected, efforts to build the Third Temple in [[City of Jerusalem|Jerusalem]] might commence, touching on both [[Jews|Jewish]] and [[Christianity|Christian]] eschatological beliefs.
+(01:15:02:380) Nicholas J. Fuentes discussed the possibility that if [[Donald Trump]] were reelected, efforts to build the Third Temple in [[Jerusalem]] might commence, touching on both [[Jews|Jewish]] and [[Christianity|Christian]] eschatological beliefs.
 
 ### AF 2019-03-27 0355
 (00:00:05) Nicholas J. Fuentes hosts the [[United States|America]] First show.
@@ -28018,7 +28018,7 @@
 (00:44:19) Nicholas J. Fuentes argued that by 2020, the [[United States]] could be worse off than in 2016 on trade deficits, foreign wars, immigration levels, and social media censorship, despite lower [[black]] and Latino unemployment.
 
 ### AF 2019-03-26 0354
-(00:51:62) Nicholas J. Fuentes attended an [[Andrew Yang]] campaign rally in downtown [[City of Chicago|Chicago]] on business, observing a turnout of approximately a thousand people with an overflow room despite Yang's low national polling numbers.
+(00:51:62) Nicholas J. Fuentes attended an [[Andrew Yang]] campaign rally in downtown [[Chicago]] on business, observing a turnout of approximately a thousand people with an overflow room despite Yang's low national polling numbers.
 
 ### AF 2019-03-26 0354
 (01:15:32) Nicholas J. Fuentes argued that [[Andrew Yang]] represents a critical opportunity to shift the national debate away from the binary choice between socialism and unrestrained capitalism, particularly as articulated by figures like [[Bernie Sanders]] and [[Charlie Kirk]].
@@ -28207,7 +28207,7 @@
 (13:03:28) Nicholas J. Fuentes argued that the [[Donald Trump|Trump]] administration had failed to deliver on key promises, including building zero miles of new border barrier and failing to withdraw from major wars in [[Syria]], [[Afghanistan]], and [[Iraq]].
 
 ### AF 2019-03-14 0347
-(14:18:38) Nicholas J. Fuentes stated that the [[Donald Trump|Trump]] administration defunded aid to [[Gaza Strip|Palestine]].
+(14:18:38) Nicholas J. Fuentes stated that the [[Donald Trump|Trump]] administration defunded aid to [[Palestine]].
 
 ### AF 2019-03-14 0347
 (14:24:90) Nicholas J. Fuentes noted that the [[Donald Trump|Trump]] administration withdrew from the [[Iran]] nuclear deal.
@@ -28222,7 +28222,7 @@
 (23:32:98) Nicholas J. Fuentes argued that [[Donald Trump]] should have used his first veto to block the funding bill that included catch-and-release provisions and inadequate wall funding, rather than to uphold his emergency powers.
 
 ### AF 2019-03-14 0347
-(24:32:30) Nicholas J. Fuentes listed policy victories for other groups during [[Donald Trump]]'s term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as [[Israel]]'s capital, withdrawing from the [[Iran]] nuclear deal, cutting aid to [[Gaza Strip|Palestine]], and changing language on the [[Israel|Golan Heights]].
+(24:32:30) Nicholas J. Fuentes listed policy victories for other groups during [[Donald Trump]]'s term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as [[Israel]]'s capital, withdrawing from the [[Iran]] nuclear deal, cutting aid to [[Palestine]], and changing language on the [[Israel|Golan Heights]].
 
 ### AF 2019-03-14 0347
 (25:46:26) Nicholas J. Fuentes stated that [[Donald Trump]] would not face a serious primary challenger for the 2020 election, as the [[Republican Party|RNC]] had endorsed him earlier than any previous candidate.
@@ -28294,7 +28294,7 @@
 (00:35:14) Nicholas J. Fuentes stated that border security had worsened under the [[Donald Trump|Trump]] administration compared to the [[Barack Obama]] administration.
 
 ### AF 2019-03-12 0345
-(00:38:20) [[Steven Crowder|Steve Bannon]] had described [[Donald Trump]] as the "last shot" to create a paradigm shift uniting the working class, a project Nicholas J. Fuentes argued had failed.
+(00:38:20) [[Steve Bannon]] had described [[Donald Trump]] as the "last shot" to create a paradigm shift uniting the working class, a project Nicholas J. Fuentes argued had failed.
 
 ### AF 2019-03-12 0345
 (00:43:24) [[Elizabeth Warren]] advocated for breaking up social media giants, a policy Nicholas J. Fuentes stated was better for him than anything proposed by right-wing figures.
@@ -28402,7 +28402,7 @@
 (01:00:00) Nicholas J. Fuentes stated his unironic position on [[Israel]] was indifference, but that he was forced to care due to the [[United States]] providing it foreign aid and fighting wars for its interests.
 
 ### AF 2019-03-08 0343
-(01:01:50) Nicholas J. Fuentes listed [[Donald Trump]]'s pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the [[Palestinian Authority]].
+(01:01:50) Nicholas J. Fuentes listed [[Donald Trump]]'s pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the [[Palestinian Authority]].
 
 ### AF 2019-03-08 0343
 (01:02:00) Nicholas J. Fuentes argued that [[United States|America]] received nothing in return from [[Israel]] for its support, citing [[Benjamin Netanyahu|Bibi Netanyahu]]'s refusal to stop building settlements or broker a [[Middle East]] peace deal.
@@ -28411,7 +28411,7 @@
 (01:02:40) Nicholas J. Fuentes stated that being pro-[[Israel]] was harmless in countries like [[Brazil]] under [[Jair Bolsonaro]] or [[Italian Republic|Italy]] under [[Matteo Salvini]] because those nations lack a global military for [[Israel]] to commandeer.
 
 ### AF 2019-03-08 0343
-(01:03:20) Nicholas J. Fuentes, referencing his attendance at the 2017 [[City of Charlottesville|Charlottesville]] rally, dismissed a critic's defense of "Seaville Patriots" and [[Chris Cantwell]], calling Cantwell a buffoon and lunatic whose behavior was detrimental to the movement.
+(01:03:20) Nicholas J. Fuentes, referencing his attendance at the 2017 [[Charlottesville]] rally, dismissed a critic's defense of "Seaville Patriots" and [[Chris Cantwell]], calling Cantwell a buffoon and lunatic whose behavior was detrimental to the movement.
 
 ### AF 2019-03-08 0343
 (01:06:00) Nicholas J. Fuentes stated his position on "Blexit" was that it cost the movement nothing and was worth attempting, but he believed it had no chance of success, citing the 2018 midterms where [[black]] voters still overwhelmingly supported [[Democratic Party|Democrats]].
@@ -28894,7 +28894,7 @@
 (00:01:32) Nicholas J. Fuentes described two cases of [[Islam|Muslim]] women, [[Hoda Muthana]] and [[Shamima Begum]], [[who]] traveled to join [[Islamic State of Iraq and Syria|ISIS]] in 2014 and were now seeking to return to the [[United States]] and [[United Kingdom]], respectively.
 
 ### AF 2019-02-20 0335
-(00:04:20) Nicholas J. Fuentes recounted that [[Jussie Smollett]] reported being attacked on January 29th by two individuals he identified as [[Donald Trump|MAGA]] supporters in [[City of Chicago|Chicago]].
+(00:04:20) Nicholas J. Fuentes recounted that [[Jussie Smollett]] reported being attacked on January 29th by two individuals he identified as [[Donald Trump|MAGA]] supporters in [[Chicago]].
 
 ### AF 2019-02-20 0335
 (00:14:23) Nicholas J. Fuentes referenced a video produced for [[Prager University|PragerU]] titled "[[United States|Americans]] Want More Legal Immigrants," hosted by a [[Islam|Muslim]] immigrant.
@@ -29179,13 +29179,13 @@
 (30:58:09) Congresswoman [[Ilhan Omar]] stated that [[AIPAC]] basically controls [[Congress]], which Nicholas J. Fuentes cited as evidence of foreign influence.
 
 ### AF 2019-02-14 0332
-(31:14:31) Nicholas J. Fuentes noted that Congressional leaders [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Nancy Pelosi]], and [[Chuck Schumer]] demanded an apology from [[Ilhan Omar]] for her comments about [[AIPAC]].
+(31:14:31) Nicholas J. Fuentes noted that Congressional leaders [[Kevin McCarthy]], [[Mitch McConnell]], [[Nancy Pelosi]], and [[Chuck Schumer]] demanded an apology from [[Ilhan Omar]] for her comments about [[AIPAC]].
 
 ### AF 2019-02-14 0332
 (31:39:45) Nicholas J. Fuentes argued that [[the United States]] [[Congress]] could not allocate half the amount for its own border that it gives to [[Israel]] in foreign aid.
 
 ### AF 2019-02-14 0332
-(32:06:43) Nicholas J. Fuentes stated that when [[Israel]] is attacked, the [[United States Capitol|U.S. Congress]] passes bills with near-unanimous support to authorize aid and protect it from criticism.
+(32:06:43) Nicholas J. Fuentes stated that when [[Israel]] is attacked, the [[U.S. Congress]] passes bills with near-unanimous support to authorize aid and protect it from criticism.
 
 ### AF 2019-02-14 0332
 (32:40:59) Nicholas J. Fuentes argued that [[Republican Party|Republicans]], [[Democratic Party|Democrats]], and the media were united against the [[United States|American]] people, creating a divide between [[Washington D.C.|Washington]], D.C. and the citizenry.
@@ -29239,7 +29239,7 @@
 (01:41:00) Nicholas J. Fuentes argued that [[Mitch McConnell]] should have used a similar tactic to force a vote on border wall funding before the 2018 midterm elections but did not, knowing many [[Republican Party|Republicans]] like [[Marco Rubio]] would side with donors over voters.
 
 ### AF 2019-02-13 0331
-(01:51:00) Nicholas J. Fuentes stated that the firing of [[Steven Crowder|Steve Bannon]] was a substantial loss for the [[Donald Trump|Trump]] administration, leaving [[Stephen Miller]] as the only remaining prominent advocate for the [[United States|America]] First agenda in [[the White House]].
+(01:51:00) Nicholas J. Fuentes stated that the firing of [[Steve Bannon]] was a substantial loss for the [[Donald Trump|Trump]] administration, leaving [[Stephen Miller]] as the only remaining prominent advocate for the [[United States|America]] First agenda in [[the White House]].
 
 ### AF 2019-02-12 0330
 (00:00:00) Nicholas J. Fuentes announced his show would air Monday through Friday at 7 p.m. Central Standard [[Time]].
@@ -29272,7 +29272,7 @@
 (00:19:37) Nicholas J. Fuentes was asked if he had considered having [[Tucker Carlson]] or [[Eric Trump]] as guests on his show.
 
 ### AF 2019-02-11 0329
-(01:28:40) Nicholas J. Fuentes stated that two-thirds of the [[United States Capitol|U.S. Congress]] attends the annual [[AIPAC]] conference in [[Washington D.C.|Washington, D.C.]], with speakers including [[Nancy Pelosi]], [[Chuck Schumer]], [[Mitch McConnell]], and [[Marco Rubio]].
+(01:28:40) Nicholas J. Fuentes stated that two-thirds of the [[U.S. Congress]] attends the annual [[AIPAC]] conference in [[Washington D.C.|Washington, D.C.]], with speakers including [[Nancy Pelosi]], [[Chuck Schumer]], [[Mitch McConnell]], and [[Marco Rubio]].
 
 ### AF 2019-02-11 0329
 (01:33:20) Nicholas J. Fuentes recounted being offered a sponsored trip to [[Israel]] as his first recruitment opportunity upon entering [[Republican Party|Republican]] political circles.
@@ -29293,7 +29293,7 @@
 (02:06:40) Nicholas J. Fuentes characterized commentators like [[Mike Cernovich]] and [[Paul Joseph Watson]] as "shills" [[who]] support [[Israel]] to maintain careers in politics and media by remaining friendly with Zionist power centers.
 
 ### AF 2019-02-11 0329
-(02:10:20) Nicholas J. Fuentes expressed a pro-Union, anti-Confederate stance, stating his allegiance was with the industrial North and cities like [[City of Chicago|Chicago]], [[New York|New York City]], and [[Boston]].
+(02:10:20) Nicholas J. Fuentes expressed a pro-Union, anti-Confederate stance, stating his allegiance was with the industrial North and cities like [[Chicago]], [[New York|New York City]], and [[Boston]].
 
 ### AF 2019-02-08 0328
 (00:52:44) Nicholas J. Fuentes began his Friday evening broadcast, describing it as a casual, low-key episode without a call-in segment.
@@ -29314,7 +29314,7 @@
 (01:08:14) Nicholas J. Fuentes contrasted the proposed $1.6 billion for border security with the $716 billion allocated for military spending in the 2018 Omnibus spending bill, which [[Donald Trump|Trump]] had signed while promising never to sign a similar bill again without border security funding.
 
 ### AF 2019-02-08 0328
-(01:09:40) Nicholas J. Fuentes listed policy achievements of the [[Donald Trump|Trump]] administration that benefited the [[Republican Party|GOP]] establishment, including tax cuts, deregulation, approval of the Keystone pipeline, drilling in [[Alaska]], and moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]].
+(01:09:40) Nicholas J. Fuentes listed policy achievements of the [[Donald Trump|Trump]] administration that benefited the [[Republican Party|GOP]] establishment, including tax cuts, deregulation, approval of the Keystone pipeline, drilling in [[Alaska]], and moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]].
 
 ### AF 2019-02-08 0328
 (01:11:44) Nicholas J. Fuentes reported that [[Republican Party|Republican]] leaders, including [[Mitch McConnell]], were preparing to present [[Donald Trump|Trump]] with an immigration deal similar to the previous year's, offering $1.6 billion for border security, and threatening to override a presidential veto if he rejected it.
@@ -29338,7 +29338,7 @@
 (01:20:31) Nicholas J. Fuentes argued that for the "[[United States|America]] First" movement to govern effectively, it must mature beyond an outsider, anti-intellectual stance and develop a professional network of educated people with legislative expertise and infrastructure.
 
 ### AF 2019-02-08 0328
-(01:23:20) Nicholas J. Fuentes commented on a resurfaced video from December showing [[Candace Owens]], communications director for [[Turning Point USA]], making remarks about [[Adolf Hitler]] and nationalism at an event in [[City of London|London]].
+(01:23:20) Nicholas J. Fuentes commented on a resurfaced video from December showing [[Candace Owens]], communications director for [[Turning Point USA]], making remarks about [[Adolf Hitler]] and nationalism at an event in [[London]].
 
 ### AF 2019-02-08 0328
 (01:23:52) Nicholas J. Fuentes quoted [[Candace Owens]] as saying, "If [[Adolf Hitler|Hitler]] just wanted to make [[Germany]] great and have things run well, okay, fine," and that his error was wanting to "globalize" and make "everybody to be [[Germany|German]]."
@@ -29386,25 +29386,25 @@
 (01:44:48) Nicholas J. Fuentes referenced the parents of [[Molly Tibbetts]] forgiving her illegal immigrant killer as an example of a "sickness" or lack of racial self-assertion among white people.
 
 ### AF 2019-02-07 0327
-(01:48:20) Nicholas J. Fuentes was fired from Right Side Broadcasting following his attendance at the 2017 "Unite the Right" rally in [[City of Charlottesville|Charlottesville]], [[State of Virginia|Virginia]].
+(01:48:20) Nicholas J. Fuentes was fired from Right Side Broadcasting following his attendance at the 2017 "Unite the Right" rally in [[Charlottesville]], [[State of Virginia|Virginia]].
 
 ### AF 2019-02-07 0327
-(01:48:20) Nicholas J. Fuentes was offered a speaking slot at the [[City of Charlottesville|Charlottesville]] rally but declined after reviewing the list of speakers, which included [[Richard Spencer]] and [[Mike Cernovich|Mike Enoch]].
+(01:48:20) Nicholas J. Fuentes was offered a speaking slot at the [[Charlottesville]] rally but declined after reviewing the list of speakers, which included [[Richard Spencer]] and [[Mike Cernovich|Mike Enoch]].
 
 ### AF 2019-02-07 0327
-(01:48:20) [[Faith Goldy]] convinced Nicholas J. Fuentes to attend the [[City of Charlottesville|Charlottesville]] rally shortly before the event.
+(01:48:20) [[Faith Goldy]] convinced Nicholas J. Fuentes to attend the [[Charlottesville]] rally shortly before the event.
 
 ### AF 2019-02-07 0327
-(01:48:20) Nicholas J. Fuentes arrived in [[City of Charlottesville|Charlottesville]] the morning of the rally and was not present for the previous night's tiki torch march or at Lee Park for the main event.
+(01:48:20) Nicholas J. Fuentes arrived in [[Charlottesville]] the morning of the rally and was not present for the previous night's tiki torch march or at Lee Park for the main event.
 
 ### AF 2019-02-07 0327
-(01:48:20) During the [[City of Charlottesville|Charlottesville]] rally, Nicholas J. Fuentes marched with a group towards McIntyre Park after being diverted by police blockades and encountered minor tear gas.
+(01:48:20) During the [[Charlottesville]] rally, Nicholas J. Fuentes marched with a group towards McIntyre Park after being diverted by police blockades and encountered minor tear gas.
 
 ### AF 2019-02-07 0327
-(01:48:20) Following the [[City of Charlottesville|Charlottesville]] rally and the declaration of an unlawful assembly, Nicholas J. Fuentes retreated to a hotel with [[Steven Crowder]], [[Millennial Matt]], [[James Allsup]], and [[Timothy Gionet|Baked Alaska]].
+(01:48:20) Following the [[Charlottesville]] rally and the declaration of an unlawful assembly, Nicholas J. Fuentes retreated to a hotel with [[Steven Crowder]], [[Millennial Matt]], [[James Allsup]], and [[Timothy Gionet|Baked Alaska]].
 
 ### AF 2019-02-07 0327
-(01:48:20) Nicholas J. Fuentes made his first appearance on the "Weekly Sweat" podcast from his hotel room on the night of the [[City of Charlottesville|Charlottesville]] rally, joining hosts [[Daryl Cooper|Beardson]] and [[Paul Miller|Paul Town]].
+(01:48:20) Nicholas J. Fuentes made his first appearance on the "Weekly Sweat" podcast from his hotel room on the night of the [[Charlottesville]] rally, joining hosts [[Daryl Cooper|Beardson]] and [[Paul Miller|Paul Town]].
 
 ### AF 2019-02-07 0327
 (01:53:56) Nicholas J. Fuentes encountered [[Ezra Levant]] of [[Rebel Media]] at [[Conservative Political Action Conference|CPAC]] in 2018, where Levant recognized him and dismissed his request for a photo.
@@ -29464,7 +29464,7 @@
 (01:07:18:60) Nicholas J. Fuentes argued that predominantly white, [[Democratic Party|Democratic]] states like [[Vermont]] and [[New Hampshire]] do not experience the same social problems as majority-minority [[Democratic Party|Democratic]] cities, implying race is a key variable.
 
 ### AF 2019-02-05 0325
-(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that Nicholas J. Fuentes characterized as a major disappointment and a strategic failure. (00:59:82) The address, which Nicholas J. Fuentes analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject Nicholas J. Fuentes identified as [[Donald Trump|the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) Nicholas J. Fuentes argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on [[Tucker Carlson]]'s program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to Nicholas J. Fuentes. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but Nicholas J. Fuentes noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for [[Israel]]. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which Nicholas J. Fuentes interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the [[Iran]] nuclear deal and framed [[Iran]]'s threats against [[Israel]] alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which Nicholas J. Fuentes characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) Nicholas J. Fuentes suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not [[Stephen Miller]], given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Israel]]. (58:38:24) Nicholas J. Fuentes speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
+(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that Nicholas J. Fuentes characterized as a major disappointment and a strategic failure. (00:59:82) The address, which Nicholas J. Fuentes analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject Nicholas J. Fuentes identified as [[the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) Nicholas J. Fuentes argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on [[Tucker Carlson]]'s program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to Nicholas J. Fuentes. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but Nicholas J. Fuentes noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for [[Israel]]. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which Nicholas J. Fuentes interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the [[Iran]] nuclear deal and framed [[Iran]]'s threats against [[Israel]] alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which Nicholas J. Fuentes characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) Nicholas J. Fuentes suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not [[Stephen Miller]], given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Israel]]. (58:38:24) Nicholas J. Fuentes speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
 
 ### AF 2019-02-04 0324
 (00:02:20) Nicholas J. Fuentes announced he would provide live coverage and analysis of the upcoming [[State of the Union]] address.
@@ -29575,7 +29575,7 @@
 (00:46:20) Nicholas J. Fuentes stated his personal belief that the yearbook photograph was not a big deal, but politically, it was beneficial to hold [[Democratic Party|Democrats]] to their own standards of racial sensitivity.
 
 ### AF 2019-02-04 0324
-(00:48:40) Nicholas J. Fuentes referenced a past conversation with [[James Allsup]] about the [[City of Charlottesville|Charlottesville rally]], arguing that the public does not engage in nuanced, comparative analysis of political events.
+(00:48:40) Nicholas J. Fuentes referenced a past conversation with [[James Allsup]] about the [[Charlottesville rally]], arguing that the public does not engage in nuanced, comparative analysis of political events.
 
 ### AF 2019-02-04 0324
 (00:50:40) Nicholas J. Fuentes concluded that the controversy surrounding [[Ralph Northam]] was politically beneficial, making [[Democratic Party|Democrats]] look like baby killers and racists while exposing internal party conflict.
@@ -29644,7 +29644,7 @@
 (00:56:30) Nicholas J. Fuentes stated it was a fact that there was a connection between the [[Russian]] government and the dissident right, citing [[Richard Spencer]]'s wife, [[Alexander Dugin]], and other figures with ties to [[Russia]].
 
 ### AF 2019-02-01 0323
-(00:57:40) Nicholas J. Fuentes argued that [[Vladimir Putin|Putin]]'s actions in [[Ukraine]], including the annexation of [[City of Sevastopol|Crimea]] and support for rebels in [[Donetsk|Donbass]], were primarily to prevent [[Ukraine]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[Europe|European Union]], and that the [[United States]] should respect [[Russia]]'s sphere of influence.
+(00:57:40) Nicholas J. Fuentes argued that [[Vladimir Putin|Putin]]'s actions in [[Ukraine]], including the annexation of [[Crimea]] and support for rebels in [[Donetsk|Donbass]], were primarily to prevent [[Ukraine]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[European Union]], and that the [[United States]] should respect [[Russia]]'s sphere of influence.
 
 ### AF 2019-02-01 0323
 (01:00:40) Nicholas J. Fuentes dismissed the idea of third parties like [[Fraser Anning]]'s Conservative National Party in [[Australia]], calling them "retarded and stupid."
@@ -29692,7 +29692,7 @@
 (38:25:36) Nicholas J. Fuentes debated economic policy with Coach Red Pill on the Ralph Retort, specifically regarding the [[Donald Trump|Trump]] tax plan and the Laffer curve, a debate Nicholas J. Fuentes claims to have been vindicated in.
 
 ### AF 2019-01-31 0322
-(39:40:48) Over 50% of [[United States|U.S]]. federal government spending is mandatory, directed towards programs like [[Health and Human Services|Medicare]], [[Medicaid]], [[Social Security]], and welfare, which Nicholas J. Fuentes characterizes as a source of waste and abuse.
+(39:40:48) Over 50% of [[United States|U.S]]. federal government spending is mandatory, directed towards programs like [[Medicare]], [[Medicaid]], [[Social Security]], and welfare, which Nicholas J. Fuentes characterizes as a source of waste and abuse.
 
 ### AF 2019-01-31 0322
 (40:26:56) [[Ian Fletcher]], author of *Free Trade Doesn't Work*, appeared on Nicholas J. Fuentes's show to discuss reforming monetary policy towards a nationalist economic system.
@@ -29725,7 +29725,7 @@
 (06:00:62) Nicholas J. Fuentes characterized [[Mike Cernovich]] as a nasty shill and grifter, while stating he did not know enough about [[Scott Adams]] to form an opinion.
 
 ### AF 2019-01-30 0321
-(06:48:90) Nicholas J. Fuentes attended a conference in [[City of Chicago|Chicago]] that he described as well-organized with a solid lineup and attended by normal, well-adjusted people, many with families.
+(06:48:90) Nicholas J. Fuentes attended a conference in [[Chicago]] that he described as well-organized with a solid lineup and attended by normal, well-adjusted people, many with families.
 
 ### AF 2019-01-30 0321
 (10:27:58) [[Ann Coulter]] advocates for a [[universal]] catastrophic care insurance system in addition to private insurance as a solution to healthcare, a position Nicholas J. Fuentes agrees with.
@@ -29743,7 +29743,7 @@
 (17:40:94) Nicholas J. Fuentes stated that, aside from possibly [[Tucker Carlson]] and [[Ann Coulter]], every other political commentator is bad, which is why he started his own show.
 
 ### AF 2019-01-30 0321
-(19:42:46) Nicholas J. Fuentes speculated that a reported hate crime in [[City of Chicago|Chicago]] where a man claimed he was attacked by [[Donald Trump|MAGA]] supporters was either a false narrative concocted after an attack by [[black]] individuals or a Grindr hookup gone wrong.
+(19:42:46) Nicholas J. Fuentes speculated that a reported hate crime in [[Chicago]] where a man claimed he was attacked by [[Donald Trump|MAGA]] supporters was either a false narrative concocted after an attack by [[black]] individuals or a Grindr hookup gone wrong.
 
 ### AF 2019-01-30 0321
 (20:50:74) Nicholas J. Fuentes defended his love for [[United States|America]] as his home [[country]] despite its systemic problems, arguing that abstract intellectual hatred for one's homeland is anti-social and that [[United States|America]]'s founding principles were largely Thomistic.
@@ -29776,7 +29776,7 @@
 (00:00:06) Nicholas J. Fuentes began his broadcast titled "President [[Jared Kushner]]," outlining a show focused on grievances with the [[Donald Trump|Trump]] administration's foreign policy and immigration actions.
 
 ### AF 2019-01-28 0319
-(00:30:38) Nicholas J. Fuentes attended a secret weekend meetup in downtown [[City of Chicago|Chicago]] with [[Patrick Casey]] of [[American Identity Movement|Identity Europa]] and [[Jared Taylor]] of [[American Renaissance]], where he participated in a speaking engagement.
+(00:30:38) Nicholas J. Fuentes attended a secret weekend meetup in downtown [[Chicago]] with [[Patrick Casey]] of [[American Identity Movement|Identity Europa]] and [[Jared Taylor]] of [[American Renaissance]], where he participated in a speaking engagement.
 
 ### AF 2019-01-28 0319
 (00:33:14) Nicholas J. Fuentes criticized a tweet by [[Mike Cernovich]] that attacked [[Christianity]] and suggested a moderated form of [[Islam]] was the [[Kanye West|West]]'s only hope, calling it an example of a double standard where insulting [[Christianity]] is acceptable but criticizing other religions is not.
@@ -29812,7 +29812,7 @@
 (00:43:00) Nicholas J. Fuentes argued that pressure from commentators like [[Ann Coulter]] and others [[who]] have the ear of [[Donald Trump]] is useful and effective, contrasting it with calls to abandon electoral politics.
 
 ### AF 2019-01-28 0319
-(00:44:20) Nicholas J. Fuentes stated that while achievements like tax cuts and moving the [[United States Embassy in Jerusalem|U.S. Embassy]] to [[City of Jerusalem|Jerusalem]] could have been done by a generic [[Republican Party|Republican]] president like [[Ted Cruz]] or [[Marco Rubio]], the core "[[United States|America]] First" promises on issues like immigration remained unfulfilled.
+(00:44:20) Nicholas J. Fuentes stated that while achievements like tax cuts and moving the [[United States Embassy in Jerusalem|U.S. Embassy]] to [[Jerusalem]] could have been done by a generic [[Republican Party|Republican]] president like [[Ted Cruz]] or [[Marco Rubio]], the core "[[United States|America]] First" promises on issues like immigration remained unfulfilled.
 
 ### AF 2019-01-28 0319
 (00:45:46) Nicholas J. Fuentes reported that the [[Donald Trump|Trump]] administration announced devastating sanctions on [[Venezuela]]'s [[state]]-owned oil company PDVSA, aimed at pressuring [[Nicolás Maduro]] to step down, following the [[United States|U.S]]. recognition of opposition leader [[Juan Guaidó]] as interim president.
@@ -29821,7 +29821,7 @@
 (00:46:20) Nicholas J. Fuentes expressed support for diplomatic recognition and economic sanctions in [[Venezuela]] as proportional measures that serve [[United States|U.S.]] interests in the Western Hemisphere, but drew a line at military intervention.
 
 ### AF 2019-01-28 0319
-(00:47:12) Nicholas J. Fuentes cited a statement by [[John Bolton]] that "all options are on the table" regarding [[Venezuela]] and noted that [[John Bolton|Bolton]] was photographed with a notepad reading "5,000 troops to [[Columbia|Colombia]]," which Nicholas J. Fuentes viewed as a step towards unjustified military involvement.
+(00:47:12) Nicholas J. Fuentes cited a statement by [[John Bolton]] that "all options are on the table" regarding [[Venezuela]] and noted that [[John Bolton|Bolton]] was photographed with a notepad reading "5,000 troops to [[Colombia]]," which Nicholas J. Fuentes viewed as a step towards unjustified military involvement.
 
 ### AF 2019-01-28 0319
 (00:48:36) Nicholas J. Fuentes argued that the [[United States|U.S.]] military presence across the globe—in [[Syria]], [[Iraq]], [[Afghanistan]], [[Arab Republic of Egypt|Egypt]], [[Somalia]], [[Libya]], [[Niger]], and [[Yemen]]—is unsustainable and diverts focus from domestic issues like the border crisis.
@@ -29941,10 +29941,10 @@
 (01:33:47) [[Ali Alexander]] was targeted by the [[Anti-Defamation League|ADL]] and [[BuzzFeed]] in articles labeling him as antisemitic, which Nicholas J. Fuentes characterized as an unfair attack on a based, red-pilled commentator.
 
 ### AF 2019-01-17 0312
-(00:05:82) Nicholas J. Fuentes hosts the political commentary program *[[United States|America]] First* from his studio in [[City of Chicago|Chicago]].
+(00:05:82) Nicholas J. Fuentes hosts the political commentary program *[[United States|America]] First* from his studio in [[Chicago]].
 
 ### AF 2019-01-17 0312
-(00:15:12) Nicholas J. Fuentes returned to his studio in [[City of Chicago|Chicago]] after a multi-day absence from the program.
+(00:15:12) Nicholas J. Fuentes returned to his studio in [[Chicago]] after a multi-day absence from the program.
 
 ### AF 2019-01-17 0312
 (06:07:88) Nicholas J. Fuentes traveled to [[Arizona]] to visit associates, including the streamer [[known]] as [[Timothy Gionet|Baked Alaska]], at a location referred to as the "Meme Mansion."
@@ -30022,10 +30022,10 @@
 (01:06:07:00) Nicholas J. Fuentes stated that [[Milo Yiannopoulos]] received $15 million from the [[Mercer family]] after his pedophile scandal but blew through the money.
 
 ### AF 2019-01-11 0311
-(01:07:36:00) Nicholas J. Fuentes recounted that [[Milo Yiannopoulos]]'s "Free Speech Week" event at [[University of California, Berkeley|UC Berkeley]] failed because he had not actually invited the speakers like [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] that he had publicly listed.
+(01:07:36:00) Nicholas J. Fuentes recounted that [[Milo Yiannopoulos]]'s "Free Speech Week" event at [[University of California, Berkeley|UC Berkeley]] failed because he had not actually invited the speakers like [[Steve Bannon]] and [[Ann Coulter]] that he had publicly listed.
 
 ### AF 2019-01-11 0311
-(01:08:47:00) Nicholas J. Fuentes defended his decision to attend the [[City of Charlottesville|Charlottesville]] rally, arguing that the long-term strategy of building an outside movement would pay bigger dividends than seeking establishment acceptance.
+(01:08:47:00) Nicholas J. Fuentes defended his decision to attend the [[Charlottesville]] rally, arguing that the long-term strategy of building an outside movement would pay bigger dividends than seeking establishment acceptance.
 
 ### AF 2019-01-11 0311
 (01:11:24:00) Nicholas J. Fuentes predicted that [[Democratic Party]] support for a government shutdown over border wall funding would crack before the support of [[Donald Trump]]'s base, due to the impact on federal workers and food stamp recipients.
@@ -30106,7 +30106,7 @@
 (00:45:52) Nicholas J. Fuentes stated that major conservative media outlets like [[Blaze Media|CRTV]], [[The Daily Wire]], and [[Breitbart News|Breitbart]] are run by Zionists, specifically naming [[Mark Levin]], [[Ben Shapiro]], and the late [[Breitbart News|Andrew Breitbart]].
 
 ### AF 2019-01-07 0307
-(00:46:43) The "[[Donald Trump|Trump]] revolution" was described by Nicholas J. Fuentes as a three-pronged fight for national sovereignty over trade policy (against [[China]] and the [[Europe|European Union]]), immigration policy (against [[Mexico]] and [[Israel|Central America]]), and foreign policy (against [[Israel]] and [[Saudi Arabia]]).
+(00:46:43) The "[[Donald Trump|Trump]] revolution" was described by Nicholas J. Fuentes as a three-pronged fight for national sovereignty over trade policy (against [[China]] and the [[European Union]]), immigration policy (against [[Mexico]] and [[Israel|Central America]]), and foreign policy (against [[Israel]] and [[Saudi Arabia]]).
 
 ### AF 2019-01-07 0307
 (00:50:45) Nicholas J. Fuentes expressed anxiety that his criticism of [[Israel]] could lead to people being sent to his [[house]] to threaten him or his family, stating, "They will send people to threaten me and say, stop talking about [[Israel]] or we will kill your family."
@@ -30307,10 +30307,10 @@
 (15:25:01) Nicholas J. Fuentes criticized [[Ben Shapiro]] and other [[Republican Party|Republicans]] for opposing identity politics on the grounds of "merits," while he saw the celebration of non-white congresswomen as a direct attack on traditional [[United States|America]].
 
 ### AF 2019-01-03 0305
-(16:20:69) Nicholas J. Fuentes outlined [[Rashida Tlaib]]'s platform as consisting of abolishing [[U.S. Immigration and Customs Enforcement|ICE]], [[Health and Human Services|Medicare]] for all, debt-free college, and impeaching [[Donald Trump]].
+(16:20:69) Nicholas J. Fuentes outlined [[Rashida Tlaib]]'s platform as consisting of abolishing [[U.S. Immigration and Customs Enforcement|ICE]], [[Medicare]] for all, debt-free college, and impeaching [[Donald Trump]].
 
 ### AF 2019-01-03 0305
-(17:00:23) Nicholas J. Fuentes cited estimates that [[Health and Human Services|Medicare]] for all would cost $33 trillion over 10 years.
+(17:00:23) Nicholas J. Fuentes cited estimates that [[Medicare]] for all would cost $33 trillion over 10 years.
 
 ### AF 2019-01-03 0305
 (17:49:21) Nicholas J. Fuentes opined that women are more susceptible to "fanciful thinking" like proposing free education and healthcare.
@@ -30421,7 +30421,7 @@
 (00:00:00) Nicholas J. Fuentes stated his intention to use the eventual availability of the anime series Evangelion on [[Netflix]] as an opportunity to promote his preferred interpretation of the character Kaworu Nagisa over other characters.
 
 ### AF 2018-12-28 0303
-(00:40:00) Nicholas J. Fuentes reiterated his long-standing warning against relationships with "E-girls," referencing a song he made about the topic that was featured on [[Paul Miller|Paul Joseph Watson]]'s platform.
+(00:40:00) Nicholas J. Fuentes reiterated his long-standing warning against relationships with "E-girls," referencing a song he made about the topic that was featured on [[Paul Joseph Watson]]'s platform.
 
 ### AF 2018-12-28 0303
 (00:57:00) Nicholas J. Fuentes stated that the philosophy of his show, [[United States|America]] First, is esoteric and requires reading between the lines, which he claimed makes it the "highest IQ show in the world."
@@ -30475,7 +30475,7 @@
 (14:42:00) Nicholas J. Fuentes paraphrased a line from [[Donald Trump|Trump]] about hand size to deflect a viewer's question about his own anatomy.
 
 ### AF 2018-12-28 0303
-(15:09:00) Nicholas J. Fuentes responded to a question about building a "compound" in [[Waco]] by suggesting [[City of Chicago|Chicago]] would be a better location, praising the [[city]]'s architecture and food but criticizing [[Cook County]] taxes.
+(15:09:00) Nicholas J. Fuentes responded to a question about building a "compound" in [[Waco]] by suggesting [[Chicago]] would be a better location, praising the [[city]]'s architecture and food but criticizing [[Cook County]] taxes.
 
 ### AF 2018-12-28 0303
 (17:51:00) Nicholas J. Fuentes outlined two potential future trajectories for himself: one where he becomes rich, famous, saves the white race, and is "[[king]] of [[United States|America]]," and another where he becomes incoherent, loses his audience, and ends up streaming for a handful of people from his parents' basement, akin to [[David Icke]].
@@ -30529,7 +30529,7 @@
 (15:34:82) Nicholas J. Fuentes reported that [[Donald Trump]] stated he told [[Benjamin Netanyahu|Bibi]] that [[Israel]] receives $4.5 billion a year from the [[United States]] and is capable of defending itself.
 
 ### AF 2018-12-27 0302
-(15:48:72) Nicholas J. Fuentes noted that [[Donald Trump]] cited his administration's move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]] as evidence of his support for [[Israel]].
+(15:48:72) Nicholas J. Fuentes noted that [[Donald Trump]] cited his administration's move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]] as evidence of his support for [[Israel]].
 
 ### AF 2018-12-27 0302
 (16:21:38) Nicholas J. Fuentes stated that [[Barack Obama]] signed a law providing [[Israel]] with $3.8 billion per year over ten years, making [[Donald Trump]]'s cited figure of $4.5 billion significant.
@@ -30766,7 +30766,7 @@
 (00:27:25) Nicholas J. Fuentes reported that [[Donald Trump]] had given an order to withdraw all 2,000 [[United States|U.S]]. combat troops from [[Syria]] very quickly.
 
 ### AF 2018-12-20 0300
-(00:27:34) Nicholas J. Fuentes connected the resignation of Defense Secretary [[James Mattis]] to [[Donald Trump]]'s decision to pull troops from [[Syria]] and [[Afghanistan]], citing [[James Mattis]]'s resignation letter which stated he wanted a defense secretary whose views aligned more closely with [[Donald Trump|the president's]].
+(00:27:34) Nicholas J. Fuentes connected the resignation of Defense Secretary [[James Mattis]] to [[Donald Trump]]'s decision to pull troops from [[Syria]] and [[Afghanistan]], citing [[James Mattis]]'s resignation letter which stated he wanted a defense secretary whose views aligned more closely with [[the president's]].
 
 ### AF 2018-12-20 0300
 (00:28:18) Nicholas J. Fuentes stated that [[Donald Trump]] had announced the withdrawal of 7,000 [[United States|American]] troops from [[Afghanistan]], approximately half of the [[United States|U.S]]. force there, which the military described as phase one of ending the war.
@@ -30796,7 +30796,7 @@
 (00:44:02) Nicholas J. Fuentes recommended that supporters call [[the White House]] to politely pressure [[Donald Trump]] to focus on border security and ending wars in the [[Middle East]], crediting [[Jason Miller|Jay McFeels]] for promoting this tactic.
 
 ### AF 2018-12-20 0300
-(00:44:51) Nicholas J. Fuentes stated that [[Ann Coulter]], [[Michelle Malkin]], and [[Tucker Carlson]] had publicly criticized [[Donald Trump]] over border wall funding, with [[Ann Coulter]] sacrificing her [[Twitter]] follow from [[Donald Trump|the president]].
+(00:44:51) Nicholas J. Fuentes stated that [[Ann Coulter]], [[Michelle Malkin]], and [[Tucker Carlson]] had publicly criticized [[Donald Trump]] over border wall funding, with [[Ann Coulter]] sacrificing her [[Twitter]] follow from [[the president]].
 
 ### AF 2018-12-20 0300
 (00:48:30) Nicholas J. Fuentes, in response to a viewer question, stated that as a [[Christianity|Christian]] he is called to love everybody, including [[black]] people, but clarified that [[Christianity|Christian]] love is different from materialist love and that he has a preference for his own people.
@@ -30805,7 +30805,7 @@
 (00:50:22) Nicholas J. Fuentes read a message purportedly from his mother congratulating him on the 300th episode.
 
 ### AF 2018-12-20 0300
-(00:52:31) Nicholas J. Fuentes commented on [[Paul Miller|Paul Joseph Watson]], stating he finds it hard to dislike him despite finding some of his jokes lacking, and acknowledged Watson had given him a shout-out.
+(00:52:31) Nicholas J. Fuentes commented on [[Paul Joseph Watson]], stating he finds it hard to dislike him despite finding some of his jokes lacking, and acknowledged Watson had given him a shout-out.
 
 ### AF 2018-12-20 0300
 (00:57:20) Nicholas J. Fuentes advised a viewer on whether to grow a beard, stating it depends on the individual's physiognomy and coverage, using [[Gavin McInnes|Gavin McInnis]] as an example of someone [[who]] needs a beard due to a lack of chin.
@@ -30814,7 +30814,7 @@
 (01:00:22) Nicholas J. Fuentes, in response to a question, said he is a big fan of [[Ron Paul|Rand Paul]], met him at a book signing, and would have voted for him in the [[Republican Party|Republican]] primary had he not dropped out.
 
 ### AF 2018-12-20 0300
-(01:02:30) Nicholas J. Fuentes dismissed the idea of joining the [[Eastern Orthodox Church]], arguing it lacks the authority of [[Rome]] or [[City of Jerusalem|Jerusalem]].
+(01:02:30) Nicholas J. Fuentes dismissed the idea of joining the [[Eastern Orthodox Church]], arguing it lacks the authority of [[Rome]] or [[Jerusalem]].
 
 ### AF 2018-12-20 0300
 (01:03:59) Nicholas J. Fuentes referenced a past show with [[Jared Taylor]] and another with [[Faith Goldy]] as among his favorite moments from "[[United States|America]] First."
@@ -30874,7 +30874,7 @@
 (00:08:49) Nicholas J. Fuentes stated that [[Paul Ryan]] shut [[Donald Trump]] out of negotiations and passed an omnibus spending bill in March that gave $715 billion to the military but no funding for the wall, which Nicholas J. Fuentes called an absolute disaster.
 
 ### AF 2018-12-18 0298
-(00:09:32) Nicholas J. Fuentes quoted his own March tweet criticizing the omnibus bill but expressing hope [[Donald Trump]] would use it to pressure [[Paul Ryan]] and the [[Republican Party|GOP]], though he ultimately blamed congressional leadership more than [[Donald Trump|the president]].
+(00:09:32) Nicholas J. Fuentes quoted his own March tweet criticizing the omnibus bill but expressing hope [[Donald Trump]] would use it to pressure [[Paul Ryan]] and the [[Republican Party|GOP]], though he ultimately blamed congressional leadership more than [[the president]].
 
 ### AF 2018-12-18 0298
 (00:10:07) Nicholas J. Fuentes referenced the next deadline on September 30th, quoting his September 16th tweet criticizing [[Republican Party|GOP]] leadership for delaying the wall funding fight until after the midterm elections, which he called a stall tactic.
@@ -30994,7 +30994,7 @@
 (03:16:39) Nicholas J. Fuentes defined a "wignat" as a tactless [[person]] from the alt-right movement with no class or connection to the real world, often associated with figures like [[David Duke]].
 
 ### AF 2018-12-14 0296
-(00:03:40) Nicholas J. Fuentes stated that sources close to [[Donald Trump|the president]] had informed him that [[Hope Hicks]], [[Mark Meadows]], or [[Bob Lighthizer]] would have been preferable Chief of Staff selections to [[Mick Mulvaney]].
+(00:03:40) Nicholas J. Fuentes stated that sources close to [[the president]] had informed him that [[Hope Hicks]], [[Mark Meadows]], or [[Bob Lighthizer]] would have been preferable Chief of Staff selections to [[Mick Mulvaney]].
 
 ### AF 2018-12-14 0296
 (00:12:40) Nicholas J. Fuentes argued that [[Donald Trump]]'s post-midterm strategy of appeasing the establishment [[Republican Party]] and groups like the [[Heritage Foundation]] with tax cuts to fuel reelection had failed to deliver on core immigration promises like the border wall.
@@ -31090,7 +31090,7 @@
 (00:28:17) Nicholas J. Fuentes reported that [[Chérif Chekatt]] had 27 prior convictions for crimes across [[France]], [[Germany]], and [[Switzerland]] and was on a [[France|French]] security watchlist.
 
 ### AF 2018-12-13 0295
-(00:29:35) Nicholas J. Fuentes suggested that [[Emmanuel Macron]] and the [[Europe|European Union]] could benefit from terror attacks as a pretext to deploy a [[Europe|European]] army and increase central government control.
+(00:29:35) Nicholas J. Fuentes suggested that [[Emmanuel Macron]] and the [[European Union]] could benefit from terror attacks as a pretext to deploy a [[Europe|European]] army and increase central government control.
 
 ### AF 2018-12-13 0295
 (00:31:35) Nicholas J. Fuentes cited economist [[George Borjas]]'s book *We Wanted Workers*, which argued that immigrants contribute little fiscal benefit to native-born citizens.
@@ -31285,7 +31285,7 @@
 (00:40:50) Nicholas J. Fuentes argued that media actions like *[[Time]]*'s selection and [[Google|YouTube]]'s Rewind were attempts to rewrite history in real [[time]] by erasing dissenting voices and events.
 
 ### AF 2018-12-11 0293
-(00:42:20) Nicholas J. Fuentes reported that [[James Fields]] was found guilty of first-degree murder for driving into a crowd at the 2017 [[Unite the Right rally]] in [[City of Charlottesville|Charlottesville]].
+(00:42:20) Nicholas J. Fuentes reported that [[James Fields]] was found guilty of first-degree murder for driving into a crowd at the 2017 [[Unite the Right rally]] in [[Charlottesville]].
 
 ### AF 2018-12-11 0293
 (00:43:00) Nicholas J. Fuentes argued the evidence did not support a first-degree murder conviction for [[James Fields]], suggesting manslaughter was more appropriate given the chaotic environment and lack of premeditation.
@@ -31372,7 +31372,7 @@
 (00:03:40) Nicholas J. Fuentes stated that the premium episode titled "Day the [[Black]] Pill" contained a substantial rebuttal to recent "[[Donald Trump|Trump]] skepticism" within certain online circles, arguing for continued support of the [[Donald Trump|Trump]] movement.
 
 ### AF 2018-12-10 0292
-(00:09:00) Nicholas J. Fuentes expressed personal satisfaction at [[Gavin McInnes]]'s deplatforming, citing McInnes's past refusal to collaborate or signal-boost figures like himself and [[Jared Taylor]], and his attacks on attendees of the [[City of Charlottesville|Charlottesville rally]].
+(00:09:00) Nicholas J. Fuentes expressed personal satisfaction at [[Gavin McInnes]]'s deplatforming, citing McInnes's past refusal to collaborate or signal-boost figures like himself and [[Jared Taylor]], and his attacks on attendees of the [[Charlottesville rally]].
 
 ### AF 2018-12-10 0292
 (00:10:40) Nicholas J. Fuentes criticized [[Gavin McInnes]] for using his platform to advance what he termed "basic bitch conservatism" instead of addressing issues like criticism of technology, egalitarianism, and the free market.
@@ -31465,7 +31465,7 @@
 (00:13:36) Nicholas J. Fuentes claimed all writers for [[The Daily Wire]] are Zionists.
 
 ### AF 2018-12-06 0290
-(00:16:47) Nicholas J. Fuentes asserted that personnel in the [[White House]] were inadequate for advancing [[Donald Trump|the president's]] agenda.
+(00:16:47) Nicholas J. Fuentes asserted that personnel in the [[White House]] were inadequate for advancing [[the president's]] agenda.
 
 ### AF 2018-12-06 0290
 (00:18:26) Nicholas J. Fuentes speculated that [[Ted Cruz]] introduced the WALL Act to gain media attention and base support, potentially positioning himself as a successor to the populist movement.
@@ -31531,7 +31531,7 @@
 (07:19:43) Nicholas J. Fuentes traveled to [[Prague]] with friends [[Millennial Matt]] and [[Lauren Rose]].
 
 ### AF 2018-12-04 0288
-(08:03:19) Nicholas J. Fuentes observed a stark demographic difference between the population of [[Prague]] and that of [[City of Chicago|Chicago]]'s O'Hare airport upon returning to the [[United States]].
+(08:03:19) Nicholas J. Fuentes observed a stark demographic difference between the population of [[Prague]] and that of [[Chicago]]'s O'Hare airport upon returning to the [[United States]].
 
 ### AF 2018-12-04 0288
 (12:31:77) Nicholas J. Fuentes posted a tweet noting the prevalence of [[Jews|Jewish]] individuals in right-wing media.
@@ -31855,7 +31855,7 @@
 (00:01:50) Nicholas J. Fuentes stated he would be analyzing the midterm election results, a recent interview between [[Donald Trump]] and [[Chris Wallace]], and the political activities of [[Alexandria Ocasio-Cortez]].
 
 ### AF 2018-11-19 0284
-(00:02:20) Nicholas J. Fuentes promoted his premium show, where he analyzed a speech by [[Steven Crowder|Steve Bannon]] on economic nationalism.
+(00:02:20) Nicholas J. Fuentes promoted his premium show, where he analyzed a speech by [[Steve Bannon]] on economic nationalism.
 
 ### AF 2018-11-19 0284
 (00:03:30) Nicholas J. Fuentes declared the day of the broadcast to be "white man's day," framing it as a response to celebrations for other demographic groups.
@@ -31960,7 +31960,7 @@
 (00:38:30) Nicholas J. Fuentes stated that influential figures in the movement excluded intellectuals like [[Darren Beattie]], [[Patrick Casey]], [[Faith Goldy]], and [[Jared Taylor]] because their ideas were considered too controversial.
 
 ### AF 2018-11-14 0282
-(00:39:50) Nicholas J. Fuentes expressed regret for his involvement in the 2017 [[City of Charlottesville|Charlottesville]] rally where the [[National Socialist Movement]] and the [[League of the South]] were present, calling the participants "losers" and "bad people."
+(00:39:50) Nicholas J. Fuentes expressed regret for his involvement in the 2017 [[Charlottesville]] rally where the [[National Socialist Movement]] and the [[League of the South]] were present, calling the participants "losers" and "bad people."
 
 ### AF 2018-11-14 0282
 (00:50:40) Nicholas J. Fuentes claimed that figures like [[Jordan Peterson]] and [[Ben Shapiro]] refused to debate him or address his ideas directly, unlike [[Wilt Chamberlain|Will Chamberlain]], [[R.C. Maxwell]], [[Ali Akbar]], and [[Lucian Wintrich]] [[who]] had engaged with him.
@@ -32413,7 +32413,7 @@
 (00:07:13) Nicholas J. Fuentes claimed [[William F. Buckley|William F. Buckley Jr.]] helped purge figures like [[Patrick Buchanan|Patrick J. Buchanan]] from the conservative movement.
 
 ### AF 2018-11-02 0275
-(00:10:48) Nicholas J. Fuentes read from a column [[Patrick Buchanan|Patrick J. Buchanan]] wrote after the [[City of Charlottesville|Charlottesville rally]], in which [[Patrick Buchanan|Buchanan]] questioned the ideological foundation of the statement "all men are created equal."
+(00:10:48) Nicholas J. Fuentes read from a column [[Patrick Buchanan|Patrick J. Buchanan]] wrote after the [[Charlottesville rally]], in which [[Patrick Buchanan|Buchanan]] questioned the ideological foundation of the statement "all men are created equal."
 
 ### AF 2018-11-02 0275
 (00:13:41) Nicholas J. Fuentes read a response by [[Ben Shapiro]] that criticized [[Patrick Buchanan|Patrick J. Buchanan]]'s column, arguing that "all men are created equal" is a description of common human value in the eyes of God and the law.
@@ -32464,7 +32464,7 @@
 (00:42:40) Nicholas J. Fuentes reported that [[Google|YouTube]] refunded $27,000 in charitable donations [[Ralph Retort]] had raised for [[St. Jude Children's Research Hospital]] during a charity stream.
 
 ### AF 2018-11-02 0275
-(00:43:48) Nicholas J. Fuentes stated that the post-[[City of Charlottesville|Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], [[Milo Yiannopoulos]], [[Chuck Johnson]], and [[Andrew Anglin]], and later included [[Gavin McInnes]].
+(00:43:48) Nicholas J. Fuentes stated that the post-[[Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], [[Milo Yiannopoulos]], [[Chuck Johnson]], and [[Andrew Anglin]], and later included [[Gavin McInnes]].
 
 ### AF 2018-11-02 0275
 (00:46:24) Nicholas J. Fuentes argued that [[Patrick Buchanan|Patrick J. Buchanan]] could only publish his books and appear on programs like [[Laura Ingraham]]'s and [[Sean Hannity]]'s because he was established; a new commentator with his views would be censored today.
@@ -32527,13 +32527,13 @@
 (01:58:20) A caller asked Nicholas J. Fuentes why he doesn't confront figures like [[Ben Shapiro]] at public Q&A sessions, to which Fuentes replied that it would be degrading, create an unlevel playing field, and likely be ineffective as [[Ben Shapiro|Shapiro]] could dismiss challenging questions with prepared answers.
 
 ### AF 2018-10-31 0273
-(01:59:59) An Egyptian caller asked Nicholas J. Fuentes for his personal moral judgment on the [[Israel]]-[[Gaza Strip|Palestine]] conflict, leading Fuentes to analyze the competing historical claims of both peoples to the land.
+(01:59:59) An Egyptian caller asked Nicholas J. Fuentes for his personal moral judgment on the [[Israel]]-[[Palestine]] conflict, leading Fuentes to analyze the competing historical claims of both peoples to the land.
 
 ### AF 2018-10-31 0273
 (01:00:27) Nicholas J. Fuentes argued that both [[Israel]]is and [[Palestinians]] have valid claims to the land, citing the [[Palestinians]]' long-term residence under the Ottoman Caliphate and [[Israel]]'s [[United Nations|U.N]]. mandate and established statehood, but stated he would personally side with the [[Palestinians]] if forced to choose.
 
 ### AF 2018-10-31 0273
-(01:01:06) Nicholas J. Fuentes stated that, from an "[[United States|America]] First" perspective, the Levant is not strategically important enough for the [[United States]] to take a strong moral stance on the [[Israel]]-[[Gaza Strip|Palestine]] conflict, and that [[United States|U.S]]. policy should be based solely on [[United States|American]] interests.
+(01:01:06) Nicholas J. Fuentes stated that, from an "[[United States|America]] First" perspective, the Levant is not strategically important enough for the [[United States]] to take a strong moral stance on the [[Israel]]-[[Palestine]] conflict, and that [[United States|U.S]]. policy should be based solely on [[United States|American]] interests.
 
 ### AF 2018-10-31 0273
 (01:02:08) Nicholas J. Fuentes argued that the only [[country]] capable of posing an existential threat to [[Israel]] is [[Iran]], as neighboring states like [[Arab Republic of Egypt|Egypt]], [[Saudi Arabia]], and [[Jim Jordan|Jordan]] are allied with or neutral towards [[Israel]], while [[Syria]] and [[Iraq]] lack full sovereignty.
@@ -32587,7 +32587,7 @@
 (00:05:48) Nicholas J. Fuentes announced the show would cover articles from the [[The New York Times|New York Times]] and [[The Jerusalem Post|Haaretz]], as well as topics including [[Jacob Wohl]], [[Kanye West]], and birthright citizenship.
 
 ### AF 2018-10-30 0272
-(00:10:02) Nicholas J. Fuentes stated he would not cover [[Angela Merkel]]'s decision to step down from her party in 2021, expressing indifference to developments in [[Germany]] and the [[Europe|European Union]].
+(00:10:02) Nicholas J. Fuentes stated he would not cover [[Angela Merkel]]'s decision to step down from her party in 2021, expressing indifference to developments in [[Germany]] and the [[European Union]].
 
 ### AF 2018-10-30 0272
 (00:12:12) Nicholas J. Fuentes mentioned that [[Steven King|Steve King]] had retweeted supporters and rubbed shoulders with them in [[Austria]], drawing attacks from political opponents hoping to swing a [[House]] seat.
@@ -32674,7 +32674,7 @@
 (01:45:34) Nicholas J. Fuentes stated he also admired the hustle of [[Ben Shapiro]], despite political disagreements, acknowledging a degree of opportunism and nepotism in his success.
 
 ### AF 2018-10-30 0272
-(01:47:48) Nicholas J. Fuentes reiterated that the problem with [[Israel]] is not its [[Jews|Jewish]] character or its actions against [[Gaza Strip|Palestine]], but that it advances its interests at the expense of the [[United States]], demanding funding, drawing [[United States|America]] into wars, and lobbying [[United States|U.S]]. politicians.
+(01:47:48) Nicholas J. Fuentes reiterated that the problem with [[Israel]] is not its [[Jews|Jewish]] character or its actions against [[Palestine]], but that it advances its interests at the expense of the [[United States]], demanding funding, drawing [[United States|America]] into wars, and lobbying [[United States|U.S]]. politicians.
 
 ### AF 2018-10-30 0272
 (01:48:00) Nicholas J. Fuentes argued that if the [[United States]] stopped funding [[Israel]] and ended its security guarantees, the two nations could potentially be allies, as [[Israel]]'s nation-[[state]] law is a model for Western countries.
@@ -32776,7 +32776,7 @@
 (17:59:50) Nicholas J. Fuentes cited the image of migrant children in cages as an example of [[the left]]'s effective use of a visceral, symbolic avatar to mobilize support and frame the immigration debate.
 
 ### AF 2018-10-22 0266
-(18:26:96) Nicholas J. Fuentes pointed to the 2017 [[City of Charlottesville|Charlottesville rally]], with its imagery of people with tiki torches chanting "[[Jews]] will not replace [[us]]," as the event that solidified the public definition of the "alt-right."
+(18:26:96) Nicholas J. Fuentes pointed to the 2017 [[Charlottesville rally]], with its imagery of people with tiki torches chanting "[[Jews]] will not replace [[us]]," as the event that solidified the public definition of the "alt-right."
 
 ### AF 2018-10-22 0266
 (22:17:44) Nicholas J. Fuentes predicted that if [[Donald Trump]] successfully turned back the migrant caravan using the military, it would be a major political victory on immigration ahead of the midterm elections.
@@ -33019,7 +33019,7 @@
 (00:20:02) The same caller observed that his [[Republican Party|College Republicans]] club seemed focused more on networking than activism, a strategy Nicholas J. Fuentes strongly endorsed as critical for building contacts and institutional power.
 
 ### AF 2018-10-12 0260
-(00:21:23) Nicholas J. Fuentes referenced a speech by [[Daryl Cooper|Darren Beattie]] at the H.L. Mencken Club about a generation of smart young people being closed out of the system, arguing the task is to connect them for effective mobilization.
+(00:21:23) Nicholas J. Fuentes referenced a speech by [[Darren Beattie]] at the H.L. Mencken Club about a generation of smart young people being closed out of the system, arguing the task is to connect them for effective mobilization.
 
 ### AF 2018-10-12 0260
 (00:25:31) Nicholas J. Fuentes identified as a "med supremacist," ranking [[Italian Republic|Italians]] first, and cited [[Samuel J. Hyde|Sam Hyde]]'s joke that Slavs are only good at making vodka, AK-47s, and spacecraft.
@@ -33070,7 +33070,7 @@
 (00:57:09) Nicholas J. Fuentes stated that increasingly nothing holds [[United States|America]] together, as [[the left]] no longer believes in the [[United States|American]] creed, and with the loss of shared culture, race, and ethnicity, the [[country]] is being carved up between coastal progressive cities and the traditional heartland.
 
 ### AF 2018-10-12 0260
-(01:00:03) Earl of Grey summarized that the new conservative [[United States|American]] identity is defined in opposition to liberal urban culture, and asked if [[United States|American]] cities could be reclaimed, to which Nicholas J. Fuentes expressed pessimism, citing the destruction in [[City of Chicago|Chicago]].
+(01:00:03) Earl of Grey summarized that the new conservative [[United States|American]] identity is defined in opposition to liberal urban culture, and asked if [[United States|American]] cities could be reclaimed, to which Nicholas J. Fuentes expressed pessimism, citing the destruction in [[Chicago]].
 
 ### AF 2018-10-12 0260
 (01:02:07) Nicholas J. Fuentes agreed that individual ethnic identity is more salient, but argued [[Hispanic]] immigration is replacing various ethnic enclaves with a blanket [[Hispanic]] culture, forcing a contrast that leads to a more unified white identity.
@@ -33187,10 +33187,10 @@
 (01:32:48) Nicholas J. Fuentes claimed [[Kanye West]] had acknowledged that [[Jews|Jewish people]] possess connections that [[black]] people do not, while [[Taylor Swift]] was "owned by the music industry."
 
 ### AF 2018-10-11 0259
-(01:42:36) Nicholas J. Fuentes discussed the disappearance of [[Saudi Arabia|Saudi]] journalist [[Jamal Khashoggi]], a columnist for the [[Washington Post]] and critic of the [[Saudi Arabia|Saudi]] government, [[who]] entered the [[Saudi Arabia|Saudi]] consulate in [[City of Istanbul|Istanbul]], [[Turkey]], and never left.
+(01:42:36) Nicholas J. Fuentes discussed the disappearance of [[Saudi Arabia|Saudi]] journalist [[Jamal Khashoggi]], a columnist for the [[Washington Post]] and critic of the [[Saudi Arabia|Saudi]] government, [[who]] entered the [[Saudi Arabia|Saudi]] consulate in [[Istanbul]], [[Turkey]], and never left.
 
 ### AF 2018-10-11 0259
-(01:50:04) Nicholas J. Fuentes noted that [[Donald Trump]]'s first foreign visit was to [[City of Riyadh|Riyadh]], [[Saudi Arabia]], where he signed a $110 billion arms contract, and that [[Congress]] was investigating Khashoggi's disappearance under a 2012 international sanctions law.
+(01:50:04) Nicholas J. Fuentes noted that [[Donald Trump]]'s first foreign visit was to [[Riyadh]], [[Saudi Arabia]], where he signed a $110 billion arms contract, and that [[Congress]] was investigating Khashoggi's disappearance under a 2012 international sanctions law.
 
 ### AF 2018-10-11 0259
 (01:56:52) Nicholas J. Fuentes contrasted the [[United States|U.S]]. relationship with [[Saudi Arabia]], an ally accused of killing a journalist and sponsoring terrorism, with its adversarial stance toward [[Iran]], arguing both countries engage in similar actions but are held to different standards.
@@ -33238,7 +33238,7 @@
 (00:00:00) Nicholas J. Fuentes hosts his show on Columbus Day, October 8, 2018, following a weekend that included the confirmation of [[Brett Kavanaugh]] and the first-round presidential election victory of [[Jair Bolsonaro]] in [[Brazil]].
 
 ### AF 2018-10-08 0256
-(00:45:00) [[Steven Crowder|Steve Bannon]] characterized [[Paul Ryan]] as a product of a "Petri dish" at the [[Heritage Foundation]], representing a policy-focused Republicanism that Nicholas J. Fuentes argues is less effective than the charismatic, strongman politics of figures like [[Jair Bolsonaro]].
+(00:45:00) [[Steve Bannon]] characterized [[Paul Ryan]] as a product of a "Petri dish" at the [[Heritage Foundation]], representing a policy-focused Republicanism that Nicholas J. Fuentes argues is less effective than the charismatic, strongman politics of figures like [[Jair Bolsonaro]].
 
 ### AF 2018-10-08 0256
 (01:06:00) Nicholas J. Fuentes argued that criticizing international [[Jews|Jewish]] figures like [[George Soros]] is often labeled anti-Semitic, illustrating a dynamic where any criticism of [[Jews|Jewish]] individuals or [[Israel]] is conflated with bigotry.
@@ -33460,7 +33460,7 @@
 (01:43:50) Nicholas J. Fuentes disputed [[Donald Trump]]'s statement that "we all bleed the same blood," arguing that political opponents and elites do not love [[United States|America]] or salute its flag.
 
 ### AF 2018-10-03 0253
-(01:59:47) Nicholas J. Fuentes referenced a quote from [[Ben Shapiro]] about deep-seated ideological conflict preventing coexistence, which [[Ben Shapiro|Shapiro]] had applied to the [[Israel]]-[[Gaza Strip|Palestine]] conflict.
+(01:59:47) Nicholas J. Fuentes referenced a quote from [[Ben Shapiro]] about deep-seated ideological conflict preventing coexistence, which [[Ben Shapiro|Shapiro]] had applied to the [[Israel]]-[[Palestine]] conflict.
 
 ### AF 2018-10-02 0252
 (00:01:33) Nicholas J. Fuentes announced the show would cover the latest developments in the [[Brett Kavanaugh]] confirmation process and statements made by a [[North Atlantic Treaty Organization|NATO]] envoy regarding [[Russia]].
@@ -33514,7 +33514,7 @@
 (00:05:00) Nicholas J. Fuentes announced the renegotiation of the [[North American Free Trade Agreement|NAFTA]], resulting in a new trade deal [[known]] as the [[United States–Mexico–Canada Agreement|USMCA]].
 
 ### AF 2018-10-01 0251
-(00:49:00) Nicholas J. Fuentes stated that the [[United States–Mexico–Canada Agreement|USMCA]] would impact [[United States]] trade policy with [[China]] and the [[Europe|European Union]].
+(00:49:00) Nicholas J. Fuentes stated that the [[United States–Mexico–Canada Agreement|USMCA]] would impact [[United States]] trade policy with [[China]] and the [[European Union]].
 
 ### AF 2018-10-01 0251
 (01:03:00) Nicholas J. Fuentes discussed new developments in the confirmation process for [[Brett Kavanaugh]], including a memorandum written by prosecutor [[Rachel Mitchell]].
@@ -33571,7 +33571,7 @@
 (38:19:00) Nicholas J. Fuentes argued that [[Donald Trump]] achieved the [[United States–Mexico–Canada Agreement|USMCA]] through a brawling style of diplomacy involving threats of tariffs on [[Dominion of Canada|Canada]] and [[Mexico]].
 
 ### AF 2018-10-01 0251
-(39:24:00) Nicholas J. Fuentes stated that the successful renegotiation of [[North American Free Trade Agreement|NAFTA]] into the [[United States–Mexico–Canada Agreement|USMCA]] gave [[Donald Trump]] political capital and credibility for future negotiations with [[China]] and the [[Europe|European Union]].
+(39:24:00) Nicholas J. Fuentes stated that the successful renegotiation of [[North American Free Trade Agreement|NAFTA]] into the [[United States–Mexico–Canada Agreement|USMCA]] gave [[Donald Trump]] political capital and credibility for future negotiations with [[China]] and the [[European Union]].
 
 ### AF 2018-10-01 0251
 (40:22:00) Nicholas J. Fuentes claimed that [[Donald Trump]]'s use of tariffs in trade negotiations blew out the arguments of free-market think tanks like the [[Heritage Foundation]], the [[Cato Institute]], and the [[American Enterprise Institute]].
@@ -33853,7 +33853,7 @@
 (00:49:34) Nicholas J. Fuentes argued that a functioning society requires a "strong, powerful, and wise ruler" rather than a [[democratic]] system where "everyone gets one [[person]], one vote."
 
 ### AF 2018-09-25 0247
-(03:46:00) Nicholas J. Fuentes argued that [[Iran]]'s support for groups like [[Hamas]], [[Hezbollah]], and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Gaza Strip|Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
+(03:46:00) Nicholas J. Fuentes argued that [[Iran]]'s support for groups like [[Hamas]], [[Hezbollah]], and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
 
 ### AF 2018-09-25 0247
 (06:25:00) Leaders in [[Hungary]] and [[Israel|Poland]], such as [[Viktor Orbán]], were defining their political movements in terms of nationalism versus globalism, according to Nicholas J. Fuentes.
@@ -33868,7 +33868,7 @@
 (08:29:00) Nicholas J. Fuentes explained that [[Russia]]'s strategic imperative to control [[Ukraine]] stemmed from the need for a geographic buffer along the Northern [[Europe|European]] Plain, a historic invasion route used by [[Napoleon Bonaparte|Napoleon]] and [[Germany|Nazi Germany]].
 
 ### AF 2018-09-25 0247
-(08:55:00) Following the 2014 ousting of pro-[[Russian]] President [[Viktor Yanukovych]], [[Russia]] annexed [[City of Sevastopol|Crimea]] and fomented rebellion in eastern [[Ukraine]] to prevent the [[country]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[Europe|European Union]], according to Nicholas J. Fuentes.
+(08:55:00) Following the 2014 ousting of pro-[[Russian]] President [[Viktor Yanukovych]], [[Russia]] annexed [[Crimea]] and fomented rebellion in eastern [[Ukraine]] to prevent the [[country]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[European Union]], according to Nicholas J. Fuentes.
 
 ### AF 2018-09-25 0247
 (09:02:00) Nicholas J. Fuentes contrasted the [[Monroe Doctrine]], which asserts [[United States|U.S.]] hegemony over the Western Hemisphere, with the denial of a similar sphere of influence for [[Russia]] in [[Europe|Eastern Europe]].
@@ -33961,7 +33961,7 @@
 (31:27:62) Nicholas J. Fuentes agreed with a caller's assertion that [[Christianity|Christians]], not Talmudic [[Jews]], are the true inheritors of the seed of Abraham and have the right to the [[Israel Defense Forces|Holy Land]].
 
 ### AF 2018-09-21 0245
-(36:00:19) Nicholas J. Fuentes stated that the [[Eastern Orthodox Church]] agreed at the [[Council of Florence]] that [[Rome]] held primacy, a position they reversed after the fall of [[City of Istanbul|Constantinople]] to the Saracens.
+(36:00:19) Nicholas J. Fuentes stated that the [[Eastern Orthodox Church]] agreed at the [[Council of Florence]] that [[Rome]] held primacy, a position they reversed after the fall of [[Constantinople]] to the Saracens.
 
 ### AF 2018-09-21 0245
 (36:28:27) Nicholas J. Fuentes described the controversy within the [[Eastern Orthodox Church]] as an attempt to create a separate, autonomous [[Ukrainian Orthodox Church]] for political reasons, breaking away from the [[Russian Orthodox Church]].
@@ -33970,7 +33970,7 @@
 (36:44:85) Nicholas J. Fuentes argued that the lack of a single, supreme leader like the Pope in the [[Eastern Orthodox Church]] leads to a problematic absence of unity in matters of faith.
 
 ### AF 2018-09-21 0245
-(40:59:25) Nicholas J. Fuentes contrasted the enduring 2,000-year history and global evangelization of the [[Catholic Church]] in [[Rome]] with the [[Eastern Orthodox Church]], whose center in [[City of Istanbul|Constantinople]] fell and whose influence in [[Russia]] was later challenged by the [[Bolshevik Revolution]].
+(40:59:25) Nicholas J. Fuentes contrasted the enduring 2,000-year history and global evangelization of the [[Catholic Church]] in [[Rome]] with the [[Eastern Orthodox Church]], whose center in [[Constantinople]] fell and whose influence in [[Russia]] was later challenged by the [[Bolshevik Revolution]].
 
 ### AF 2018-09-21 0245
 (46:46:09) Nicholas J. Fuentes stated that mutually exclusive religions like [[Catholic Church|Catholicism]], [[Islam]], and [[The Church of Jesus Christ of Latter-day Saints|Mormonism]] cannot all be true, making relativistic coexistence difficult in an age of globalization and civilizational clash.
@@ -34027,7 +34027,7 @@
 (00:28:51) Nicholas J. Fuentes stated that the singular reason for [[Donald Trump]]'s election was his promise to build a wall and address immigration, separating him from other candidates like [[Ted Cruz]] or [[Marco Rubio]].
 
 ### AF 2018-09-20 0244
-(00:30:05) Nicholas J. Fuentes listed figures within the [[Donald Trump|Trump]] administration [[who]] he believed were working against [[Donald Trump|the president's]] agenda, including Chief of Staff [[James Mattis|John Kelly]], [[Nikki Haley]], and [[John Bolton]].
+(00:30:05) Nicholas J. Fuentes listed figures within the [[Donald Trump|Trump]] administration [[who]] he believed were working against [[the president's]] agenda, including Chief of Staff [[James Mattis|John Kelly]], [[Nikki Haley]], and [[John Bolton]].
 
 ### AF 2018-09-20 0244
 (00:32:50) Nicholas J. Fuentes identified [[Donald Trump]] and [[Stephen Miller]] as the only two people in [[Washington D.C.|Washington, D.C.]] [[who]] were serious about addressing immigration.
@@ -34099,7 +34099,7 @@
 (08:50:00) Nicholas J. Fuentes predicts [[Donald Trump]] will win re-election in 2020 but expresses concern that [[Republican Party|Republicans]] may lose the [[House of Representatives]] in the 2018 midterm elections based on current polling.
 
 ### AF 2018-09-18 0242
-(09:28:00) Nicholas J. Fuentes reflects on the symbolic importance of [[Donald Trump]]'s 2016 election victory for his political movement and the emotional impact [[Donald Trump|the president's]] eventual departure from office will have.
+(09:28:00) Nicholas J. Fuentes reflects on the symbolic importance of [[Donald Trump]]'s 2016 election victory for his political movement and the emotional impact [[the president's]] eventual departure from office will have.
 
 ### AF 2018-09-18 0242
 (09:43:00) Nicholas J. Fuentes declines to debate [[Greg Johnson]] on paganism, dismissing the ideology as irrelevant and stating he does not wish to associate with [[Counter-Currents]] publishing.
@@ -34138,7 +34138,7 @@
 (05:13:56) [[Turning Point USA]] and [[Yale Law School|Yale University]] have refused to allow Nicholas J. Fuentes to speak at their institutions.
 
 ### AF 2018-09-17 0241
-(06:07:46) Nicholas J. Fuentes cited a pattern where the [[Republican Party]] and establishment conservative organizations refuse to allow new ideas or legitimate forms of conservatism into the party, referencing figures like [[Daryl Cooper|Darren Beattie]] and [[Larry Kudlow]].
+(06:07:46) Nicholas J. Fuentes cited a pattern where the [[Republican Party]] and establishment conservative organizations refuse to allow new ideas or legitimate forms of conservatism into the party, referencing figures like [[Darren Beattie]] and [[Larry Kudlow]].
 
 ### AF 2018-09-17 0241
 (06:36:44) Nicholas J. Fuentes criticized the national [[Young Americans for Liberty]] [[organization]] for its hypocrisy on free speech, arguing it only supports discourse within predetermined boundaries that do not challenge the status quo.
@@ -34210,7 +34210,7 @@
 (21:05:06) Nicholas J. Fuentes received troubling emails about a potential college speaking engagement that may not work out.
 
 ### AF 2018-09-15 0240
-(24:50:44) Nicholas J. Fuentes was a member of the [[Boston University]] [[Republican Party|College Republicans]] before the [[City of Charlottesville|Charlottesville rally]].
+(24:50:44) Nicholas J. Fuentes was a member of the [[Boston University]] [[Republican Party|College Republicans]] before the [[Charlottesville rally]].
 
 ### AF 2018-09-15 0240
 (27:24:64) Nicholas J. Fuentes was invited to appear on a podcast about Hapas, people of mixed Asian and white ancestry.
@@ -34219,7 +34219,7 @@
 (41:08:18) Nicholas J. Fuentes's father passed down a love for [[The Beatles]], whom Fuentes considers the greatest band of all [[time]].
 
 ### AF 2018-09-15 0240
-(46:02:78) Nicholas J. Fuentes was blacklisted and ostracized following the [[City of Charlottesville|Charlottesville rally]].
+(46:02:78) Nicholas J. Fuentes was blacklisted and ostracized following the [[Charlottesville rally]].
 
 ### AF 2018-09-15 0240
 (50:43:42) Nicholas J. Fuentes prefers [[McDonald's]] over [[Wendy's]], citing the taste of the McDouble with extra ketchup, pickle, and diced onions.
@@ -34378,7 +34378,7 @@
 (00:11:30) Nicholas J. Fuentes stated he received information suggesting the anonymous author of the [[The New York Times]] op-ed was a [[person]] within the [[U.S. Department of State|State Department]] [[who]] was not a household name.
 
 ### AF 2018-09-06 0234
-(00:12:14) Nicholas J. Fuentes characterized the anonymous op-ed as an act of treason by individuals within the [[Donald Trump|Trump]] administration [[who]] were revolting against [[Donald Trump|the president]].
+(00:12:14) Nicholas J. Fuentes characterized the anonymous op-ed as an act of treason by individuals within the [[Donald Trump|Trump]] administration [[who]] were revolting against [[the president]].
 
 ### AF 2018-09-06 0234
 (00:15:42) Nicholas J. Fuentes reported that [[Alex Jones]] and his platform [[Alex Jones|InfoWars]] had been removed from [[Facebook]], [[Google|YouTube]], [[Stitcher]], [[Vimeo]], [[Spotify]], and [[Mailchimp]], and were subsequently banned from [[Twitter]] and [[Periscope]] around 5 PM that evening.
@@ -34393,10 +34393,10 @@
 (00:21:12) Nicholas J. Fuentes identified the authors of the [[Media Matters]] article as [[Madeline Peltz]] and [[Talia Lavin]], noting the latter describes herself as a "fat [[Jews|Jew]]" in her [[Twitter]] bio.
 
 ### AF 2018-09-06 0234
-(00:22:56) Nicholas J. Fuentes corrected the [[Media Matters]] article, stating his split with [[Right Side Broadcasting Network|RSBN]] was mutual and occurred in August after the [[City of Charlottesville|Charlottesville]] rally, not in April after comments about [[Warner Bros. Discovery|CNN]].
+(00:22:56) Nicholas J. Fuentes corrected the [[Media Matters]] article, stating his split with [[Right Side Broadcasting Network|RSBN]] was mutual and occurred in August after the [[Charlottesville]] rally, not in April after comments about [[Warner Bros. Discovery|CNN]].
 
 ### AF 2018-09-06 0234
-(00:23:44) Nicholas J. Fuentes confirmed his participation in the [[City of Charlottesville|Charlottesville]] rally and that he described himself as an authoritarian in a stream titled "Embrace the [[State of Illinois|State]]."
+(00:23:44) Nicholas J. Fuentes confirmed his participation in the [[Charlottesville]] rally and that he described himself as an authoritarian in a stream titled "Embrace the [[State of Illinois|State]]."
 
 ### AF 2018-09-06 0234
 (00:24:16) Nicholas J. Fuentes recounted that the [[Media Matters]] article quoted him calling [[Amy Schumer]] a "fat, ugly slob" and suggesting she should be a "literal punching bag," which he stated was a joke.
@@ -34486,7 +34486,7 @@
 (01:19:20) Nicholas J. Fuentes stated that after a year of internal movement warfare, he was now building bridges and working towards a united front, sidelining figures he believed were leading people astray.
 
 ### AF 2018-09-06 0234
-(01:20:20) Nicholas J. Fuentes dismissed as preposterous an excerpt from [[Bob Woodward]]'s new book alleging [[Donald Trump|Trump]] laughed at [[City of Charlottesville|Charlottesville]] rally coverage and insulted [[Heather Heyer]].
+(01:20:20) Nicholas J. Fuentes dismissed as preposterous an excerpt from [[Bob Woodward]]'s new book alleging [[Donald Trump|Trump]] laughed at [[Charlottesville]] rally coverage and insulted [[Heather Heyer]].
 
 ### AF 2018-09-06 0234
 (01:22:20) Nicholas J. Fuentes, asked about the 1980s PMRC censorship effort led by [[Tipper Gore]], said he knew little about it but would prefer that to modern censorship which targets [[Christianity|Christians]] and traditional gender roles.
@@ -34549,13 +34549,13 @@
 (00:46:47) Nicholas J. Fuentes recommended Robert Caro's biography "The Path to Power," about President [[Lyndon B. Johnson]], as essential reading for understanding how power and personnel function in [[Washington D.C.|Washington, D.C.]].
 
 ### AF 2018-09-05 0233
-(00:50:23) Nicholas J. Fuentes cited the firing of [[Daryl Cooper|Darren Beattie]] from the [[Donald Trump]] administration after [[Warner Bros. Discovery|CNN]] reported his attendance at a conference with [[Richard Spencer]] as an example of competent [[Donald Trump|Trump]] loyalists being purged while NeverTrumpers remained.
+(00:50:23) Nicholas J. Fuentes cited the firing of [[Darren Beattie]] from the [[Donald Trump]] administration after [[Warner Bros. Discovery|CNN]] reported his attendance at a conference with [[Richard Spencer]] as an example of competent [[Donald Trump|Trump]] loyalists being purged while NeverTrumpers remained.
 
 ### AF 2018-09-05 0233
 (00:58:55) Nicholas J. Fuentes criticized [[The Daily Caller]] for disavowing writer [[Scott Greer]] after [[The Atlantic]] exposed his pseudonymous writings, contrasting it with the media's defense of [[Sarah Jeong]]'s anti-white tweets.
 
 ### AF 2018-09-05 0233
-(01:00:25) Nicholas J. Fuentes stated that every individual whose life intersected with [[Richard Spencer]], including [[Daryl Cooper|Darren Beattie]], [[Peter Brimelow]], [[Scott Greer]], and [[Eli Mosley]], had been worse off for it.
+(01:00:25) Nicholas J. Fuentes stated that every individual whose life intersected with [[Richard Spencer]], including [[Darren Beattie]], [[Peter Brimelow]], [[Scott Greer]], and [[Eli Mosley]], had been worse off for it.
 
 ### AF 2018-09-05 0233
 (01:01:20) Nicholas J. Fuentes argued that the primary issue facing [[black]] communities in the [[United States]] was the breakdown of the family, citing that over 70% of [[black]] children were born out of wedlock.
@@ -34615,7 +34615,7 @@
 (20:20:83) Nicholas J. Fuentes stated that entrenched interests in [[Washington D.C.|Washington, D.C.]], including the "[[Jewish lobby]]," the "[[Israel lobby]]," the military-industrial complex, and the deep [[state]], retaliate against change-makers like [[Richard Nixon]], [[Kennedy]], or [[Donald Trump]].
 
 ### AF 2018-08-31 0231
-(23:08:03) Nicholas J. Fuentes argued that areas like [[City of Miami|Miami]], [[Los Angeles]], [[Hartford]], and [[City of Chicago|Chicago]] no longer resemble [[United States|America]] due to ethnic enclaves and represent a future where meaningful assimilation is impossible.
+(23:08:03) Nicholas J. Fuentes argued that areas like [[Miami]], [[Los Angeles]], [[Hartford]], and [[Chicago]] no longer resemble [[United States|America]] due to ethnic enclaves and represent a future where meaningful assimilation is impossible.
 
 ### AF 2018-08-31 0231
 (25:01:53) Nicholas J. Fuentes argued that unlike historical waves of [[Europe|European]] immigration, current immigrants are not assimilating, and cited [[African Americans]] as a case study where 500 years of presence has not led to assimilation but rather increased distinction and rebellion against a white [[United States|American]] identity.
@@ -34672,7 +34672,7 @@
 (59:20:90) Nicholas J. Fuentes told the atheist caller that "people [[who]] are not religious should kill themselves," calling it the logical decision from his perspective.
 
 ### AF 2018-08-31 0231
-(01:00:48:46) Nicholas J. Fuentes countered the caller's support for [[universal]] healthcare by citing a budget estimate that [[Bernie Sanders]]' [[Health and Human Services|Medicare]] for All plan would cost $38 trillion over 10 years, compared to the $3 trillion cost of the [[Iraq]] War over 15 years.
+(01:00:48:46) Nicholas J. Fuentes countered the caller's support for [[universal]] healthcare by citing a budget estimate that [[Bernie Sanders]]' [[Medicare]] for All plan would cost $38 trillion over 10 years, compared to the $3 trillion cost of the [[Iraq]] War over 15 years.
 
 ### AF 2018-08-31 0231
 (01:02:24:66) Nicholas J. Fuentes argued that seizing all assets from the world's richest people, like [[Jeff Bezos]], would not come close to covering the $38 trillion cost of national healthcare over a decade.
@@ -34801,7 +34801,7 @@
 (00:31:58) Nicholas J. Fuentes stated he would cover the [[Catholic Church|Catholic]] abuse scandal in depth and was considering hosting a roundtable discussion with various [[Catholic Church|Catholic]] and Protestant voices from [[Twitter]].
 
 ### AF 2018-08-28 0228
-(00:32:41) Nicholas J. Fuentes referenced a recent scandal in the [[Commonwealth of Pennsylvania|Pennsylvania]] diocese of [[City of Philadelphia|Philadelphia]], where a grand jury report documented over a thousand cases of sexual abuse by 301 priests over 70 years.
+(00:32:41) Nicholas J. Fuentes referenced a recent scandal in the [[Commonwealth of Pennsylvania|Pennsylvania]] diocese of [[Philadelphia]], where a grand jury report documented over a thousand cases of sexual abuse by 301 priests over 70 years.
 
 ### AF 2018-08-28 0228
 (00:33:14) Nicholas J. Fuentes reported that an 11-[[page]] letter from Archbishop [[Carlo Maria Viganò]] alleged the cover-up of sexual abuse in the [[Vatican]] reached the highest levels, implicating [[Pope Francis]] in the case of former [[Washington D.C.|Washington]] Bishop [[Theodore McCarrick]].
@@ -34837,7 +34837,7 @@
 (00:58:56) Nicholas J. Fuentes recounted an incident at [[Boston University]] where a [[black]] [[Islam|Muslim]] woman in a hijab confronted and filmed him in a dining hall line, which he cited as an example of the unreasonableness he faced.
 
 ### AF 2018-08-28 0228
-(01:00:27) Nicholas J. Fuentes stated he left [[Boston University]] due to safety concerns following death threats after the [[City of Charlottesville|Charlottesville]] rally, though he had decided to leave prior to the event.
+(01:00:27) Nicholas J. Fuentes stated he left [[Boston University]] due to safety concerns following death threats after the [[Charlottesville]] rally, though he had decided to leave prior to the event.
 
 ### AF 2018-08-28 0228
 (01:01:14) Nicholas J. Fuentes announced plans to launch merchandise for his show, soliciting feedback from viewers on products like knives, mugs, and apparel.
@@ -34876,13 +34876,13 @@
 (00:15:58) Nicholas J. Fuentes disputed [[John McCain]]'s status as a war hero, stating he was shot down while bombing a civilian light bulb factory in [[Vietnam]], which Nicholas J. Fuentes characterized as a war crime.
 
 ### AF 2018-08-27 0227
-(00:25:13) From December 2017 until his death, [[John McCain]]'s absence from the [[Senate]] due to cancer treatment prevented [[Republican Party|Republicans]] from having a better majority, which Nicholas J. Fuentes characterized as an intentional act to hurt [[Donald Trump|the president]] and the [[Republican Party]].
+(00:25:13) From December 2017 until his death, [[John McCain]]'s absence from the [[Senate]] due to cancer treatment prevented [[Republican Party|Republicans]] from having a better majority, which Nicholas J. Fuentes characterized as an intentional act to hurt [[the president]] and the [[Republican Party]].
 
 ### AF 2018-08-27 0227
 (00:25:46) Nicholas J. Fuentes argued that society grants undue respect to figures like [[John McCain]] and media personalities like [[Anderson Cooper]] based on their titles, suits, and institutional affiliation rather than their merits.
 
 ### AF 2018-08-27 0227
-(00:27:44) Nicholas J. Fuentes attended the [[City of Charlottesville|Charlottesville]] rally to protest the removal of the [[Robert E. Lee]] monument.
+(00:27:44) Nicholas J. Fuentes attended the [[Charlottesville]] rally to protest the removal of the [[Robert E. Lee]] monument.
 
 ### AF 2018-08-27 0227
 (00:29:01) Nicholas J. Fuentes stated that [[Adolf Hitler]] took [[Germany]] from poverty and hyperinflation to one of the world's biggest economies prior to the war.
@@ -35095,7 +35095,7 @@
 (00:29:28) Nicholas J. Fuentes cited a [[Russia Today]] report that the [[African National Congress]] parliamentary caucus deleted a tweet calling white people "murderers" and stating land and resources should be shared without consultation.
 
 ### AF 2018-08-23 0225
-(00:33:52) Nicholas J. Fuentes read a tweet from [[Jared Holt]] stating that [[Tucker Carlson]] was responsible for "dropping explicit neo-Nazi white genocide propaganda into [[Donald Trump|the president's]] skull."
+(00:33:52) Nicholas J. Fuentes read a tweet from [[Jared Holt]] stating that [[Tucker Carlson]] was responsible for "dropping explicit neo-Nazi white genocide propaganda into [[the president's]] skull."
 
 ### AF 2018-08-23 0225
 (00:37:29) Nicholas J. Fuentes read a tweet from [[Jeff Flake]] criticizing [[Donald Trump|Trump's]] foreign policy by tweet, arguing that land reforms in [[South Africa]] had only been proposed, not adopted, and that there was "no large scale killing of farmers."
@@ -35224,7 +35224,7 @@
 (00:39:05) Nicholas J. Fuentes cited data indicating the rate of sexual abuse within the [[Catholic Church]] is no higher than in other large institutions like public schools or [[Los Angeles|Hollywood]].
 
 ### AF 2018-08-20 0222
-(00:41:58) An analysis of the [[City of Philadelphia|Philadelphia]] archdiocese abuse cases found that over 70% of incidents involved male priests and post-pubescent male victims, which Nicholas J. Fuentes characterized as a homosexual problem rather than a pedophilia problem.
+(00:41:58) An analysis of the [[Philadelphia]] archdiocese abuse cases found that over 70% of incidents involved male priests and post-pubescent male victims, which Nicholas J. Fuentes characterized as a homosexual problem rather than a pedophilia problem.
 
 ### AF 2018-08-20 0222
 (00:44:08) Nicholas J. Fuentes argued that to stop abuse in the [[Catholic Church]], the cause must be identified, pointing to data suggesting it is primarily a homosexual issue.
@@ -35251,7 +35251,7 @@
 (01:00:07) Nicholas J. Fuentes sarcastically questioned whether minorities would be benevolent to white people if they became a demographic majority, given historical grievances like slavery and colonialism.
 
 ### AF 2018-08-20 0222
-(01:01:01) Nicholas J. Fuentes criticized the desire to make [[United States|America]] resemble diverse areas like the [[Southern United States|South]] Side of [[City of Chicago|Chicago]] or [[Los Angeles]], arguing it ignores the societal problems in those regions.
+(01:01:01) Nicholas J. Fuentes criticized the desire to make [[United States|America]] resemble diverse areas like the [[Southern United States|South]] Side of [[Chicago]] or [[Los Angeles]], arguing it ignores the societal problems in those regions.
 
 ### AF 2018-08-20 0222
 (01:01:19) Nicholas J. Fuentes mocked the idea that millions of immigrants from "broken, backwards countries" would succeed in [[United States|America]] simply with more resources and opportunities.
@@ -35281,7 +35281,7 @@
 (01:18:45) Nicholas J. Fuentes identified the source of online harassment as followers of [[Patrick Little]] or [[Jason Kessler]], reacting to his criticism of them.
 
 ### AF 2018-08-20 0222
-(01:23:31) Nicholas J. Fuentes displayed content from *Badland Blues*, a dwarf erotica novel written by [[Jason Kessler]], the organizer of the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally, to mock his online critics.
+(01:23:31) Nicholas J. Fuentes displayed content from *Badland Blues*, a dwarf erotica novel written by [[Jason Kessler]], the organizer of the [[Charlottesville]] "Unite the Right" rally, to mock his online critics.
 
 ### AF 2018-08-20 0222
 (01:26:42) Nicholas J. Fuentes contrasted serious activists like Ricky Vaughn with figures like [[Jason Kessler]], [[Christopher Cantwell]], and [[Patrick Little]], whom he described as low-IQ losers or controlled opposition.
@@ -35497,7 +35497,7 @@
 (21:29:54) Nicholas J. Fuentes reported that [[Gavin McInnes]] and the [[Proud Boys]] leadership were completely suspended from [[Twitter]] without warning the previous week.
 
 ### AF 2018-08-16 0220
-(21:50:06) Nicholas J. Fuentes questioned where defenders of free speech like [[Alex Jones]] and [[Alex Jones|InfoWars]] were during the deplatforming of figures like [[Richard Spencer]] after the [[City of Charlottesville|Charlottesville rally]].
+(21:50:06) Nicholas J. Fuentes questioned where defenders of free speech like [[Alex Jones]] and [[Alex Jones|InfoWars]] were during the deplatforming of figures like [[Richard Spencer]] after the [[Charlottesville rally]].
 
 ### AF 2018-08-16 0220
 (23:33:32) Nicholas J. Fuentes detailed that [[Alex Jones]] was removed from [[Google|YouTube]], [[Apple Inc.|Apple]], [[Facebook]], [[Vimeo]], and other platforms, and that the [[Federal Communications Commission|FCC]] took down a pirate radio tower associated with him in [[State of Texas|Texas]].
@@ -35590,7 +35590,7 @@
 (00:36:45) Nicholas J. Fuentes noted that media outlets like the [[Washington Post]] and [[Vox]] acknowledged [[Antifa]] as the violent party at the Unite the Right 2.0 rally.
 
 ### AF 2018-08-14 0219
-(00:37:46) Nicholas J. Fuentes cited an official review which found that the [[City of Charlottesville|Charlottesville]] police were at fault for the violence at the first Unite the Right rally by standing down and pushing protesters into [[Antifa]] crowds.
+(00:37:46) Nicholas J. Fuentes cited an official review which found that the [[Charlottesville]] police were at fault for the violence at the first Unite the Right rally by standing down and pushing protesters into [[Antifa]] crowds.
 
 ### AF 2018-08-14 0219
 (00:38:39) Nicholas J. Fuentes stated that [[Jason Kessler]] approached him months earlier about Unite the Right 2.0, but he told him to "get away from me."
@@ -35626,7 +35626,7 @@
 (01:19:20) Nicholas J. Fuentes supported the streamer [[Ninja]]'s refusal to play video games with women to avoid marital temptation, comparing it to [[Mike Pence]]'s rule, and cited statistics showing a correlation between a woman's number of sexual partners and higher divorce rates.
 
 ### AF 2018-08-14 0219
-(01:23:20) Nicholas J. Fuentes shared anecdotes of his Italian great-grandfather in [[City of Chicago|Chicago]] making positive comments about 1930s fascist leaders, arguing that [[Italian Republic|Italians]] are "woke" and should be considered white.
+(01:23:20) Nicholas J. Fuentes shared anecdotes of his Italian great-grandfather in [[Chicago]] making positive comments about 1930s fascist leaders, arguing that [[Italian Republic|Italians]] are "woke" and should be considered white.
 
 ### AF 2018-08-14 0219
 (01:26:46) Nicholas J. Fuentes argued that [[Donald Trump]] theoretically has broad powers over immigration via the Immigration and Nationality Act but is obstructed by the courts from using them fully.
@@ -35635,7 +35635,7 @@
 (00:10:00) Nicholas J. Fuentes hosted a discussion with guest [[Ashton Witte]] on the censorship of [[Alex Jones]] and [[Alex Jones|InfoWars]].
 
 ### AF 2018-08-09 0218
-(00:14:00) Nicholas J. Fuentes noted that [[Ashton Witte]] had previously appeared on streams with [[James Allsup|James Alsup]] and was assisted by [[Jake Lloyd]] in [[City of Portland|Portland]].
+(00:14:00) Nicholas J. Fuentes noted that [[Ashton Witte]] had previously appeared on streams with [[James Allsup|James Alsup]] and was assisted by [[Jake Lloyd]] in [[Portland]].
 
 ### AF 2018-08-09 0218
 (02:14:00) Nicholas J. Fuentes stated he is a huge fan of [[Alex Jones]] and a supporter of the [[Concept|First Amendment]].
@@ -35683,7 +35683,7 @@
 (28:32:00) Nicholas J. Fuentes stated that [[Jake Lloyd]] was smeared as a white nationalist and Nazi by [[Right Wing Watch]] for hosting him and [[Faith Goldie]] on his show.
 
 ### AF 2018-08-09 0218
-(28:52:00) Nicholas J. Fuentes argued that the 2017 [[City of Charlottesville|Charlottesville]] rally, with its Nazi flags, set back the core message of preserving [[United States|American]] culture and identity.
+(28:52:00) Nicholas J. Fuentes argued that the 2017 [[Charlottesville]] rally, with its Nazi flags, set back the core message of preserving [[United States|American]] culture and identity.
 
 ### AF 2018-08-09 0218
 (29:22:00) Nicholas J. Fuentes defended [[Laura Ingraham]] from media comparisons to [[David Duke]] and [[Richard Spencer]] after she criticized both illegal and legal immigration systems.
@@ -36013,7 +36013,7 @@
 (00:10:00) [[Patrick Casey]] is the leader of [[American Identity Movement|Identity Europa]] and a personal friend of Nicholas J. Fuentes.
 
 ### AF 2018-08-02 0213
-(15:04:00) Nicholas J. Fuentes argued that while the [[City of Charlottesville|Charlottesville]] [[city]] council abridged constitutional rights, announcing a public rally [[time]] and location was not the best tactical choice.
+(15:04:00) Nicholas J. Fuentes argued that while the [[Charlottesville]] [[city]] council abridged constitutional rights, announcing a public rally [[time]] and location was not the best tactical choice.
 
 ### AF 2018-08-02 0213
 (15:49:00) Nicholas J. Fuentes praised the activism model of [[American Identity Movement|Identity Europa]], [[Generation Identity]], and other groups for being controlled, member-vetted, and clean.
@@ -36085,7 +36085,7 @@
 (01:22:170) Nicholas J. Fuentes posited that by 2050, elite planners aimed to create a socially engineered, atomized population of workers with little capacity for mass political [[organization]], effectively a "slave class" to serve corporate and globalist interests.
 
 ### AF 2018-08-01 0212
-(01:22:170) Nicholas J. Fuentes presented [[Viktor Orbán]]'s five tenets for Central [[Europe]] as a nationalist alternative to globalism, which included defending [[Christianity|Christian]] culture, rejecting multiculturalism, protecting the traditional family, defending strategic economic sectors, rejecting immigration, and insisting on national sovereignty within the [[Europe|European Union]].
+(01:22:170) Nicholas J. Fuentes presented [[Viktor Orbán]]'s five tenets for Central [[Europe]] as a nationalist alternative to globalism, which included defending [[Christianity|Christian]] culture, rejecting multiculturalism, protecting the traditional family, defending strategic economic sectors, rejecting immigration, and insisting on national sovereignty within the [[European Union]].
 
 ### AF 2018-08-01 0212
 (01:22:170) Nicholas J. Fuentes cited [[Israel]]'s Nation-[[State of Illinois|State]] Law, passed under [[Benjamin Netanyahu|Bibi Netanyahu]], as a practical example of enshrining ethnic and cultural identity into law, declaring [[Israel]] the nation-[[state]] of the [[Jews|Jewish people]], establishing [[Hebrew]] as the official language, and promoting [[Jews|Jewish]] settlement as a national value.
@@ -36463,7 +36463,7 @@
 (00:35:00) Nicholas J. Fuentes scheduled interviews with [[Mr. Mediker]] for Wednesday, [[Ali Akbar]] for Thursday, and [[Mike Ma]] for Friday to discuss [[Mike Ma]]'s recent suspension from [[Twitter]] and the book *The Bronze Age Mindset*.
 
 ### AF 2018-07-24 0206
-(01:25:00) Nicholas J. Fuentes cited the case of an engineer [[who]] attended the [[City of Charlottesville|Charlottesville rally]] and later died by suicide after media harassment, and the case of [[Millennial Matt]] [[who]] was doxed on [[Warner Bros. Discovery|CNN]] and fled to [[State of Japan|Japan]], as examples of severe consequences for political speech.
+(01:25:00) Nicholas J. Fuentes cited the case of an engineer [[who]] attended the [[Charlottesville rally]] and later died by suicide after media harassment, and the case of [[Millennial Matt]] [[who]] was doxed on [[Warner Bros. Discovery|CNN]] and fled to [[State of Japan|Japan]], as examples of severe consequences for political speech.
 
 ### AF 2018-07-24 0206
 (01:45:00) Nicholas J. Fuentes argued that figures like [[Ben Shapiro]] and institutions like [[National Review]] represent a class of people [[who]] claim to be conservative but support mass immigration and international capitalism, which he views as antithetical to traditional conservatism.
@@ -36484,7 +36484,7 @@
 (04:25:00) Nicholas J. Fuentes was scheduled to debate anarcho-capitalist [[Adam Kokish]] on the Chadcast podcast hosted by [[Alfonso Drill]].
 
 ### AF 2018-07-24 0206
-(04:45:00) The [[city]] of [[City of Chicago|Chicago]] created a municipal identification card usable for public services and welfare, which Nicholas J. Fuentes stated did not require proof of citizenship.
+(04:45:00) The [[city]] of [[Chicago]] created a municipal identification card usable for public services and welfare, which Nicholas J. Fuentes stated did not require proof of citizenship.
 
 ### AF 2018-07-24 0206
 (05:05:00) Nicholas J. Fuentes recommended *[[American Conservative Magazine|The American Conservative]]* magazine as a source for what he described as a renaissance of classical, traditionalist conservatism in the tradition of [[Russell Kirk]].
@@ -36508,7 +36508,7 @@
 (07:25:00) Journalist [[Jared Holt]] wrote an article stating Nicholas J. Fuentes declined to affirm whether he believed the [[United States Holocaust Memorial Museum|Holocaust]] happened during a livestream with [[Patrick Little]]; Fuentes called this a smear and stated he "would never deny it."
 
 ### AF 2018-07-24 0206
-(07:45:00) Nicholas J. Fuentes's favorite WWE superstars from his childhood included [[John Cena]], [[The Undertaker]], [[Randy Orton]], and [[Chris Jericho]], and he recalled attending a live event in [[City of Chicago|Chicago]] where [[Triple H]] gave an elbow pad to a nearby child.
+(07:45:00) Nicholas J. Fuentes's favorite WWE superstars from his childhood included [[John Cena]], [[The Undertaker]], [[Randy Orton]], and [[Chris Jericho]], and he recalled attending a live event in [[Chicago]] where [[Triple H]] gave an elbow pad to a nearby child.
 
 ### AF 2018-07-23 0205
 (00:06:42) Nicholas J. Fuentes announced a social media campaign using the hashtag #PapaJohnDidNothingWrong to support [[Papa John]] after he was forced to resign as chairman of [[Papa John (Note: This is a judgment call. "Papa John" (Person) is the founder, "Papa John's" (Organization) is the company. They are distinct but closely related. Per the strict rule, they are NOT aliases of the same entity. They are listed separately in TYPES.)|Papa John's]] over an unsubstantiated rumor about his use of a racial slur during a private conference call.
@@ -36637,7 +36637,7 @@
 (00:48:17) Nicholas J. Fuentes argued that the societies currently thriving and re-embracing tradition, like those in [[Europe|Eastern Europe]] and Asia, contrast with collapsing, anarchic Western [[Europe|European]] nations struggling with mass immigration.
 
 ### AF 2018-07-20 0204
-(00:49:21) [[David Sherratt]], [[who]] is from [[United Kingdom|England]], challenged Nicholas J. Fuentes's criticism of [[Europe]] as dangerous, noting Nicholas J. Fuentes had never been to [[City of London|London]].
+(00:49:21) [[David Sherratt]], [[who]] is from [[United Kingdom|England]], challenged Nicholas J. Fuentes's criticism of [[Europe]] as dangerous, noting Nicholas J. Fuentes had never been to [[London]].
 
 ### AF 2018-07-20 0204
 (00:49:44) Nicholas J. Fuentes defended his characterization by referencing mass sexual assaults in [[Cologne]] and terrorist attacks at concerts as evidence of danger in [[Europe]].
@@ -36724,7 +36724,7 @@
 (00:09:03) Nicholas J. Fuentes argued that figures like [[Milo Yiannopoulos]] and [[Ben Shapiro]] achieved prominence through financial backing from billionaire families like the [[Mercer family]].
 
 ### AF 2018-07-17 0202
-(00:09:29) Nicholas J. Fuentes stated that [[Milo Yiannopoulos]]'s career was launched after he became friends with [[Steven Crowder|Steve Bannon]] and received funding from the [[Mercer family]].
+(00:09:29) Nicholas J. Fuentes stated that [[Milo Yiannopoulos]]'s career was launched after he became friends with [[Steve Bannon]] and received funding from the [[Mercer family]].
 
 ### AF 2018-07-17 0202
 (00:09:37) Nicholas J. Fuentes claimed [[Ben Shapiro]]'s career was similarly boosted by his father's connections and later by [[State of Texas|Texas]]-based billionaire backers [[who]] own [[The Daily Wire]].
@@ -36793,7 +36793,7 @@
 (00:20:31) Nicholas J. Fuentes speculated that [[Kassy Dillon|Cassie Dillon]] was moving to [[Los Angeles]] to work with [[The Daily Wire]], despite what he perceived as [[Ben Shapiro]]'s reluctance to give her a show due to her poor performance.
 
 ### AF 2018-07-17 0202
-(00:21:26) Nicholas J. Fuentes recounted that [[Milo Yiannopoulos]] invited him for an interview in [[City of Miami|Miami]] but canceled it after Nicholas J. Fuentes had already landed, which he interpreted as a sign that he was "too controversial for Milo."
+(00:21:26) Nicholas J. Fuentes recounted that [[Milo Yiannopoulos]] invited him for an interview in [[Miami]] but canceled it after Nicholas J. Fuentes had already landed, which he interpreted as a sign that he was "too controversial for Milo."
 
 ### AF 2018-07-17 0202
 (00:22:12) Nicholas J. Fuentes stated he was now friends with many of [[Milo Yiannopoulos]]'s former associates, such as [[Timothy Gionet|Baked Alaska]], while others worked at [[Breitbart News|Breitbart]].
@@ -36931,7 +36931,7 @@
 (00:04:34) Nicholas J. Fuentes previously hosted his show on [[Right Side Broadcasting Network|RSBN]] from February to April and again from May until August of the previous year.
 
 ### AF 2018-07-13 0200
-(00:04:54) Nicholas J. Fuentes's show on [[Right Side Broadcasting Network|RSBN]] was canceled after the [[City of Charlottesville|Charlottesville rally]], resulting in an amicable split after approximately 50 episodes.
+(00:04:54) Nicholas J. Fuentes's show on [[Right Side Broadcasting Network|RSBN]] was canceled after the [[Charlottesville rally]], resulting in an amicable split after approximately 50 episodes.
 
 ### AF 2018-07-13 0200
 (00:10:31) Nicholas J. Fuentes argued that [[Donald Trump]]'s political success tapped into a widespread public sentiment that [[United States|America]] had lost its former greatness and aesthetic soul.
@@ -37009,7 +37009,7 @@
 (01:08:09) Nicholas J. Fuentes stated he had met [[Ali Stuckey]] in [[person]] at [[Conservative Political Action Conference|CPAC]] and found her to be nicer than others he had criticized, though he still considered her unintelligent.
 
 ### AF 2018-07-13 0200
-(01:09:50) Nicholas J. Fuentes recounted a dream where he apologized to his pro-[[Gaza Strip|Palestine]] high school [[United Nations|Model UN]] advisor and saw [[Kassy Dillon|Cassie Dillon]], following his commentary on her debate about [[Israel]].
+(01:09:50) Nicholas J. Fuentes recounted a dream where he apologized to his pro-[[Palestine]] high school [[United Nations|Model UN]] advisor and saw [[Kassy Dillon|Cassie Dillon]], following his commentary on her debate about [[Israel]].
 
 ### AF 2018-07-13 0200
 (01:10:34) Nicholas J. Fuentes agreed with [[Patrick Little]]'s factual case against [[Israel]] but lamented that his rhetoric about "[[Jews|Jewish]] media" undermined an otherwise effective argument centered on the USS Liberty attack.
@@ -37021,7 +37021,7 @@
 (01:14:55) The caller and Nicholas J. Fuentes joked about the high cost of the [[Donald Trump|Trump]] baby balloon, with Nicholas J. Fuentes noting it cost 30,000 [[United Kingdom|British]] pounds, which the caller claimed should have cost only a hundred.
 
 ### AF 2018-07-13 0200
-(01:15:18) The caller expressed pessimism about [[Brexit]], stating that free movement of people was the one non-negotiable issue for the [[Europe|European Union]], which Nicholas J. Fuentes suggested was indicative of broader problems.
+(01:15:18) The caller expressed pessimism about [[Brexit]], stating that free movement of people was the one non-negotiable issue for the [[European Union]], which Nicholas J. Fuentes suggested was indicative of broader problems.
 
 ### AF 2018-07-13 0200
 (01:15:53) Nicholas J. Fuentes stated that [[Donald Trump]] was the only politician [[who]] seemed to care about saving [[Europe]], while the caller lamented that the [[United Kingdom]] and [[Germany]] were led by women.
@@ -37096,7 +37096,7 @@
 (01:53:24) Nicholas J. Fuentes criticized spending $700 billion on the military while leaving the southern border effectively open, comparing it to buying a large gun arsenal but leaving one's front door open.
 
 ### AF 2018-07-12 0199
-(01:54:08) Nicholas J. Fuentes noted that [[China]] was forging economic relationships and trade deals with [[Germany]] and other [[Europe|European Union]] countries as a hedge against the [[United States]].
+(01:54:08) Nicholas J. Fuentes noted that [[China]] was forging economic relationships and trade deals with [[Germany]] and other [[European Union]] countries as a hedge against the [[United States]].
 
 ### AF 2018-07-12 0199
 (01:54:44) Nicholas J. Fuentes dismissed the QAnon phenomenon as a fringe belief unlikely to have political repercussions, stating that most people, including his parents, were unaware of it.
@@ -37129,7 +37129,7 @@
 (02:07:03) Nicholas J. Fuentes reflected that dealing with a mass audience revealed that the average IQ is 100, meaning half the population is at or below that level, which changes how one views public interactions.
 
 ### AF 2018-07-12 0199
-(02:08:04) Nicholas J. Fuentes claimed that over the past year, since the [[City of Charlottesville|Charlottesville]] rally, he had been the most influential figure in the dissident right, successfully bridging gaps between the "alt-light" and the establishment.
+(02:08:04) Nicholas J. Fuentes claimed that over the past year, since the [[Charlottesville]] rally, he had been the most influential figure in the dissident right, successfully bridging gaps between the "alt-light" and the establishment.
 
 ### AF 2018-07-12 0199
 (02:10:46) Nicholas J. Fuentes pointed to [[American Identity Movement|Identity Evropa]]'s activism using [[United States|American]] flags and the slogan "Make [[United States|America]] Beautiful Again" as an example of his "optics" strategy being adopted by others in the movement.
@@ -37201,7 +37201,7 @@
 (07:08:44) Nicholas J. Fuentes played a two-minute video clip of [[Donald Trump]] addressing [[North Atlantic Treaty Organization|NATO]] leaders.
 
 ### AF 2018-07-11 0198
-(25:09:66) The [[Europe|European Union]] had a $150 billion trade surplus with the [[United States]], which Nicholas J. Fuentes characterized as the [[EU]] ripping off the [[United States|U.S]].
+(25:09:66) The [[European Union]] had a $150 billion trade surplus with the [[United States]], which Nicholas J. Fuentes characterized as the [[EU]] ripping off the [[United States|U.S]].
 
 ### AF 2018-07-10 0197
 (00:05:32) Nicholas J. Fuentes announced the show's topics would include the [[Supreme Court of the United States|Supreme Court]] confirmation process for [[Brett Kavanaugh]], abortion, the Unmasking [[Antifa]] Act of 2018, and trips by [[Donald Trump]] and [[Michael Pompeo|Mike Pompeo]].
@@ -37270,7 +37270,7 @@
 (00:25:16) Nicholas J. Fuentes argued that a [[Supreme Court of the United States|Supreme Court]] with a restrictionist stance on immigration was crucial for upholding future presidential actions on border security and processing.
 
 ### AF 2018-07-09 0196
-(00:26:03) Nicholas J. Fuentes cited the refugee ban cases as examples where district and circuit court judges acted as a "one-man veto" against [[Donald Trump|the president's]] immigration authority.
+(00:26:03) Nicholas J. Fuentes cited the refugee ban cases as examples where district and circuit court judges acted as a "one-man veto" against [[the president's]] immigration authority.
 
 ### AF 2018-07-09 0196
 (00:29:29) Nicholas J. Fuentes mocked the [[state]] of right-wing discourse being represented by debates between [[Ben Shapiro]] and "some blonde airhead."
@@ -37645,7 +37645,7 @@
 (45:36:85) Nicholas J. Fuentes suggested the timing of the [[Annapolis]] newspaper shooting was suspicious, occurring as liberal media narratives on the [[Supreme Court of the United States|Supreme Court]] and the [[Mueller]] investigation were losing traction.
 
 ### AF 2018-06-29 0191
-(47:07:29) Nicholas J. Fuentes, referencing [[G.K. Chesterton|C.S. Lewis]]'s *Mere [[Christianity]]*, explained the coexistence of God's plan and human free will by describing God as a fourth-dimensional being present in all times simultaneously.
+(47:07:29) Nicholas J. Fuentes, referencing [[C.S. Lewis]]'s *Mere [[Christianity]]*, explained the coexistence of God's plan and human free will by describing God as a fourth-dimensional being present in all times simultaneously.
 
 ### AF 2018-06-29 0191
 (50:41:63) Nicholas J. Fuentes recommended the works of [[G.K. Chesterton|G. K. Chesterton]] and [[Fulton Sheen]] for those interested in [[Catholic Church|Catholic]] theology.
@@ -37705,7 +37705,7 @@
 (01:51:01) Nicholas J. Fuentes argued the media's constant portrayal of [[Donald Trump]] as an illegitimate [[Adolf Hitler|Hitler]]-like figure contributed to political violence against figures like [[Steve Scalise]] and [[Ron Paul|Rand Paul]].
 
 ### AF 2018-06-28 0190
-(01:52:04) Nicholas J. Fuentes highlighted the hypocrisy of media figures [[who]] dismissed conspiracy theories about shootings like [[City of Parkland|Parkland]] while promoting the [[Christopher Steele|Steele dossier]] allegation that [[Donald Trump]] engaged with prostitutes in [[City of Moscow|Moscow]].
+(01:52:04) Nicholas J. Fuentes highlighted the hypocrisy of media figures [[who]] dismissed conspiracy theories about shootings like [[Parkland]] while promoting the [[Christopher Steele|Steele dossier]] allegation that [[Donald Trump]] engaged with prostitutes in [[Moscow]].
 
 ### AF 2018-06-28 0190
 (01:53:09) Nicholas J. Fuentes referenced the short story *Harrison Bergeron* to describe a society where people are mentally broken to accept contradictory narratives from authorities.
@@ -37732,7 +37732,7 @@
 (01:58:44) Nicholas J. Fuentes stated that given a choice between the "pro-amnesty, pro-abortion" [[Bruce Rauner]] and the "[[Jews|Jewish]] billionaire" [[J.B. Pritzker]], he voted for [[Jeannie Ives]].
 
 ### AF 2018-06-28 0190
-(01:00:48) Nicholas J. Fuentes questioned the coincidence of the [[City of Parkland|Parkland]] shooter planning an attack on the same day as a major drill when police presence would be highest.
+(01:00:48) Nicholas J. Fuentes questioned the coincidence of the [[Parkland]] shooter planning an attack on the same day as a major drill when police presence would be highest.
 
 ### AF 2018-06-28 0190
 (01:01:26) Nicholas J. Fuentes sarcastically stated that journalists are "braver than anybody I've ever met" while they write stories from their "shoebox apartments in [[City|Manhattan]]."
@@ -37741,7 +37741,7 @@
 (01:02:00) A viewer referenced the shooting at a [[Dallas]] protest where a [[Black Lives Matter]] supporter killed five police officers, an event Nicholas J. Fuentes said was not covered extensively by the media.
 
 ### AF 2018-06-28 0190
-(01:02:16) Nicholas J. Fuentes compared the lack of blame placed on [[Black Lives Matter]] for the [[Dallas]] police shootings to the collective blame placed on the right after the [[City of Charlottesville|Charlottesville]] rally.
+(01:02:16) Nicholas J. Fuentes compared the lack of blame placed on [[Black Lives Matter]] for the [[Dallas]] police shootings to the collective blame placed on the right after the [[Charlottesville]] rally.
 
 ### AF 2018-06-28 0190
 (01:03:04) Nicholas J. Fuentes stated that [[Samuel J. Hyde|Sam Hyde]] said he would commit a "mass casualty event" if necessary to defend his life.
@@ -37954,7 +37954,7 @@
 (00:43:04) Nicholas J. Fuentes criticized [[Greg Johnson]] for an article suggesting that without [[Jews|Jewish]] influence, Aryan people would embrace pansexuality and pederasty, distancing himself from such views.
 
 ### AF 2018-06-25 0187
-(00:46:44) Nicholas J. Fuentes accused [[Jack Posobiec]] of being a fraud, citing an incident at [[Conservative Political Action Conference|CPAC]] where [[Jack Posobiec|Posobiec]] pretended not to know him after trolling his live chat, and of stealing a scoop from [[Laura Loomer]] about the [[City of Las Vegas|Las Vegas]] case.
+(00:46:44) Nicholas J. Fuentes accused [[Jack Posobiec]] of being a fraud, citing an incident at [[Conservative Political Action Conference|CPAC]] where [[Jack Posobiec|Posobiec]] pretended not to know him after trolling his live chat, and of stealing a scoop from [[Laura Loomer]] about the [[Las Vegas]] case.
 
 ### AF 2018-06-25 0187
 (00:47:40) Nicholas J. Fuentes stated that [[Charlie Kirk]] was "not a good guy" and implicated him among other figures in the conservative establishment [[who]] were "not good people."
@@ -38008,7 +38008,7 @@
 (00:00:00) Nicholas J. Fuentes welcomed [[Faith Goldy]] to the program for her first appearance on the show.
 
 ### AF 2018-06-21 0185
-(00:01:54) Nicholas J. Fuentes identified the "[[City of Charlottesville|Charlottesville]] coalition" as including himself, [[Faith Goldy]], [[Millennial Matt]], [[Timothy Gionet|Baked Alaska]], and [[James Bryden]].
+(00:01:54) Nicholas J. Fuentes identified the "[[Charlottesville]] coalition" as including himself, [[Faith Goldy]], [[Millennial Matt]], [[Timothy Gionet|Baked Alaska]], and [[James Bryden]].
 
 ### AF 2018-06-21 0185
 (00:05:09) [[Faith Goldy]] stated she had watched Nicholas J. Fuentes's interview with [[Patrick Little]] and believed Nicholas J. Fuentes had won the debate.
@@ -38125,7 +38125,7 @@
 (01:00:00) Nicholas J. Fuentes stated that a new episode of "[[United States|America]] First World Report" had been uploaded to the premium [[page]], focusing on the history of denuclearization in [[South Africa]], [[Ukraine]], [[Libya]], [[Belarus]], and [[Kazakhstan]].
 
 ### AF 2018-06-18 0182
-(00:13:42) Nicholas J. Fuentes announced that [[Laura Loomer]] would appear on his show that evening to discuss the October 1, 2017 mass shooting in [[City of Las Vegas|Las Vegas]].
+(00:13:42) Nicholas J. Fuentes announced that [[Laura Loomer]] would appear on his show that evening to discuss the October 1, 2017 mass shooting in [[Las Vegas]].
 
 ### AF 2018-06-18 0182
 (00:32:72) Nicholas J. Fuentes announced that [[Jared Taylor]] would appear on his show on Wednesday to discuss his lawsuit against [[Twitter]] over the suspension of his account and the [[American Renaissance]] [[organization]]'s account in December 2017.
@@ -38134,7 +38134,7 @@
 (00:44:04) Nicholas J. Fuentes announced that [[Faith Goldy]] would appear on his show on Thursday to discuss [[Catholic Church|Catholicism]] and related themes.
 
 ### AF 2018-06-18 0182
-(00:51:52) Nicholas J. Fuentes announced that [[Laura Loomer]] would appear on his show at 7:30 PM to discuss the [[City of Las Vegas|Las Vegas]] shooting investigation.
+(00:51:52) Nicholas J. Fuentes announced that [[Laura Loomer]] would appear on his show at 7:30 PM to discuss the [[Las Vegas]] shooting investigation.
 
 ### AF 2018-06-18 0182
 (12:15:58) Nicholas J. Fuentes argued that a war with [[North Korea]] would have resulted in tens of millions of casualties in [[South Korea]], [[State of Japan|Japan]], and potentially [[China]].
@@ -38221,7 +38221,7 @@
 (01:03:11) Nicholas J. Fuentes stated a preference for a [[Donald Trump|Trump]] dictatorship over the existing [[United States|American]] political system, citing the need for a figure like [[Francisco Franco]] or [[Augusto Pinochet]] to restore order.
 
 ### AF 2018-06-01 0176
-(00:04:06) [[Donald Trump|Trump]] canceled a planned summit with [[North Korea]] one week prior, citing a souring of relations. (00:06:09) [[North Korea]] adopted a conciliatory tone towards [[Donald Trump|Trump]] following the cancellation, calling him a bold leader and expressing a desire to negotiate. (00:06:20) [[Donald Trump|Trump]] met with [[North Korea|North Korean]] envoy [[Kim Yong-chol]] for 80 minutes, during which he received a letter from [[Kim Jong Un|Kim Jong-un]]. (00:06:48) [[Donald Trump|Trump]] announced the summit with [[North Korea]] was back on for June 12th in [[Singapore]], following the meeting with [[Kim Yong-chol]]. (00:07:10) [[Donald Trump|Trump]] stated both the [[United States]] and [[North Korea]] were moving towards denuclearization, a position [[North Korea]] had reiterated. (00:08:14) The Goodlatte bill proposed a DACA amnesty in exchange for funding for a border wall, an end to chain migration, and an end to the diversity visa lottery system. (00:10:14) A narrative suggested [[John Bolton]] controlled [[Donald Trump|Trump]]'s foreign policy and had ruined [[North Korea]] negotiations by invoking the [[Libya]] model. (00:13:04) Unemployment in the [[United States]] reached 3.8%, its lowest level in 18 years, while wages rose 2.7%. (00:14:24) A major problem with immigration is that it drives down wages by increasing the labor supply, according to an economic argument. (00:15:33) A booming economy, deregulation, lower taxes, and reduced immigration contributed to rising wages and low unemployment. (00:16:15) The [[United States]] economy saw a net increase of 223,000 jobs. (00:17:32) [[Donald Trump|Trump]]'s ability to maneuver on immigration was restricted by [[Congress]] refusing to appropriate money for a border wall and courts tying up his executive orders. (00:18:38) A strong economy in 2018 was seen as suppressing a [[Democratic Party|Democratic]] "blue wave" and encouraging [[Republican Party|Republican]] turnout in the midterm elections. (00:19:14) Nicholas J. Fuentes announced a special guest, Jason "[[Party Goy]]," would join to discuss [[Kanye West]]'s new album "[[Kanye West|Ye]]." (00:25:01) [[Patrick Little]]'s 2018 [[Senate]] campaign in [[State of California|California]] focused on issues like [[Jews|Jewish]] supremacy and the [[USS Liberty]] incident. (00:25:59) [[Ben Shapiro]] argued that suggesting a [[Jews|Jew]] has dual loyalty is anti-Semitic, during an early [[Twitter]] argument with Nicholas J. Fuentes. (00:28:30) [[Paul Nehlen]]'s public statements on controversial issues created baggage for others attempting to discuss similar topics, according to Nicholas J. Fuentes. (00:29:00) The "Unite the Right" rally in [[City of Charlottesville|Charlottesville]] made it more difficult to convert people to dissident right-wing views, according to Nicholas J. Fuentes. (00:29:41) Figures like [[Milo Yiannopoulos]] and [[Mike Cernovich]] being labeled "alt-right" allowed dissident views to spread under the radar like a "Trojan horse." (00:30:14) [[Paul Nehlen]] performed poorly in an interview with [[John Cardillo]], appearing unprepared on basic questions about his views. (00:32:02) Guest Jason "[[Party Goy]]" identified as a conservative [[who]] agreed with Nicholas J. Fuentes on most issues. (00:32:28) [[Kanye West]] streamed his new album "[[Kanye West|Ye]]" via a listening party in [[Wyoming]] on an app called Wave, attended by journalists, celebrities, and featured artists. (00:33:17) Guest Jason "[[Party Goy]]" stated [[Kanye West]]'s album "[[Kanye West|Ye]]" embodied a "classic, but current" feeling and improved with repeated listens. (00:34:08) Nicholas J. Fuentes's initial reaction to "[[Kanye West|Ye]]" was positive, then negative, before ultimately concluding the album was "epic" after multiple listens. (00:35:56) Guest Jason "[[Party Goy]]]] characterized "[[Kanye West|Ye]]" as a mix between [[Kanye West]]'s albums "Yeezus" and "My Beautiful Dark Twisted Fantasy." (00:36:46) [[Kanye West]]'s "old" sound from his first three albums involved sampling sped-up soul songs, distinct from the sound on "[[Kanye West|Ye]]." (00:37:18) [[Kanye West]]'s music took a negative and depressing turn after the death of his mother, with "[[Kanye West|Ye]]" representing a return to a more joyful tone. (00:39:06) Nicholas J. Fuentes proposed that [[Kanye West]]'s albums "Yeezus," "Life of Pablo," and "[[Kanye West|Ye]]" formed a new triumvirate similar to his first three albums. (00:39:48) [[Kanye West]]'s album "[[Kanye West|Ye]]" consisted of seven songs totaling 23 minutes, a concise format with [[little]] filler compared to "Life of Pablo." (00:40:44) [[Kanye West]]'s album "Life of Pablo" had a sloppy, delayed release with changing details, while "[[Kanye West|Ye]]" was seen as crisp and professionally mastered. (00:42:19) [[Kanye West]]'s personal life, including having children with [[Kim Kardashian]], contributed to a matured and happier sound on "[[Kanye West|Ye]]." (00:44:11) [[Kanye West]]'s support for [[Donald Trump|Trump]] did not prevent his album "[[Kanye West|Ye]]" from receiving largely positive critical reviews. (00:45:51) [[Pusha T]] had rumored that [[Kanye West]]'s album would be super political, but "[[Kanye West|Ye]]" contained minimal overt political content beyond a mention of [[Donald Trump|MAGA]] hats. (00:46:59) [[Kanye West]]'s album "[[Kanye West|Ye]]" had a low-key release without a major [[ad]] campaign, which Nicholas J. Fuentes saw as evidence of his genuineness. (00:48:25) The song "I Thought About Killing You" on "[[Kanye West|Ye]]" explores dark thoughts, with [[Kanye West]] stating "the brightest thoughts are often next to the darkest thoughts." (00:50:51) [[Kim Kardashian]] consistently defended [[Kanye West]] against critics like [[Taylor Swift]] and in media appearances, demonstrating loyalty. (00:52:29) Nicholas J. Fuentes argued that artists like [[Kanye West]] have an obligation to explore ideas beyond spousal approval, similar to politicians. (00:54:51) Guest Jason "[[Party Goy]]]] ranked [[Kanye West]]'s top three albums as "College Dropout," "Late Registration," and "Graduation." (00:55:53) Nicholas J. Fuentes ranked [[Kanye West]]'s top three albums as "Graduation," "My Beautiful Dark Twisted Fantasy," and "Yeezus." (00:57:35) Nicholas J. Fuentes considered the songs "Paranoid" and "Streetlights" on [[Kanye West]]'s "808s & Heartbreak" to be severely underrated. (00:59:10) Guest Jason "[[Party Goy]]]] stated he autistically listens to the same songs, like [[Steven Crowder|Steve]] Winwood's "Higher Love," repeatedly due to specific chord progressions. (01:00:45) Music critic [[Anthony Fauci|Anthony]] Fantano ("The Needle Drop") blocked Nicholas J. Fuentes on [[Twitter]], likely due to political differences. (01:01:07) Nicholas J. Fuentes expressed disappointment that figures he admires, like [[Samuel J. Hyde|Sam Hyde]], do not reciprocate his appreciation for their work. (01:01:30) Rapper [[Vic Mensa]] tweeted a negative response calling Nicholas J. Fuentes a "white nationalist," despite Nicholas J. Fuentes regularly listening to his music. (01:02:50) Nicholas J. Fuentes described driving through the [[Southern United States|South]] Side of [[City of Chicago|Chicago]] as akin to a war zone, feeling unsafe when lost and low on gas. (01:04:29) Guest Jason "[[Party Goy]]]] offered to produce trap music for Nicholas J. Fuentes if he wanted to start a music career. (01:05:00) Nicholas J. Fuentes played the euphonium in high school marching band, memorizing fingerings without deeply learning music theory. (01:06:50) Nicholas J. Fuentes announced he would take a vacation from his show the week of June 11th-15th to work on new projects in seclusion.
+(00:04:06) [[Donald Trump|Trump]] canceled a planned summit with [[North Korea]] one week prior, citing a souring of relations. (00:06:09) [[North Korea]] adopted a conciliatory tone towards [[Donald Trump|Trump]] following the cancellation, calling him a bold leader and expressing a desire to negotiate. (00:06:20) [[Donald Trump|Trump]] met with [[North Korea|North Korean]] envoy [[Kim Yong-chol]] for 80 minutes, during which he received a letter from [[Kim Jong Un|Kim Jong-un]]. (00:06:48) [[Donald Trump|Trump]] announced the summit with [[North Korea]] was back on for June 12th in [[Singapore]], following the meeting with [[Kim Yong-chol]]. (00:07:10) [[Donald Trump|Trump]] stated both the [[United States]] and [[North Korea]] were moving towards denuclearization, a position [[North Korea]] had reiterated. (00:08:14) The Goodlatte bill proposed a DACA amnesty in exchange for funding for a border wall, an end to chain migration, and an end to the diversity visa lottery system. (00:10:14) A narrative suggested [[John Bolton]] controlled [[Donald Trump|Trump]]'s foreign policy and had ruined [[North Korea]] negotiations by invoking the [[Libya]] model. (00:13:04) Unemployment in the [[United States]] reached 3.8%, its lowest level in 18 years, while wages rose 2.7%. (00:14:24) A major problem with immigration is that it drives down wages by increasing the labor supply, according to an economic argument. (00:15:33) A booming economy, deregulation, lower taxes, and reduced immigration contributed to rising wages and low unemployment. (00:16:15) The [[United States]] economy saw a net increase of 223,000 jobs. (00:17:32) [[Donald Trump|Trump]]'s ability to maneuver on immigration was restricted by [[Congress]] refusing to appropriate money for a border wall and courts tying up his executive orders. (00:18:38) A strong economy in 2018 was seen as suppressing a [[Democratic Party|Democratic]] "blue wave" and encouraging [[Republican Party|Republican]] turnout in the midterm elections. (00:19:14) Nicholas J. Fuentes announced a special guest, Jason "[[Party Goy]]," would join to discuss [[Kanye West]]'s new album "[[Kanye West|Ye]]." (00:25:01) [[Patrick Little]]'s 2018 [[Senate]] campaign in [[State of California|California]] focused on issues like [[Jews|Jewish]] supremacy and the [[USS Liberty]] incident. (00:25:59) [[Ben Shapiro]] argued that suggesting a [[Jews|Jew]] has dual loyalty is anti-Semitic, during an early [[Twitter]] argument with Nicholas J. Fuentes. (00:28:30) [[Paul Nehlen]]'s public statements on controversial issues created baggage for others attempting to discuss similar topics, according to Nicholas J. Fuentes. (00:29:00) The "Unite the Right" rally in [[Charlottesville]] made it more difficult to convert people to dissident right-wing views, according to Nicholas J. Fuentes. (00:29:41) Figures like [[Milo Yiannopoulos]] and [[Mike Cernovich]] being labeled "alt-right" allowed dissident views to spread under the radar like a "Trojan horse." (00:30:14) [[Paul Nehlen]] performed poorly in an interview with [[John Cardillo]], appearing unprepared on basic questions about his views. (00:32:02) Guest Jason "[[Party Goy]]" identified as a conservative [[who]] agreed with Nicholas J. Fuentes on most issues. (00:32:28) [[Kanye West]] streamed his new album "[[Kanye West|Ye]]" via a listening party in [[Wyoming]] on an app called Wave, attended by journalists, celebrities, and featured artists. (00:33:17) Guest Jason "[[Party Goy]]" stated [[Kanye West]]'s album "[[Kanye West|Ye]]" embodied a "classic, but current" feeling and improved with repeated listens. (00:34:08) Nicholas J. Fuentes's initial reaction to "[[Kanye West|Ye]]" was positive, then negative, before ultimately concluding the album was "epic" after multiple listens. (00:35:56) Guest Jason "[[Party Goy]]]] characterized "[[Kanye West|Ye]]" as a mix between [[Kanye West]]'s albums "Yeezus" and "My Beautiful Dark Twisted Fantasy." (00:36:46) [[Kanye West]]'s "old" sound from his first three albums involved sampling sped-up soul songs, distinct from the sound on "[[Kanye West|Ye]]." (00:37:18) [[Kanye West]]'s music took a negative and depressing turn after the death of his mother, with "[[Kanye West|Ye]]" representing a return to a more joyful tone. (00:39:06) Nicholas J. Fuentes proposed that [[Kanye West]]'s albums "Yeezus," "Life of Pablo," and "[[Kanye West|Ye]]" formed a new triumvirate similar to his first three albums. (00:39:48) [[Kanye West]]'s album "[[Kanye West|Ye]]" consisted of seven songs totaling 23 minutes, a concise format with [[little]] filler compared to "Life of Pablo." (00:40:44) [[Kanye West]]'s album "Life of Pablo" had a sloppy, delayed release with changing details, while "[[Kanye West|Ye]]" was seen as crisp and professionally mastered. (00:42:19) [[Kanye West]]'s personal life, including having children with [[Kim Kardashian]], contributed to a matured and happier sound on "[[Kanye West|Ye]]." (00:44:11) [[Kanye West]]'s support for [[Donald Trump|Trump]] did not prevent his album "[[Kanye West|Ye]]" from receiving largely positive critical reviews. (00:45:51) [[Pusha T]] had rumored that [[Kanye West]]'s album would be super political, but "[[Kanye West|Ye]]" contained minimal overt political content beyond a mention of [[Donald Trump|MAGA]] hats. (00:46:59) [[Kanye West]]'s album "[[Kanye West|Ye]]" had a low-key release without a major [[ad]] campaign, which Nicholas J. Fuentes saw as evidence of his genuineness. (00:48:25) The song "I Thought About Killing You" on "[[Kanye West|Ye]]" explores dark thoughts, with [[Kanye West]] stating "the brightest thoughts are often next to the darkest thoughts." (00:50:51) [[Kim Kardashian]] consistently defended [[Kanye West]] against critics like [[Taylor Swift]] and in media appearances, demonstrating loyalty. (00:52:29) Nicholas J. Fuentes argued that artists like [[Kanye West]] have an obligation to explore ideas beyond spousal approval, similar to politicians. (00:54:51) Guest Jason "[[Party Goy]]]] ranked [[Kanye West]]'s top three albums as "College Dropout," "Late Registration," and "Graduation." (00:55:53) Nicholas J. Fuentes ranked [[Kanye West]]'s top three albums as "Graduation," "My Beautiful Dark Twisted Fantasy," and "Yeezus." (00:57:35) Nicholas J. Fuentes considered the songs "Paranoid" and "Streetlights" on [[Kanye West]]'s "808s & Heartbreak" to be severely underrated. (00:59:10) Guest Jason "[[Party Goy]]]] stated he autistically listens to the same songs, like [[Steven Crowder|Steve]] Winwood's "Higher Love," repeatedly due to specific chord progressions. (01:00:45) Music critic [[Anthony Fauci|Anthony]] Fantano ("The Needle Drop") blocked Nicholas J. Fuentes on [[Twitter]], likely due to political differences. (01:01:07) Nicholas J. Fuentes expressed disappointment that figures he admires, like [[Samuel J. Hyde|Sam Hyde]], do not reciprocate his appreciation for their work. (01:01:30) Rapper [[Vic Mensa]] tweeted a negative response calling Nicholas J. Fuentes a "white nationalist," despite Nicholas J. Fuentes regularly listening to his music. (01:02:50) Nicholas J. Fuentes described driving through the [[Southern United States|South]] Side of [[Chicago]] as akin to a war zone, feeling unsafe when lost and low on gas. (01:04:29) Guest Jason "[[Party Goy]]]] offered to produce trap music for Nicholas J. Fuentes if he wanted to start a music career. (01:05:00) Nicholas J. Fuentes played the euphonium in high school marching band, memorizing fingerings without deeply learning music theory. (01:06:50) Nicholas J. Fuentes announced he would take a vacation from his show the week of June 11th-15th to work on new projects in seclusion.
 
 ### AF 2018-05-31 0175
 (00:00:00) Nicholas J. Fuentes announced upcoming topics for his show, including the [[Samantha Bee]] controversy, new steel and aluminum tariffs on allies, and the pardon of [[Dinesh D'Souza]] by [[Donald Trump]].
@@ -38248,7 +38248,7 @@
 (00:11:33) Nicholas J. Fuentes noted that the [[United States]]'s largest steel and aluminum imports come from [[Germany]] and [[Dominion of Canada|Canada]], not [[Asia]].
 
 ### AF 2018-05-31 0175
-(00:13:13) Nicholas J. Fuentes cited [[United States]] trade deficits of $18 billion with [[Dominion of Canada|Canada]], $71 billion with [[Mexico]], and $92 billion with the [[Europe|European Union]] as evidence these allies drain the [[United States|American]] economy.
+(00:13:13) Nicholas J. Fuentes cited [[United States]] trade deficits of $18 billion with [[Dominion of Canada|Canada]], $71 billion with [[Mexico]], and $92 billion with the [[European Union]] as evidence these allies drain the [[United States|American]] economy.
 
 ### AF 2018-05-31 0175
 (00:13:49) Nicholas J. Fuentes contrasted the [[United States]]'s trade relationships with allies to its relationship with [[China]], which has a $600 billion trade deficit and allegedly steals $500 billion in intellectual property annually.
@@ -38296,13 +38296,13 @@
 (00:33:01) Nicholas J. Fuentes stated that his feud with [[Ben Shapiro]] began over a debate on free trade on [[Twitter]], where [[Ben Shapiro]] criticized his views as ignorant.
 
 ### AF 2018-05-31 0175
-(00:34:29) Nicholas J. Fuentes asserted that tariffs provide diplomatic leverage, citing how [[Donald Trump]] used trade pressure on [[China]] to gain cooperation on [[North Korea]] and could use it on the [[Europe|European Union]] regarding [[Iran]].
+(00:34:29) Nicholas J. Fuentes asserted that tariffs provide diplomatic leverage, citing how [[Donald Trump]] used trade pressure on [[China]] to gain cooperation on [[North Korea]] and could use it on the [[European Union]] regarding [[Iran]].
 
 ### AF 2018-05-31 0175
-(00:35:53) Nicholas J. Fuentes argued that [[Donald Trump]] uses tariffs comprehensively, linking trade concessions to diplomatic goals, such as easing tariffs if the [[Europe|European Union]] cooperates on [[Iran]] sanctions.
+(00:35:53) Nicholas J. Fuentes argued that [[Donald Trump]] uses tariffs comprehensively, linking trade concessions to diplomatic goals, such as easing tariffs if the [[European Union]] cooperates on [[Iran]] sanctions.
 
 ### AF 2018-05-31 0175
-(00:37:23) Nicholas J. Fuentes claimed the [[United States]] subsidizes the [[Europe|European Union]]'s defense and economies and should use its power to call in favors and pursue [[United States|American]] interests.
+(00:37:23) Nicholas J. Fuentes claimed the [[United States]] subsidizes the [[European Union]]'s defense and economies and should use its power to call in favors and pursue [[United States|American]] interests.
 
 ### AF 2018-05-31 0175
 (00:39:51) [[Samantha Bee]], on her show *Full Frontal*, called [[Ivanka Trump Kushner|Ivanka Trump]] a "feckless cunt," which Nicholas J. Fuentes contrasted with the swift cancellation of [[Roseanne Barr]]'s show for a racist tweet days earlier.
@@ -38398,7 +38398,7 @@
 (01:24:41) Nicholas J. Fuentes concluded the show by directing viewers to subscribe, sign up for his mailing list at NicholasJFuentes.com, and follow his [[Twitter]] accounts, [[United States|America]] First NJF and NickJFuentes.
 
 ### AF 2018-05-30 0174
-(01:54:40) Nicholas J. Fuentes argued that a major problem within the [[Donald Trump|Trump Administration]] was staffing, with crucial positions filled by people [[who]] opposed [[Donald Trump|the president's]] agenda, citing the example of anti-Trumper [[Raj Shah]] holding the role of Deputy Communications Director.
+(01:54:40) Nicholas J. Fuentes argued that a major problem within the [[Donald Trump|Trump Administration]] was staffing, with crucial positions filled by people [[who]] opposed [[the president's]] agenda, citing the example of anti-Trumper [[Raj Shah]] holding the role of Deputy Communications Director.
 
 ### AF 2018-05-29 0173
 (00:05:82) Nicholas J. Fuentes announced the launch of a new official [[Twitter]] account for his show at [[United States|America]] First NJF.
@@ -38632,10 +38632,10 @@
 (00:48:54) Nicholas J. Fuentes stated that major problems in the [[Middle East]] did not arise until "Zionists infiltrated" [[United States|U.S]]. policy in the 1990s and 2000s.
 
 ### AF 2018-05-25 0171
-(00:52:28) Nicholas J. Fuentes recounted that his parents, [[who]] are baby boomers from [[City of Chicago|Chicago]], witnessed firsthand the discrimination faced by [[black]] people, shaping their worldview.
+(00:52:28) Nicholas J. Fuentes recounted that his parents, [[who]] are baby boomers from [[Chicago]], witnessed firsthand the discrimination faced by [[black]] people, shaping their worldview.
 
 ### AF 2018-05-25 0171
-(00:58:06) Nicholas J. Fuentes cited the "pattern of behavior" at [[State of Michigan|Michigan]] [[State of Illinois|State]] University, the University of [[State of Florida|Florida]], and the [[City of Charlottesville|Charlottesville rally]] as evidence the alt-right refuses to learn from its mistakes.
+(00:58:06) Nicholas J. Fuentes cited the "pattern of behavior" at [[State of Michigan|Michigan]] [[State of Illinois|State]] University, the University of [[State of Florida|Florida]], and the [[Charlottesville rally]] as evidence the alt-right refuses to learn from its mistakes.
 
 ### AF 2018-05-25 0171
 (01:00:47) Nicholas J. Fuentes argued that the alt-right's use of provocative labels and optics, such as naming a show "The Daily Shoah," severely limits its reach and potential for success.
@@ -38650,7 +38650,7 @@
 (01:06:48) Nicholas J. Fuentes argued that the alt-right has alienated potential allies with resources and influence by appealing explicitly to marginalized individuals with no capital.
 
 ### AF 2018-05-25 0171
-(01:10:08) Nicholas J. Fuentes stated that his formative experience in the alt-right, including attending the [[City of Charlottesville|Charlottesville rally]], ultimately pushed him away from the movement due to its strategic failures.
+(01:10:08) Nicholas J. Fuentes stated that his formative experience in the alt-right, including attending the [[Charlottesville rally]], ultimately pushed him away from the movement due to its strategic failures.
 
 ### AF 2018-05-25 0171
 (01:16:17) Nicholas J. Fuentes argued that the [[United Kingdom]]'s lack of a constitutional right to bear arms and its system of parliamentary sovereignty leave citizens with [[little]] legitimate defense against government overreach.
@@ -38695,7 +38695,7 @@
 (00:03:49) Nicholas J. Fuentes stated that a federal judge had ruled [[Donald Trump]] could not block people on [[Twitter]].
 
 ### AF 2018-05-23 0170
-(00:03:54) Nicholas J. Fuentes reported that [[Tomi Lahren]] was attacked by [[black]] people in [[City of Minneapolis|Minneapolis]].
+(00:03:54) Nicholas J. Fuentes reported that [[Tomi Lahren]] was attacked by [[black]] people in [[Minneapolis]].
 
 ### AF 2018-05-23 0170
 (00:04:07) Nicholas J. Fuentes reported that the Boy Scouts of [[United States|America]] announced condoms would be readily available to all attendees, including scouts, leaders, and parents, at the 24th annual World Scout Jamboree in June 2019.
@@ -38737,7 +38737,7 @@
 (00:34:11) Nicholas J. Fuentes stated he liked [[Tomi Lahren]] because she angered people like [[Kassy Dillon|Cassie Dillon]] and was more successful than her rival, [[Allie Stuckey]], [[who]] was promoted by [[Glenn Beck]].
 
 ### AF 2018-05-23 0170
-(00:34:49) Nicholas J. Fuentes reported that [[Tomi Lahren]] was having lunch with her mother in a [[City of Minneapolis|Minneapolis]] restaurant when people began yelling insults and someone threw a glass of water on her.
+(00:34:49) Nicholas J. Fuentes reported that [[Tomi Lahren]] was having lunch with her mother in a [[Minneapolis]] restaurant when people began yelling insults and someone threw a glass of water on her.
 
 ### AF 2018-05-23 0170
 (00:38:56) Nicholas J. Fuentes read a [[Twitter]] headline stating "People have strong opinions about Tomi Lahren getting water thrown at her," contrasting it with the coverage he believed a [[black]] intellectual like [[Ta-Nehisi Coates]] would receive.
@@ -39112,7 +39112,7 @@
 (03:11:21) Nicholas J. Fuentes stated that the idea for the Fortnite stream originated after [[Epic Games]] announced a new game mode incorporating Thanos from the film *Infinity War*.
 
 ### AF 2018-05-11 0162
-(04:08:29) Nicholas J. Fuentes attended a [[Donald Trump]] rally in [[Elkhart, Indiana]], driving approximately two hours from [[City of Chicago|Chicago]] with his friend [[Steven Crowder|Steve]] W. Chatterston.
+(04:08:29) Nicholas J. Fuentes attended a [[Donald Trump]] rally in [[Elkhart, Indiana]], driving approximately two hours from [[Chicago]] with his friend [[Steven Crowder|Steve]] W. Chatterston.
 
 ### AF 2018-05-11 0162
 (04:58:49) Nicholas J. Fuentes observed that approximately 10,000 people lined up for the [[Donald Trump]] rally at a middle school, with about 7,500 attendees and thousands turned away due to the venue's capacity.
@@ -39154,7 +39154,7 @@
 (32:46:51) Nicholas J. Fuentes noted that the television show *Last Man Standing* was greenlit for another season, which he attributed to the success of the *Roseanne* revival.
 
 ### AF 2018-05-11 0162
-(33:11:35) Nicholas J. Fuentes stated that [[Donald Trump]] had ordered the [[Health and Human Services|Department of Health and Human Services]] to take action against pharmaceutical companies to lower drug prices.
+(33:11:35) Nicholas J. Fuentes stated that [[Donald Trump]] had ordered the [[Department of Health and Human Services]] to take action against pharmaceutical companies to lower drug prices.
 
 ### AF 2018-05-11 0162
 (33:28:73) Nicholas J. Fuentes reported that a meeting between [[Donald Trump]] and [[Kim Jong Un|Kim Jong-un]] of [[North Korea]] was scheduled for June 12th in [[Singapore]] to discuss denuclearization.
@@ -39169,7 +39169,7 @@
 (34:10:21) Nicholas J. Fuentes cited generic ballot polling showing the [[Democratic Party]]'s lead had shrunk to 3% from a 15% lead in December.
 
 ### AF 2018-05-11 0162
-(41:31:55) Nicholas J. Fuentes commented on political developments in [[Italian Republic|Italy]], where the Five Star Movement and a right-wing coalition opposed to the [[Europe|European Union]] had gained a majority of seats in parliament.
+(41:31:55) Nicholas J. Fuentes commented on political developments in [[Italian Republic|Italy]], where the Five Star Movement and a right-wing coalition opposed to the [[European Union]] had gained a majority of seats in parliament.
 
 ### AF 2018-05-11 0162
 (52:00:01) Nicholas J. Fuentes criticized individuals in the political movement [[who]] espouse [[black]]-pill pessimism, telling them to "be sad somewhere else" and not sow doubt about the possibility of political victory.
@@ -39304,7 +39304,7 @@
 (00:31:09) Nicholas J. Fuentes noted that [[North Korea]]'s isolation, with [[China]] as its sole major lifeline, made it susceptible to pressure, unlike [[Iran]], which has economic ties to [[Europe]], [[China]], and [[Russia]].
 
 ### AF 2018-05-08 0160
-(00:32:57) Nicholas J. Fuentes argued that adversaries of [[Iran]], namely [[Israel]] under the [[Labor Party|Likud]] party and [[Saudi Arabia]] under [[Mohammed bin Salman]], would actively work to sabotage any diplomatic process or deal.
+(00:32:57) Nicholas J. Fuentes argued that adversaries of [[Iran]], namely [[Israel]] under the [[Likud]] party and [[Saudi Arabia]] under [[Mohammed bin Salman]], would actively work to sabotage any diplomatic process or deal.
 
 ### AF 2018-05-08 0160
 (00:34:38) Nicholas J. Fuentes listed [[AIPAC]], neoconservatives in the [[U.S. Department of State|State Department]], commentators like [[Bret Stephens]] and [[Charles Krauthammer]], and media figures like [[Ben Shapiro]] as actors pushing for war with [[Iran]].
@@ -39415,7 +39415,7 @@
 (01:23:31) Nicholas J. Fuentes criticized the "autistic obsession" with [[Jews|Jewish]] influence as one-dimensional, arguing that while overrepresentation in media is undeniable, fanaticism should be reserved for God alone.
 
 ### AF 2018-05-08 0160
-(01:24:01) Nicholas J. Fuentes argued that [[Christianity|Christian]] doctrine, including the Gospel, the Old Testament, and writings from [[G.K. Chesterton]] to [[G.K. Chesterton|C.S. Lewis]], is not anti-nationalist and affirms the persistence of nations, with globalist interpretations being a modern distortion from atheism and postmodernism.
+(01:24:01) Nicholas J. Fuentes argued that [[Christianity|Christian]] doctrine, including the Gospel, the Old Testament, and writings from [[G.K. Chesterton]] to [[C.S. Lewis]], is not anti-nationalist and affirms the persistence of nations, with globalist interpretations being a modern distortion from atheism and postmodernism.
 
 ### AF 2018-05-08 0160
 (01:26:51) Nicholas J. Fuentes concluded the show by reminding viewers of the next day's debate with [[Jacob Wohl]] on [[Iran]], his planned absence on Thursday to attend a [[Donald Trump|Trump]] rally in [[India|Indiana]], and a Friday Fortnite stream with [[Timothy Gionet|Baked Alaska]], [[Daryl Cooper|Beardson]], and [[Party Goy]].
@@ -39430,10 +39430,10 @@
 (00:57:48) Nicholas J. Fuentes scheduled a debate on religion for Saturday with [[Ryan Dawson]] on the public space with [[JFNA|JF]].
 
 ### AF 2018-05-07 0159
-(01:16:20) Nicholas J. Fuentes was suspended from [[Twitch Inc.|Twitch]] for 24 hours after a casual Fortnite stream was raided by [[Destiny|Destiny]], during which Fuentes said "some nasty things" about him.
+(01:16:20) Nicholas J. Fuentes was suspended from [[Twitch Inc.|Twitch]] for 24 hours after a casual Fortnite stream was raided by [[Destiny]], during which Fuentes said "some nasty things" about him.
 
 ### AF 2018-05-07 0159
-(02:52:48) Nicholas J. Fuentes planned to discuss the "Day for Freedom" or "Free Speech Day" event in [[City of London|London]] featuring [[Milo Yiannopoulos]], [[Lauren Southern]], and [[Tommy Robinson]].
+(02:52:48) Nicholas J. Fuentes planned to discuss the "Day for Freedom" or "Free Speech Day" event in [[London]] featuring [[Milo Yiannopoulos]], [[Lauren Southern]], and [[Tommy Robinson]].
 
 ### AF 2018-05-07 0159
 (04:48:00) Nicholas J. Fuentes referenced past coverage of allegations against [[Roy Moore]] in [[Alabama]] and [[Rob Porter]], an aide to [[the White House]] Chief of Staff.
@@ -39472,13 +39472,13 @@
 (28:50:00) Nicholas J. Fuentes stated that [[Eric Schneiderman]] had ambitious designs to form a connection with [[Hillary Clinton|Clinton]] and rise in the [[Democratic Party|Democratic]] apparatus, which would have succeeded if not for [[Donald Trump]]'s election.
 
 ### AF 2018-05-07 0159
-(33:58:00) Nicholas J. Fuentes criticized the "alt-light" message of the [[City of London|London]] rally, arguing its condemnation of "victimhood culture" contradicted its own claim of being victims of "free speech tyranny."
+(33:58:00) Nicholas J. Fuentes criticized the "alt-light" message of the [[London]] rally, arguing its condemnation of "victimhood culture" contradicted its own claim of being victims of "free speech tyranny."
 
 ### AF 2018-05-07 0159
 (35:20:20) Nicholas J. Fuentes argued the "alt-light" platform had no substance, being a political movement without a political message, focused on fame, clicks, and Patreon donations.
 
 ### AF 2018-05-07 0159
-(36:59:00) Nicholas J. Fuentes cited hypocrisy, noting that [[Milo Yiannopoulos]] canceled an interview with him for being "too controversial," and [[Gavin McInnes]] told his [[Proud Boys]] to disavow the [[City of Charlottesville|Charlottesville]] rally.
+(36:59:00) Nicholas J. Fuentes cited hypocrisy, noting that [[Milo Yiannopoulos]] canceled an interview with him for being "too controversial," and [[Gavin McInnes]] told his [[Proud Boys]] to disavow the [[Charlottesville]] rally.
 
 ### AF 2018-05-07 0159
 (38:56:48) Nicholas J. Fuentes criticized the rally's lineup, which included a drag queen, [[Raheem Kassam]] from [[Breitbart News|Breitbart]], [[Milo Yiannopoulos]], and [[Lauren Southern]], calling it a "parade of freaks" and a "leftist circus."
@@ -39493,7 +39493,7 @@
 (46:45:20) Nicholas J. Fuentes described his economic philosophy as distributist, favoring regulated markets that encourage ownership and social cohesion over unregulated capitalism, which he contrasted with the views of [[Ben Shapiro]].
 
 ### AF 2018-05-07 0159
-(48:01:20) Nicholas J. Fuentes argued that [[Israel]]'s expulsion of [[Palestinians]] and land grabs constituted a double standard, as similar actions by [[Russia]] in [[City of Sevastopol|Crimea]] are condemned while [[Israel|Israel's]] are not.
+(48:01:20) Nicholas J. Fuentes argued that [[Israel]]'s expulsion of [[Palestinians]] and land grabs constituted a double standard, as similar actions by [[Russia]] in [[Crimea]] are condemned while [[Israel|Israel's]] are not.
 
 ### AF 2018-05-07 0159
 (49:45:20) Nicholas J. Fuentes stated that while he disagrees with [[Gavin McInnes]]'s pro-Zionist ideology, he does not think he is a bad [[person]] and supports a broader right-wing coalition.
@@ -39859,7 +39859,7 @@
 (01:24:49) Nicholas J. Fuentes rejected the interpretation of some pro-[[Israel]] [[Christianity|Christians]], arguing that political Zionism and the modern [[state]] of [[Israel]] are not supported by biblical scripture, which he said refers to the [[Jews|Jewish people]] or followers of [[Jesus Christ|Christ]], not a secular nation-[[state]].
 
 ### AF 2018-05-01 0155
-(01:27:47) Nicholas J. Fuentes criticized the 2017 Unite the Right rally in [[City of Charlottesville|Charlottesville]], arguing that associating with individuals displaying [[Germany|Nazi]] symbolism was a major liability for the nationalist movement, despite most attendees being what he called "good people."
+(01:27:47) Nicholas J. Fuentes criticized the 2017 Unite the Right rally in [[Charlottesville]], arguing that associating with individuals displaying [[Germany|Nazi]] symbolism was a major liability for the nationalist movement, despite most attendees being what he called "good people."
 
 ### AF 2018-05-01 0155
 (01:30:53) Nicholas J. Fuentes outlined a three-part plan for political activism: joining a college group, infiltrating the local [[Republican Party]], and campaigning or running for office to transform the party into a nationalist, traditionalist workers' party.
@@ -39886,7 +39886,7 @@
 (01:05:83) Nicholas J. Fuentes stated that [[Shep Smith]] of [[Fox News]] and [[Ron Paul|Ramsey Paul]] did not understand the significance of [[Kanye West]]'s political tweets.
 
 ### AF 2018-04-25 0152
-(07:45:35) [[Kanye West]] tweeted "nothing in [[City of Chicago|Chicago]] changed," a statement Nicholas J. Fuentes interpreted as a critique of the [[city]]'s political establishment.
+(07:45:35) [[Kanye West]] tweeted "nothing in [[Chicago]] changed," a statement Nicholas J. Fuentes interpreted as a critique of the [[city]]'s political establishment.
 
 ### AF 2018-04-25 0152
 (11:29:51) Nicholas J. Fuentes argued that [[Kim Kardashian]]'s defense of [[Kanye West]] was a powerful message against the media and for free speech, reaching a different demographic than [[Kanye West]] alone.
@@ -39916,7 +39916,7 @@
 (40:40:89) Nicholas J. Fuentes analyzed [[Kanye West]]'s phrase "dragon energy," consulting an esoteric expert named Owen Cyclops (Western Identity) and referencing the works of [[Carl Jung]].
 
 ### AF 2018-04-25 0152
-(42:36:43) Nicholas J. Fuentes explained that the Western mythological tradition, stemming from the [[Greece|Greek]] "drakon," views the dragon as an antagonistic serpent, often representing evil, as seen in stories of [[City of St. George|St. George]] and [[King Arthur]].
+(42:36:43) Nicholas J. Fuentes explained that the Western mythological tradition, stemming from the [[Greece|Greek]] "drakon," views the dragon as an antagonistic serpent, often representing evil, as seen in stories of [[St. George]] and [[King Arthur]].
 
 ### AF 2018-04-25 0152
 (44:54:71) Nicholas J. Fuentes contrasted the Western view of the dragon with the Eastern tradition, where in [[China]] the dragon is a revered symbol of good fortune, holiness, and enlightenment.
@@ -39931,7 +39931,7 @@
 (50:28:39) [[Elon Musk]]'s "cyborg dragon" tweet was connected by Nicholas J. Fuentes to the [[Elon Musk|SpaceX]] Dragon spacecraft, suggesting a celestial and active symbolism.
 
 ### AF 2018-04-25 0152
-(51:08:49) Nicholas J. Fuentes noted destabilizing global events, including airplane crashes in [[City of Moscow|Moscow]], [[Tehran]], and [[City of Philadelphia|Philadelphia]], earthquakes, and tensions in [[Israel]], [[Syria]], and [[Saudi Arabia]], as part of a broader transformative period.
+(51:08:49) Nicholas J. Fuentes noted destabilizing global events, including airplane crashes in [[Moscow]], [[Tehran]], and [[Philadelphia]], earthquakes, and tensions in [[Israel]], [[Syria]], and [[Saudi Arabia]], as part of a broader transformative period.
 
 ### AF 2018-04-25 0152
 (53:25:81) Nicholas J. Fuentes connected [[Kim Kardashian]]'s Armenian [[heritage]] to a recent attack in [[Toronto]] by an Armenian "incel," and noted her children were baptized in an Armenian church in [[Israel]].
@@ -40408,7 +40408,7 @@
 (01:13:32) Nicholas J. Fuentes commented on the difficulty of forming a protein chain from a primordial soup, citing a documentary on the astronomical odds against abiogenesis.
 
 ### AF 2018-04-11 0143
-(01:18:00) Nicholas J. Fuentes suggested that the only foreign intervention he would support would be to liberate early [[Christianity|Christian]] sites like [[City of Jerusalem|Jerusalem]], [[Antioch]], and [[City of Istanbul|Constantinople]].
+(01:18:00) Nicholas J. Fuentes suggested that the only foreign intervention he would support would be to liberate early [[Christianity|Christian]] sites like [[Jerusalem]], [[Antioch]], and [[Constantinople]].
 
 ### AF 2018-04-11 0143
 (01:21:23) Nicholas J. Fuentes stated he conducts his public persona with the expectation of a 50-year gap before any potential political run, due to the controversial nature of his commentary.
@@ -40501,7 +40501,7 @@
 (00:51:27) Nicholas J. Fuentes concluded the interview with Sean, thanking him for the "dirty laundry" on [[Paul Nealon]] and [[Chris Cantwell]].
 
 ### AF 2018-04-05 0139
-(00:13:06) A viral tweet from "[[Millennial Matt]]" featuring a high school photo of Nicholas J. Fuentes was retweeted by [[Greta Van Susteren]] of [[Fox News]], [[Jake Tapper]] of [[Warner Bros. Discovery|CNN]], and commented on by [[City of Parkland|Parkland]] survivor [[Kyle Kashuv]].
+(00:13:06) A viral tweet from "[[Millennial Matt]]" featuring a high school photo of Nicholas J. Fuentes was retweeted by [[Greta Van Susteren]] of [[Fox News]], [[Jake Tapper]] of [[Warner Bros. Discovery|CNN]], and commented on by [[Parkland]] survivor [[Kyle Kashuv]].
 
 ### AF 2018-04-05 0139
 (00:22:18) Nicholas J. Fuentes contrasted the media's focus on [[Scott Pruitt]]'s spending with its lack of coverage of [[Loretta Lynch]]'s tarmac meeting with [[Bill Clinton]] during the [[Hillary Clinton]] email investigation, [[Obama]]'s vacation budgets, and the [[Fast and Furious]] operation.
@@ -40531,7 +40531,7 @@
 (00:55:42) Nicholas J. Fuentes criticized [[Martin Luther King Jr.]] as a philanderer, communist, and plagiarist, but argued that unlike white historical figures such as [[Christopher Columbus]], [[Martin Luther King Jr.|King]]'s flaws were excused by the media and establishment.
 
 ### AF 2018-04-05 0139
-(00:57:02) Nicholas J. Fuentes expressed sympathy for [[David Hogg]], the [[City of Parkland|Parkland]] shooting survivor and gun control activist, stating he was a traumatized teenager being used as a political pawn by the media.
+(00:57:02) Nicholas J. Fuentes expressed sympathy for [[David Hogg]], the [[Parkland]] shooting survivor and gun control activist, stating he was a traumatized teenager being used as a political pawn by the media.
 
 ### AF 2018-04-05 0139
 (00:59:21) Nicholas J. Fuentes noted a report that [[State of California|California]] would refuse to send [[U.S. Department of Defense|National Guard]] troops to the [[United States|U.S]].-Mexico border at [[Donald Trump]]'s request.
@@ -40549,10 +40549,10 @@
 (05:09:630) Nicholas J. Fuentes stated he bet $300 on [[Donald Trump]] winning the 2016 presidential election, contrary to predictions by [[Nate Silver]] which gave [[Donald Trump|Trump]] a 10% chance.
 
 ### AF 2018-04-04 0138
-(14:28:230) [[Donald Trump]] announced the [[United States]] would maintain its military presence in [[Syria]], a decision Nicholas J. Fuentes speculated was influenced by pressure from [[Saudi Arabia]], [[Israel]], and the [[United States Capitol|U.S. Congress]].
+(14:28:230) [[Donald Trump]] announced the [[United States]] would maintain its military presence in [[Syria]], a decision Nicholas J. Fuentes speculated was influenced by pressure from [[Saudi Arabia]], [[Israel]], and the [[U.S. Congress]].
 
 ### AF 2018-04-04 0138
-(15:54:970) Nicholas J. Fuentes argued that [[Donald Trump]]'s foreign policy decisions, such as recognizing [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]], were influenced by the need to court donors like [[Sheldon Adelson]] and the [[Charles Koch|Koch brothers]] for the 2018 midterm elections.
+(15:54:970) Nicholas J. Fuentes argued that [[Donald Trump]]'s foreign policy decisions, such as recognizing [[Jerusalem]] as the capital of [[Israel]], were influenced by the need to court donors like [[Sheldon Adelson]] and the [[Charles Koch|Koch brothers]] for the 2018 midterm elections.
 
 ### AF 2018-04-04 0138
 (17:52:330) Nicholas J. Fuentes suggested that a [[United States|U.S]]. withdrawal from [[Syria]] would allow [[Russia]] to decide the fate of [[Syria]] and the broader [[Middle East]].
@@ -40573,7 +40573,7 @@
 (00:55:46) Nicholas J. Fuentes announced the release of two new podcasts, *[[United States|America]] First World Report* and *2018 Election HQ*, for premium subscribers on Maker Support.
 
 ### AF 2018-04-03 0137
-(01:15:44) Nicholas J. Fuentes disavowed and ended his association with [[Paul Nealon]], citing campaign finance irregularities, doxxing of Ricky Vaughn, and behavior that made him a liability to supporters including [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], and [[Donald Trump]].
+(01:15:44) Nicholas J. Fuentes disavowed and ended his association with [[Paul Nealon]], citing campaign finance irregularities, doxxing of Ricky Vaughn, and behavior that made him a liability to supporters including [[Steve Bannon]], [[Ann Coulter]], and [[Donald Trump]].
 
 ### AF 2018-04-03 0137
 (03:46:48) Nicholas J. Fuentes argued that [[Donald Trump]]'s deployment of 2,000 troops in [[Syria]] and 17,000 in [[Afghanistan]] was not comparable to the large-scale ground wars under [[George W. Bush]].
@@ -40687,7 +40687,7 @@
 (00:13:51) Nicholas J. Fuentes strongly disavowed the use of Juul and all electronic or regular smoking, questioning if a generation has an oral fixation and noting cigarettes are making a comeback in his circles.
 
 ### AF 2018-03-30 0135
-(00:17:06) Nicholas J. Fuentes, [[who]] lives in [[State of Illinois|Illinois]], stated that [[City of Chicago|Chicago]] has some of the strictest gun laws in the [[United States]], including regulations on guns and cigarettes, though there is no statewide semi-automatic weapons ban.
+(00:17:06) Nicholas J. Fuentes, [[who]] lives in [[State of Illinois|Illinois]], stated that [[Chicago]] has some of the strictest gun laws in the [[United States]], including regulations on guns and cigarettes, though there is no statewide semi-automatic weapons ban.
 
 ### AF 2018-03-30 0135
 (00:19:25) A caller asked Nicholas J. Fuentes if it is "trad" (traditional) to go to [[Buffalo Wild Wings]] with friends every Friday after work, to which Fuentes approved as long as it involves moderate, temperate fun without excessive drinking or hedonism.
@@ -40723,7 +40723,7 @@
 (00:40:05) The caller suggested [[John Bolton]] might purge non-loyalists from the [[Donald Trump|Trump]] administration, which Nicholas J. Fuentes considered a "white pill," noting [[John Bolton|Bolton]]'s rhetoric focuses on [[United States|American]] interests rather than [[democratic]] nation-building and that he is competent despite his neoconservative hawkishness and dual citizenship with [[Israel]].
 
 ### AF 2018-03-30 0135
-(00:41:18) Nicholas J. Fuentes commented on [[Ann Coulter]]'s fluctuating support for [[Donald Trump]], suggesting she may be channeling public frustration with unmet campaign promises or strategically criticizing [[Donald Trump|the president]] to motivate him, as [[Donald Trump|Trump]] follows her on [[Twitter]] and listens to her along with [[Sean Hannity]] and [[Fox News]].
+(00:41:18) Nicholas J. Fuentes commented on [[Ann Coulter]]'s fluctuating support for [[Donald Trump]], suggesting she may be channeling public frustration with unmet campaign promises or strategically criticizing [[the president]] to motivate him, as [[Donald Trump|Trump]] follows her on [[Twitter]] and listens to her along with [[Sean Hannity]] and [[Fox News]].
 
 ### AF 2018-03-30 0135
 (00:43:47) A caller doing homework asked Nicholas J. Fuentes how to fix the leftist bias in academia, particularly in history classes, citing his own experience at [[Boston University]] where professors were both incompetent and left-wing.
@@ -40735,7 +40735,7 @@
 (00:47:04) A caller named Joe challenged Nicholas J. Fuentes on why he fired producer Marcus Antonis, which Fuentes clarified was a joke, then discussed attending a moving Stations of the Cross service on Good Friday and venerated the cross barefoot to show humility.
 
 ### AF 2018-03-30 0135
-(00:49:57) Nicholas J. Fuentes argued that the lack of immediate executive action on bump stocks after the [[City of Parkland|Parkland]] shooting and the subsequent fading of the issue from public consciousness lends credibility to the theory that [[Donald Trump|Trump]] is strategically delaying, and that compromising on gun rights would only hurt his base without winning over moderates.
+(00:49:57) Nicholas J. Fuentes argued that the lack of immediate executive action on bump stocks after the [[Parkland]] shooting and the subsequent fading of the issue from public consciousness lends credibility to the theory that [[Donald Trump|Trump]] is strategically delaying, and that compromising on gun rights would only hurt his base without winning over moderates.
 
 ### AF 2018-03-30 0135
 (00:51:50) The caller Joe noted that recent calls from [[March for Our Lives]] activists, the [[The New York Times|New York Times]], and [[Washington Post]] to repeal the [[U.S. Constitution|Second Amendment]] or ban semi-automatic weapons represent an honest escalation of the gun control agenda, which Nicholas J. Fuentes agreed would provide potent campaign material for [[Republican Party|Republicans]] in pro-gun states like [[Montana]], [[North Dakota]], [[State of Missouri|Missouri]], [[Arizona]], and [[State of Nevada|Nevada]] in the 2018 elections.
@@ -40744,7 +40744,7 @@
 (00:53:10) Nicholas J. Fuentes stated that [[Donald Trump]] has deliberately forced long-simmering cultural divisions like gun rights into the open through his rhetoric, causing [[the left]] to prematurely show its hand by demanding extreme measures like repealing the [[U.S. Constitution|Second Amendment]], which will backfire electorally.
 
 ### AF 2018-03-30 0135
-(00:56:28) Nicholas J. Fuentes characterized the post-[[City of Parkland|Parkland]] generation of anti-gun activists as more openly radical than predecessors like [[Shannon Watts]] of [[Moms Demand Action]], willing to call the [[National Rifle Association|NRA]] "murderers of children," which he views as a tactical mistake that plays into the right's narrative about the slippery slope of gun control.
+(00:56:28) Nicholas J. Fuentes characterized the post-[[Parkland]] generation of anti-gun activists as more openly radical than predecessors like [[Shannon Watts]] of [[Moms Demand Action]], willing to call the [[National Rifle Association|NRA]] "murderers of children," which he views as a tactical mistake that plays into the right's narrative about the slippery slope of gun control.
 
 ### AF 2018-03-30 0135
 (00:59:23) Nicholas J. Fuentes defended [[Bernie Sanders]] as one of the least objectionable political figures because he is honest and not owned by [[Saudi Arabia]], [[Israel]], or [[The Wall Street Journal|Wall Street]] like [[Hillary Clinton]], whom he accused of being a Satanist involved in killings.
@@ -40756,7 +40756,7 @@
 (01:02:00) Nicholas J. Fuentes explained he blocks people on [[Twitter]] not due to thin skin but to avoid giving "low IQ" individuals [[who]] don't follow him momentum, negativity, or a rise from his content, describing such critics as "life's losers" [[who]] attack rather than build.
 
 ### AF 2018-03-30 0135
-(01:03:34) Nicholas J. Fuentes endorsed the [[Gun Owners of America]] and encouraged viewers to buy guns in response to the [[City of Parkland|Parkland]] activism.
+(01:03:34) Nicholas J. Fuentes endorsed the [[Gun Owners of America]] and encouraged viewers to buy guns in response to the [[Parkland]] activism.
 
 ### AF 2018-03-30 0135
 (01:04:01) Nicholas J. Fuentes complained about streamers like [[Asian Andy]] and [[Justified]] "stream-cucking" him by broadcasting at the same [[time]], though he stated he was not bitter about it.
@@ -40960,13 +40960,13 @@
 (00:02:20) Nicholas J. Fuentes announced a debate with [[Mike Tokes]] on the [[Timothy Gionet|Baked Alaska]] livestream, scheduled for Friday at 7 p.m. Central [[time]], to argue for ethnic nationalism against civic nationalism.
 
 ### AF 2018-03-20 0128
-(00:08:20) Nicholas J. Fuentes contrasted the extensive media coverage of the February 14th [[City of Parkland|Parkland]], [[State of Florida|Florida]] shooting with the minimal coverage of the March 20th Great Mills High School shooting in [[Maryland]].
+(00:08:20) Nicholas J. Fuentes contrasted the extensive media coverage of the February 14th [[Parkland]], [[State of Florida|Florida]] shooting with the minimal coverage of the March 20th Great Mills High School shooting in [[Maryland]].
 
 ### AF 2018-03-20 0128
 (00:08:40) Nicholas J. Fuentes argued that media outlets like [[British Broadcasting Corporation|BBC]], [[The New York Times]], [[Warner Bros. Discovery|CNN]], and [[Washington Post|The Washington Post]] were not covering the Great Mills High School shooting because it did not advance a gun control legislative agenda focused on semi-automatic rifles.
 
 ### AF 2018-03-20 0128
-(00:13:40) Nicholas J. Fuentes claimed the [[Democratic Party]]'s legislative agenda focused on banning semi-automatic rifles rather than handguns, which are used in the vast majority of gun crimes in cities like [[City of Chicago|Chicago]], [[Los Angeles]], and [[New York|New York City]].
+(00:13:40) Nicholas J. Fuentes claimed the [[Democratic Party]]'s legislative agenda focused on banning semi-automatic rifles rather than handguns, which are used in the vast majority of gun crimes in cities like [[Chicago]], [[Los Angeles]], and [[New York|New York City]].
 
 ### AF 2018-03-20 0128
 (00:16:50) Nicholas J. Fuentes argued that the presence of an armed resource officer at Great Mills High School in [[Maryland]] prevented a higher casualty count, unlike the shooting at Stoneman Douglas High School in [[State of Florida|Florida]] where 17 people died.
@@ -41020,7 +41020,7 @@
 (00:55:37) Nicholas J. Fuentes moved away from supporting [[Ben Shapiro]] and towards figures like [[Patrick Buchanan|Pat Buchanan]] and [[Donald Trump]] over the issue of [[Israel]].
 
 ### AF 2018-03-19 0127
-(00:57:45) Nicholas J. Fuentes had a personal grievance with [[Milo]], [[who]] canceled a planned interview with him in [[City of Miami|Miami]], [[State of Florida|Florida]] in August 2017 after the [[City of Charlottesville|Charlottesville]] rally.
+(00:57:45) Nicholas J. Fuentes had a personal grievance with [[Milo]], [[who]] canceled a planned interview with him in [[Miami]], [[State of Florida|Florida]] in August 2017 after the [[Charlottesville]] rally.
 
 ### AF 2018-03-19 0127
 (01:04:05) [[Milo]] presents himself as "[[America First]]" while also being a Zionist, which Nicholas J. Fuentes views as a subversion of the [[United States|American]] nationalist position.
@@ -41038,7 +41038,7 @@
 (00:58:99) Nicholas J. Fuentes stated that the [[Republican Party]] requires 270 electoral votes to win a presidential election and 51-52 senators for a majority, a threshold unattainable with the traditional [[George W. Bush]] and [[Ronald Reagan]] platform alone.
 
 ### AF 2018-03-16 0126
-(01:04:17) Nicholas J. Fuentes identified [[Steven Crowder|Steve Bannon]] as a proponent of the economic nationalism strategy he endorsed as the path forward for the [[Republican Party]].
+(01:04:17) Nicholas J. Fuentes identified [[Steve Bannon]] as a proponent of the economic nationalism strategy he endorsed as the path forward for the [[Republican Party]].
 
 ### AF 2018-03-16 0126
 (01:15:99) Nicholas J. Fuentes claimed that organizations like [[Young Americans for Liberty]] and [[Republican Party|College Republicans]] are populated by acolytes of [[Ben Shapiro]].
@@ -41077,7 +41077,7 @@
 (04:08:38) Nicholas J. Fuentes argued that wealth and prosperity, particularly "accelerated late-stage capitalism," have a corrupting tendency and exacerbate societal degeneration, though he does not believe this decline is inevitable.
 
 ### AF 2018-03-16 0126
-(04:33:02) Nicholas J. Fuentes maintained that the [[Pope Francis|Catholic Church]] is the one true church because it holds the apostolic succession of [[Saint Peter]], whom [[Jesus Christ]] designated as the rock upon which the church was built, a theological distinction absent in [[Orthodoxy]].
+(04:33:02) Nicholas J. Fuentes maintained that the [[Catholic Church]] is the one true church because it holds the apostolic succession of [[Saint Peter]], whom [[Jesus Christ]] designated as the rock upon which the church was built, a theological distinction absent in [[Orthodoxy]].
 
 ### AF 2018-03-16 0126
 (04:55:78) Nicholas J. Fuentes stated that while "traps are gay," many are "less gay than a lot of women" in contemporary society.
@@ -41122,7 +41122,7 @@
 (09:10:41) Nicholas J. Fuentes cited [[Germany]]'s protectionist policies overtaking free-trade [[United Kingdom|Great Britain]] as the industrial powerhouse of [[Europe]] by the turn of the 20th century as historical support for tariffs.
 
 ### AF 2018-03-16 0126
-(09:22:61) Nicholas J. Fuentes engaged in a theological debate with a Baptist caller, arguing that all non-[[Catholic]] [[Christianity|Christian]] denominations are contingent on the existence of the [[Pope Francis|Catholic Church]], which holds ultimate authority through [[Saint Peter]].
+(09:22:61) Nicholas J. Fuentes engaged in a theological debate with a Baptist caller, arguing that all non-[[Catholic]] [[Christianity|Christian]] denominations are contingent on the existence of the [[Catholic Church]], which holds ultimate authority through [[Saint Peter]].
 
 ### AF 2018-03-16 0126
 (09:48:53) Nicholas J. Fuentes agreed with an article by [[Andrew Anglin]] that the "hard right" movement had gotten ahead of itself by focusing on street activism and protests before building the necessary institutional infrastructure, comparing it to the long-term growth of movements like the [[Tea Party movement]].
@@ -41209,10 +41209,10 @@
 (14:51:900) Nicholas J. Fuentes stated he was willing to make amends with critics like [[All Hype]] and [[Tara McCarthy]] if the outreach was mutual.
 
 ### AF 2018-03-08 0121
-(15:02:860) During the 2017 [[City of Charlottesville|Charlottesville]] rally, Nicholas J. Fuentes was in a hotel lobby with [[James Allsup]], [[Timothy Gionet|Baked Alaska]], and [[Millennial Matt]] when [[Donald Trump]] stated there were "very fine people on both sides," which they cheered.
+(15:02:860) During the 2017 [[Charlottesville]] rally, Nicholas J. Fuentes was in a hotel lobby with [[James Allsup]], [[Timothy Gionet|Baked Alaska]], and [[Millennial Matt]] when [[Donald Trump]] stated there were "very fine people on both sides," which they cheered.
 
 ### AF 2018-03-08 0121
-(15:03:440) Nicholas J. Fuentes attended the [[City of Charlottesville|Charlottesville]] rally to protest the removal of a [[Robert E. Lee]] statue and the renaming of [[Lee Park]].
+(15:03:440) Nicholas J. Fuentes attended the [[Charlottesville]] rally to protest the removal of a [[Robert E. Lee]] statue and the renaming of [[Lee Park]].
 
 ### AF 2018-03-06 0119
 (00:02:08) Nicholas J. Fuentes criticized [[Alex Jones|InfoWars]] and [[Alex Jones]] for avoiding discussion of [[Israel]], racialism, and demographic replacement to maintain advertiser revenue, despite ultimately facing demonetization by [[Google|YouTube]].
@@ -41233,7 +41233,7 @@
 (00:02:40) Nicholas J. Fuentes noted the presence of [[United States|U.S]]. troops in [[Niger]], [[Syria]], [[Iraq]], and [[Afghanistan]].
 
 ### AF 2018-03-05 0118
-(00:05:00) Nicholas J. Fuentes argued that police inaction at events like the [[City of Charlottesville|Charlottesville]] rally indicated collusion with left-wing groups to suppress right-wing voices.
+(00:05:00) Nicholas J. Fuentes argued that police inaction at events like the [[Charlottesville]] rally indicated collusion with left-wing groups to suppress right-wing voices.
 
 ### AF 2018-03-05 0118
 (00:05:40) Nicholas J. Fuentes contended that [[Antifa]]'s disruption of mainstream figures like [[Christina Hoff Summers]] and [[Ben Shapiro]] drives observers to the right by exposing a disconnect between accusations of fascism and reality.
@@ -41242,10 +41242,10 @@
 (00:08:20) Nicholas J. Fuentes asserted that [[Antifa]]'s actions violate the constitutional rights to assembly and free speech in the [[United States]].
 
 ### AF 2018-03-05 0118
-(00:09:40) Nicholas J. Fuentes debated [[Styxhexenhammer666]] on religion on the [[My Name is Al Show]], covering topics including the historicity of [[Jesus Christ]], the authority of the [[Pope Francis|Catholic Church]], and arguments for God's existence.
+(00:09:40) Nicholas J. Fuentes debated [[Styxhexenhammer666]] on religion on the [[My Name is Al Show]], covering topics including the historicity of [[Jesus Christ]], the authority of the [[Catholic Church]], and arguments for God's existence.
 
 ### AF 2018-03-05 0118
-(00:13:40) Nicholas J. Fuentes recommended a reading list on [[Christianity]], including works by [[Edward Feser]] on [[Thomas Aquinas]], [[Peter Kreeft]]'s "A Shorter Summa," and [[G.K. Chesterton|C.S. Lewis]]'s "Mere [[Christianity]]."
+(00:13:40) Nicholas J. Fuentes recommended a reading list on [[Christianity]], including works by [[Edward Feser]] on [[Thomas Aquinas]], [[Peter Kreeft]]'s "A Shorter Summa," and [[C.S. Lewis]]'s "Mere [[Christianity]]."
 
 ### AF 2018-03-05 0118
 (00:15:40) Nicholas J. Fuentes recommended "The Last Superstition" by [[Edward Feser]] as a refutation of arguments by new atheists like [[Richard Dawkins]], [[Daniel Dennett]], and [[Christopher Hitchens]].
@@ -41257,7 +41257,7 @@
 (00:18:20) Nicholas J. Fuentes recommended "Rediscover [[Catholicism]]" by [[Matthew Kelly]] as a primer on [[Catholicism]].
 
 ### AF 2018-03-05 0118
-(00:18:40) Nicholas J. Fuentes recommended "How the [[Pope Francis|Catholic Church]] Built Western Civilization" by [[Thomas E. Woods Jr.]] to counter claims that the Church caused the Dark Ages.
+(00:18:40) Nicholas J. Fuentes recommended "How the [[Catholic Church]] Built Western Civilization" by [[Thomas E. Woods Jr.]] to counter claims that the Church caused the Dark Ages.
 
 ### AF 2018-03-05 0118
 (00:19:40) Nicholas J. Fuentes recommended "The Founding Fathers on Leadership" by [[Joshua Charles]] for its argument that [[United States|America]]'s founders were [[Christianity|Christian]].
@@ -41302,7 +41302,7 @@
 (00:50:40) Nicholas J. Fuentes argued that support for free trade among think tanks like the [[American Enterprise Institute]] and [[Cato Institute]], media like [[Warner Bros. Discovery|CNN]], and politicians like [[Paul Ryan]] is driven by funding from globalist interests.
 
 ### AF 2018-03-05 0118
-(00:53:20) Nicholas J. Fuentes defined Zionism as a 19th-century secular movement, led by figures like [[Theodor Herzl]], to establish a [[Jews|Jewish]] homeland, ultimately settling on [[Gaza Strip|Palestine]].
+(00:53:20) Nicholas J. Fuentes defined Zionism as a 19th-century secular movement, led by figures like [[Theodor Herzl]], to establish a [[Jews|Jewish]] homeland, ultimately settling on [[Palestine]].
 
 ### AF 2018-03-05 0118
 (00:55:20) Nicholas J. Fuentes recommended "Against Our Better Judgment" by [[Alison Weir]], which details how Zionists used the [[United States]] to help create the modern [[state]] of [[Israel]].
@@ -41317,13 +41317,13 @@
 (01:02:00) Nicholas J. Fuentes criticized the [[Anti-Defamation League]] and [[University of California, Berkeley|UC Berkeley]] for an advertisement promoting [[Artificial Intelligence|AI]] monitoring of "hate speech," calling it Orwellian censorship.
 
 ### AF 2018-03-05 0118
-(01:06:20) Nicholas J. Fuentes argued that [[World War II]] began because [[United Kingdom|Britain]] honored a defense pact with [[Israel|Poland]] after [[Germany]] attempted to retake the [[Germany|German]] [[city]] of [[City of Gdańsk|Danzig]], questioning if the resulting devastation was worth it.
+(01:06:20) Nicholas J. Fuentes argued that [[World War II]] began because [[United Kingdom|Britain]] honored a defense pact with [[Israel|Poland]] after [[Germany]] attempted to retake the [[Germany|German]] [[city]] of [[Danzig]], questioning if the resulting devastation was worth it.
 
 ### AF 2018-03-05 0118
 (01:09:00) Nicholas J. Fuentes stated that [[State of Japan|Japan]]'s potential constitutional revision to expand its autonomous military capacity would check [[China]]'s power and shift the Pacific balance away from [[United States|U.S]]. hegemony.
 
 ### AF 2018-03-05 0118
-(01:11:00) Nicholas J. Fuentes predicted an inevitable economic collapse due to systemic flaws like quantitative easing, low interest rates, and over $20 trillion in national debt, with entitlements like [[Health and Human Services|Medicare]] and [[Social Security]] becoming insolvent.
+(01:11:00) Nicholas J. Fuentes predicted an inevitable economic collapse due to systemic flaws like quantitative easing, low interest rates, and over $20 trillion in national debt, with entitlements like [[Medicare]] and [[Social Security]] becoming insolvent.
 
 ### AF 2018-03-05 0118
 (01:13:00) Nicholas J. Fuentes stated that the [[Deferred Action for Childhood Arrivals|DACA]] rescission was stalled as courts in [[San Francisco Bay Area|San Francisco]] and [[New York]] ruled against it, requiring the [[Donald Trump|Trump]] administration to appeal through the circuit courts before reaching the [[Supreme Court of the United States|Supreme Court]].
@@ -41338,7 +41338,7 @@
 (00:00:54) Nicholas J. Fuentes stated he had just returned from a [[United States Holocaust Memorial Museum|Holocaust]] class where he and classmates from diverse backgrounds studied topics including aerial photographs, smokestack shadows, and the [[Soviet Union]]'s jurisdiction over [[Israel|Poland]].
 
 ### AF 2018-03-02 0117
-(00:05:16) Nicholas J. Fuentes advised a caller that concerns about physical appearance and "optics" primarily mattered for individuals serving as the public face of the movement at rallies or demonstrations, citing [[Richard Spencer]]'s speech in [[City of Gainesville|Gainesville]] with [[Mike Cernovich|Mike Enoch]] as a negative example.
+(00:05:16) Nicholas J. Fuentes advised a caller that concerns about physical appearance and "optics" primarily mattered for individuals serving as the public face of the movement at rallies or demonstrations, citing [[Richard Spencer]]'s speech in [[Gainesville]] with [[Mike Cernovich|Mike Enoch]] as a negative example.
 
 ### AF 2018-03-02 0117
 (00:06:07) Nicholas J. Fuentes argued that the most needed activism involved joining political campaigns or local party organizations like the [[Republican Party]], where specialized skills and influence were more valuable than public presentation.
@@ -41365,7 +41365,7 @@
 (00:21:57) Nicholas J. Fuentes criticized "red flag" firearm confiscation laws, like those in [[State of California|California]], warning they could be abused by activist judges to disarm law-abiding citizens.
 
 ### AF 2018-03-02 0117
-(00:23:28) Nicholas J. Fuentes stated that the [[SHARE Act]], which would have legalized suppressors and established national concealed carry reciprocity, was shelved following the [[City of Las Vegas|Las Vegas]] shooting and the [[City of Parkland|Parkland]] shooting.
+(00:23:28) Nicholas J. Fuentes stated that the [[SHARE Act]], which would have legalized suppressors and established national concealed carry reciprocity, was shelved following the [[Las Vegas]] shooting and the [[Parkland]] shooting.
 
 ### AF 2018-03-02 0117
 (00:24:37) Nicholas J. Fuentes recommended that viewers join [[Gun Owners of America]] for its effective advocacy and action alerts.
@@ -41398,7 +41398,7 @@
 (00:44:28) Nicholas J. Fuentes revealed that a debate between himself and [[Richard Spencer]] on "revolutionary" versus "electoral" strategies was previously planned for the [[Timothy Gionet|Baked Alaska]] show but was called off after they reconciled at [[Conservative Political Action Conference|CPAC]].
 
 ### AF 2018-03-02 0117
-(00:45:37) Nicholas J. Fuentes stated that the "electoral method" was ascendant over "third-positionist revolutionary" tactics within the dissident right, citing failures at events like the [[City of Charlottesville|Charlottesville]] rally.
+(00:45:37) Nicholas J. Fuentes stated that the "electoral method" was ascendant over "third-positionist revolutionary" tactics within the dissident right, citing failures at events like the [[Charlottesville]] rally.
 
 ### AF 2018-03-02 0117
 (00:48:44) Nicholas J. Fuentes expressed personal opposition to infant circumcision, calling it a "barbaric, ancient practice" that should potentially be banned, while acknowledging it was not his area of expertise.
@@ -41428,7 +41428,7 @@
 (02:38:40) Nicholas J. Fuentes characterized think tanks like the [[Cato Institute]] and the [[American Enterprise Institute]] as ideological proponents of free trade [[who]] opposed [[Donald Trump]]'s protectionist tariffs.
 
 ### AF 2018-02-28 0115
-(01:07:68) Nicholas J. Fuentes received a knife from a supporter named "Joe the Boomer" to comply with [[City of Chicago|Chicago]]'s concealed carry blade length restrictions.
+(01:07:68) Nicholas J. Fuentes received a knife from a supporter named "Joe the Boomer" to comply with [[Chicago]]'s concealed carry blade length restrictions.
 
 ### AF 2018-02-28 0115
 (07:42:76) Nicholas J. Fuentes challenged [[Ben Shapiro]] to a debate, accusing [[Ben Shapiro|Shapiro]] of ignoring him while posting videos about him on [[Twitter]].
@@ -41539,19 +41539,19 @@
 (01:14:58) Nicholas J. Fuentes argued that figures like [[E. Michael Jones]] and [[David Duke]] should not be invited on his show to maintain a distinction from groups deemed unacceptable.
 
 ### AF 2018-02-20 0112
-(01:35:82) Nicholas J. Fuentes argued that most homicides in the [[United States]] are committed with handguns, not rifles, and cited [[City of Chicago|Chicago]]'s strict gun laws alongside ongoing violence.
+(01:35:82) Nicholas J. Fuentes argued that most homicides in the [[United States]] are committed with handguns, not rifles, and cited [[Chicago]]'s strict gun laws alongside ongoing violence.
 
 ### AF 2018-02-20 0112
-(01:43:86) Nicholas J. Fuentes expressed skepticism about media coverage of the [[City of Parkland|Parkland]] school shooting, citing unanswered questions about the [[City of Las Vegas|Las Vegas]] shooting involving [[Stephen Paddock]].
+(01:43:86) Nicholas J. Fuentes expressed skepticism about media coverage of the [[Parkland]] school shooting, citing unanswered questions about the [[Las Vegas]] shooting involving [[Stephen Paddock]].
 
 ### AF 2018-02-20 0112
-(01:51:48) Nicholas J. Fuentes highlighted witness accounts from the [[City of Parkland|Parkland]] shooting that reported both a fire drill and a scheduled active shooter drill involving blanks and simulated screams on the same day, Valentine's Day.
+(01:51:48) Nicholas J. Fuentes highlighted witness accounts from the [[Parkland]] shooting that reported both a fire drill and a scheduled active shooter drill involving blanks and simulated screams on the same day, Valentine's Day.
 
 ### AF 2018-02-20 0112
 (02:11:54) Nicholas J. Fuentes noted that one student activist touring the [[country]] for gun control, David Hogg, is the son of a former [[Federal Bureau of Investigation|FBI]] agent.
 
 ### AF 2018-02-20 0112
-(02:15:54) Nicholas J. Fuentes pointed out that the [[City of Parkland|Parkland]] shooter, [[Nikolas Cruz]], had been visited by police 36 times and that the [[Federal Bureau of Investigation|FBI]] had been tipped off twice prior to the attack.
+(02:15:54) Nicholas J. Fuentes pointed out that the [[Parkland]] shooter, [[Nikolas Cruz]], had been visited by police 36 times and that the [[Federal Bureau of Investigation|FBI]] had been tipped off twice prior to the attack.
 
 ### AF 2018-02-20 0112
 (02:28:04) Nicholas J. Fuentes criticized media focus on the humanitarian crisis in [[Ghouta]], [[Syria]], suggesting it was a precursor to calls for [[United States]] military intervention.
@@ -41572,13 +41572,13 @@
 (03:28:16) Nicholas J. Fuentes advised viewers to get involved in politics by contacting their county [[Republican Party|GOP]] [[organization]] or joining a political campaign.
 
 ### AF 2018-02-20 0112
-(03:47:04) Nicholas J. Fuentes argued against abandoning the [[United States]], drawing a parallel to historical defenders of [[Europe]] during the Siege of [[City of Vienna|Vienna]] in 1683.
+(03:47:04) Nicholas J. Fuentes argued against abandoning the [[United States]], drawing a parallel to historical defenders of [[Europe]] during the Siege of [[Vienna]] in 1683.
 
 ### AF 2018-02-20 0112
 (03:59:54) Nicholas J. Fuentes stated he uses OBS (Open Broadcaster Software) for his live stream production.
 
 ### AF 2018-02-20 0112
-(04:04:26) Nicholas J. Fuentes listed his top philosophers as [[Friedrich Nietzsche|Nietzsche]], [[Thomas Aquinas]], [[Aristotle]], [[Plato]], [[Thomas Hobbes]], [[Rousseau]], [[City of St. Augustine|St. Augustine]], [[Kant]], and [[Roger Scruton]].
+(04:04:26) Nicholas J. Fuentes listed his top philosophers as [[Friedrich Nietzsche|Nietzsche]], [[Thomas Aquinas]], [[Aristotle]], [[Plato]], [[Thomas Hobbes]], [[Rousseau]], [[St. Augustine]], [[Kant]], and [[Roger Scruton]].
 
 ### AF 2018-02-20 0112
 (04:04:56) Nicholas J. Fuentes recommended *[[Who]] Are We?* by [[Samuel Huntington]] as the best book on [[United States|American]] identity.
@@ -41608,22 +41608,22 @@
 (00:06:01) Nicholas J. Fuentes questioned whether an expansion of executive power under [[Donald Trump]] to rein in other branches of government would be detrimental, arguing the alternative of inaction could be worse.
 
 ### AF 2018-02-19 0111
-(00:07:20) Nicholas J. Fuentes reported attending a large protest in downtown [[City of Chicago|Chicago]] over the weekend, with major national protests planned for March 14th, March 24th in [[Washington D.C.|Washington, D.C.]], and April 20th.
+(00:07:20) Nicholas J. Fuentes reported attending a large protest in downtown [[Chicago]] over the weekend, with major national protests planned for March 14th, March 24th in [[Washington D.C.|Washington, D.C.]], and April 20th.
 
 ### AF 2018-02-19 0111
-(00:08:46) Nicholas J. Fuentes contrasted the significant activist response to the [[City of Parkland|Parkland]] shooting with the relative lack of political push following the [[City of Las Vegas|Las Vegas]] shooting, which was the deadliest mass shooting in [[United States]] history.
+(00:08:46) Nicholas J. Fuentes contrasted the significant activist response to the [[Parkland]] shooting with the relative lack of political push following the [[Las Vegas]] shooting, which was the deadliest mass shooting in [[United States]] history.
 
 ### AF 2018-02-19 0111
-(00:10:52) Nicholas J. Fuentes accused media outlets like [[Warner Bros. Discovery|CNN]] of coaching student witnesses from the [[City of Parkland|Parkland]] shooting during interviews to push a specific political message on gun control.
+(00:10:52) Nicholas J. Fuentes accused media outlets like [[Warner Bros. Discovery|CNN]] of coaching student witnesses from the [[Parkland]] shooting during interviews to push a specific political message on gun control.
 
 ### AF 2018-02-19 0111
 (00:12:01) Nicholas J. Fuentes stated that [[Democratic Party|Democratic]] activists and media were framing supporters of the [[U.S. Constitution|Second Amendment]] and the [[National Rifle Association|NRA]] as either desiring school shootings or insufficiently caring about children.
 
 ### AF 2018-02-19 0111
-(00:17:56) Nicholas J. Fuentes detailed numerous warning signs exhibited by [[City of Parkland|Parkland]] shooter Nikolas [[Ted Cruz|Cruz]], including 36 police visits to his home, two tips to the [[Federal Bureau of Investigation|FBI]], expulsion for bringing bullets to school, and explicit threats on social media.
+(00:17:56) Nicholas J. Fuentes detailed numerous warning signs exhibited by [[Parkland]] shooter Nikolas [[Ted Cruz|Cruz]], including 36 police visits to his home, two tips to the [[Federal Bureau of Investigation|FBI]], expulsion for bringing bullets to school, and explicit threats on social media.
 
 ### AF 2018-02-19 0111
-(00:20:39) Nicholas J. Fuentes described engaging with protesters at a [[Moms Demand Action]] rally in [[City of Chicago|Chicago]], where he proposed compromises like enhanced background checks and arming teachers, but found most attendees unwilling to reason.
+(00:20:39) Nicholas J. Fuentes described engaging with protesters at a [[Moms Demand Action]] rally in [[Chicago]], where he proposed compromises like enhanced background checks and arming teachers, but found most attendees unwilling to reason.
 
 ### AF 2018-02-19 0111
 (00:22:26) Nicholas J. Fuentes cited a statistic that 99% of mass shootings occur in gun-free zones, arguing they are targeted because shooters know they will encounter no armed resistance.
@@ -41704,7 +41704,7 @@
 (00:39:42) Nicholas J. Fuentes argued that lasting political change must be a long, drawn-out process built brick by brick, contrasting it with [[the left]]'s century-long project from the [[Frankfurt School]] to [[Barack Obama]].
 
 ### AF 2018-02-16 0110
-(00:41:40) Nicholas J. Fuentes stated that [[Steven Crowder|Steve Bannon]] told [[Sean Hannity]] the political battle would be won "every day for the next 20 years, every election year for the next 20 years."
+(00:41:40) Nicholas J. Fuentes stated that [[Steve Bannon]] told [[Sean Hannity]] the political battle would be won "every day for the next 20 years, every election year for the next 20 years."
 
 ### AF 2018-02-16 0110
 (00:43:02) Nicholas J. Fuentes argued that [[the left]] has a built-in call to action (e.g., "go out and vote") for every problem, while the right faces an uphill battle to walk people through rethinking foundational beliefs, such as on race and IQ.
@@ -41803,7 +41803,7 @@
 (18:25:26) Nicholas J. Fuentes analyzed the public Instagram profile of suspect [[Nicholas Cruz]], which featured images of guns, knives, and antagonistic messages, and questioned why no one intervened given these obvious warning signs.
 
 ### AF 2018-02-14 0108
-(20:00:12) Nicholas J. Fuentes referenced the case of [[Adam Lanza]], the shooter at [[City of Newtown|Sandy Hook]] Elementary School, [[who]] obtained his firearms from his mother's gun safe.
+(20:00:12) Nicholas J. Fuentes referenced the case of [[Adam Lanza]], the shooter at [[Sandy Hook]] Elementary School, [[who]] obtained his firearms from his mother's gun safe.
 
 ### AF 2018-02-14 0108
 (22:41:24) Nicholas J. Fuentes criticized the political left and the [[Democratic Party]] for seeking governmental and legislative solutions to social problems like mass shootings, which he argued allows individuals to abdicate personal and community responsibility.
@@ -41926,7 +41926,7 @@
 (00:28:25) Nicholas J. Fuentes considered starting a new podcast focused on the 2018 elections, potentially titled "2018 Election HQ."
 
 ### AF 2018-02-09 0105
-(00:31:46) An African Uber driver picked up Nicholas J. Fuentes from the airport when he traveled to [[City of Charlottesville|Charlottesville]], [[State of Virginia|Virginia]] for a rally in August.
+(00:31:46) An African Uber driver picked up Nicholas J. Fuentes from the airport when he traveled to [[Charlottesville]], [[State of Virginia|Virginia]] for a rally in August.
 
 ### AF 2018-02-09 0105
 (00:33:52) [[Friedrich Nietzsche]] wrote about the [[concept]] of the "last man" in his book *Thus Spoke Zarathustra*, which Nicholas J. Fuentes argued describes the modern [[Reddit]] user.
@@ -42070,7 +42070,7 @@
 (01:34:08) Nicholas J. Fuentes listed his top five favorite films as *Taxi Driver*, *The Godfather Part II*, *Goodfellas*, *Casablanca*, and *Citizen Kane*.
 
 ### AF 2018-02-09 0105
-(01:36:48) Nicholas J. Fuentes acknowledged corruption in the [[Vatican]] but argued the [[Pope Francis|Catholic Church]]'s 2,000-year endurance is testament to its divine protection.
+(01:36:48) Nicholas J. Fuentes acknowledged corruption in the [[Vatican]] but argued the [[Catholic Church]]'s 2,000-year endurance is testament to its divine protection.
 
 ### AF 2018-02-09 0105
 (01:37:34) Nicholas J. Fuentes invited comedian [[Samuel J. Hyde|Sam Hyde]] on his show but never received a response.
@@ -42268,7 +42268,7 @@
 (00:02:47) The CEO of [[Right Side Broadcasting Network]] issued a statement acknowledging that Nicholas J. Fuentes made inappropriate comments regarding [[Warner Bros. Discovery|CNN]] and others on his show, stating the comments were unacceptable and did not reflect the views of the network.
 
 ### AF 2018-02-06 0102
-(00:03:34) Nicholas J. Fuentes was identified as having attended the white nationalist rally in [[City of Charlottesville|Charlottesville]].
+(00:03:34) Nicholas J. Fuentes was identified as having attended the white nationalist rally in [[Charlottesville]].
 
 ### AF 2018-02-06 0102
 (00:04:28) Nicholas J. Fuentes identified himself as a firm [[Christianity|Christian]].
@@ -42280,7 +42280,7 @@
 (00:07:05) Nicholas J. Fuentes stated he is labeled as a member of the Alt-Right and called an anti-Semite and a bigot, but that he is trying to stand up for the [[United States|American]] people and put [[United States|American]] interests first.
 
 ### AF 2018-02-06 0102
-(00:07:39) Nicholas J. Fuentes announced he would be attending the "Unite the Right" rally in [[City of Charlottesville|Charlottesville]].
+(00:07:39) Nicholas J. Fuentes announced he would be attending the "Unite the Right" rally in [[Charlottesville]].
 
 ### AF 2018-02-06 0102
 (00:08:07) Nicholas J. Fuentes stated that [[United States|America]] was meant to be a majority white [[country]] and is no longer going to be that way.
@@ -42352,7 +42352,7 @@
 (00:34:01) Nicholas J. Fuentes, when asked how to reach a bigger audience, stated that things were in the works for him to reach a very big audience, with papers being signed and phone calls made.
 
 ### AF 2018-02-06 0102
-(00:34:48) Nicholas J. Fuentes argued that to reach a bigger audience, the movement must appeal more broadly, contrasting the current "alt-right" strategy with the earlier "big tent" approach that included figures like [[Mike Cernovich]], [[Breitbart News|Breitbart]], [[Steven Crowder|Steve Bannon]], and [[Donald Trump]].
+(00:34:48) Nicholas J. Fuentes argued that to reach a bigger audience, the movement must appeal more broadly, contrasting the current "alt-right" strategy with the earlier "big tent" approach that included figures like [[Mike Cernovich]], [[Breitbart News|Breitbart]], [[Steve Bannon]], and [[Donald Trump]].
 
 ### AF 2018-02-06 0102
 (00:35:53) Nicholas J. Fuentes noted that [[Richard Spencer]] has fewer followers than [[Paul Nealon]], attributing it to the alt-right's decision not to appeal to a mass audience.
@@ -42373,10 +42373,10 @@
 (00:44:30) "Joe the Serb" told Nicholas J. Fuentes he went to mass for the first [[time]] in almost 20 years and felt nourished, thanking Fuentes for the influence.
 
 ### AF 2018-02-06 0102
-(00:47:14) "Joe the Serb]] asked Nicholas J. Fuentes about optics, referencing an argument that [[City of Charlottesville|Charlottesville]] was a mess and that good optics are needed to get the average [[United States|American]] behind the movement.
+(00:47:14) "Joe the Serb]] asked Nicholas J. Fuentes about optics, referencing an argument that [[Charlottesville]] was a mess and that good optics are needed to get the average [[United States|American]] behind the movement.
 
 ### AF 2018-02-06 0102
-(00:47:48) Nicholas J. Fuentes explained his attendance at the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally by citing his youth and plausible deniability, stating he learned the hard way after seeing it degenerate to an indefensible point.
+(00:47:48) Nicholas J. Fuentes explained his attendance at the [[Charlottesville]] "Unite the Right" rally by citing his youth and plausible deniability, stating he learned the hard way after seeing it degenerate to an indefensible point.
 
 ### AF 2018-02-06 0102
 (00:50:31) A caller asked Nicholas J. Fuentes why right-wing groups encourage self-improvement like going to the gym and church; Fuentes linked it to [[Donald Trump]]'s "[[Donald Trump|Make America Great Again]]" message, arguing restoration of the [[country]] requires restoring the individual.
@@ -42406,7 +42406,7 @@
 (01:07:36) Nicholas J. Fuentes stated the long-term solution to demographic decline is ending all immigration and implementing economic reforms, like paid parental leave and cheaper healthcare, to allow the middle class to have children again, alongside a cultural renaissance that makes having kids virtuous again.
 
 ### AF 2018-02-06 0102
-(01:09:43) A caller asked Nicholas J. Fuentes when he would have [[Owen Cyclops]] and [[Donald Trump|Comrade Stump]] on his show; Fuentes said he would reach out, as he was a big fan of Owen Cyclops.
+(01:09:43) A caller asked Nicholas J. Fuentes when he would have [[Owen Cyclops]] and [[Comrade Stump]] on his show; Fuentes said he would reach out, as he was a big fan of Owen Cyclops.
 
 ### AF 2018-02-06 0102
 (01:10:15) A caller recommended the video game "Kingdom Come: Deliverance" to Nicholas J. Fuentes, describing it as "very trad."
@@ -42472,7 +42472,7 @@
 (02:07:06) Nicholas J. Fuentes recalled receiving a call from [[Warner Bros. Discovery|CNN]] after stating people should "hang the globalists."
 
 ### AF 2018-02-05 0101
-(02:15:00) Nicholas J. Fuentes referenced his attendance at the [[City of Charlottesville|Charlottesville rally]] and subsequent departure from [[Right Side Broadcasting Network|RSBN]].
+(02:15:00) Nicholas J. Fuentes referenced his attendance at the [[Charlottesville rally]] and subsequent departure from [[Right Side Broadcasting Network|RSBN]].
 
 ### AF 2018-02-05 0101
 (02:26:34) Nicholas J. Fuentes announced that influencer Ricky Vaughn would be a guest on his show that Wednesday to discuss the alt-right and dissident right.
@@ -42577,7 +42577,7 @@
 (00:43:44) Nicholas J. Fuentes concluded that reconciliation between [[blacks]] and whites may be impossible, ultimately leading to separation.
 
 ### AF 2018-02-01 0099
-(00:45:03) Nicholas J. Fuentes argued that [[United States|American]] history is [[Catholic]] history because the [[Pope Francis|Catholic Church]] evangelized the world and gave birth to nations.
+(00:45:03) Nicholas J. Fuentes argued that [[United States|American]] history is [[Catholic]] history because the [[Catholic Church]] evangelized the world and gave birth to nations.
 
 ### AF 2018-02-01 0099
 (00:48:03) Nicholas J. Fuentes invited the commentator Ricky Vaughn to appear on his show the following week, agreeing with his critique that the right needs to stop being whiny.
@@ -42634,7 +42634,7 @@
 (01:49:00) Nicholas J. Fuentes contended that the 43% [[Democratic Party|Democratic]] approval for [[Donald Trump]]'s speech suggested a lack of energizing "righteous indignation" that would hurt [[Democratic Party]] turnout in the 2018 midterms.
 
 ### AF 2018-01-31 0098
-(01:49:00) Nicholas J. Fuentes stated that the 72% independent approval rating for [[Donald Trump]]'s [[Concept|State of the Union]] address was a significant rebuke to polls showing record low approval for [[Donald Trump|the president]] over the past year.
+(01:49:00) Nicholas J. Fuentes stated that the 72% independent approval rating for [[Donald Trump]]'s [[Concept|State of the Union]] address was a significant rebuke to polls showing record low approval for [[the president]] over the past year.
 
 ### AF 2018-01-31 0098
 (02:15:00) [[Edward Kennedy|Joe Kennedy]] delivered the [[Democratic Party]] response to [[Donald Trump]]'s [[Concept|State of the Union]] address from an auto shop setting, a choice Nicholas J. Fuentes criticized as transparent pandering to blue-collar workers.
@@ -42772,7 +42772,7 @@
 (06:37:38) Nicholas J. Fuentes alleged [[Fusion GPS]] was given access to the national security database and [[Foreign Intelligence Surveillance Act|FISA]] surveillance apparatus by the [[Barack Obama administration|Obama administration]] to illegally [[target]] [[Donald Trump]] as a political opponent.
 
 ### AF 2018-01-29 0096
-(07:48:58) Nicholas J. Fuentes stated the dossier was a 35-[[page]] document compiled by former [[United Kingdom|British]] spy [[Christopher Steele]], which alleged [[Donald Trump]] was compromised by [[Vladimir Putin]] during a trip to [[City of Moscow|Moscow]].
+(07:48:58) Nicholas J. Fuentes stated the dossier was a 35-[[page]] document compiled by former [[United Kingdom|British]] spy [[Christopher Steele]], which alleged [[Donald Trump]] was compromised by [[Vladimir Putin]] during a trip to [[Moscow]].
 
 ### AF 2018-01-29 0096
 (08:14:24) Nicholas J. Fuentes said the dossier was published by [[BuzzFeed]] around a year prior and was used as the basis for appointing Special Counsel [[Robert Mueller]] after the election.
@@ -42784,7 +42784,7 @@
 (10:15:30) Nicholas J. Fuentes claimed if the memo's allegations of a high-level conspiracy against [[Donald Trump]] were true, it would result in "serious heads rolling" and major upheaval, surpassing the Watergate scandal.
 
 ### AF 2018-01-29 0096
-(11:06:10) Nicholas J. Fuentes connected the memo's release to the previous week's news that the [[Federal Bureau of Investigation|FBI]] announced it was missing 50,000 text messages between agents [[Peter Strzok]] and [[Lisa Page]] from December 2016 to May 2017, allegedly related to a "secret society" conspiring against [[Donald Trump|the president]].
+(11:06:10) Nicholas J. Fuentes connected the memo's release to the previous week's news that the [[Federal Bureau of Investigation|FBI]] announced it was missing 50,000 text messages between agents [[Peter Strzok]] and [[Lisa Page]] from December 2016 to May 2017, allegedly related to a "secret society" conspiring against [[the president]].
 
 ### AF 2018-01-29 0096
 (12:02:88) Nicholas J. Fuentes argued the genesis of the scandal traced back to [[Hillary Clinton]]'s tenure as [[U.S. Department of State|Secretary of State]], during which she allegedly engaged in "pay-to-play" schemes, trading favors to foreign countries and oligarchs for donations to the [[Clinton Foundation]].
@@ -42895,7 +42895,7 @@
 (26:43:81) Nicholas J. Fuentes recounted a classroom experience at [[Boston University]] where a professor dismissed a discussion on eugenics—mentioned by [[Plato]] and [[Arthur Schopenhauer]]—by invoking the [[United States Holocaust Memorial Museum|Holocaust]], which he saw as an example of historical events chilling intellectual dialogue.
 
 ### AF 2018-01-26 0095
-(30:05:33) Nicholas J. Fuentes, a [[Catholic]], stated that Protestantism is in rebellion against the true faith due to its lack of a definitive interpretive authority like the [[Pope Francis|Catholic Church]], making its theology unstable.
+(30:05:33) Nicholas J. Fuentes, a [[Catholic]], stated that Protestantism is in rebellion against the true faith due to its lack of a definitive interpretive authority like the [[Catholic Church]], making its theology unstable.
 
 ### AF 2018-01-26 0095
 (33:13:45) Nicholas J. Fuentes expressed skepticism about the theory of evolution, criticizing those [[who]] believe in it without understanding the evidence or its implications, particularly regarding biogenesis and entropy.
@@ -42916,7 +42916,7 @@
 (44:32:25) Nicholas J. Fuentes challenged critics [[who]] accused him of being a "Nazbol" subversive to explain their lack of similar criticism for Richard Spencer's documented ties to [[Alexander Dugin]].
 
 ### AF 2018-01-26 0095
-(45:21:36) Nicholas J. Fuentes argued that many of the [[Alt-right]]'s criticisms of capitalism, such as opposition to usury and international finance, align with longstanding doctrines of the [[Pope Francis|Catholic Church]].
+(45:21:36) Nicholas J. Fuentes argued that many of the [[Alt-right]]'s criticisms of capitalism, such as opposition to usury and international finance, align with longstanding doctrines of the [[Catholic Church]].
 
 ### AF 2018-01-26 0095
 (46:47:78) Nicholas J. Fuentes criticized [[Ben Shapiro]]'s advocacy for free-market capitalism while supporting a central banking system, arguing that controlling the money supply through a body like the [[Federal Reserve]] is antithetical to true free markets.
@@ -42949,7 +42949,7 @@
 (01:02:42:54) Nicholas J. Fuentes expressed a willingness to forgive [[Cassie D.]] for past disagreements, attributing her actions to typical female emotionalism and stating she would be welcomed back if she apologized.
 
 ### AF 2018-01-26 0095
-(01:03:15:00) Nicholas J. Fuentes reminisced about his [[time]] with [[Cassie D.]] during his studies at [[Boston University]].(01:04:29) Nicholas J. Fuentes questioned the [[Pope Francis|Catholic Church]]'s prohibition on usury, arguing that charging interest is necessary for economic growth.
+(01:03:15:00) Nicholas J. Fuentes reminisced about his [[time]] with [[Cassie D.]] during his studies at [[Boston University]].(01:04:29) Nicholas J. Fuentes questioned the [[Catholic Church]]'s prohibition on usury, arguing that charging interest is necessary for economic growth.
 
 ### AF 2018-01-26 0095
 (01:05:02) Nicholas J. Fuentes stated he had recently tangled with Richard Spencer.
@@ -42973,7 +42973,7 @@
 (01:12:01) Nicholas J. Fuentes recounted that Richard Spencer, a 40-year-old man, called him, a 19-year-old, drunk at midnight to issue threats, which he found concerning.
 
 ### AF 2018-01-26 0095
-(01:12:36) Nicholas J. Fuentes visited Richard Spencer's residence, [[known]] as the "hate loft" in [[City of Alexandria|Alexandria]], [[State of Virginia|Virginia]], and found the party attendees were exclusively young boys, which he found disconcerting.
+(01:12:36) Nicholas J. Fuentes visited Richard Spencer's residence, [[known]] as the "hate loft" in [[Alexandria]], [[State of Virginia|Virginia]], and found the party attendees were exclusively young boys, which he found disconcerting.
 
 ### AF 2018-01-26 0095
 (01:13:23) Nicholas J. Fuentes stated that the de facto requirements to watch his show included a high IQ and being tall, humorously citing thresholds of 250 IQ and 6'9" height.
@@ -43015,7 +43015,7 @@
 (01:34:30) Nicholas J. Fuentes confirmed the existence of Richard Spencer's "hate lair" where parties and Dungeons & Dragons games are held, and criticized the [[National Policy Institute]] for financial mismanagement and bouncing checks.
 
 ### AF 2018-01-26 0095
-(01:35:32) Nicholas J. Fuentes criticized Richard Spencer's leadership, citing his drunk calls, the fatal violence at the [[City of Charlottesville|Charlottesville rally]], and his [[organization]]'s financial problems as reasons his vision for an ethnostate is not credible.
+(01:35:32) Nicholas J. Fuentes criticized Richard Spencer's leadership, citing his drunk calls, the fatal violence at the [[Charlottesville rally]], and his [[organization]]'s financial problems as reasons his vision for an ethnostate is not credible.
 
 ### AF 2018-01-26 0095
 (01:36:12) Nicholas J. Fuentes argued that successful political movements require serious infrastructure like that of the [[Republican Party]], including think tanks and economists, which the alt-right lacks.
@@ -43258,7 +43258,7 @@
 (00:42:07) Nicholas J. Fuentes stated he was still a 33% shareholder in [[America First Media]] and was waiting for a buyout to fund a new set for his show.
 
 ### AF 2018-01-24 0093
-(00:45:09) Nicholas J. Fuentes criticized the [[organization]] of a rally by Richard Spencer in [[City of Gainesville|Gainesville]], where Spencer was on a big empty stage with a microphone, while [[Eli Mosley]] and [[Mike Cernovich|Mike Enoch]] stood behind him slouching in ill-fitting clothes.
+(00:45:09) Nicholas J. Fuentes criticized the [[organization]] of a rally by Richard Spencer in [[Gainesville]], where Spencer was on a big empty stage with a microphone, while [[Eli Mosley]] and [[Mike Cernovich|Mike Enoch]] stood behind him slouching in ill-fitting clothes.
 
 ### AF 2018-01-24 0093
 (00:45:51) Nicholas J. Fuentes argued that if a movement claims to be competent, it should show up with professional optics, including flags, a podium, and efficient [[organization]], unlike the rally he described.
@@ -43291,13 +43291,13 @@
 (00:55:10) Nicholas J. Fuentes identified the biggest systemic problem with Protestantism as *sola scriptura* (Bible alone) and the absence of an apostolic clergy with final authority on doctrine.
 
 ### AF 2018-01-24 0093
-(00:56:11) Nicholas J. Fuentes argued that without a central authority like the [[Pope Francis|Catholic Church]], any group, like the Latin [[United States|American]] "Saint of Death" cult, can claim to be [[Christianity|Christian]], leading to doctrinal chaos.
+(00:56:11) Nicholas J. Fuentes argued that without a central authority like the [[Catholic Church]], any group, like the Latin [[United States|American]] "Saint of Death" cult, can claim to be [[Christianity|Christian]], leading to doctrinal chaos.
 
 ### AF 2018-01-24 0093
-(00:56:56) Nicholas J. Fuentes stated that the [[Pope Francis|Catholic Church]], through the Bishop of [[Rome]] and Petrine Supremacy, is the only church with the legitimacy and infallibility to decide matters of faith, as established by [[Jesus Christ|Christ]].
+(00:56:56) Nicholas J. Fuentes stated that the [[Catholic Church]], through the Bishop of [[Rome]] and Petrine Supremacy, is the only church with the legitimacy and infallibility to decide matters of faith, as established by [[Jesus Christ|Christ]].
 
 ### AF 2018-01-24 0093
-(00:57:45) Nicholas J. Fuentes encouraged readers to explore the works of [[G.K. Chesterton]] and [[G.K. Chesterton|C.S. Lewis]] on the subject of conversion and the [[Pope Francis|Catholic Church]].
+(00:57:45) Nicholas J. Fuentes encouraged readers to explore the works of [[G.K. Chesterton]] and [[C.S. Lewis]] on the subject of conversion and the [[Catholic Church]].
 
 ### AF 2018-01-24 0093
 (00:59:56) Nicholas J. Fuentes concluded the show by promoting subscriptions to "[[America First]] Premium" on [[Maker Support]] and asking for interest in the proposed "Premium Plus" tier and board game streams.
@@ -43372,7 +43372,7 @@
 (55:53:40) Nicholas J. Fuentes cited the economic policies of the 1980s under [[Ronald Reagan]], including tax cuts, deregulation, and the precursor to [[North American Free Trade Agreement|NAFTA]], as a right-wing version of capitalism.
 
 ### AF 2018-01-22 0091
-(00:59:51) [[United States|American]] tennis player Tennys Sandgren faced media questions about retweeting Nicholas J. Fuentes after advancing to the quarterfinals of the Australian Open, with journalists labeling Fuentes a "white nationalist" [[who]] attended the [[City of Charlottesville|Charlottesville rally]].
+(00:59:51) [[United States|American]] tennis player Tennys Sandgren faced media questions about retweeting Nicholas J. Fuentes after advancing to the quarterfinals of the Australian Open, with journalists labeling Fuentes a "white nationalist" [[who]] attended the [[Charlottesville rally]].
 
 ### AF 2018-01-22 0091
 (01:04:04) Political commentator Jacob Wohl argued that criticism of [[Israel]] often stems from "outright [[Jews|Jew]] hatred," a charge Nicholas J. Fuentes rejected, stating his position is that [[United States|America]] should have the same right to sovereignty and self-interest as [[Israel]].
@@ -43705,7 +43705,7 @@
 (01:05:22) Nicholas J. Fuentes announced he would be debating [[Jacob Wolf]] on Monday and intended to push harder than in previous debates.
 
 ### AF 2018-01-11 0084
-(00:00:04) Nicholas J. Fuentes hosts the [[America First]] show, broadcasting live from [[City of Chicago|Chicago]] and describing the location as "Vindication [[City]]."
+(00:00:04) Nicholas J. Fuentes hosts the [[America First]] show, broadcasting live from [[Chicago]] and describing the location as "Vindication [[City]]."
 
 ### AF 2018-01-11 0084
 (03:09:20) Nicholas J. Fuentes is scheduled to give a speech at the [[American Renaissance]] conference in April, focusing on the experiences and political attitudes of Generation Z.
@@ -43807,7 +43807,7 @@
 (42:11:72) [[Ben Shapiro]] was challenged to a public debate by Nicholas J. Fuentes, [[who]] claimed [[Ben Shapiro|Shapiro]] avoided engaging with the alt-right's arguments.
 
 ### AF 2018-01-05 0080
-(44:16:78) The [[Pope Francis|Catholic Church]] was defended by Nicholas J. Fuentes as superior to Protestantism due to its adherence to tradition, hierarchy, and centralized authority under the [[Pope Francis|Pope]].
+(44:16:78) The [[Catholic Church]] was defended by Nicholas J. Fuentes as superior to Protestantism due to its adherence to tradition, hierarchy, and centralized authority under the [[Pope Francis|Pope]].
 
 ### AF 2018-01-05 0080
 (52:25:76) Richard Spencer debated [[Carl Benjamin|Sargon of Akkad]] in a live stream watched by 12,000 people, where Spencer criticized Sargon's intelligence and lack of reading.
@@ -43831,7 +43831,7 @@
 (01:11:51:17) [[Paul Nehlen]], a candidate for [[Congress]] in [[Wisconsin]]'s first district, was scheduled to appear as a guest on a future episode of the show hosted by Nicholas J. Fuentes.
 
 ### AF 2018-01-04 0079
-(00:00:00) Nicholas J. Fuentes hosted [[Laura Loomer]] on his program to discuss her ongoing investigation into the 2017 [[City of Las Vegas|Las Vegas]] shooting and her comments on media ownership.
+(00:00:00) Nicholas J. Fuentes hosted [[Laura Loomer]] on his program to discuss her ongoing investigation into the 2017 [[Las Vegas]] shooting and her comments on media ownership.
 
 ### AF 2018-01-04 0079
 (00:04:10) Nicholas J. Fuentes stated that [[Laura Loomer]] had been in a conversation on [[Twitter]] with [[Tariq Nasheed]] regarding a statement by [[R.C. Maxwell]] that [[Jews|Jewish people]] control the media.
@@ -44002,7 +44002,7 @@
 (00:31:09) Nicholas J. Fuentes cited [[Samuel Huntington|Samuel P. Huntington]]'s *Clash of Civilizations* thesis and [[Robert D. Kaplan]]'s writings on ethnic and racial fault lines as frameworks for understanding how nations will realign in the post-Cold War world.
 
 ### AF 2017-12-22 0075
-(00:32:07) Nicholas J. Fuentes argued that the [[United Kingdom]] should turn away from the [[Europe|European Union]] and towards its former colonial holdings to form a solid Anglo alliance for the 21st century.
+(00:32:07) Nicholas J. Fuentes argued that the [[United Kingdom]] should turn away from the [[European Union]] and towards its former colonial holdings to form a solid Anglo alliance for the 21st century.
 
 ### AF 2017-12-22 0075
 (00:32:32) Nicholas J. Fuentes defended the existence of a distinct [[United States|American]] culture, rooted in English, Protestant, and liberal traditions, against critics like [[Destiny]] [[who]] claim [[United States|Americans]] have no culture.
@@ -44047,7 +44047,7 @@
 (00:46:42) Nicholas J. Fuentes stated that his criticisms of others in the movement are intended to improve optics, planning, and [[organization]], unlike what he characterized as counterproductive criticisms from shitposters or potential astroturfers.
 
 ### AF 2017-12-22 0075
-(00:48:32) Nicholas J. Fuentes listed his goals for the next five years as seeing the border wall built, [[Donald Trump]] re-elected, the [[Republican Party]] consolidated around the [[America First]] platform, [[Steven Crowder|Steve Bannon]] leading the political movement, and like-minded candidates entering congressional leadership.
+(00:48:32) Nicholas J. Fuentes listed his goals for the next five years as seeing the border wall built, [[Donald Trump]] re-elected, the [[Republican Party]] consolidated around the [[America First]] platform, [[Steve Bannon]] leading the political movement, and like-minded candidates entering congressional leadership.
 
 ### AF 2017-12-22 0075
 (00:49:07) Nicholas J. Fuentes argued that the consolidation of [[Ronald Reagan]]'s conservatism within the [[Republican Party]] failed, leading to the [[Bush family]] and 25 years of bad government, and that consolidating the Trumpist gains within the party is the most important objective for success.
@@ -44059,7 +44059,7 @@
 (00:50:53) Nicholas J. Fuentes argued that many in the alt-right movement are making a mistake by shutting themselves off from the mainstream right and engaging in purity spiraling, which prevents growth and outreach.
 
 ### AF 2017-12-22 0075
-(00:51:11) Nicholas J. Fuentes credited [[Milo Yiannopoulos]] as one of the best things to happen to the alt-right for creating a funnel from mainstream conservative commentators like [[Ben Shapiro]] and [[Steven Crowder]] into the nationalist movement, a pathway also facilitated by figures like [[Gavin McInnes]], [[Alex Jones]], and [[Paul Miller|Paul Joseph Watson]].
+(00:51:11) Nicholas J. Fuentes credited [[Milo Yiannopoulos]] as one of the best things to happen to the alt-right for creating a funnel from mainstream conservative commentators like [[Ben Shapiro]] and [[Steven Crowder]] into the nationalist movement, a pathway also facilitated by figures like [[Gavin McInnes]], [[Alex Jones]], and [[Paul Joseph Watson]].
 
 ### AF 2017-12-22 0075
 (00:51:49) Nicholas J. Fuentes claimed there is a concerted effort within the movement's leadership to cut off the flow of people from the alt-light, boarding the movement off from the rest of the world, which will lead to a plateau or decline unless the movement adopts a more pragmatic, [[America First]] nationalist brand.
@@ -44068,7 +44068,7 @@
 (00:52:56) Nicholas J. Fuentes suggested that attendees of the [[Conservative Political Action Conference|CPAC]] [[who]] are part of the dissident right should go to the event in legitimate suits with legitimate purpose to network and discuss, rather than LARPing, as a test of the movement's seriousness.
 
 ### AF 2017-12-22 0075
-(00:53:27) Nicholas J. Fuentes stated that after the [[City of Charlottesville|Charlottesville]] rally, he questioned its strategic purpose, noting massive tactical losses including deplatforming, doxing, and potential government watch list status, with no clear gains to show for it, leading him to emphasize the need for pragmatic goals and appealing to "normies."
+(00:53:27) Nicholas J. Fuentes stated that after the [[Charlottesville]] rally, he questioned its strategic purpose, noting massive tactical losses including deplatforming, doxing, and potential government watch list status, with no clear gains to show for it, leading him to emphasize the need for pragmatic goals and appealing to "normies."
 
 ### AF 2017-12-22 0075
 (00:54:59) Nicholas J. Fuentes emphasized the importance of a soft message and gradual red-pilling, recounting his own path from civil nationalism and support for [[Ron Paul]] to his current views, and criticizing those [[who]] attack newcomers as "cucks" as counterproductive.
@@ -44110,7 +44110,7 @@
 (00:39:50) [[Andrew Anglin]] concurred with Nicholas J. Fuentes that [[Paul Nehlen]]'s blend of online edginess and mainstream optics represents a viable prototype for future [[America First]] political campaigns.
 
 ### AF 2017-12-21 0074
-(00:44:30) Nicholas J. Fuentes argued that [[Donald Trump]]'s pro-[[Israel]] actions, such as recognizing [[City of Jerusalem|Jerusalem]], constituted political pandering rather than selling out, noting he did not move the [[United States Embassy in Jerusalem|embassy]] or launch wars for [[Israel]] like [[George W. Bush]] or [[Barack Obama]].
+(00:44:30) Nicholas J. Fuentes argued that [[Donald Trump]]'s pro-[[Israel]] actions, such as recognizing [[Jerusalem]], constituted political pandering rather than selling out, noting he did not move the [[United States Embassy in Jerusalem|embassy]] or launch wars for [[Israel]] like [[George W. Bush]] or [[Barack Obama]].
 
 ### AF 2017-12-21 0074
 (00:46:40) Nicholas J. Fuentes contended that [[Donald Trump]]'s destruction of [[Islamic State of Iraq and Syria|ISIS]] benefited [[Iran]]'s regional hegemony and was done against the wishes of some ministers in [[Israel]].
@@ -44203,7 +44203,7 @@
 (01:00:13) Nicholas J. Fuentes analyzed [[Paul Nehlen]]'s congressional campaign strategy, noting that [[Donald Trump|Trump]] did not win [[Wisconsin]]'s 1st district and that the moderate, purple district was unlikely to respond well to an extreme, edgy social media approach.
 
 ### AF 2017-12-18 0071
-(01:02:12) [[Rodrigo Duterte]], [[Donald Trump|the president]] of the [[Philippines]], publicly expressed support for gay marriage, a position Nicholas J. Fuentes found surprising given [[Rodrigo Duterte|Duterte]]'s previous anti-gay statements and the [[Philippines]]' status as a very [[Catholic]] [[country]].
+(01:02:12) [[Rodrigo Duterte]], [[the president]] of the [[Philippines]], publicly expressed support for gay marriage, a position Nicholas J. Fuentes found surprising given [[Rodrigo Duterte|Duterte]]'s previous anti-gay statements and the [[Philippines]]' status as a very [[Catholic]] [[country]].
 
 ### AF 2017-12-18 0071
 (01:03:44) Nicholas J. Fuentes criticized the fragility of people on the right wing [[who]] react defensively to any constructive criticism of figures or organizations within the movement.
@@ -44224,7 +44224,7 @@
 (01:12:08) Nicholas J. Fuentes argued that the 1960s represented the actualization of bad intellectual trends from earlier in the 20th century, when those ideas ascended to institutional power, marking "the beginning of the end" for the [[Kanye West|West]].
 
 ### AF 2017-12-18 0071
-(01:12:50) Nicholas J. Fuentes agreed that the alt-right needs to read [[Christianity|Christian]] authors like [[G.K. Chesterton]] and [[G.K. Chesterton|C.S. Lewis]] to understand [[Christianity]]'s significance, noting that alt-right reading lists prominently feature [[Heidegger]], [[Friedrich Nietzsche|Nietzsche]], and [[Guillaume Faye]] but exclude [[Christianity|Christian]] thinkers.
+(01:12:50) Nicholas J. Fuentes agreed that the alt-right needs to read [[Christianity|Christian]] authors like [[G.K. Chesterton]] and [[C.S. Lewis]] to understand [[Christianity]]'s significance, noting that alt-right reading lists prominently feature [[Heidegger]], [[Friedrich Nietzsche|Nietzsche]], and [[Guillaume Faye]] but exclude [[Christianity|Christian]] thinkers.
 
 ### AF 2017-12-18 0071
 (01:13:44) Nicholas J. Fuentes argued that hostility to [[Christianity]] within the alt-right stems from personal rebellion against God and a desire to avoid virtuous living, rather than from intellectual objections.
@@ -44281,7 +44281,7 @@
 (00:44:07) The [[Supreme Court of the United States|Supreme Court]] of [[Alabama]] ruled that electronic voting records from the [[Senate]] election did not need to be preserved, a decision Nicholas J. Fuentes suggested could enable voter fraud to be covered up.
 
 ### AF 2017-12-13 0069
-(00:46:42) [[Auburn University]] issued an official statement condemning "hate" after Nicholas J. Fuentes applied to transfer there, instructing its admissions department on how to respond to inquiries about his application following the [[City of Charlottesville|Charlottesville]] rally.
+(00:46:42) [[Auburn University]] issued an official statement condemning "hate" after Nicholas J. Fuentes applied to transfer there, instructing its admissions department on how to respond to inquiries about his application following the [[Charlottesville]] rally.
 
 ### AF 2017-12-11 0068
 (00:35:40) Nicholas J. Fuentes announced he would host live coverage of the [[Alabama]] [[Senate]] election results at 7 p.m. Eastern [[Time]], featuring a panel including [[James Allsup]], [[Alex Witoslawski]], [[Shane Trejo]], and [[Jazzhands McFeels]].
@@ -44341,7 +44341,7 @@
 (01:09:13) Nicholas J. Fuentes argued that Bitcoin's value stems from its predictable, finite supply and public protocols, making it a more reliable store of value than fiat currencies controlled by institutions like the [[Federal Reserve]].
 
 ### AF 2017-12-07 0066
-(01:23:57) Nicholas J. Fuentes stated that major global economies, including [[China]], [[State of Japan|Japan]], the [[United States]], and members of the [[Europe|European Union]], are burdened by unsustainable debt-to-GDP ratios exceeding 100%.
+(01:23:57) Nicholas J. Fuentes stated that major global economies, including [[China]], [[State of Japan|Japan]], the [[United States]], and members of the [[European Union]], are burdened by unsustainable debt-to-GDP ratios exceeding 100%.
 
 ### AF 2017-12-07 0066
 (01:28:41) Nicholas J. Fuentes posited that Bitcoin would retain its value during a potential global economic collapse caused by excessive debt and expansion of credit, due to its decentralized and predictable nature.
@@ -44380,7 +44380,7 @@
 (02:00:09) Nicholas J. Fuentes noted he had previously debated [[Wilt Chamberlain|Will Chamberlain]] and that his victory had made other "alt-light" personalities, like [[Mike Cernovich]], reluctant to engage in future debates with him.
 
 ### AF 2017-12-07 0066
-(02:00:57) Nicholas J. Fuentes suggested [[Donald Trump]]'s announcement about moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]] may have been a concession to [[AIPAC]] lobbying, possibly influenced by donor [[Sheldon Adelson]], in exchange for support on tax reform.
+(02:00:57) Nicholas J. Fuentes suggested [[Donald Trump]]'s announcement about moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]] may have been a concession to [[AIPAC]] lobbying, possibly influenced by donor [[Sheldon Adelson]], in exchange for support on tax reform.
 
 ### AF 2017-12-06 0065
 (00:00:00) Nicholas J. Fuentes hosted a debate on his show with [[Millennial Matt]] concerning recent controversies involving women within the movement.
@@ -44425,7 +44425,7 @@
 (00:33:22) Nicholas J. Fuentes suggested sympathy was warranted for Sean/Hubris, whose life was allegedly ruined by specific people within the movement, contrasting this with the sympathy shown for [[Tara McCarthy]].
 
 ### AF 2017-12-06 0065
-(00:35:19) Nicholas J. Fuentes referenced the [[City of Charlottesville|Charlottesville]] rally, noting that he and [[Millennial Matt]] had been together in a hotel room facing arrest, and argued they should not let internal drama divide the movement.
+(00:35:19) Nicholas J. Fuentes referenced the [[Charlottesville]] rally, noting that he and [[Millennial Matt]] had been together in a hotel room facing arrest, and argued they should not let internal drama divide the movement.
 
 ### AF 2017-12-06 0065
 (00:38:58) Nicholas J. Fuentes argued a principal issue was [[Tara McCarthy]]'s statement that the alt-right is not about anti-feminism, which he strongly contested, stating the movement is fundamentally about traditionalism and anti-feminism.
@@ -44470,25 +44470,25 @@
 (01:13:54) Nicholas J. Fuentes announced that only five "[[America First]]" mugs remained in [[stock]] for sale on his website.
 
 ### AF 2017-12-05 0064
-(01:15:54) Nicholas J. Fuentes reported that [[Donald Trump]] made phone calls to [[Palestinian Authority]] [[White House|President]] [[Mahmoud Abbas]] and Jordanian [[Martin Luther King Jr.|King]] [[King Abdullah II]], informing them the [[United States]] would move its [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]] and recognize [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]].
+(01:15:54) Nicholas J. Fuentes reported that [[Donald Trump]] made phone calls to [[Palestinian Authority]] [[White House|President]] [[Mahmoud Abbas]] and Jordanian [[Martin Luther King Jr.|King]] [[King Abdullah II]], informing them the [[United States]] would move its [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]] and recognize [[Jerusalem]] as the capital of [[Israel]].
 
 ### AF 2017-12-05 0064
-(01:16:32) Nicholas J. Fuentes explained that in 1967, during the Arab-[[Israel|Israeli]] War, [[Israel]] seized East [[City of Jerusalem|Jerusalem]] from the [[Palestinians]] and has since expanded civilian settlements there, an act most of the world considers an illegal annexation.
+(01:16:32) Nicholas J. Fuentes explained that in 1967, during the Arab-[[Israel|Israeli]] War, [[Israel]] seized East [[Jerusalem]] from the [[Palestinians]] and has since expanded civilian settlements there, an act most of the world considers an illegal annexation.
 
 ### AF 2017-12-05 0064
-(01:17:55) Nicholas J. Fuentes noted that the 1995 [[City of Jerusalem|Jerusalem]] [[Embassy]] Act, signed by [[Bill Clinton]], stated [[City of Jerusalem|Jerusalem]] is the capital of [[Israel]] and required the [[United States Embassy in Jerusalem|U.S. embassy]] to move there, but every [[president]] since had signed a six-month waiver to delay the move.
+(01:17:55) Nicholas J. Fuentes noted that the 1995 [[Jerusalem]] [[Embassy]] Act, signed by [[Bill Clinton]], stated [[Jerusalem]] is the capital of [[Israel]] and required the [[United States Embassy in Jerusalem|U.S. embassy]] to move there, but every [[president]] since had signed a six-month waiver to delay the move.
 
 ### AF 2017-12-05 0064
-(01:18:44) Nicholas J. Fuentes reported that [[Donald Trump]]'s decision to move the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]] and recognize it as [[Israel|Israel's]] capital would effectively legitimize [[Israel]]'s annexation of East [[City of Jerusalem|Jerusalem]], breaking with 50 years of [[United States|American]] precedent.
+(01:18:44) Nicholas J. Fuentes reported that [[Donald Trump]]'s decision to move the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]] and recognize it as [[Israel|Israel's]] capital would effectively legitimize [[Israel]]'s annexation of East [[Jerusalem]], breaking with 50 years of [[United States|American]] precedent.
 
 ### AF 2017-12-05 0064
-(01:19:52) Nicholas J. Fuentes listed international reactions against [[Donald Trump]]'s [[City of Jerusalem|Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] of [[Turkey]], [[who]] threatened to sever ties with [[Israel]].
+(01:19:52) Nicholas J. Fuentes listed international reactions against [[Donald Trump]]'s [[Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] of [[Turkey]], [[who]] threatened to sever ties with [[Israel]].
 
 ### AF 2017-12-05 0064
 (01:20:31) Nicholas J. Fuentes reported that [[Palestinian]] [[White House|President]] [[Mahmoud Abbas]] warned the [[United States Embassy in Jerusalem|U.S. embassy]] move would destroy the peace process and announced three days of rage, while the [[Palestinian]] Islamist group [[Hamas]] threatened a second intifada.
 
 ### AF 2017-12-05 0064
-(01:20:48) Nicholas J. Fuentes noted that the foreign ministers of [[Germany]], the [[Europe|European Union]], and [[France]] all criticized [[Donald Trump]]'s move to recognize [[City of Jerusalem|Jerusalem]] as [[Israel|Israel's]] capital as counterproductive.
+(01:20:48) Nicholas J. Fuentes noted that the foreign ministers of [[Germany]], the [[European Union]], and [[France]] all criticized [[Donald Trump]]'s move to recognize [[Jerusalem]] as [[Israel|Israel's]] capital as counterproductive.
 
 ### AF 2017-12-05 0064
 (01:22:05) Nicholas J. Fuentes questioned whether alienating allies like [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[Jim Jordan|Jordan]], [[Turkey]], [[France]], and [[Germany]] over a symbolic gesture for [[Israel]] constituted putting [[America First]].
@@ -44545,7 +44545,7 @@
 (01:52:47) Nicholas J. Fuentes stated that women like [[Faith Goldy]] can be in the movement as role models if they live according to traditional virtues, such as prioritizing family, but should not be leaders.
 
 ### AF 2017-12-05 0064
-(01:53:50) Nicholas J. Fuentes said he did not believe [[Lauren Southern]] was a hardline traditionalist, suggesting unrealistic expectations led to criticism of her, similar to when [[Steven Crowder|Steve Bannon]] disavowed the alt-right.
+(01:53:50) Nicholas J. Fuentes said he did not believe [[Lauren Southern]] was a hardline traditionalist, suggesting unrealistic expectations led to criticism of her, similar to when [[Steve Bannon]] disavowed the alt-right.
 
 ### AF 2017-12-05 0064
 (01:54:28) Nicholas J. Fuentes, when asked about [[David Ben-Gurion]]'s view that land won in a just war is rightfully owned, said his concern was not the moral legitimacy of [[Israel]]' conquests but whether [[United States|U.S]]. support for them hurts [[United States|American]] interests with Arab allies.
@@ -44713,13 +44713,13 @@
 (02:12:40) Nicholas J. Fuentes stated his preference for fast-food chains [[Popeyes]], [[Chick-fil-A]], [[In-N-Out Burger]], [[Taco Bell]], and [[Wendy's]] over [[KFC]].
 
 ### AF 2017-11-27 0058
-(02:21:40) Nicholas J. Fuentes referenced post-[[City of Charlottesville|Charlottesville]] polling indicating 55% of the white population in the [[United States]] believed whites were discriminated against, while less than 10% said they supported the alt-right.
+(02:21:40) Nicholas J. Fuentes referenced post-[[Charlottesville]] polling indicating 55% of the white population in the [[United States]] believed whites were discriminated against, while less than 10% said they supported the alt-right.
 
 ### AF 2017-11-27 0058
 (02:38:20) Nicholas J. Fuentes claimed that municipal tap water contains between 400 and 700 parts per million of dissolved solids, including metals, chemicals, pharmaceuticals, and hormones like fluoride.
 
 ### AF 2017-11-24 0057
-(01:00:01.500) Nicholas J. Fuentes criticized his hometown of [[City of Chicago|Chicago]], [[State of Illinois|Illinois]], for high taxes, rising crime, population flight, and a [[Hispanic]] takeover of the [[west]] side, calling it a once-great [[city]] now going to hell.
+(01:00:01.500) Nicholas J. Fuentes criticized his hometown of [[Chicago]], [[State of Illinois|Illinois]], for high taxes, rising crime, population flight, and a [[Hispanic]] takeover of the [[west]] side, calling it a once-great [[city]] now going to hell.
 
 ### AF 2017-11-24 0057
 (01:00:43.350) Nicholas J. Fuentes commented on former [[State of Illinois|Illinois]] Governor [[Rod Blagojevich]], saying he was a criminal but shouldn't have been in prison for as long as he was, noting that immigrants [[who]] kill people sometimes get less [[time]].
@@ -44785,7 +44785,7 @@
 (00:03:46) Nicholas J. Fuentes lamented the lack of high-quality audio equipment for his show, attributing it to not having "[[Israel]] money" for headsets and other production gear.
 
 ### AF 2017-11-22 0056
-(00:11:17) Nicholas J. Fuentes, referencing a conversation on Nationalist Review, argued that [[Steven Crowder|Steve Bannon]]'s strategy to win working-class [[Hispanic]] and [[black]] voters was a pragmatic necessity for the [[Republican Party]]'s electoral survival, not an act of capitulation.
+(00:11:17) Nicholas J. Fuentes, referencing a conversation on Nationalist Review, argued that [[Steve Bannon]]'s strategy to win working-class [[Hispanic]] and [[black]] voters was a pragmatic necessity for the [[Republican Party]]'s electoral survival, not an act of capitulation.
 
 ### AF 2017-11-22 0056
 (00:15:13) Nicholas J. Fuentes advised that the optimal system of government for the [[United States]] should be a modified version of its original constitutional federalism, potentially incorporating elements of "Caesarism" to address future challenges.
@@ -45034,7 +45034,7 @@
 (43:07:68) Nicholas J. Fuentes stated that [[Donald Trump]]'s recent Asia tour and the involvement of [[China]], [[State of Japan|Japan]], and [[South Korea]] in sanctions were applying successful economic pressure on [[North Korea]].
 
 ### AF 2017-11-20 0054
-(44:55:08) Nicholas J. Fuentes expressed deep skepticism about the official story of the [[City of Las Vegas|Las Vegas]] shooting, citing a lack of evidence and motive almost two months later, and argued this should make people question all government narratives.
+(44:55:08) Nicholas J. Fuentes expressed deep skepticism about the official story of the [[Las Vegas]] shooting, citing a lack of evidence and motive almost two months later, and argued this should make people question all government narratives.
 
 ### AF 2017-11-20 0054
 (45:31:02) Nicholas J. Fuentes suggested the [[Central Intelligence Agency|CIA]]'s history of covert operations in the 1960s and 1970s meant historical events like the [[Charles Manson]] murders could potentially have been false flags, though he acknowledged the mainstream portrayal of Manson as a "bad dude."
@@ -45064,7 +45064,7 @@
 (00:02:46) Nicholas J. Fuentes debuted a sweater on a live stream with [[Lawrence Southern]] a couple of weeks prior.
 
 ### AF 2017-11-17 0053
-(00:02:50) Nicholas J. Fuentes was in [[City of Chicago|Chicago]], where the temperature was below freezing.
+(00:02:50) Nicholas J. Fuentes was in [[Chicago]], where the temperature was below freezing.
 
 ### AF 2017-11-17 0053
 (00:03:20) Nicholas J. Fuentes expressed a preference for being at home where he did not have to deal with people speaking [[Spanish]] or [[Korean]].
@@ -45085,7 +45085,7 @@
 (00:15:23) Nicholas J. Fuentes referenced [[Antifa]] punching Richard Spencer and advocating political violence.
 
 ### AF 2017-11-17 0053
-(00:15:51) Nicholas J. Fuentes described the August rally in [[City of Charlottesville|Charlottesville]] as a gathering where white people said "We will not be replaced," which was followed by an act of violence possibly resulting in a death.
+(00:15:51) Nicholas J. Fuentes described the August rally in [[Charlottesville]] as a gathering where white people said "We will not be replaced," which was followed by an act of violence possibly resulting in a death.
 
 ### AF 2017-11-17 0053
 (00:16:45) Nicholas J. Fuentes stated that [[Dave Rubin]] hosts [[black]] and transgender guests like [[Blair White]].
@@ -45178,7 +45178,7 @@
 (00:51:34) Nicholas J. Fuentes advised biding [[time]] and using gradual, palatable tactics to create a mass movement, rather than immediate, extreme demands.
 
 ### AF 2017-11-17 0053
-(00:53:10) Nicholas J. Fuentes stated that [[Ben Shapiro]] has verbatim advocated for the ethnic cleansing of [[Gaza Strip|Palestine]].
+(00:53:10) Nicholas J. Fuentes stated that [[Ben Shapiro]] has verbatim advocated for the ethnic cleansing of [[Palestine]].
 
 ### AF 2017-11-17 0053
 (00:53:34) Nicholas J. Fuentes agreed there is a PSYOP against young white men through interracial pornography and media portrayals that depict white men as lame and unsexy.
@@ -45334,7 +45334,7 @@
 (01:30:16) Nicholas J. Fuentes is against race-mixing on principle, stating it should not be encouraged but could be reluctantly tolerated, and criticized its aggressive promotion in every blockbuster movie, commercial, television show, and advertisement.
 
 ### AF 2017-11-16 0052
-(00:07:92) Nicholas J. Fuentes returned to his studio in [[City of Chicago|Chicago]] after a weekend trip to [[Los Angeles]] for business and recreation.
+(00:07:92) Nicholas J. Fuentes returned to his studio in [[Chicago]] after a weekend trip to [[Los Angeles]] for business and recreation.
 
 ### AF 2017-11-16 0052
 (00:41:90) Nicholas J. Fuentes thanked [[James Allsup|James]] for hosting the show in his absence on Monday and Tuesday.
@@ -45355,13 +45355,13 @@
 (03:26:54) Nicholas J. Fuentes observed that [[Los Angeles]] contained distinct ethnic enclaves, including [[Koreatown]], Mexican neighborhoods, [[black]] areas with gang violence, and a large homosexual enclave in [[West Hollywood]].
 
 ### AF 2017-11-16 0052
-(04:09:28) Nicholas J. Fuentes praised the beautiful 70-degree weather and interesting topography of [[Los Angeles]], contrasting it with the below-freezing temperatures in [[City of Chicago|Chicago]].
+(04:09:28) Nicholas J. Fuentes praised the beautiful 70-degree weather and interesting topography of [[Los Angeles]], contrasting it with the below-freezing temperatures in [[Chicago]].
 
 ### AF 2017-11-16 0052
 (04:40:04) Nicholas J. Fuentes visited [[Pepperdine University]] and drove around the mountains near the observatory featured in the film *Rebel Without a Cause*.
 
 ### AF 2017-11-16 0052
-(05:14:18) Nicholas J. Fuentes stopped for gas at 3 a.m. in [[Malibu]] and found the white gas station attendant to be friendly and safe, which he contrasted with his experiences at gas stations in [[City of Chicago|Chicago]].
+(05:14:18) Nicholas J. Fuentes stopped for gas at 3 a.m. in [[Malibu]] and found the white gas station attendant to be friendly and safe, which he contrasted with his experiences at gas stations in [[Chicago]].
 
 ### AF 2017-11-16 0052
 (06:33:58) Nicholas J. Fuentes criticized [[Los Angeles International Airport]] and noted the presence of prostitutes on corners in [[Koreatown]] at 2 a.m.
@@ -45370,7 +45370,7 @@
 (06:50:64) Nicholas J. Fuentes and [[James Allsup|James]] have discussed on *Nationalist Review* the idea of conceding [[Los Angeles]] and [[State of California|California]] to Mexican and other ethnic enclaves, though Nicholas J. Fuentes believes the [[state]] is worth fighting to preserve.
 
 ### AF 2017-11-16 0052
-(07:08:76) Nicholas J. Fuentes defended [[Timothy Gionet|Baked Alaska]] against post-[[City of Charlottesville|Charlottesville]] criticism, stating that after a personal conversation, he believed [[Timothy Gionet|Baked Alaska]]'s "head is really in the right direction."
+(07:08:76) Nicholas J. Fuentes defended [[Timothy Gionet|Baked Alaska]] against post-[[Charlottesville]] criticism, stating that after a personal conversation, he believed [[Timothy Gionet|Baked Alaska]]'s "head is really in the right direction."
 
 ### AF 2017-11-16 0052
 (08:18:70) Nicholas J. Fuentes expressed a desire to work with [[Timothy Gionet|Baked Alaska]] in the future on [[America First Media]], calling him a "good guy."
@@ -45397,16 +45397,16 @@
 (11:59:34) Nicholas J. Fuentes framed the [[Alabama]] [[Senate]] special election as a crucial watershed for the 2018 midterms and for [[Donald Trump]]'s first term.
 
 ### AF 2017-11-16 0052
-(12:54:42) Nicholas J. Fuentes stated that the August [[Republican Party|GOP]] primary in [[Alabama]] was the first [[time]] the [[Donald Trump|MAGA]] [[America First]] agenda, headed by [[Steven Crowder|Steve Bannon]], was pitted against [[Donald Trump]], [[who]] endorsed [[Luther Strange]].
+(12:54:42) Nicholas J. Fuentes stated that the August [[Republican Party|GOP]] primary in [[Alabama]] was the first [[time]] the [[Donald Trump|MAGA]] [[America First]] agenda, headed by [[Steve Bannon]], was pitted against [[Donald Trump]], [[who]] endorsed [[Luther Strange]].
 
 ### AF 2017-11-16 0052
-(13:56:18) [[Roy Moore]] exemplified the insurgent [[Steven Crowder|Steve Bannon]] mindset that had drifted away from [[Donald Trump]] since he entered office, according to Nicholas J. Fuentes.
+(13:56:18) [[Roy Moore]] exemplified the insurgent [[Steve Bannon]] mindset that had drifted away from [[Donald Trump]] since he entered office, according to Nicholas J. Fuentes.
 
 ### AF 2017-11-16 0052
-(14:28:80) [[Roy Moore]]'s primary victory against [[Luther Strange]] with the help of [[Steven Crowder|Steve Bannon]] was a seismic message to [[Mitch McConnell]] and establishment [[Republican Party|Republicans]] that [[Steven Crowder|Steve Bannon]] was serious, according to Nicholas J. Fuentes.
+(14:28:80) [[Roy Moore]]'s primary victory against [[Luther Strange]] with the help of [[Steve Bannon]] was a seismic message to [[Mitch McConnell]] and establishment [[Republican Party|Republicans]] that [[Steve Bannon]] was serious, according to Nicholas J. Fuentes.
 
 ### AF 2017-11-16 0052
-(15:32:74) Nicholas J. Fuentes argued that if [[Roy Moore]] lost the general election, it would prove criticisms of [[Steven Crowder|Steve Bannon]]'s insurgent wing correct and demonstrate that the establishment and mainstream media still held sway.
+(15:32:74) Nicholas J. Fuentes argued that if [[Roy Moore]] lost the general election, it would prove criticisms of [[Steve Bannon]]'s insurgent wing correct and demonstrate that the establishment and mainstream media still held sway.
 
 ### AF 2017-11-16 0052
 (16:47:36) Nicholas J. Fuentes accused pundits like [[Ben Shapiro]], [[Jonah Goldberg]], and [[Bill Kristol]], along with [[Mitch McConnell]] and the [[Republican Party|Republican]] establishment, of hypocrisy for making the [[Roy Moore]] scandal about morals while ignoring similar allegations against their allies.
@@ -45508,7 +45508,7 @@
 (01:36:33:48) Nicholas J. Fuentes argued that recent [[United States]] military excursions in the [[Middle East]] were not in the national interest and questioned the premise of joining the military to "defend freedom."
 
 ### AF 2017-11-10 0051
-(01:37:44:64) Nicholas J. Fuentes recommended [[City of Chicago|Chicago]] restaurants [[Chicago Pizza and Oven Grinder]], [[Gene & Jude's]], and [[Manny's]], though he cautioned he got sick after eating at a [[Manny's]] location in [[Midway Airport]].
+(01:37:44:64) Nicholas J. Fuentes recommended [[Chicago]] restaurants [[Chicago Pizza and Oven Grinder]], [[Gene & Jude's]], and [[Manny's]], though he cautioned he got sick after eating at a [[Manny's]] location in [[Midway Airport]].
 
 ### AF 2017-11-09 0050
 (00:05:00) Nicholas J. Fuentes recommended the book *[[Who]] Are We?* by [[Samuel Huntington|Samuel P. Huntington]] as the definitive text on 21st-century [[United States|American]] cultural identity and the clash between civic creed and deeper cultural values.
@@ -45535,7 +45535,7 @@
 (45:14:00) [[Washington Post|The Washington Post]] endorsed [[Roy Moore]]'s challenger in the upcoming [[Alabama]] [[Senate]] election, which Nicholas J. Fuentes cited as reason to doubt the allegations' timing.
 
 ### AF 2017-11-09 0050
-(51:24:00) [[Christopher Cantwell]] had two of three charges dropped after being held as a political prisoner in [[City of Charlottesville|Charlottesville]] and denied bail, according to Nicholas J. Fuentes.
+(51:24:00) [[Christopher Cantwell]] had two of three charges dropped after being held as a political prisoner in [[Charlottesville]] and denied bail, according to Nicholas J. Fuentes.
 
 ### AF 2017-11-09 0050
 (52:54:00) Nicholas J. Fuentes expressed general agreement with [[Ted Kaczynski]]'s sentiment that the industrial world has deprived life of meaning by destroying medium-term, meaningful goals.
@@ -45544,7 +45544,7 @@
 (55:21:00) A viewer commented that 6 million [[Jews]] did not die during the [[United States Holocaust Memorial Museum|Holocaust]], claiming the number was 3 million at most, to which Nicholas J. Fuentes responded he could neither confirm nor deny and advocated for free speech to discuss the issue.
 
 ### AF 2017-11-09 0050
-(57:05:00) A viewer noted the [[City of Las Vegas|Las Vegas]] shooter and [[Roy Moore]] brandished the same make and model of gun, which Nicholas J. Fuentes called an interesting coincidence.
+(57:05:00) A viewer noted the [[Las Vegas]] shooter and [[Roy Moore]] brandished the same make and model of gun, which Nicholas J. Fuentes called an interesting coincidence.
 
 ### AF 2017-11-09 0050
 (57:07:00) [[Tim Tebow]] was described as "based" by a viewer, though Nicholas J. Fuentes noted he was an evangelical Protestant, not a [[Catholic]].
@@ -45802,7 +45802,7 @@
 (01:00:00) Nicholas J. Fuentes listed several of [[Donald Trump]]'s campaign promises he believed were already achieved or underway, including defeating [[Islamic State of Iraq and Syria|ISIS]], repealing globalist trade deals, constructing border wall prototypes, and undermining the [[Obamacare]] law.
 
 ### AF 2017-11-03 0046
-(01:04:00) Nicholas J. Fuentes announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[City of Chicago|Chicago]], [[Boston]], [[New York]], and [[Los Angeles]], with the goal of protesting daily until [[Donald Trump]] and [[Mike Pence]] were removed from power.
+(01:04:00) Nicholas J. Fuentes announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[Chicago]], [[Boston]], [[New York]], and [[Los Angeles]], with the goal of protesting daily until [[Donald Trump]] and [[Mike Pence]] were removed from power.
 
 ### AF 2017-11-03 0046
 (01:17:00) Nicholas J. Fuentes contrasted the planned [[Antifa]] "day of rage" protests with the hypothetical reaction if a far-right group like the [[Atomwaffen Division]] announced similar plans, arguing there was a "striking double standard" in media and law enforcement responses.
@@ -45958,19 +45958,19 @@
 (00:58:880) Nicholas J. Fuentes interviewed [[Mike Cernovich|Mike Enoch]] of The Right Stuff on his show [[America First]].
 
 ### AF 2017-11-01 0044
-(10:44:020) Nicholas J. Fuentes was scheduled for an interview with [[Milo Yiannopoulos]] and [[Allum Bokhari]] in [[City of Miami|Miami, Florida]] shortly after the [[City of Charlottesville|Charlottesville]] rally, but the interview was canceled.
+(10:44:020) Nicholas J. Fuentes was scheduled for an interview with [[Milo Yiannopoulos]] and [[Allum Bokhari]] in [[Miami, Florida]] shortly after the [[Charlottesville]] rally, but the interview was canceled.
 
 ### AF 2017-11-01 0044
-(10:53:280) Following the [[City of Charlottesville|Charlottesville]] rally, Nicholas J. Fuentes publicly argued that no one on the political right should waste energy condemning [[Nazis]], as [[Antifa]] and the government were the primary adversaries.
+(10:53:280) Following the [[Charlottesville]] rally, Nicholas J. Fuentes publicly argued that no one on the political right should waste energy condemning [[Nazis]], as [[Antifa]] and the government were the primary adversaries.
 
 ### AF 2017-11-01 0044
 (15:49:960) [[Hunter Wallace]] of [[Occidental Dissent]] published an article criticizing Nicholas J. Fuentes and [[Matt Domingo]] while proposing a distinction between the [[alt-right]] and the more extreme "hard right."
 
 ### AF 2017-11-01 0044
-(20:27:780) At the [[City of Gainesville|Gainesville]] event, [[Mike Cernovich|Mike Enoch]] and Richard Spencer faced an unexpectedly large and hostile crowd of approximately 300 [[Antifa]] protesters, which affected their presentation.
+(20:27:780) At the [[Gainesville]] event, [[Mike Cernovich|Mike Enoch]] and Richard Spencer faced an unexpectedly large and hostile crowd of approximately 300 [[Antifa]] protesters, which affected their presentation.
 
 ### AF 2017-11-01 0044
-(22:28:680) [[Mike Cernovich|Mike Enoch]] viewed the [[City of Gainesville|Gainesville]] event as a learning experience where he and Richard Spencer withstood intense yelling and hostile questioning for the entire allotted [[time]].
+(22:28:680) [[Mike Cernovich|Mike Enoch]] viewed the [[Gainesville]] event as a learning experience where he and Richard Spencer withstood intense yelling and hostile questioning for the entire allotted [[time]].
 
 ### AF 2017-11-01 0044
 (27:54:320) [[Mike Cernovich|Mike Enoch]] stated that individuals have been red-pilled by witnessing specific events, including Richard Spencer's speech at [[Texas A&M]], an [[Auburn University]] event, and the [[Halligate]] controversy.
@@ -46003,7 +46003,7 @@
 (00:11:46) Nicholas J. Fuentes received a call from Jake Seals of [[Right Side Broadcasting Network|RSBN]], [[who]] offered greetings from the [[Right Side Broadcasting Network|RSBN]] crew.
 
 ### AF 2017-10-31 0043
-(00:15:35) Nicholas J. Fuentes spoke with [[Eli Mosley]], [[who]] was involved in a legal case and counter-suit related to the August 12th [[City of Charlottesville|Charlottesville]] "Unite the Right" rally and was raising funds for an "alt-right war chest" for legal defense.
+(00:15:35) Nicholas J. Fuentes spoke with [[Eli Mosley]], [[who]] was involved in a legal case and counter-suit related to the August 12th [[Charlottesville]] "Unite the Right" rally and was raising funds for an "alt-right war chest" for legal defense.
 
 ### AF 2017-10-31 0043
 (00:18:24) Nicholas J. Fuentes stated his favorite Halloween movie is *The Nightmare Before Christmas*.
@@ -46042,7 +46042,7 @@
 (00:49:05) Nicholas J. Fuentes stated that he and [[James Allsup|James]] were developing a plan to take over [[state]] and local governments by the end of the year, involving research and the creation of informational and possibly fiscal resources for activists.
 
 ### AF 2017-10-31 0043
-(00:52:52) Nicholas J. Fuentes recommended a [[Christianity|Christian]] reading list to a caller, including the Bible, *Rediscovering [[Catholicism]]* by [[Matt Gaetz|Matt]] [[Megyn Kelly|Kelly]], *Aquinas* by [[Edward Feser|Ed Feser]], *The Last Superstition* by [[Edward Feser|Ed Feser]], *Confessions* by [[City of St. Augustine|St. Augustine]], and an abridged version of *Summa Theologica* by [[Thomas Aquinas]].
+(00:52:52) Nicholas J. Fuentes recommended a [[Christianity|Christian]] reading list to a caller, including the Bible, *Rediscovering [[Catholicism]]* by [[Matt Gaetz|Matt]] [[Megyn Kelly|Kelly]], *Aquinas* by [[Edward Feser|Ed Feser]], *The Last Superstition* by [[Edward Feser|Ed Feser]], *Confessions* by [[St. Augustine]], and an abridged version of *Summa Theologica* by [[Thomas Aquinas]].
 
 ### AF 2017-10-31 0043
 (00:54:55) Nicholas J. Fuentes advised a 16-year-old caller on resisting sexual temptation in high school, emphasizing discipline, avoiding degenerate crowds, going to church, and going to the gym.
@@ -46063,13 +46063,13 @@
 (01:12:12) Nicholas J. Fuentes and a caller discussed the interview between [[Gavin McInnes]] and [[Milo Yiannopoulos]], with the caller noting it felt unserious compared to alt-right content, and Nicholas J. Fuentes jokingly suggested testing if McInnes was allowed to say "bug man" on air.
 
 ### AF 2017-10-31 0043
-(01:15:03) Nicholas J. Fuentes, asked by a married couple [[who]] attended the [[City of Charlottesville|Charlottesville rally]] if it was a win or loss, called it a disastrous strategic loss that created infamy, led to deplatforming, and lacked clear objectives, though it sparked necessary internal conversation about activism and optics.
+(01:15:03) Nicholas J. Fuentes, asked by a married couple [[who]] attended the [[Charlottesville rally]] if it was a win or loss, called it a disastrous strategic loss that created infamy, led to deplatforming, and lacked clear objectives, though it sparked necessary internal conversation about activism and optics.
 
 ### AF 2017-10-31 0043
 (01:18:48) Nicholas J. Fuentes advised a caller [[who]] participated in activism after the Shelbyville rally that associating with events like "White Lives Matter" made activism toxic and argued that rallies were self-indulgent without clear goals, advocating instead for local political engagement like attending [[Republican Party|GOP]] meetings.
 
 ### AF 2017-10-31 0043
-(01:21:59) Nicholas J. Fuentes acknowledged that an article by [[Andrew Anglin]] on optics after [[City of Charlottesville|Charlottesville]] was influential in shifting his focus from ideology to practical politics and the need for clear movement objectives.
+(01:21:59) Nicholas J. Fuentes acknowledged that an article by [[Andrew Anglin]] on optics after [[Charlottesville]] was influential in shifting his focus from ideology to practical politics and the need for clear movement objectives.
 
 ### AF 2017-10-31 0043
 (01:23:46) A caller praised Nicholas J. Fuentes as the best political commentator, surpassing [[Kyle Kulinski]], whom he now considered "a cuck."
@@ -46120,10 +46120,10 @@
 (00:12:00) Nicholas J. Fuentes cited a statistic showing [[Jews|Jewish people]] gave evangelicals a favorability rating of around 30 out of 100, indicating low warmth towards that religious group.
 
 ### AF 2017-10-27 0041
-(00:13:40) Nicholas J. Fuentes stated that in 1933, international [[Jews|Jewry]] declared a boycott of [[Germany]] after [[Adolf Hitler|Hitler]] was appointed Chancellor, and that Zionists later established a working economic relationship with the [[Nazi government]] to facilitate [[Jews|Jewish]] emigration to [[Gaza Strip|Palestine]].
+(00:13:40) Nicholas J. Fuentes stated that in 1933, international [[Jews|Jewry]] declared a boycott of [[Germany]] after [[Adolf Hitler|Hitler]] was appointed Chancellor, and that Zionists later established a working economic relationship with the [[Nazi government]] to facilitate [[Jews|Jewish]] emigration to [[Palestine]].
 
 ### AF 2017-10-27 0041
-(00:15:00) Nicholas J. Fuentes described a Zionist program where [[Jews]] in [[Germany]] sold their assets and then used the funds to buy [[Germany|German]] manufactured goods for import to [[Gaza Strip|Palestine]], in cooperation with the [[Nazi government]].
+(00:15:00) Nicholas J. Fuentes described a Zionist program where [[Jews]] in [[Germany]] sold their assets and then used the funds to buy [[Germany|German]] manufactured goods for import to [[Palestine]], in cooperation with the [[Nazi government]].
 
 ### AF 2017-10-27 0041
 (00:16:20) Nicholas J. Fuentes asserted that [[Israel]] should be treated like any other [[country]] and that he opposes [[Israel|Israeli]], [[China|Chinese]], [[Saudi Arabia|Saudi]], [[Russian]], and [[France|French]] influence in [[United States|America]] with equal vigor.
@@ -46210,10 +46210,10 @@
 (00:23:00) Nicholas J. Fuentes announced the launch of a new midweek episode of his podcast, [[Nationalist Review]], following the achievement of a $500 threshold on [[Patreon]].
 
 ### AF 2017-10-25 0039
-(02:13:00) Nicholas J. Fuentes highlighted the ongoing investigation into the [[City of Las Vegas|Las Vegas]] shooting, noting that authorities had not established a motive or a consistent timeline three and a half weeks after the incident.
+(02:13:00) Nicholas J. Fuentes highlighted the ongoing investigation into the [[Las Vegas]] shooting, noting that authorities had not established a motive or a consistent timeline three and a half weeks after the incident.
 
 ### AF 2017-10-25 0039
-(03:43:00) Nicholas J. Fuentes asserted that federal authorities and the [[Clark County]] Sheriff's Department were withholding information about the [[City of Las Vegas|Las Vegas]] shooting.
+(03:43:00) Nicholas J. Fuentes asserted that federal authorities and the [[Clark County]] Sheriff's Department were withholding information about the [[Las Vegas]] shooting.
 
 ### AF 2017-10-25 0039
 (22:33:00) Nicholas J. Fuentes referenced a controversy involving [[Donald Trump]] and Representative [[Frederica Wilson]] regarding a call to a Gold Star family.
@@ -46258,7 +46258,7 @@
 (01:45:26) Nicholas J. Fuentes stated that while Richard Spencer's post-[[United States|American]] identitarian project was being executed well for its own aims, he believed their goals and methods were largely separate, with Spencer focused on long-term cultural change and himself on immediate electoral and policy victories.
 
 ### AF 2017-10-24 0038
-(02:26:74) Nicholas J. Fuentes characterized [[Jeff Flake's]] retirement speech as dishonest, arguing his decision was driven by an inability to win re-election against a [[Steven Crowder|Steve Bannon]]-backed challenger rather than principled opposition to [[Donald Trump]].
+(02:26:74) Nicholas J. Fuentes characterized [[Jeff Flake's]] retirement speech as dishonest, arguing his decision was driven by an inability to win re-election against a [[Steve Bannon]]-backed challenger rather than principled opposition to [[Donald Trump]].
 
 ### AF 2017-10-24 0038
 (03:14:56) Nicholas J. Fuentes argued that [[Flake's]] admission that a "traditional [[Republican Party|Republican]]" [[who]] was pro-free trade and pro-immigration could not win in [[Arizona]] demonstrated how [[Donald Trump]] had shifted the political center for white [[United States|Americans]] and [[Republican Party|Republicans]].
@@ -46273,7 +46273,7 @@
 (04:56:28) Nicholas J. Fuentes pointed to the large crowds drawn by [[Ben Shapiro]] and [[Milo Yiannopoulos]] on their speaking tours as evidence of their significant cultural influence, despite his personal disagreements with them.
 
 ### AF 2017-10-24 0038
-(05:24:17) Nicholas J. Fuentes cited the ascendancy of [[Alex Jones|InfoWars]], [[Paul Miller|Paul Joseph Watson]], [[Milo Yiannopoulos]], [[Ben Shapiro]], and [[Mike Cernovich]] as examples of successful cultural movements, contrasting them with what he viewed as the failed mass appeal of events like the [[City of Charlottesville|Charlottesville]] rally.
+(05:24:17) Nicholas J. Fuentes cited the ascendancy of [[Alex Jones|InfoWars]], [[Paul Joseph Watson]], [[Milo Yiannopoulos]], [[Ben Shapiro]], and [[Mike Cernovich]] as examples of successful cultural movements, contrasting them with what he viewed as the failed mass appeal of events like the [[Charlottesville]] rally.
 
 ### AF 2017-10-24 0038
 (06:25:08) Nicholas J. Fuentes described a speech he gave titled "Putting [[America First]]" at a [[U.S. Inc.]] event as an example of tactful rhetoric that implicitly advanced alt-right ideas while being palatable to a broad audience, including minorities and mainstream [[Republican Party|Republicans]].
@@ -46282,7 +46282,7 @@
 (07:28:28) Nicholas J. Fuentes recalled defending [[Donald Trump]] during a September 2017 controversy over a potential [[Deferred Action for Childhood Arrivals|DACA]] deal with [[Chuck Schumer]] and [[Nancy Pelosi]], arguing that no concrete legislation had been agreed upon and that [[Donald Trump|Trump's]] long-held platform made a sudden reversal unlikely.
 
 ### AF 2017-10-24 0038
-(08:30:34) Nicholas J. Fuentes suggested that [[Stephen Miller]]'s role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with [[Donald Trump]]'s own opposition, and that [[Donald Trump|the president's]] actions serviced the political ascendancy of [[Steven Crowder|Steve Bannon]] and [[Roy Moore]] in [[Alabama]].
+(08:30:34) Nicholas J. Fuentes suggested that [[Stephen Miller]]'s role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with [[Donald Trump]]'s own opposition, and that [[the president's]] actions serviced the political ascendancy of [[Steve Bannon]] and [[Roy Moore]] in [[Alabama]].
 
 ### AF 2017-10-24 0038
 (08:31:74) Nicholas J. Fuentes accused mainstream media outlets like [[Washington Post|The Hill]] of misleading coverage by reporting the resumption of the [[United States|U.S]]. refugee program while omitting [[Donald Trump]]'s simultaneous ban on refugees from 11 specific countries.
@@ -46291,10 +46291,10 @@
 (09:27:76) Nicholas J. Fuentes argued that [[Donald Trump]]'s suitability for the presidency came from his experience as a billionaire executive of a private real estate company, a skill set he viewed as parallel to running a [[country]], unlike that of a celebrity like [[Kid Rock]].
 
 ### AF 2017-10-23 0037
-(01:25:650) Richard Spencer held a rally in [[City of Gainesville|Gainesville]] last Wednesday, which reignited internal debates about movement optics and strategy.
+(01:25:650) Richard Spencer held a rally in [[Gainesville]] last Wednesday, which reignited internal debates about movement optics and strategy.
 
 ### AF 2017-10-23 0037
-(13:22:670) Nicholas J. Fuentes argued that the tightly controlled [[Generation Identity]] operation avoided the chaos seen at events like [[City of Gainesville|Gainesville]], where individuals showed up with [[Germany|Nazi]] tattoos.
+(13:22:670) Nicholas J. Fuentes argued that the tightly controlled [[Generation Identity]] operation avoided the chaos seen at events like [[Gainesville]], where individuals showed up with [[Germany|Nazi]] tattoos.
 
 ### AF 2017-10-23 0037
 (15:10:990) Nicholas J. Fuentes stated that [[Generation Identity]]'s [[Europe|European]]-style symbolism and tactics were not directly transferable or ideal for activism in the [[United States]].
@@ -46303,10 +46303,10 @@
 (17:09:050) Nicholas J. Fuentes proposed that effective activism in the [[United States]] should use [[United States|American]] flags and slogans like "Put [[America First]], Resist Multiculturalism."
 
 ### AF 2017-10-23 0037
-(18:02:110) Nicholas J. Fuentes stated that the 2017 [[City of Charlottesville|Charlottesville]] "Unite the Right" rally suffered from a confusing and incoherent message, mixing themes of Confederate monument preservation, white identity, and right-wing unity.
+(18:02:110) Nicholas J. Fuentes stated that the 2017 [[Charlottesville]] "Unite the Right" rally suffered from a confusing and incoherent message, mixing themes of Confederate monument preservation, white identity, and right-wing unity.
 
 ### AF 2017-10-23 0037
-(21:06:530) Nicholas J. Fuentes cited the arrest of three individuals for attempted homicide after the [[City of Gainesville|Gainesville]] rally as an example of damaging optics that would repel potential recruits.
+(21:06:530) Nicholas J. Fuentes cited the arrest of three individuals for attempted homicide after the [[Gainesville]] rally as an example of damaging optics that would repel potential recruits.
 
 ### AF 2017-10-23 0037
 (23:28:970) Nicholas J. Fuentes criticized [[American Identity Movement|Identity Europa]] for using alien branding and poorly thought-out rhetoric in its campus flyer campaigns.
@@ -46324,16 +46324,16 @@
 (28:20:970) Nicholas J. Fuentes stated he had met and gotten along with movement figures like Richard Spencer, [[Jared Taylor]], [[Peter Brimelow]], and [[Eli Mosley]].
 
 ### AF 2017-10-23 0037
-(30:34:350) Nicholas J. Fuentes planned to discuss a story about [[Steven Crowder|Steve Bannon]] disavowing [[Milo Yiannopoulos]] after a [[BuzzFeed]] expose.
+(30:34:350) Nicholas J. Fuentes planned to discuss a story about [[Steve Bannon]] disavowing [[Milo Yiannopoulos]] after a [[BuzzFeed]] expose.
 
 ### AF 2017-10-23 0037
 (31:04:210) Richard Spencer was present in a video where [[Milo Yiannopoulos]] sang "[[United States|America]] the Beautiful" to a crowd giving Roman salutes.
 
 ### AF 2017-10-23 0037
-(31:12:830) Richard Spencer launched a [[Twitter]] thread arguing that [[Steven Crowder|Steve Bannon]] was an enemy of the movement and a "cuck."
+(31:12:830) Richard Spencer launched a [[Twitter]] thread arguing that [[Steve Bannon]] was an enemy of the movement and a "cuck."
 
 ### AF 2017-10-23 0037
-(33:20:810) Nicholas J. Fuentes noted that [[Paul Miller|Paul Joseph Watson]] had 800,000 [[Twitter]] followers, [[Alex Jones]] had a million, and figures like [[Mike Cernovich]] and [[Stefan Molyneux]] had a combined massive reach.
+(33:20:810) Nicholas J. Fuentes noted that [[Paul Joseph Watson]] had 800,000 [[Twitter]] followers, [[Alex Jones]] had a million, and figures like [[Mike Cernovich]] and [[Stefan Molyneux]] had a combined massive reach.
 
 ### AF 2017-10-23 0037
 (38:58:210) Nicholas J. Fuentes acknowledged that Richard Spencer had founded the alt-right movement and built institutions like the [[National Policy Institute]], [[Radix Journal]], and [[AltRight.com]].
@@ -46375,37 +46375,37 @@
 (01:35:28) Nicholas J. Fuentes argued that the term "Judeo-[[Christianity|Christian]]" is a fabricated [[concept]] invented in the 1940s to reduce anti-Semitism by creating a false sense of shared identity and values between [[Christianity|Christians]] and [[Jews]], which he finds fundamentally contradictory.
 
 ### AF 2017-10-19 0035
-(00:00:00) Nicholas J. Fuentes opened his program by acknowledging the day's major event, a speech by Richard Spencer in [[City of Gainesville|Gainesville]], which had been preceded by exclusive interviews with [[Enoch Spencer]] and [[Eli Mosley]] on a live stream hosted by [[James Allsup|James Alsup]].
+(00:00:00) Nicholas J. Fuentes opened his program by acknowledging the day's major event, a speech by Richard Spencer in [[Gainesville]], which had been preceded by exclusive interviews with [[Enoch Spencer]] and [[Eli Mosley]] on a live stream hosted by [[James Allsup|James Alsup]].
 
 ### AF 2017-10-19 0035
 (00:00:00) Nicholas J. Fuentes commended the courage and organizational effort of Richard Spencer, [[Eli Mosley]], and [[Enoch Spencer]] for holding an event in a hostile environment at a university, facing threats of doxing and violence from groups like [[Antifa]].
 
 ### AF 2017-10-19 0035
-(00:03:26) Nicholas J. Fuentes argued that the activism of Richard Spencer and the [[NPI]] lacked clearly defined short-term and long-term political objectives, making it difficult to evaluate whether events like the [[City of Gainesville|Gainesville]] speech were a net positive or negative for their movement.
+(00:03:26) Nicholas J. Fuentes argued that the activism of Richard Spencer and the [[NPI]] lacked clearly defined short-term and long-term political objectives, making it difficult to evaluate whether events like the [[Gainesville]] speech were a net positive or negative for their movement.
 
 ### AF 2017-10-19 0035
-(00:05:25) Nicholas J. Fuentes reported that the organizers of the [[City of Gainesville|Gainesville]] event paid ten thousand dollars for the facility, while the campus spent five hundred thousand dollars on security, attracting nationwide media coverage.
+(00:05:25) Nicholas J. Fuentes reported that the organizers of the [[Gainesville]] event paid ten thousand dollars for the facility, while the campus spent five hundred thousand dollars on security, attracting nationwide media coverage.
 
 ### AF 2017-10-19 0035
 (00:06:41) Nicholas J. Fuentes stated that Richard Spencer and [[American Identity Movement|Identity Europa]] had successfully co-opted the free speech movement, a tactic he viewed as strategically smart because it leveraged a popular, quintessentially [[United States|American]] issue that appealed to a broad audience.
 
 ### AF 2017-10-19 0035
-(00:08:15) Nicholas J. Fuentes contended that events like the [[City of Gainesville|Gainesville]] speech demonstrated the "insanity of [[the left]]" and the "bankruptcy of the right wing," providing good optics by showcasing a "disgusting leftist unwashed mob" on television, which could drive traditionalist voters away from the [[Democratic Party]].
+(00:08:15) Nicholas J. Fuentes contended that events like the [[Gainesville]] speech demonstrated the "insanity of [[the left]]" and the "bankruptcy of the right wing," providing good optics by showcasing a "disgusting leftist unwashed mob" on television, which could drive traditionalist voters away from the [[Democratic Party]].
 
 ### AF 2017-10-19 0035
-(00:09:38) Nicholas J. Fuentes noted that a third positive of the [[City of Gainesville|Gainesville]] event was the exposure it provided for Richard Spencer's ideas to a new audience, a valuable asset for any political movement.
+(00:09:38) Nicholas J. Fuentes noted that a third positive of the [[Gainesville]] event was the exposure it provided for Richard Spencer's ideas to a new audience, a valuable asset for any political movement.
 
 ### AF 2017-10-19 0035
-(00:11:09) Nicholas J. Fuentes criticized the [[City of Gainesville|Gainesville]] event for its poor audio and video recording, aside from a stream by [[Ruptly]], arguing that failing to professionally capture the message was a major logistical flaw for an event designed to spread ideas.
+(00:11:09) Nicholas J. Fuentes criticized the [[Gainesville]] event for its poor audio and video recording, aside from a stream by [[Ruptly]], arguing that failing to professionally capture the message was a major logistical flaw for an event designed to spread ideas.
 
 ### AF 2017-10-19 0035
-(00:12:49) Nicholas J. Fuentes criticized the stage optics of the [[City of Gainesville|Gainesville]] event, noting the lack of a podium, poor lighting, and the awkward positioning of [[Eli Mosley]] and [[Enoch Spencer]] on stage, contrasting this with the professional event training provided by organizations like the [[Leadership Institute]] and [[Turning Point USA]].
+(00:12:49) Nicholas J. Fuentes criticized the stage optics of the [[Gainesville]] event, noting the lack of a podium, poor lighting, and the awkward positioning of [[Eli Mosley]] and [[Enoch Spencer]] on stage, contrasting this with the professional event training provided by organizations like the [[Leadership Institute]] and [[Turning Point USA]].
 
 ### AF 2017-10-19 0035
-(00:14:54) Nicholas J. Fuentes argued that the [[City of Gainesville|Gainesville]] venue was too large for the tightly vetted audience, suggesting that a smaller, packed space would have created better optics than a sparsely filled room, a basic principle of event [[organization]] taught by groups like [[Young Americans for Liberty]].
+(00:14:54) Nicholas J. Fuentes argued that the [[Gainesville]] venue was too large for the tightly vetted audience, suggesting that a smaller, packed space would have created better optics than a sparsely filled room, a basic principle of event [[organization]] taught by groups like [[Young Americans for Liberty]].
 
 ### AF 2017-10-19 0035
-(00:16:48) Nicholas J. Fuentes criticized Richard Spencer's "bitter, defensive, resentful tone" during the [[City of Gainesville|Gainesville]] speech, particularly when calling protesters "morons," arguing that a more humble, likable, and empathetic tone would have greater mass appeal, especially to older generations.
+(00:16:48) Nicholas J. Fuentes criticized Richard Spencer's "bitter, defensive, resentful tone" during the [[Gainesville]] speech, particularly when calling protesters "morons," arguing that a more humble, likable, and empathetic tone would have greater mass appeal, especially to older generations.
 
 ### AF 2017-10-19 0035
 (00:18:56) Nicholas J. Fuentes proposed that Richard Spencer should adopt an "Americana" aesthetic—wearing [[United States|American]] flag pins, using patriotic imagery, and discussing [[United States|American]] authors and founders—instead of a [[Europe|European]] identitarian style, to make his message more palatable and effective for a mainstream [[United States|American]] audience.
@@ -46504,7 +46504,7 @@
 (00:30:21) Nicholas J. Fuentes listed accomplishments of the [[Donald Trump|Trump]] administration, including appointing [[Neil Gorsuch]] to the [[Supreme Court of the United States|Supreme Court]], killing the [[Trans-Pacific Partnership|TPP]] and [[Paris climate accords]], defeating [[Islamic State of Iraq and Syria|ISIS]], deregulating to spur GDP growth, constructing border wall prototypes, terminating [[Deferred Action for Childhood Arrivals|DACA]], and increasing deportations.
 
 ### AF 2017-10-17 0033
-(00:31:58) Nicholas J. Fuentes stated that the [[Republican Party|GOP]] was working towards its strongest position ever if [[Steven Crowder|Steve Bannon]] won his internal party war.
+(00:31:58) Nicholas J. Fuentes stated that the [[Republican Party|GOP]] was working towards its strongest position ever if [[Steve Bannon]] won his internal party war.
 
 ### AF 2017-10-17 0033
 (00:36:46) Nicholas J. Fuentes noted that [[Holocaust denial]] is illegal in approximately 20 [[Europe|European]] countries.
@@ -46519,7 +46519,7 @@
 (01:02:23) Nicholas J. Fuentes expressed support for the idea of granting African [[United States|Americans]] their own territory, citing [[Louis Farrakhan]] and noting deteriorating race relations since integration.
 
 ### AF 2017-10-16 0032
-(00:05:58) Nicholas J. Fuentes drove through flooded streets and a thunderstorm in [[City of Chicago|Chicago]] to see the film *Blade Runner 2049* at a theater.
+(00:05:58) Nicholas J. Fuentes drove through flooded streets and a thunderstorm in [[Chicago]] to see the film *Blade Runner 2049* at a theater.
 
 ### AF 2017-10-16 0032
 (00:11:46) Nicholas J. Fuentes paid for an IMAX ticket to see *Blade Runner 2049* after reading a review by [[Richard Roper]] in the [[Chicago Tribune]] that recommended seeing it on the biggest screen possible.
@@ -46537,10 +46537,10 @@
 (01:19:04) Nicholas J. Fuentes stated there have been no [[Iran|Iranian]]-sponsored terror attacks in the [[United States]], with [[Iran|Iranian]] terrorism primarily targeting the [[Middle East]], including [[Iraq]], [[Syria]], and [[Yemen]].
 
 ### AF 2017-10-16 0032
-(03:31:94) Nicholas J. Fuentes argued that as [[Republican Party|GOP]] members feared [[Steven Crowder|Steve Bannon]]'s primary challenges, they would "jump ship" from [[Mitch McConnell]] and begin voting with [[Donald Trump]] on issues like border wall funding, healthcare reform, and tax reform.
+(03:31:94) Nicholas J. Fuentes argued that as [[Republican Party|GOP]] members feared [[Steve Bannon]]'s primary challenges, they would "jump ship" from [[Mitch McConnell]] and begin voting with [[Donald Trump]] on issues like border wall funding, healthcare reform, and tax reform.
 
 ### AF 2017-10-16 0032
-(03:33:24) Nicholas J. Fuentes stated that [[Donald Trump]] released [[Steven Crowder|Steve Bannon]] from [[the White House]] so [[Bannon]] could more effectively wage a "guerrilla war" against the [[Republican Party|GOP]] establishment without [[Donald Trump|the president]] appearing directly responsible.
+(03:33:24) Nicholas J. Fuentes stated that [[Donald Trump]] released [[Steve Bannon]] from [[the White House]] so [[Bannon]] could more effectively wage a "guerrilla war" against the [[Republican Party|GOP]] establishment without [[the president]] appearing directly responsible.
 
 ### AF 2017-10-16 0032
 (04:42:34) Nicholas J. Fuentes argued that [[Donald Trump]] had advocated for closing the border, ending trade deals, ending foreign wars, and reforming taxes for the middle class since 1979.
@@ -46618,7 +46618,7 @@
 (17:43:81) Nicholas J. Fuentes stated that [[Wilt Chamberlain|Will Chamberlain]] declined an invitation from [[James Allsup]] for a follow-up debate immediately after their encounter.
 
 ### AF 2017-10-12 0030
-(18:12:15) Nicholas J. Fuentes reported that [[Wilt Chamberlain|Will Chamberlain]] told [[James Allsup]] he would only proceed with a debate if Allsup disavowed Richard Spencer, [[David Duke]], antisemitism, and the [[City of Charlottesville|Charlottesville]] rally.
+(18:12:15) Nicholas J. Fuentes reported that [[Wilt Chamberlain|Will Chamberlain]] told [[James Allsup]] he would only proceed with a debate if Allsup disavowed Richard Spencer, [[David Duke]], antisemitism, and the [[Charlottesville]] rally.
 
 ### AF 2017-10-12 0030
 (19:55:97) Nicholas J. Fuentes highlighted that [[Wilt Chamberlain|Will Chamberlain]] attended [[Georgetown Law School]], was a national debate champion, and coached champions, but he defeated him.
@@ -46702,7 +46702,7 @@
 (00:23:25) Nicholas J. Fuentes noted that both the [[Israel|Knesset]] and the [[U.S. Senate]] intelligence committees later found the intelligence on [[Iraq|Iraqi]] [[Weapons of Mass Destruction|WMDs]] to be false.
 
 ### AF 2017-10-11 0029
-(00:32:11) Nicholas J. Fuentes argued that intelligence sharing with [[Israel]] could continue without foreign aid, as it does with [[Europe|European Union]] countries, and that [[Benjamin Netanyahu|Netanyahu]] had previously promised to phase out [[United States|U.S]]. aid.
+(00:32:11) Nicholas J. Fuentes argued that intelligence sharing with [[Israel]] could continue without foreign aid, as it does with [[European Union]] countries, and that [[Benjamin Netanyahu|Netanyahu]] had previously promised to phase out [[United States|U.S]]. aid.
 
 ### AF 2017-10-11 0029
 (00:33:08) Nicholas J. Fuentes cited *The [[Israel Lobby]]* by [[John Mearsheimer]] and [[Stephen Walt]], quoting a former [[Central Intelligence Agency|CIA]] official [[who]] called [[Israel Defense Forces|Israeli military intelligence]] "lousy" and "gossip stuff mostly."
@@ -46732,7 +46732,7 @@
 (00:44:42) Nicholas J. Fuentes cited an [[Israeli defense minister]] and chief intelligence officer [[who]] stated [[Israel]] would prefer [[Islamic State of Iraq and Syria|ISIS]] to [[Iran]] in [[Syria]], showing [[Israel]] does not help fight the principal actor of terrorism against the [[Kanye West|West]].
 
 ### AF 2017-10-11 0029
-(00:45:01) Nicholas J. Fuentes noted that [[Iran]] has sponsored no terror attacks against the [[United States]] since the Islamic Revolution, whereas [[Islamic State of Iraq and Syria|ISIS]] has sponsored attacks in San Bernardino and [[City of Orlando|Orlando]].
+(00:45:01) Nicholas J. Fuentes noted that [[Iran]] has sponsored no terror attacks against the [[United States]] since the Islamic Revolution, whereas [[Islamic State of Iraq and Syria|ISIS]] has sponsored attacks in San Bernardino and [[Orlando]].
 
 ### AF 2017-10-11 0029
 (00:45:46) [[Wilt Chamberlain|Will Chamberlain]] argued that Arab countries' desire to wipe [[Israel]] off the map is the prime motivation for terrorism related to [[Israel]], creating a tension with Nicholas J. Fuentes's argument that cutting aid would not cause a war.
@@ -46951,7 +46951,7 @@
 (00:27:22) Nicholas J. Fuentes argued that [[Protestantism]]'s doctrine of "the Bible alone" has eroded [[Christianity|Christian]] doctrine and ecclesiastical authority since the [[time]] of [[Martin Luther]].
 
 ### AF 2017-10-06 0026
-(00:29:30) Nicholas J. Fuentes declared [[Pope Francis]] a heretic and a Marxist, alleging his papacy resulted from a [[Freemason]] infiltration of the [[Pope Francis|Catholic Church]] during [[Vatican II]].
+(00:29:30) Nicholas J. Fuentes declared [[Pope Francis]] a heretic and a Marxist, alleging his papacy resulted from a [[Freemason]] infiltration of the [[Catholic Church]] during [[Vatican II]].
 
 ### AF 2017-10-06 0026
 (00:30:59) Nicholas J. Fuentes stated that a successful political movement requires a core doctrine like pre-Vatican II [[Catholicism]] to answer fundamental existential questions and provide motivation, citing [[Paul Miller|Paul Town]] as an example of someone lacking such a foundation.
@@ -47008,7 +47008,7 @@
 (01:19:56) Nicholas J. Fuentes expressed approval for [[Golden Dawn]] in [[Greece]], stating his support for any [[Europe|European]] far-right nationalist group opposed to [[Brussels]] and [[Angela Merkel]].
 
 ### AF 2017-10-06 0026
-(01:20:44) A viewer named "Spoiler Alert" noted that since [[Vatican II]], the official position of the [[Pope Francis|Catholic Church]] has been that [[Jews]] do not need to believe in [[Jesus Christ]] to go to heaven, which Nicholas J. Fuentes agreed was heresy.
+(01:20:44) A viewer named "Spoiler Alert" noted that since [[Vatican II]], the official position of the [[Catholic Church]] has been that [[Jews]] do not need to believe in [[Jesus Christ]] to go to heaven, which Nicholas J. Fuentes agreed was heresy.
 
 ### AF 2017-10-06 0026
 (01:34:18) Nicholas J. Fuentes listed [[Bashar al-Assad]], [[Vladimir Putin]], and [[Rodrigo Duterte]] as his top three non-[[United States|American]] leaders today, and [[Julius Caesar]], [[Napoleon Bonaparte]], and [[Otto von Bismarck]] as his top three historical leaders.
@@ -47059,10 +47059,10 @@
 (01:33:44) [[Mike Pence]], while Governor of [[India|Indiana]], represented the [[state]]'s [[Christianity|Christian]] conservative political climate, which Nicholas J. Fuentes cited as preferable to [[State of Illinois|Illinois]].
 
 ### AF 2017-10-04 0024
-(02:32:68) The [[Europe|European Union]], along with leaders like [[Emmanuel Macron]] of [[France]] and [[Angela Merkel]] of [[Germany]], offered no comment or intervention in the Catalan independence crisis, which Nicholas J. Fuentes argued contradicted the [[EU]]'s founding principle of self-determination.
+(02:32:68) The [[European Union]], along with leaders like [[Emmanuel Macron]] of [[France]] and [[Angela Merkel]] of [[Germany]], offered no comment or intervention in the Catalan independence crisis, which Nicholas J. Fuentes argued contradicted the [[EU]]'s founding principle of self-determination.
 
 ### AF 2017-10-04 0024
-(03:09:72) Nicholas J. Fuentes argued that liberalism, as practiced in institutions like [[City of Berkeley|Berkeley]], operates as a subversive force that initially champions free speech but later excludes opposing viewpoints once in power.
+(03:09:72) Nicholas J. Fuentes argued that liberalism, as practiced in institutions like [[Berkeley]], operates as a subversive force that initially champions free speech but later excludes opposing viewpoints once in power.
 
 ### AF 2017-10-04 0024
 (03:24:83) [[Milton Friedman]]'s theory that free markets would disincentivize racial discrimination was contradicted, according to Nicholas J. Fuentes, by modern corporations like [[Starbucks]], [[Airbnb]], and [[Uber]] which he claimed actively discriminate against pro-white activists.
@@ -47095,10 +47095,10 @@
 (07:17:54) Nicholas J. Fuentes criticized the prevalence of casual and revealing public attire, arguing that a lack of paternal love and moral guidance leads to degenerate hedonism, and stated that such dress codes implicitly explain [[Iran]]'s negative view of Western society.
 
 ### AF 2017-10-03 0023
-(00:00:00) Nicholas J. Fuentes began his broadcast by announcing an analysis of the [[City of Las Vegas|Las Vegas]] shooting situation.
+(00:00:00) Nicholas J. Fuentes began his broadcast by announcing an analysis of the [[Las Vegas]] shooting situation.
 
 ### AF 2017-10-03 0023
-(00:14:40) Nicholas J. Fuentes argued that the possibility of government involvement should be considered alongside typical categories like mental illness or ideology when analyzing events like the [[City of Las Vegas|Las Vegas]] shooting.
+(00:14:40) Nicholas J. Fuentes argued that the possibility of government involvement should be considered alongside typical categories like mental illness or ideology when analyzing events like the [[Las Vegas]] shooting.
 
 ### AF 2017-10-03 0023
 (00:16:20) Nicholas J. Fuentes cited the declassified [[Operation Northwoods]] plan, proposed by the [[U.S. Department of Defense]] and [[Joint Chiefs of Staff]] in 1962, which included proposals for false flag terrorist attacks against [[United States|American]] targets to justify war with [[Cuba]].
@@ -47194,7 +47194,7 @@
 (00:56:40) Nicholas J. Fuentes stated his goal was to become a politician or to "transcend politics."
 
 ### AF 2017-10-02 0022
-(00:48:48) Nicholas J. Fuentes began the episode of his show "[[America First]]" on the evening following a mass shooting event in [[City of Las Vegas|Las Vegas]].
+(00:48:48) Nicholas J. Fuentes began the episode of his show "[[America First]]" on the evening following a mass shooting event in [[Las Vegas]].
 
 ### AF 2017-10-02 0022
 (09:59:72) Nicholas J. Fuentes criticized a young Mexican [[Republican Party|Republican]] activist, whom he identified as Angelo Ramirez, for posting a video with optimistic talking points following the tragedy, accusing him of grandstanding for political gain.
@@ -47221,13 +47221,13 @@
 (52:20:91) Nicholas J. Fuentes stated that the lobby music for his show "[[America First]]" is "Give Me Your Love" by [[Curtis Mayfield]] from the *Superfly* album, and the intro music is an original "Trumpwave" track by his friend Yanimda.
 
 ### AF 2017-10-02 0022
-(53:24:35) Nicholas J. Fuentes commented on the [[2017 Catalan independence referendum]], noting the irony of [[Europe|European Union]] leaders championing democracy while Spanish authorities used force to suppress the vote and seize ballot boxes.
+(53:24:35) Nicholas J. Fuentes commented on the [[2017 Catalan independence referendum]], noting the irony of [[European Union]] leaders championing democracy while Spanish authorities used force to suppress the vote and seize ballot boxes.
 
 ### AF 2017-10-02 0022
 (56:20:21) Nicholas J. Fuentes stated that [[Ben Sasse]] must be primaried in 2020 and called him a "cuck."
 
 ### AF 2017-10-02 0022
-(58:33:07) Nicholas J. Fuentes commented on the arrest of the streamer [[Destiny|Destiny]] for public drunkenness, expressing a degree of pity for him due to his stature and life circumstances.
+(58:33:07) Nicholas J. Fuentes commented on the arrest of the streamer [[Destiny]] for public drunkenness, expressing a degree of pity for him due to his stature and life circumstances.
 
 ### AF 2017-10-02 0022
 (59:08:21) Nicholas J. Fuentes argued that the nationalist right needs to improve its aesthetics and build community and brotherhood before holding more rallies, citing the infighting within the alt-right movement as a fundamental problem.
@@ -47344,7 +47344,7 @@
 (00:31:38) Nicholas J. Fuentes challenged the guest to accept the risk of a nuclear strike on the [[United States|U.S]]. homeland from a collapsing [[North Korea]] or from terrorists they armed, arguing isolationists do not properly weigh these contingencies.
 
 ### AF 2017-09-29 0021
-(00:34:34) Nicholas J. Fuentes rejected the analogy of accepting risk from [[China]]'s existing arsenal, arguing it is different to trust [[City of Beijing|Beijing]]'s rationality than to trust its competence and swiftness to bail out a collapsing [[Pyongyang]] and secure loose nukes.
+(00:34:34) Nicholas J. Fuentes rejected the analogy of accepting risk from [[China]]'s existing arsenal, arguing it is different to trust [[Beijing]]'s rationality than to trust its competence and swiftness to bail out a collapsing [[Pyongyang]] and secure loose nukes.
 
 ### AF 2017-09-29 0021
 (00:36:20) Nicholas J. Fuentes suggested [[China]] has been stalling and watering down [[United Nations]] sanctions, and might tacitly support a nuclear [[North Korea]] as a deterrent to [[United States|U.S]]. action on the peninsula, as proliferation would primarily harm [[United States|U.S]]. interests.
@@ -47530,7 +47530,7 @@
 (02:27:40) Nicholas J. Fuentes argued that by focusing on individual [[state]]-level issues and jobs, such as the [[Foxconn]] plant in [[Wisconsin]], [[Donald Trump]] was tactically targeting specific [[Senate]] seats to remake the [[Republican Party]] majority in his image.
 
 ### AF 2017-09-27 0019
-(02:33:09) Nicholas J. Fuentes claimed [[Steven Crowder|Steve Bannon]] left the [[White House]] not because he was fired, but to wage a "guerrilla media campaign" against the establishment from the outside, a move timed just before [[Roy Moore]]'s victory in [[Alabama]].
+(02:33:09) Nicholas J. Fuentes claimed [[Steve Bannon]] left the [[White House]] not because he was fired, but to wage a "guerrilla media campaign" against the establishment from the outside, a move timed just before [[Roy Moore]]'s victory in [[Alabama]].
 
 ### AF 2017-09-27 0019
 (02:35:36) Nicholas J. Fuentes criticized a faction within the alt-right for a "melodramatic addiction to the [[black]] pill," or cynical defeatism about [[Donald Trump]]'s intentions, which he argued was incentivized by social media engagement.
@@ -47617,13 +47617,13 @@
 (01:19:30.190) Nicholas J. Fuentes speculated that [[Roy Moore]] was "red-pilled," noting Moore's opposition to homosexuality and his strong lead in the Alabama [[Senate]] primary with 38% of the vote counted.
 
 ### AF 2017-09-25 0017
-(00:00:00) Nicholas J. Fuentes announced a debate with [[Destiny|Destiny]], a professional video game player, on the topic of immigration.
+(00:00:00) Nicholas J. Fuentes announced a debate with [[Destiny]], a professional video game player, on the topic of immigration.
 
 ### AF 2017-09-25 0017
-(00:01:26) Nicholas J. Fuentes stated he had watched [[Destiny|Destiny]]'s previous debates with [[Sargon]] and [[John Tron]].
+(00:01:26) Nicholas J. Fuentes stated he had watched [[Destiny]]'s previous debates with [[Sargon]] and [[John Tron]].
 
 ### AF 2017-09-25 0017
-(00:03:03) Nicholas J. Fuentes recalled [[Destiny|Destiny]] saying on [[Sargon]]'s show that neither side would change the other's mind on contentious issues.
+(00:03:03) Nicholas J. Fuentes recalled [[Destiny]] saying on [[Sargon]]'s show that neither side would change the other's mind on contentious issues.
 
 ### AF 2017-09-25 0017
 (00:03:21) Nicholas J. Fuentes described the 1965 Hart-Celler Act as eliminating national origin quotas and numerical restrictions on immigrants' immediate relatives, shifting immigration from predominantly [[Europe|European]] to Latin [[United States|American]] and Asian sources.
@@ -47692,10 +47692,10 @@
 (00:23:32) Nicholas J. Fuentes argued that if government acts against the sovereign will of the people—the majority [[who]] would oppose demographic shift—it is a failure and an injustice of government.
 
 ### AF 2017-09-25 0017
-(00:24:29) Nicholas J. Fuentes used the [[Iraq]] War as an example, asking [[Destiny|Destiny]] if he thought it was just.
+(00:24:29) Nicholas J. Fuentes used the [[Iraq]] War as an example, asking [[Destiny]] if he thought it was just.
 
 ### AF 2017-09-25 0017
-(00:25:06) Nicholas J. Fuentes pointed out the contradiction: [[Destiny|Destiny]] condemns the [[Iraq]] War due to intentional misleading but gives the Hart-Celler Act a pass due to lack of proven intent.
+(00:25:06) Nicholas J. Fuentes pointed out the contradiction: [[Destiny]] condemns the [[Iraq]] War due to intentional misleading but gives the Hart-Celler Act a pass due to lack of proven intent.
 
 ### AF 2017-09-25 0017
 (00:30:51) Nicholas J. Fuentes shifted the discussion to the consequences of immigration, asking if non-white immigration from the third world has been good or bad for the [[country]].
@@ -47713,7 +47713,7 @@
 (00:34:08) Nicholas J. Fuentes asked which constitutional amendment revoked the original mandate for the government to serve the posterity of the founders.
 
 ### AF 2017-09-25 0017
-(00:35:12) Nicholas J. Fuentes countered that Article 2 of the [[U.S. Constitution|Constitution]] gives [[Donald Trump|the president]] power over foreign affairs, including immigration, making it a federal issue.
+(00:35:12) Nicholas J. Fuentes countered that Article 2 of the [[U.S. Constitution|Constitution]] gives [[the president]] power over foreign affairs, including immigration, making it a federal issue.
 
 ### AF 2017-09-25 0017
 (00:36:15) Nicholas J. Fuentes quoted [[John Jay]] from the first Federalist Paper, describing the [[United States|American]] people as "descended from the same ancestors, speaking the same language, professing the same religion."
@@ -47764,10 +47764,10 @@
 (01:10:55) Nicholas J. Fuentes referenced [[John Tron]]'s claim that the poorest white communities have less crime than the richest [[black]] communities.
 
 ### AF 2017-09-25 0017
-(01:11:40) Nicholas J. Fuentes argued that violent crime associated with drug trafficking is disproportionately committed by [[Hispanic|Hispanics]], citing cities like [[Los Angeles]] and [[City of Chicago|Chicago]].
+(01:11:40) Nicholas J. Fuentes argued that violent crime associated with drug trafficking is disproportionately committed by [[Hispanic|Hispanics]], citing cities like [[Los Angeles]] and [[Chicago]].
 
 ### AF 2017-09-25 0017
-(01:13:41) [[Destiny|Destiny]] argued that high crime in specific cities points to a geographic and ghettoization problem, not an inherent problem with [[Hispanic|Hispanics]].(01:14:53) Nicholas J. Fuentes argued that the appearance of [[Islam|Muslim]] African rape gangs in [[Europe]] correlated directly with the arrival of [[Islam|Muslim]] African immigrants, necessitating selectivity in immigration policy.
+(01:13:41) [[Destiny]] argued that high crime in specific cities points to a geographic and ghettoization problem, not an inherent problem with [[Hispanic|Hispanics]].(01:14:53) Nicholas J. Fuentes argued that the appearance of [[Islam|Muslim]] African rape gangs in [[Europe]] correlated directly with the arrival of [[Islam|Muslim]] African immigrants, necessitating selectivity in immigration policy.
 
 ### AF 2017-09-25 0017
 (01:15:05) Nicholas J. Fuentes clarified that the "[[Islam|Muslim]] rape gangs" in [[Europe]] primarily originated from specific [[North African]] [[Islam|Muslim]] countries, not from all [[Islam|Muslim]] immigrants.
@@ -47950,7 +47950,7 @@
 (00:53:06) Nicholas J. Fuentes predicted the [[Alternative for Germany|AfD]] party would perform strongly in the upcoming [[Germany|German]] elections, gaining a larger percentage of the vote than polls suggested.
 
 ### AF 2017-09-22 0016
-(00:54:11) Nicholas J. Fuentes criticized the 1917 [[Balfour Declaration]], which promised a [[Jews|Jewish]] homeland in [[Gaza Strip|Palestine]], as illegitimate because [[United Kingdom|Great Britain]] did not control the territory and its population was overwhelmingly non-[[Jews|Jewish]].
+(00:54:11) Nicholas J. Fuentes criticized the 1917 [[Balfour Declaration]], which promised a [[Jews|Jewish]] homeland in [[Palestine]], as illegitimate because [[United Kingdom|Great Britain]] did not control the territory and its population was overwhelmingly non-[[Jews|Jewish]].
 
 ### AF 2017-09-22 0016
 (00:55:37) Nicholas J. Fuentes, citing the book *Against Our Better Judgment* by [[Alison Weir]], argued that [[Louis Brandeis]] used his influence with [[White House|President]] [[Woodrow Wilson]] to secure [[United States|U.S]]. entry into [[World War III|World War I]] in exchange for the [[United Kingdom|British]] issuing the [[Balfour Declaration]].
@@ -47974,7 +47974,7 @@
 (01:06:00) Nicholas J. Fuentes stated that a potential amnesty deal for illegal immigrants from [[Donald Trump|Trump]] would be a deal-breaker for him, but acknowledged the need to evaluate the specific details and potential concessions, such as funding for a border wall or the RAISE Act.
 
 ### AF 2017-09-22 0016
-(01:08:14) Nicholas J. Fuentes separated from [[Republican Party|RSPN]] after the [[City of Charlottesville|Charlottesville rally]], citing a divergence between his opinion-based commentary and the network's focus on live news, which made him a distraction for their press credential efforts.
+(01:08:14) Nicholas J. Fuentes separated from [[Republican Party|RSPN]] after the [[Charlottesville rally]], citing a divergence between his opinion-based commentary and the network's focus on live news, which made him a distraction for their press credential efforts.
 
 ### AF 2017-09-22 0016
 (01:09:44) Nicholas J. Fuentes criticized anonymous online figures like "George L. Rockwell" for lacking a vision for optics and attempting to drag public figures into strategically unviable positions, contrasting them with figures like [[Milo]].
@@ -48151,7 +48151,7 @@
 (02:04:03) Nicholas J. Fuentes admitted he sometimes checks the "[[Hispanic]] [[heritage]]" box on forms, such as for college admissions, viewing it as a tactical advantage he is entitled to use.
 
 ### AF 2017-09-21 0015
-(01:18:18) In mid-August, [[Milo Yiannopoulos]]'s team invited Nicholas J. Fuentes to [[City of Miami|Miami]] for an interview, flying him down before canceling the interview via email after he had already landed.
+(01:18:18) In mid-August, [[Milo Yiannopoulos]]'s team invited Nicholas J. Fuentes to [[Miami]] for an interview, flying him down before canceling the interview via email after he had already landed.
 
 ### AF 2017-09-21 0015
 (01:30:27) Nicholas J. Fuentes argued that the "alt-cuck" or "alt-light" movement, represented by figures like [[Milo Yiannopoulos]], lacked political convictions and cared more about sensation than ideology.
@@ -48220,7 +48220,7 @@
 (00:18:51) [[Paul Ryan]] and [[Mitch McConnell]] did not issue condemnations following the Parsons Green bombing by refugees, according to Nicholas J. Fuentes.
 
 ### AF 2017-09-18 0012
-(00:38:50) Nicholas J. Fuentes contrasted the permitted, non-violent [[City of Charlottesville|Charlottesville]] rally with the riots in [[City of St. Louis|St. Louis]], arguing the former was [[United States|American]] while the latter was not.
+(00:38:50) Nicholas J. Fuentes contrasted the permitted, non-violent [[Charlottesville]] rally with the riots in [[St. Louis]], arguing the former was [[United States|American]] while the latter was not.
 
 ### AF 2017-09-18 0012
 (00:43:33) [[Barack Obama]] is an example of a non-assimilated figure according to Nicholas J. Fuentes, [[who]] argued [[Obama]] wanted to see "white [[United States|America]] be punished" and desired historical retribution.
@@ -48232,7 +48232,7 @@
 (00:48:02) [[Jordan Peterson]] popularized discussions about the death of God and nihilism, but Nicholas J. Fuentes stated he does not believe Peterson has the right answers.
 
 ### AF 2017-09-18 0012
-(00:50:20) Nicholas J. Fuentes believes the movement should return to [[City of Charlottesville|Charlottesville]] one day, but not until things have calmed down.
+(00:50:20) Nicholas J. Fuentes believes the movement should return to [[Charlottesville]] one day, but not until things have calmed down.
 
 ### AF 2017-09-18 0012
 (00:54:28) Nicholas J. Fuentes is open to debating a streamer named [[Destiny]] on the topic of immigration.

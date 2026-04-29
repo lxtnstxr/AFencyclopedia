@@ -304,7 +304,67 @@
 (21:15:88) [[Saudi Arabia]] bombed the defense ministry of the Houthi rebel government in [[Yemen]], representing a significant escalation in the conflict.
 
 ### AF 2017-11-10 0051
-(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the Houthi rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], [[Hamas]] and [[Palestinian Islamic Jihad]] in [[Gaza Strip|Palestine]], and the [[state]] of [[Qatar]].
+(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the Houthi rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], [[Hamas]] and [[Palestinian Islamic Jihad]] in [[Palestine]], and the [[state]] of [[Qatar]].
 
 ### AF 2017-11-06 0047
-(00:15:20) [[Iran|Iranian]]-backed Houthi rebels in [[Yemen]] launched a missile at the international airport in [[City of Riyadh|Riyadh]], [[Saudi Arabia]], which was intercepted.
+(00:15:20) [[Iran|Iranian]]-backed Houthi rebels in [[Yemen]] launched a missile at the international airport in [[Riyadh]], [[Saudi Arabia]], which was intercepted.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:50.200) [[Qasem Soleimani]] developed and established the Axis of Resistance, which includes [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:28) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] warned [[Iran]]'s leaders in a post on [[Cozy.tv|Truth Social]] that they would pay for every bullet fired by the Houthis.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:28) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] stated in the same [[Cozy.tv|Truth Social]] post that the Houthis have been "grazed" and that everything in [[Iran]] would be "blown to smithereens" if they continue.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:01:44:710) [[Nicholas J. Fuentes]] stated that the situation culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he called the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:04:02) [[Nicholas J. Fuentes]] compared the challenge to the war against the Houthi rebels in [[Yemen]] in 2025, where the [[United States]] dropped tons of ordinance but had no ability to prevent them from launching missiles.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:04:30) [[Nicholas J. Fuentes]] said that in the war against the Houthis, [[Donald Trump]] eventually had to say, "I respect the Houthis. This isn't working."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:04:54) [[Nicholas J. Fuentes]] said that the Houthis maintain the ability to launch missiles because the missile launch platforms are mobile and hard to detect.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:56) [[Qasem Soleimani]] was the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:02:13) [[Nicholas J. Fuentes]] argued that [[Iran]] has influence through proxies including the Houthis in [[Yemen]], [[Hezbollah]] in [[Lebanon]], and [[Hezbollah]] in [[Iraq]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:07:10) [[Nicholas J. Fuentes]] argued that [[Israel]] does not want [[Iran]] to have centrifuges and missiles for the same reason that [[Israel]] destroyed [[Hezbollah]], [[Bashar al-Assad|Assad]], and the Houthis - to make [[Iran]] defenseless.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:00:32) [[Nicholas J. Fuentes]] argued that [[Qasem Soleimani]] was the architect of the "Axis of Resistance," building [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:02:00:00) [[Nicholas J. Fuentes]] claimed that [[Qasem Soleimani]] built the "axis of resistance," including [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:54:00) [[Qasem Soleimani]] was the architect of the "Axis of Resistance," which included [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:08:00) [[Qasem Soleimani]] was the architect of the "Axis of Resistance," which included [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:13:55.000) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:59) [[Nicholas J. Fuentes]] credited [[Qasem Soleimani]] as the architect of the "Axis of Resistance," including [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:10:16) [[Nicholas J. Fuentes]] repeated that [[Qasem Soleimani]] was the architect of the Axis of Resistance including [[Hamas]], [[Hezbollah]], and the Houthis.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:18:58) [[Nicholas J. Fuentes]] argued that [[Iran]]'s other deterrents include ballistic missiles and proxies like [[Hezbollah]] and the Houthis, and that [[Israel]] cannot attack all of them simultaneously.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(01:01:50:33) [[Donald Trump]] assassinated [[Qasem Soleimani]], the architect of the axis of resistance of [[Hamas]], [[Hezbollah]], and the Houthis, in January 2020.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:22) [[Nicholas J. Fuentes]] stated that the [[United States]] and [[Iran]] are in a "shadow war" that culminated in the January 2020 assassination of [[Qasem Soleimani]], whom he described as the architect of the axis of resistance including [[Hamas]], [[Hezbollah]], and the Houthis.

@@ -30,7 +30,7 @@
 (00:30:57) [[Nicholas J. Fuentes]] asserted that 80% of [[United States|American]] [[Jews]] vote for the [[Democratic Party]] and that the most influential radical left-wing ideologues in [[New York]] and Los Angeles are [[Jewish]].
 
 ### AF 2024-08-02 1366
-(01:20:01:47) [[City of Chicago|Chicago]]'s prevalent fast-food options, in contrast to cities like Los Angeles, were identified as hot dog stands, Italian beef sandwiches, and gyros.
+(01:20:01:47) [[Chicago]]'s prevalent fast-food options, in contrast to cities like Los Angeles, were identified as hot dog stands, Italian beef sandwiches, and gyros.
 
 ### AF 2024-07-12 1354
 (00:54:20) [[Nicholas J. Fuentes]] reported that [[George Clooney]], who had just weeks earlier hosted a Los Angeles fundraiser that raised $28 million for [[Joe Biden]], wrote a [[The New York Times]] essay calling for him to withdraw.
@@ -57,7 +57,7 @@
 (00:13:44) [[Nicholas J. Fuentes]] claims [[Jews]] control the [[United States]] and [[Europe]] through domination of media, finance, Hollywood, government, and other elite organs of society.
 
 ### AF 2024-02-01 1287
-(00:19:31) [[Ilhan Omar]]'s explicit advocacy for [[Somalia]] was contrasted with the broader issue of immigrants forming segregated communities in cities like [[City of Minneapolis|Minneapolis]], Los Angeles, [[City of Chicago|Chicago]], and [[New York|New York City]], which hinders assimilation into [[United States|American]] society.
+(00:19:31) [[Ilhan Omar]]'s explicit advocacy for [[Somalia]] was contrasted with the broader issue of immigrants forming segregated communities in cities like [[Minneapolis]], Los Angeles, [[Chicago]], and [[New York|New York City]], which hinders assimilation into [[United States|American]] society.
 
 ### AF 2023-12-08 1259
 (00:21:56) [[Alex Jones]] argued that a racial supremacist group of [[Han Chinese]] ethnic supremacists within the [[Chinese Communist Party]] controls Hollywood, funds the [[Democratic Party]], and promotes anti-white hatred and diversity to divide [[United States|America]].
@@ -72,7 +72,7 @@
 (00:39:38) [[Nicholas J. Fuentes]] argued that real power in [[United States|America]] is concentrated within a small elite of about 5,000-10,000 people in cities like [[New York|New York City]], [[Washington D.C.|Washington, D.C.]], Los Angeles, and [[San Francisco Bay Area|San Francisco]].
 
 ### AF 2023-10-23 1240
-(00:29:39) [[Nicholas J. Fuentes]] stated that [[Israel]] understands that mass protests in [[United States|American]] cities like [[City of Chicago|Chicago]], [[New York]], and Los Angeles could pressure the [[United States]] government to reduce its support.
+(00:29:39) [[Nicholas J. Fuentes]] stated that [[Israel]] understands that mass protests in [[United States|American]] cities like [[Chicago]], [[New York]], and Los Angeles could pressure the [[United States]] government to reduce its support.
 
 ### AF 2023-10-14 1235
 (00:44:05) [[Nicholas J. Fuentes]] argued that the mindset of [[Antony Blinken]] and [[Ben Shapiro]] was shared by many [[Jews]] in influential positions in Hollywood, media, the [[State Department]], and the [[U.S. Department of Defense|Pentagon]], which conflicted with an "[[United States|America]] First" agenda.
@@ -84,7 +84,7 @@
 (30:21:12) [[Nicholas J. Fuentes]] listed Los Angeles, [[Las Vegas]], and [[Miami]] as his favorite world-class cities, praising their aesthetics, amenities, and food, while expressing dislike for [[New York|New York City]]'s density and smell.
 
 ### AF 2023-10-03 1228
-(00:03:43) [[Nicholas J. Fuentes]] argued that crime is a pervasive problem affecting residents of major cities like Los Angeles, [[San Francisco Bay Area|San Francisco]], [[New York|New York City]], and [[City of Chicago|Chicago]].
+(00:03:43) [[Nicholas J. Fuentes]] argued that crime is a pervasive problem affecting residents of major cities like Los Angeles, [[San Francisco Bay Area|San Francisco]], [[New York|New York City]], and [[Chicago]].
 
 ### AF 2023-09-19 1219
 (01:03:32) One woman alleged [[Russell Brand]] raped her without a condom in his home in Los Angeles and was treated at a rape crisis center the same day, which [[The New York Times|The Times]] stated it confirmed through medical records.
@@ -108,7 +108,7 @@
 (01:38:14) [[Person|Milo Yiannopoulos]] offered to fly [[Baked Alaska]] to Los Angeles to discuss [[Nicholas J. Fuentes]].
 
 ### AF 2023-07-20 1189
-(02:10:01) [[Nicholas J. Fuentes]] countered [[Destiny]]'s claim that no COVID-19 vaccine mandates existed, citing mandates in [[New York|New York City]], Los Angeles, and [[City of Chicago|Chicago]] for schools, employers, government workers, and medical workers.
+(02:10:01) [[Nicholas J. Fuentes]] countered [[Destiny]]'s claim that no COVID-19 vaccine mandates existed, citing mandates in [[New York|New York City]], Los Angeles, and [[Chicago]] for schools, employers, government workers, and medical workers.
 
 ### AF 2023-07-05 1187
 (17:17:00) [[Nicholas J. Fuentes]] defined the "[[United States|America]] First" movement as advocating for [[United States|American government]] independence from foreign influence, including from foreign nations operating within [[United States|U.S]]. borders like [[Washington D.C.|D.C.]], [[New York]], and Los Angeles.
@@ -117,7 +117,7 @@
 (28:50:00) [[Nicholas J. Fuentes]] characterized [[Jewish]] control of global finance, banking, and Hollywood as a "terrible development" for mankind, framing it as the group that "killed [[God]]'s son" now running everything.
 
 ### AF 2023-05-23 1164
-(02:16:38) [[Nicholas J. Fuentes]] cited rampant crime in [[City of Chicago|Chicago]], Los Angeles, [[San Francisco Bay Area|San Francisco]], [[New York|New York City]], and [[Washington D.C.]], where criminals operate with impunity due to policies that discourage police intervention.
+(02:16:38) [[Nicholas J. Fuentes]] cited rampant crime in [[Chicago]], Los Angeles, [[San Francisco Bay Area|San Francisco]], [[New York|New York City]], and [[Washington D.C.]], where criminals operate with impunity due to policies that discourage police intervention.
 
 ### AF 2023-05-12 1161
 (00:08:36) [[Nicholas J. Fuentes]] argued that the media landscape is controlled by a "Zionist oligarchy" with significant influence in Hollywood.
@@ -195,10 +195,10 @@
 (30:05:40) [[Ari Emanuel]] is the CEO of [[Endeavor]], a holding company that controls [[William Morris Endeavor|WME]], one of the oldest and largest talent agencies in Hollywood, representing major celebrities.
 
 ### AF 2022-10-20 1082
-(00:34:58) [[Nicholas J. Fuentes]] argued that the policy failures in liberal-run cities like [[San Francisco Bay Area|San Francisco]], Los Angeles, [[City of Chicago|Chicago]], and [[New York]]—such as rampant homelessness, disease, and crime—were the direct result of progressive principles like sanctuary cities, gun control, and defunding the police.
+(00:34:58) [[Nicholas J. Fuentes]] argued that the policy failures in liberal-run cities like [[San Francisco Bay Area|San Francisco]], Los Angeles, [[Chicago]], and [[New York]]—such as rampant homelessness, disease, and crime—were the direct result of progressive principles like sanctuary cities, gun control, and defunding the police.
 
 ### AF 2022-10-20 1082
-(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[City of Chicago|Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], Los Angeles, [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[City of Miami|Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[City of Philadelphia|Philadelphia]], and [[City of Minneapolis|Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
+(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], Los Angeles, [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[Philadelphia]], and [[Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
 
 ### AF 2022-10-19 1081
 (00:25:26) During the "Drink Champs" interview, [[Kanye West]] said he intended to "me too" the [[Jewish]] media, drawing an analogy to the Me Too movement's exposure of powerful abusers in Hollywood.
@@ -219,7 +219,7 @@
 (00:50:01) [[Nicholas J. Fuentes]] described a coordinated "gang" consisting of the [[Federal Bureau of Investigation|FBI]], Hollywood, mainstream media, and organizations like the [[Anti-Defamation League|ADL]] working in tandem to create a fake right-wing threat, launder it through media reports, and use it to justify cracking down on dissent.
 
 ### AF 2022-09-03 1054
-(04:03:59) [[Bank of America]] launched an initiative to increase [[black]] and [[Hispanic]] home ownership by offering mortgages with no down payment and no closing costs in cities including [[City of Miami|Miami]], [[Dallas]], Los Angeles, [[Detroit]], and [[Charlotte]].
+(04:03:59) [[Bank of America]] launched an initiative to increase [[black]] and [[Hispanic]] home ownership by offering mortgages with no down payment and no closing costs in cities including [[Miami]], [[Dallas]], Los Angeles, [[Detroit]], and [[Charlotte]].
 
 ### AF 2022-09-02 1053
 (01:52:24) [[Nicholas J. Fuentes]] claimed that the people who run the media, Hollywood, pornography, [[Big Tech]], the [[Joe Biden|Biden]] administration, [[The Wall Street Journal|Wall Street]], the [[Anti-Defamation League|ADL]], and the activist class hate [[Jesus Christ]].
@@ -231,10 +231,10 @@
 (00:30:57) [[Nicholas J. Fuentes]] noted [[State of Florida|Florida]] has one of the highest [[Jewish]] populations in the [[United States]], with major centers in [[New York|New York City]], Los Angeles, and Broward County, [[State of Florida|Florida]].
 
 ### AF 2022-06-17 1015
-(00:46:04) [[Nicholas J. Fuentes]], living in the suburbs of [[City of Chicago|Chicago]], stated that whites are already a minority in the [[City of Chicago|Chicago]] metro area and in most major cities like Los Angeles, [[New York]], and increasingly in [[State of Texas|Texas]], [[State of Florida|Florida]], [[Arizona]], and [[State of New Mexico|New Mexico]].
+(00:46:04) [[Nicholas J. Fuentes]], living in the suburbs of [[Chicago]], stated that whites are already a minority in the [[Chicago]] metro area and in most major cities like Los Angeles, [[New York]], and increasingly in [[State of Texas|Texas]], [[State of Florida|Florida]], [[Arizona]], and [[State of New Mexico|New Mexico]].
 
 ### AF 2022-06-09 1009
-(01:35:00) [[Nicholas J. Fuentes]] stated that [[In-N-Out Burger]] was his favorite fast-food restaurant, which he could not get in [[City of Chicago|Chicago]], making it a treat during visits to [[City of Phoenix|Phoenix]], Los Angeles, or [[State of Texas|Texas]].
+(01:35:00) [[Nicholas J. Fuentes]] stated that [[In-N-Out Burger]] was his favorite fast-food restaurant, which he could not get in [[Chicago]], making it a treat during visits to [[Phoenix]], Los Angeles, or [[State of Texas|Texas]].
 
 ### AF 2022-05-27 1003
 (17:00:58) The influence regime that brought about the wars in [[Iraq]] and [[Afghanistan]], [[September 11 attacks|9/11]], Hollywood, [[Paramount Global|MTV]], pornography, [[OnlyFans]], and smartphones is the same one [[Donald Trump]] threatened to upset.
@@ -258,37 +258,37 @@
 (01:40:16) [[Nicholas J. Fuentes]] used [[Steve Bannon]]'s background at [[Goldman Sachs]], [[Naval Intelligence]], and Hollywood, along with his backing by [[China|Chinese]] billionaire [[Guo Wengui]] and a visit to [[Jeffrey Epstein]], as an example of the suspicious backgrounds people in politics should scrutinize.
 
 ### AF 2021-11-24 0912
-(00:00:00) [[Nicholas J. Fuentes]] argued that the crime wave in cities like [[San Francisco Bay Area|San Francisco]], [[City of Chicago|Chicago]], Los Angeles, and [[New York|New York City]] was primarily conducted by [[black]] people, which he attributed to a lack of prosecution and a societal refusal to acknowledge racial patterns in crime.
+(00:00:00) [[Nicholas J. Fuentes]] argued that the crime wave in cities like [[San Francisco Bay Area|San Francisco]], [[Chicago]], Los Angeles, and [[New York|New York City]] was primarily conducted by [[black]] people, which he attributed to a lack of prosecution and a societal refusal to acknowledge racial patterns in crime.
 
 ### AF 2021-10-29 0903
-(00:48:48) [[New York|New York City]], under Mayor [[Bill de Blasio]], implemented a sweeping vaccine mandate for all municipal workers without a testing opt-out, similar to policies in [[San Francisco Bay Area|San Francisco]], Los Angeles, [[City of Chicago|Chicago]], [[Washington D.C.|Washington]], and [[Massachusetts]].
+(00:48:48) [[New York|New York City]], under Mayor [[Bill de Blasio]], implemented a sweeping vaccine mandate for all municipal workers without a testing opt-out, similar to policies in [[San Francisco Bay Area|San Francisco]], Los Angeles, [[Chicago]], [[Washington D.C.|Washington]], and [[Massachusetts]].
 
 ### AF 2021-10-23 0902
 (00:00:00) [[Nicholas J. Fuentes]] opened his program by noting a slow news day and previewing a story about a plan from the [[Trump]] administration. (00:00:47) During the [[Trump]] administration, [[Stephen Miller]] proposed deploying 250,000 [[United States|U.S]]. soldiers to the [[United States|U.S]].-Mexico border to secure it, a plan that was shut down by then-acting Defense Secretary [[Mark Esper]] before it reached [[Trump]]'s desk. (00:01:39) Former administration officials and journalists have written tell-all books revealing various unexecuted plans from the [[Trump]] administration, including a reported initial plan to pardon everyone charged in connection with the [[January 6th Attack|January 6th]] rally. (00:02:48) [[Nicholas J. Fuentes]] announced he would also discuss comedian [[Dave Chappelle]], who was facing backlash from transgender employees at [[Netflix]] over jokes in his new special "The Closer." (00:03:32) [[Dave Chappelle]] refused to meet with [[Netflix]]'s transgender employees who demanded an apology, stating he was a free man and would not be summoned. (00:13:55) [[Dave Chappelle]]'s latest Netflix special, "The Closer," contained criticism of the LGBTQ community and jokes at the expense of trans people. (00:14:49) [[Netflix]] executives stood behind [[Dave Chappelle]], citing his profitability, which led to protests by transgender employees outside [[Netflix]] headquarters in Los Angeles. (00:16:44) [[Netflix]] chief content officer [[Ted Sarandos]] apologized for his handling of internal dissent over [[Dave Chappelle]]'s special. (00:17:58) In a video from a performance in [[Louisville, Kentucky]], [[Dave Chappelle]] denied refusing to speak to transgender employees at [[Netflix]] but stated he would not be summoned to meet them. (00:18:47) [[Dave Chappelle]] claimed his special led to him being disinvited from showing his latest documentary at film festivals. (00:19:13) [[Nicholas J. Fuentes]] criticized [[Dave Chappelle]] for framing his conflict as an issue of white racism against [[black]] people rather than a substantive critique of transgenderism. (00:20:23) [[Dave Chappelle]] believed the backlash against his jokes was an expression of white racism and that transgenderism was a bourgeois white phenomenon crowding out [[black]] suffering. (00:21:50) [[Nicholas J. Fuentes]] argued that [[Dave Chappelle]] was not a martyr for free speech or against cancel culture, but a "[[black]] narcissist" and a martyr only for [[black]] people and [[Black Lives Matter|BLM]]. (00:22:59) [[Nicholas J. Fuentes]] linked [[Dave Chappelle]]'s stance to those of [[Nicki Minaj]] and some anti-vaccine [[black]] basketball players, stating they were not allies of the political right or white people. (00:24:52) [[Dave Chappelle]] included anti-white derision and criticism of "Q boomers" in his special, according to [[Nicholas J. Fuentes]]. (00:25:21) [[Nicholas J. Fuentes]] claimed [[Dave Chappelle]]'s primary vector of attack against the LGBT community was that they are white and engaged in "white nonsense" and "white oppression." (00:26:27) [[Nicholas J. Fuentes]] stated that [[Dave Chappelle]], like [[Kanye West]] during Hurricane Katrina, ultimately only cared about [[black]] people and their place in [[United States|America]]. (00:31:18) Rapper [[Boozy]] tweeted at [[Lil Nas X]], calling him a "faggot" and suggesting he commit suicide, which [[Nicholas J. Fuentes]] praised as a refreshing and "based" normal reaction. (00:37:20) [[Nicholas J. Fuentes]] introduced a featured story from the [[The New York Times|New York Times]] about a plan, allegedly hatched by [[Stephen Miller]], to send 250,000 [[United States|U.S]]. soldiers to the southern border during the [[Trump]] administration. (00:37:54) The plan to deploy a quarter of a million troops was shut down by acting [[U.S. Department of Defense|Secretary of Defense]] [[Mark Esper]] before it ever reached [[Trump]]'s desk, according to a new book. (00:38:14) [[Mark Esper]] considered the idea to send 250,000 troops to the border outrageous and believed it would undermine [[United States|American]] military readiness worldwide. (00:41:25) [[Mark Esper]] ended consideration of the border troop deployment plan after a contentious confrontation with [[Stephen Miller]] in the [[Oval Office]]. (00:41:34) [[Trump]]'s military commanders repeatedly deflected his calls to send more troops to the border, citing stretched forces and flimsy legal arguments. (00:42:28) Throughout [[Trump]]'s first term, he, [[Stephen Miller]], and other [[Joe Biden|White House]] elements were constantly asking to put the military on the border but were sabotaged by officials in [[the Pentagon]] and [[U.S. Department of Defense|DOD]]. (00:43:55) [[Nicholas J. Fuentes]] cited examples where the military defied [[Trump]], such as lying about troop totals in [[Afghanistan]] and refusing to pull out of [[Syria]]. (00:44:28) [[Nicholas J. Fuentes]] argued that [[Trump]] was effectively not the commander-in-chief or even [[the president]] due to stonewalling by permanent bureaucrats and deep [[state]] officials across all agencies. (00:45:02) [[Mark Esper]] opposed the border troop plan on the grounds it would undermine military readiness for defending [[Taiwan]], [[Ukraine]], and potential wars with [[Iran]] and [[Russia]], which [[Nicholas J. Fuentes]] called ridiculous. (00:48:00) [[Nicholas J. Fuentes]] characterized the influx of millions of illegal immigrants as an "army of foreigners" invading [[United States|America]], sponsored by foreign countries and NGOs, and argued it required a military solution, not a law enforcement one. (00:49:48) [[Nicholas J. Fuentes]] cited coordinated caravans of tens of thousands of [[Haiti|Haitians]] arriving at the border as evidence of an invasion requiring a military response. (00:50:01) [[Nicholas J. Fuentes]] stated that the next [[Republican Party|Republican]] president must deploy a quarter of a million troops to the border to build an impenetrable wall and use lethal force against anyone attempting to cross illegally. (00:51:12) [[Nicholas J. Fuentes]] argued the [[U.S. Department of Defense|U.S. military]] should be used to deport all 20-30 million illegal immigrants in [[United States|America]] by going door-to-door, as they are changing the political system and taking advantage of public services. (00:52:54) [[Nicholas J. Fuentes]] claimed the only way to secure the border and deport illegal immigrants is with "an army of men with guns," advocating for [[the president]] to use the military to enforce political solutions and reshape [[United States|America]]. (00:55:59) [[Nicholas J. Fuentes]] suggested that a future president should fire officials like [[Mark Esper]] until finding someone who would obey orders, even if it meant appointing a random supporter from [[State of West Virginia|West Virginia]] to run the military. (00:57:02) [[Nicholas J. Fuentes]] blamed officials like [[Mark Esper]], [[Kirstjen Nielsen]], [[Johnny DeStefano]], [[Reince Priebus]], and [[Mark Meadows]] for sabotaging [[Trump]]'s [[America First]] agenda and said they needed to be flushed out. (00:58:09) [[Nicholas J. Fuentes]] concluded that the [[Trump]] administration's plan to militarize the border was sad because it could have happened but was constantly shut down by the establishment.
 
 ### AF 2021-09-15 0876
-(14:51:640) [[Nicholas J. Fuentes]] promoted the upcoming September 21st debut of a feature-length film recut from his "[[White Boy Summer]]" vlog series, containing new and previously unseen footage from a road trip from [[City of Chicago|Chicago]] to [[Denver]], [[City of Las Vegas|Las Vegas]], Los Angeles, [[City of Phoenix|Phoenix]], and [[Dallas]].
+(14:51:640) [[Nicholas J. Fuentes]] promoted the upcoming September 21st debut of a feature-length film recut from his "[[White Boy Summer]]" vlog series, containing new and previously unseen footage from a road trip from [[Chicago]] to [[Denver]], [[Las Vegas]], Los Angeles, [[Phoenix]], and [[Dallas]].
 
 ### AF 2021-09-14 0875
-(00:14:45) [[Nicholas J. Fuentes]] announced that a feature-length "[[White Boy Summer]]" movie, compiled from vlogs of a road trip to [[Denver]], [[City of Las Vegas|Las Vegas]], L.A., [[City of Phoenix|Phoenix]], and [[Dallas]], would be airing on September 21st.
+(00:14:45) [[Nicholas J. Fuentes]] announced that a feature-length "[[White Boy Summer]]" movie, compiled from vlogs of a road trip to [[Denver]], [[Las Vegas]], L.A., [[Phoenix]], and [[Dallas]], would be airing on September 21st.
 
 ### AF 2021-08-03 0853
-(01:08:40) [[Vaush]] argued that the class divide in [[United States|America]] is racially cut due to historical policies like redlining, the effects of which remain visible in [[city]] layouts like [[City of Chicago|Chicago]]'s 47th Street or Los Angeles.
+(01:08:40) [[Vaush]] argued that the class divide in [[United States|America]] is racially cut due to historical policies like redlining, the effects of which remain visible in [[city]] layouts like [[Chicago]]'s 47th Street or Los Angeles.
 
 ### AF 2021-07-06 0841
-(00:21:58) [[Nicholas J. Fuentes]] began the July 4th episode of his program from [[City of Phoenix|Phoenix]], [[Arizona]], following a multi-[[city]] road trip that included stops in [[City of Las Vegas|Las Vegas]] and Los Angeles.
+(00:21:58) [[Nicholas J. Fuentes]] began the July 4th episode of his program from [[Phoenix]], [[Arizona]], following a multi-[[city]] road trip that included stops in [[Las Vegas]] and Los Angeles.
 
 ### AF 2021-07-02 0840
-(00:01:07) [[Nicholas J. Fuentes]] announced a shorter show due to travel and a recent meetup in [[Laguna Beach]], which is in [[City of Orlando|Orange County]], not Los Angeles.
+(00:01:07) [[Nicholas J. Fuentes]] announced a shorter show due to travel and a recent meetup in [[Laguna Beach]], which is in [[Orange County]], not Los Angeles.
 
 ### AF 2021-06-29 0839
-(07:18:28) [[Nicholas J. Fuentes]] described his road trip from [[City of Chicago|Chicago]] to Los Angeles as a "nightmare from beginning to end" but stated he and his companion were having a great [[time]].
+(07:18:28) [[Nicholas J. Fuentes]] described his road trip from [[Chicago]] to Los Angeles as a "nightmare from beginning to end" but stated he and his companion were having a great [[time]].
 
 ### AF 2021-06-29 0839
-(31:09:32) [[Nicholas J. Fuentes]] announced plans for public meetups in [[City of Las Vegas|Las Vegas]], Los Angeles, [[City of Phoenix|Phoenix]], and cities in [[State of Texas|Texas]] during his ongoing road trip.
+(31:09:32) [[Nicholas J. Fuentes]] announced plans for public meetups in [[Las Vegas]], Los Angeles, [[Phoenix]], and cities in [[State of Texas|Texas]] during his ongoing road trip.
 
 ### AF 2021-06-18 0832
-(00:08:05) [[Nicholas J. Fuentes]] announces an upcoming "[[white boy summer]]" road trip, with planned private events in [[City of Phoenix|Phoenix]], [[Arizona]] and [[Houston]], [[State of Texas|Texas]], and public meetups in cities including [[City of St. Louis|St. Louis]], [[Kansas City]], [[Wichita]], [[Oklahoma City]], Los Angeles, and several in [[State of Texas|Texas]].
+(00:08:05) [[Nicholas J. Fuentes]] announces an upcoming "[[white boy summer]]" road trip, with planned private events in [[Phoenix]], [[Arizona]] and [[Houston]], [[State of Texas|Texas]], and public meetups in cities including [[St. Louis]], [[Kansas City]], [[Wichita]], [[Oklahoma City]], Los Angeles, and several in [[State of Texas|Texas]].
 
 ### AF 2021-08-12 0859
 (01:21:10) The second [[time]] [[Nicholas J. Fuentes]] met [[Timothy Gionet|Baked Alaska]] was in November 2017 in Los Angeles, on the day [[Timothy Gionet|Baked Alaska]] was banned from [[Twitter]].
@@ -312,10 +312,10 @@
 (00:23:32) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]]'s monologue discussed how [[Hispanic|Hispanics]] replaced whites in Los Angeles and [[State of California|California]], transforming the state into a [[Democratic Party|Democratic]] stronghold.
 
 ### AF 2021-04-08 0788
-(00:19:10) [[Nicholas J. Fuentes]] asserted that the vast majority of urban gun violence in cities like [[New York|New York City]], [[City of Chicago|Chicago]], and Los Angeles is perpetrated by [[black]] and [[Hispanic]] individuals.
+(00:19:10) [[Nicholas J. Fuentes]] asserted that the vast majority of urban gun violence in cities like [[New York|New York City]], [[Chicago]], and Los Angeles is perpetrated by [[black]] and [[Hispanic]] individuals.
 
 ### AF 2021-03-25 0780
-(00:21:25) [[Nicholas J. Fuentes]] cited a surge in crime in major cities like [[City of Chicago|Chicago]], Los Angeles, and [[New York|New York City]], with [[City of Chicago|Chicago]] on track for 1800 carjackings in 2021.
+(00:21:25) [[Nicholas J. Fuentes]] cited a surge in crime in major cities like [[Chicago]], Los Angeles, and [[New York|New York City]], with [[Chicago]] on track for 1800 carjackings in 2021.
 
 ### AF 2021-02-19 0763
 (01:34:46) [[Nicholas J. Fuentes]] argued that making homosexuality a taboo again would require a "new religiosity" and a return to the church, as competing with Hollywood's cultural control through creating alternative media was a "pipe dream."
@@ -324,13 +324,13 @@
 (01:52:15) [[Nicholas J. Fuentes]] agreed that fighting cultural battles within the Church would be easier than in Hollywood.
 
 ### AF 2021-02-16 0762
-(50:57:93) [[Nicholas J. Fuentes]] argued that the problem in [[United States|America]] is not state power itself, but that it is wielded by a transnational elite from cities like Los Angeles, [[New York|New York City]], and [[City of Chicago|Chicago]] who hate the [[country]] and push policies like mass immigration, green energy, and COVID lockdowns that lower the quality of life.
+(50:57:93) [[Nicholas J. Fuentes]] argued that the problem in [[United States|America]] is not state power itself, but that it is wielded by a transnational elite from cities like Los Angeles, [[New York|New York City]], and [[Chicago]] who hate the [[country]] and push policies like mass immigration, green energy, and COVID lockdowns that lower the quality of life.
 
 ### AF 2021-02-16 0762
 (56:57:25) [[Nicholas J. Fuentes]] claimed that many cultural institutions, including the internet, Hollywood, and the music industry, originated from or are guided by state power and intelligence agencies.
 
 ### AF 2021-02-04 0755
-(00:41:50) [[Nicholas J. Fuentes]] contrasted the prosecution of [[Kyle Rittenhouse]] and [[United States Capitol|Capitol]] rioters with the lack of serious charges against [[Antifa]] and [[Black Lives Matter]] rioters in cities like [[City of Minneapolis|Minneapolis]], [[City of Kenosha|Kenosha]], [[City of Philadelphia|Philadelphia]], [[Washington D.C.|Washington, D.C.]], [[Atlanta]], Los Angeles, and [[City of Chicago|Chicago]] throughout 2020.
+(00:41:50) [[Nicholas J. Fuentes]] contrasted the prosecution of [[Kyle Rittenhouse]] and [[United States Capitol|Capitol]] rioters with the lack of serious charges against [[Antifa]] and [[Black Lives Matter]] rioters in cities like [[Minneapolis]], [[Kenosha]], [[Philadelphia]], [[Washington D.C.|Washington, D.C.]], [[Atlanta]], Los Angeles, and [[Chicago]] throughout 2020.
 
 ### AF 2021-01-28 0750
 (24:24:89) [[Nicholas J. Fuentes]] identified the entities conducting the persecution as the elite media, big business, the globalist establishment, the deep state, the intelligence community, [[Ivy League]] schools, Hollywood, and academia.
@@ -345,7 +345,7 @@
 (01:51:49) [[Nicholas J. Fuentes]] read a message from "Kevetchian" recounting an incident in LA where a homosexual employee repeatedly asked him to put on a mask and eventually alerted a nearby police officer.
 
 ### AF 2020-11-02 0714
-(00:02:08) The 2020 election results were expected to be contested for days or weeks after November 3rd, with anticipated recounts, legal challenges, and widespread civil unrest in major cities like [[Washington D.C.|Washington, D.C.]], [[City of Chicago|Chicago]], [[New York|New York City]], and Los Angeles.
+(00:02:08) The 2020 election results were expected to be contested for days or weeks after November 3rd, with anticipated recounts, legal challenges, and widespread civil unrest in major cities like [[Washington D.C.|Washington, D.C.]], [[Chicago]], [[New York|New York City]], and Los Angeles.
 
 ### AF 2020-11-02 0714
 (00:20:47) [[Donald Trump]] defeated 16 [[Republican Party|Republican]] primary opponents and [[Hillary Clinton]] in the 2016 presidential election despite opposition from the mainstream media, Hollywood, and political establishments.
@@ -381,10 +381,10 @@
 (02:20:01) [[Nicholas J. Fuentes]] claimed that cities like [[Washington D.C.|Washington, D.C.]], Los Angeles, [[San Francisco Bay Area|San Francisco]], [[New York|New York City]], and [[Boston]] were "post-[[United States|American]]" and inhabited by a "transnational, post-national" elite disconnected from the rest of the [[country]].
 
 ### AF 2020-07-07 0635
-(01:23:56) A major crime wave occurred over the Fourth of July weekend in major cities including [[City of Chicago|Chicago]], [[New York|New York City]], [[Atlanta]], [[Baltimore]], and Los Angeles.
+(01:23:56) A major crime wave occurred over the Fourth of July weekend in major cities including [[Chicago]], [[New York|New York City]], [[Atlanta]], [[Baltimore]], and Los Angeles.
 
 ### AF 2020-06-17 0623
-(00:20:32) The District Attorney in [[Atlanta]] charged [[Garrett Rolfe]], the police officer [[who]] shot and killed [[Rayshard Brooks]], with felony murder and ten other charges, potentially carrying the death penalty. (00:41:90) The [[|Fulton County]] District Attorney, [[Paul Howard]], announced the charges against [[Garrett Rolfe]] and a second officer, [[Devin Brosnan]], [[who]] faced three charges including aggravated assault. (00:47:72) [[Rayshard Brooks]] was shot and killed after turning a police taser on officers following a struggle where he failed a sobriety test. (00:53:02) [[Devin Brosnan]]'s attorney, [[Don Samuel]], disputed [[Paul Howard]]'s claim that [[Devin Brosnan]] had agreed to become a state's witness against [[Garrett Rolfe]]. (01:13:66) Unconfirmed rumors circulated on social media that the entire [[Atlanta Police Department]] might go on strike in response to the charges against [[Garrett Rolfe]]. (01:42:66) [[Google]] demonetized the conservative websites [[The Federalist]] and [[Zero Hedge]] via its [[Google AdSense]] platform due to content opposing [[Black Lives Matter]]. (02:08:44) A report from [[Revolver News|The National Pulse]] revealed that [[Google]] lobbyist [[Max Pappas]] contacted nearly 100 influential conservative figures and think tanks following the demonetization of [[The Federalist]] and [[Zero Hedge]]. (02:15:56) Major conservative think tanks including the [[Cato Institute]], [[American Enterprise Institute]], and the [[Competitive Enterprise Institute]] received funding from [[Google]]. (02:43:00) Following outreach from [[Google]] lobbyist [[Max Pappas]], several conservative think tanks defended [[Google]]'s actions against [[The Federalist]] and [[Zero Hedge]]. (03:48:78) The [[Heritage Foundation]] and other conservative think tanks participated in a convention or fundraiser hosted by [[Google]] months prior. (08:47:54) [[Donald Trump]] signed an executive order aimed at limiting police powers to use chokeholds. (08:53:24) [[Supreme Court of the United States|Supreme Court]] Justice [[Neil Gorsuch]] authored the decision in a landmark case extending workplace discrimination protections to LGBT individuals. (09:02:00) [[Senate Majority Leader]] [[Mitch McConnell]] opposed [[Donald Trump]] on the issue of renaming military bases named after Confederate generals. (11:22:22) Conservative commentators [[Ben Shapiro]] and [[Dennis Prager]], along with [[Mitch McConnell]], have publicly agreed that censorship against the political right is wrong. (13:21:12) [[Google]] lobbyist [[Max Pappas]], hired in 2017, contacted conservative influencers to manage the fallout from the [[The Federalist]] and [[Zero Hedge]] demonetization story. (14:33:22) [[Mark Jamison]], a visiting scholar at the [[American Enterprise Institute]], tweeted an op-ed entitled "[[Concept|Big Tech]] is biased and that's a good thing" ahead of the demonetization news. (14:49:24) [[James Pethokoukis]] of the [[American Enterprise Institute]] published an article endorsing [[Google]]'s actions and claiming conservative alarm over anti-conservative bias fails a reality test. (15:29:48) [[Julian Sanchez]], a contributor to the [[Cato Institute]] and [[Reason Magazine]], stated that only conservative sites publicly complain about censorship because other sites lack a "martyr complex." (15:56:02) [[Patrick Hedger]] of the [[Competitive Enterprise Institute]] wrote for the Never-[[Donald Trump|Trump]] blog [[The Bulwark]], which had recently criticized [[Michelle Malkin]] and [[Nicholas J. Fuentes]]. (16:07:56) [[Patrick Hedger]] argued on the [[Competitive Enterprise Institute]] website that [[Google]], [[Amazon Inc.|Amazon]], and [[Facebook]] face robust competition, justifying a lack of government investigation or intervention. (17:48:04) The [[Conservative Political Action Conference]] ([[Conservative Political Action Conference|CPAC]]) receives annual funding from [[Google]] and once hosted a panel on tech censorship by [[Google]] while being financially supported by the company. (18:03:22) [[Jim Hoft]] was reportedly removed from a [[Conservative Political Action Conference|CPAC]] panel about tech censorship, which was funded by [[Google]]. (19:47:06) Commentators [[Bill Kristol]] and [[Bret Stephens]] were cited as examples of conservatives [[who]] support increased immigration. (27:39:96) Casino magnate [[Sheldon Adelson]], a major [[Republican Party|Republican]] donor, attended [[Donald Trump]] campaign galas and fundraisers wearing a yarmulke with a "Make [[United States|America]] Great Again" slogan. (27:57:02) [[Jared Kushner]] and his allies were cited as influential figures within the [[Donald Trump]] [[White House]] whose presence correlated with specific policy outcomes. (28:00:92) [[Neil Gorsuch]] and [[Fox News]] were listed as parts of a conservative movement whose direction is influenced by its financial backers. (29:52:74) [[Ben Shapiro]], described as the son of immigrants [[who]] attended private [[Jews|Jewish]] school and [[University of California, Los Angeles|UCLA]], lives in Los Angeles and is a frequent commentator for heartland conservatives. (30:38:68) [[Nicholas J. Fuentes]] argued that average [[United States|Americans]] have nothing in common with figures like [[Jared Kushner]], [[Ben Shapiro]], [[Bret Stephens]], or [[Bill Kristol]]. (32:57:08) In high school and college, [[Nicholas J. Fuentes]] was influenced by the narratives presented by [[Prager University|PragerU]] and [[Ben Shapiro]] about political conflict being between [[Democratic Party|Democrats]] and [[Republican Party|Republicans]]. (35:21:72) [[Nicholas J. Fuentes]] questioned how [[Donald Trump]] and the [[Republican Party]] could take no action on [[big tech]] censorship, suggesting they do not represent the interests of their base. (36:02:64) Officer [[Derek Chauvin]] was under investigation and facing trial for the killing of [[George Floyd]]. (36:08:14) [[Travis McMichael]] was brought in by a District Attorney in [[Country of Georgia|Georgia]] over the case of [[Ahmaud Arbery]]. (37:26:26) [[Garrett Rolfe]] was fired by the [[Atlanta Police Department]] after the killing of [[Rayshard Brooks]]. (37:54:92) [[Devin Brosnan]]'s attorney stated his client was "absolutely not guilty of any crime" and had not agreed to be a state's witness, contradicting [[Paul Howard]]'s announcement. (38:50:48) [[Rayshard Brooks]] had a criminal record that included theft, receiving stolen property, child abuse, and domestic battery. (43:14:20) Rumors indicated that four of the six zones of the [[Atlanta Police Department]] were experiencing major walk-offs, with scanner traffic in Zone Six silent for 20 minutes. (46:14:28) In [[City of Seattle|Seattle]], activists established an autonomous zone (CHAZ) where individuals with firearms effectively became the governing authority in the absence of police. (51:52:74) [[Nicholas J. Fuentes]] questioned whether [[Donald Trump]] could order the military to restore order in [[United States|American]] streets and whether the [[U.S. Department of Defense|Pentagon]] would follow such orders. (53:50:06) [[Nicholas J. Fuentes]] stated that a [[city]]'s demographic composition, specifically its proportion of [[black]] and [[Hispanic]] residents, is a primary determinant of whether it will experience civil unrest. (54:34:00) [[Nicholas J. Fuentes]] argued that [[United States|American]] cities are deteriorating because the people living in them originate from countries with lower levels of societal development. (55:03:70) A [[black]] rapper in the [[City of Seattle|Seattle]] autonomous zone (CHAZ) was able to establish control over a commune without police, while still receiving electricity and running water and receiving approval from government officials. (56:26:18) [[Nicholas J. Fuentes]] speculated that [[Charlie Kirk]] and [[Scott Pressler]] would retreat to gated communities in white neighborhoods rather than engage in voter outreach in troubled urban areas during a societal collapse. (59:08:70) [[Nicholas J. Fuentes]] stated that some of his followers still believe in [[QAnon]] narratives about [[Donald Trump]] and are therefore not yet serious about political action. (01:01:39) [[Nicholas J. Fuentes]] expressed hope that police officers across the [[country]] would resign or go on strike to show the public what a nation without law enforcement looks like.
+(00:20:32) The District Attorney in [[Atlanta]] charged [[Garrett Rolfe]], the police officer [[who]] shot and killed [[Rayshard Brooks]], with felony murder and ten other charges, potentially carrying the death penalty. (00:41:90) The [[|Fulton County]] District Attorney, [[Paul Howard]], announced the charges against [[Garrett Rolfe]] and a second officer, [[Devin Brosnan]], [[who]] faced three charges including aggravated assault. (00:47:72) [[Rayshard Brooks]] was shot and killed after turning a police taser on officers following a struggle where he failed a sobriety test. (00:53:02) [[Devin Brosnan]]'s attorney, [[Don Samuel]], disputed [[Paul Howard]]'s claim that [[Devin Brosnan]] had agreed to become a state's witness against [[Garrett Rolfe]]. (01:13:66) Unconfirmed rumors circulated on social media that the entire [[Atlanta Police Department]] might go on strike in response to the charges against [[Garrett Rolfe]]. (01:42:66) [[Google]] demonetized the conservative websites [[The Federalist]] and [[Zero Hedge]] via its [[Google AdSense]] platform due to content opposing [[Black Lives Matter]]. (02:08:44) A report from [[Revolver News|The National Pulse]] revealed that [[Google]] lobbyist [[Max Pappas]] contacted nearly 100 influential conservative figures and think tanks following the demonetization of [[The Federalist]] and [[Zero Hedge]]. (02:15:56) Major conservative think tanks including the [[Cato Institute]], [[American Enterprise Institute]], and the [[Competitive Enterprise Institute]] received funding from [[Google]]. (02:43:00) Following outreach from [[Google]] lobbyist [[Max Pappas]], several conservative think tanks defended [[Google]]'s actions against [[The Federalist]] and [[Zero Hedge]]. (03:48:78) The [[Heritage Foundation]] and other conservative think tanks participated in a convention or fundraiser hosted by [[Google]] months prior. (08:47:54) [[Donald Trump]] signed an executive order aimed at limiting police powers to use chokeholds. (08:53:24) [[Supreme Court of the United States|Supreme Court]] Justice [[Neil Gorsuch]] authored the decision in a landmark case extending workplace discrimination protections to LGBT individuals. (09:02:00) [[Senate Majority Leader]] [[Mitch McConnell]] opposed [[Donald Trump]] on the issue of renaming military bases named after Confederate generals. (11:22:22) Conservative commentators [[Ben Shapiro]] and [[Dennis Prager]], along with [[Mitch McConnell]], have publicly agreed that censorship against the political right is wrong. (13:21:12) [[Google]] lobbyist [[Max Pappas]], hired in 2017, contacted conservative influencers to manage the fallout from the [[The Federalist]] and [[Zero Hedge]] demonetization story. (14:33:22) [[Mark Jamison]], a visiting scholar at the [[American Enterprise Institute]], tweeted an op-ed entitled "[[Concept|Big Tech]] is biased and that's a good thing" ahead of the demonetization news. (14:49:24) [[James Pethokoukis]] of the [[American Enterprise Institute]] published an article endorsing [[Google]]'s actions and claiming conservative alarm over anti-conservative bias fails a reality test. (15:29:48) [[Julian Sanchez]], a contributor to the [[Cato Institute]] and [[Reason Magazine]], stated that only conservative sites publicly complain about censorship because other sites lack a "martyr complex." (15:56:02) [[Patrick Hedger]] of the [[Competitive Enterprise Institute]] wrote for the Never-[[Donald Trump|Trump]] blog [[The Bulwark]], which had recently criticized [[Michelle Malkin]] and [[Nicholas J. Fuentes]]. (16:07:56) [[Patrick Hedger]] argued on the [[Competitive Enterprise Institute]] website that [[Google]], [[Amazon Inc.|Amazon]], and [[Facebook]] face robust competition, justifying a lack of government investigation or intervention. (17:48:04) The [[Conservative Political Action Conference]] ([[Conservative Political Action Conference|CPAC]]) receives annual funding from [[Google]] and once hosted a panel on tech censorship by [[Google]] while being financially supported by the company. (18:03:22) [[Jim Hoft]] was reportedly removed from a [[Conservative Political Action Conference|CPAC]] panel about tech censorship, which was funded by [[Google]]. (19:47:06) Commentators [[Bill Kristol]] and [[Bret Stephens]] were cited as examples of conservatives [[who]] support increased immigration. (27:39:96) Casino magnate [[Sheldon Adelson]], a major [[Republican Party|Republican]] donor, attended [[Donald Trump]] campaign galas and fundraisers wearing a yarmulke with a "Make [[United States|America]] Great Again" slogan. (27:57:02) [[Jared Kushner]] and his allies were cited as influential figures within the [[Donald Trump]] [[White House]] whose presence correlated with specific policy outcomes. (28:00:92) [[Neil Gorsuch]] and [[Fox News]] were listed as parts of a conservative movement whose direction is influenced by its financial backers. (29:52:74) [[Ben Shapiro]], described as the son of immigrants [[who]] attended private [[Jews|Jewish]] school and [[University of California, Los Angeles|UCLA]], lives in Los Angeles and is a frequent commentator for heartland conservatives. (30:38:68) [[Nicholas J. Fuentes]] argued that average [[United States|Americans]] have nothing in common with figures like [[Jared Kushner]], [[Ben Shapiro]], [[Bret Stephens]], or [[Bill Kristol]]. (32:57:08) In high school and college, [[Nicholas J. Fuentes]] was influenced by the narratives presented by [[Prager University|PragerU]] and [[Ben Shapiro]] about political conflict being between [[Democratic Party|Democrats]] and [[Republican Party|Republicans]]. (35:21:72) [[Nicholas J. Fuentes]] questioned how [[Donald Trump]] and the [[Republican Party]] could take no action on [[big tech]] censorship, suggesting they do not represent the interests of their base. (36:02:64) Officer [[Derek Chauvin]] was under investigation and facing trial for the killing of [[George Floyd]]. (36:08:14) [[Travis McMichael]] was brought in by a District Attorney in [[Country of Georgia|Georgia]] over the case of [[Ahmaud Arbery]]. (37:26:26) [[Garrett Rolfe]] was fired by the [[Atlanta Police Department]] after the killing of [[Rayshard Brooks]]. (37:54:92) [[Devin Brosnan]]'s attorney stated his client was "absolutely not guilty of any crime" and had not agreed to be a state's witness, contradicting [[Paul Howard]]'s announcement. (38:50:48) [[Rayshard Brooks]] had a criminal record that included theft, receiving stolen property, child abuse, and domestic battery. (43:14:20) Rumors indicated that four of the six zones of the [[Atlanta Police Department]] were experiencing major walk-offs, with scanner traffic in Zone Six silent for 20 minutes. (46:14:28) In [[Seattle]], activists established an autonomous zone (CHAZ) where individuals with firearms effectively became the governing authority in the absence of police. (51:52:74) [[Nicholas J. Fuentes]] questioned whether [[Donald Trump]] could order the military to restore order in [[United States|American]] streets and whether the [[U.S. Department of Defense|Pentagon]] would follow such orders. (53:50:06) [[Nicholas J. Fuentes]] stated that a [[city]]'s demographic composition, specifically its proportion of [[black]] and [[Hispanic]] residents, is a primary determinant of whether it will experience civil unrest. (54:34:00) [[Nicholas J. Fuentes]] argued that [[United States|American]] cities are deteriorating because the people living in them originate from countries with lower levels of societal development. (55:03:70) A [[black]] rapper in the [[Seattle]] autonomous zone (CHAZ) was able to establish control over a commune without police, while still receiving electricity and running water and receiving approval from government officials. (56:26:18) [[Nicholas J. Fuentes]] speculated that [[Charlie Kirk]] and [[Scott Pressler]] would retreat to gated communities in white neighborhoods rather than engage in voter outreach in troubled urban areas during a societal collapse. (59:08:70) [[Nicholas J. Fuentes]] stated that some of his followers still believe in [[QAnon]] narratives about [[Donald Trump]] and are therefore not yet serious about political action. (01:01:39) [[Nicholas J. Fuentes]] expressed hope that police officers across the [[country]] would resign or go on strike to show the public what a nation without law enforcement looks like.
 
 ### AF 2020-06-08 0616
 (17:30:49) [[Nicholas J. Fuentes]] argued that the media, Hollywood, and algorithms from [[San Francisco Bay Area|Silicon Valley]] companies like [[Twitter]] and [[Reddit]] control public perception and constructed reality, as evidenced by the shifting narrative from [[COVID-19]] precautions to racial justice protests.
@@ -393,7 +393,7 @@
 (19:01:39) [[Nicholas J. Fuentes]] stated that a group of perhaps 2,500 people in Hollywood, including actors, directors, and producers, creates the media content that shapes the lived reality for hundreds of millions of people worldwide.
 
 ### AF 2020-06-08 0616
-(22:06:45) [[Nicholas J. Fuentes]] reported that the [[George Floyd]] protests had escalated from initial unrest in [[City of Minneapolis|Minneapolis]] and [[City of St. Paul|St. Paul]] to violent riots, looting, and property destruction in virtually every major [[city]] in the [[United States]], including [[City of Chicago|Chicago]], [[New York|New York City]], and Los Angeles.
+(22:06:45) [[Nicholas J. Fuentes]] reported that the [[George Floyd]] protests had escalated from initial unrest in [[Minneapolis]] and [[St. Paul]] to violent riots, looting, and property destruction in virtually every major [[city]] in the [[United States]], including [[Chicago]], [[New York|New York City]], and Los Angeles.
 
 ### AF 2020-05-21 0610
 (02:07:01) [[Nicholas J. Fuentes]] contended that his commentary resonates because it describes real-world conditions, such as [[Hispanic]] immigration shaping Los Angeles politics, more accurately than commentators like [[Ben Shapiro]] [[who]] focus on big government.
@@ -417,7 +417,7 @@
 (01:02:38) [[Donald Trump]] demonstrated that a populist movement could wield state power to achieve policy goals like immigration restriction and trade protection, in contrast to other institutions like Hollywood, academia, or [[San Francisco Bay Area|Silicon Valley]] which are harder to influence.
 
 ### AF 2020-03-16 0565
-(01:57:40) [[Nicholas J. Fuentes]] predicted that similar total lockdowns and curfews would soon be implemented in other major cities like [[City of Chicago|Chicago]], [[New York|New York City]], and Los Angeles.
+(01:57:40) [[Nicholas J. Fuentes]] predicted that similar total lockdowns and curfews would soon be implemented in other major cities like [[Chicago]], [[New York|New York City]], and Los Angeles.
 
 ### AF 2020-03-12 0563
 (01:40:08) [[Nicholas J. Fuentes]] announced that an [[America First]] event scheduled for March 22nd in Los Angeles was postponed to tentatively late May or early June due to coronavirus restrictions in [[State of California|California]].
@@ -477,10 +477,10 @@
 (00:33:36) The [[Center for Immigration Studies]] analysis found that in Los Angeles, 59% of people did not speak English at home, and 39% of those [[who]] spoke a foreign language at home admitted to not speaking English very well.
 
 ### AF 2018-08-31 0231
-(23:08:03) [[Nicholas J. Fuentes]] argued that areas like [[City of Miami|Miami]], Los Angeles, [[Hartford]], and [[City of Chicago|Chicago]] no longer resemble [[United States|America]] due to ethnic enclaves and represent a future where meaningful assimilation is impossible.
+(23:08:03) [[Nicholas J. Fuentes]] argued that areas like [[Miami]], Los Angeles, [[Hartford]], and [[Chicago]] no longer resemble [[United States|America]] due to ethnic enclaves and represent a future where meaningful assimilation is impossible.
 
 ### AF 2018-08-27 0227
-(00:24:31) [[John McCain]] became a vocal critic of [[Donald Trump]], aligning with major news media, [[Democratic Party|Democrats]], establishment [[Republican Party|Republicans]], multinational corporations, Hollywood, banks, and the [[Europe|European Union]].
+(00:24:31) [[John McCain]] became a vocal critic of [[Donald Trump]], aligning with major news media, [[Democratic Party|Democrats]], establishment [[Republican Party|Republicans]], multinational corporations, Hollywood, banks, and the [[European Union]].
 
 ### AF 2018-08-21 0223
 (00:39:17) Figures like [[Cabot Phillips]] and [[Ben Shapiro]] publicly condemn white supremacy, aligning with major institutions like Hollywood, banks, and the media.
@@ -489,7 +489,7 @@
 (00:39:05) [[Nicholas J. Fuentes]] cited data indicating the rate of sexual abuse within the [[Catholic Church]] is no higher than in other large institutions like public schools or Hollywood.
 
 ### AF 2018-08-20 0222
-(01:01:01) [[Nicholas J. Fuentes]] criticized the desire to make [[United States|America]] resemble diverse areas like the [[Southern United States|South]] Side of [[City of Chicago|Chicago]] or Los Angeles, arguing it ignores the societal problems in those regions.
+(01:01:01) [[Nicholas J. Fuentes]] criticized the desire to make [[United States|America]] resemble diverse areas like the [[Southern United States|South]] Side of [[Chicago]] or Los Angeles, arguing it ignores the societal problems in those regions.
 
 ### AF 2018-08-16 0220
 (46:09:58) [[Nicholas J. Fuentes]] argued that critics of the [[Catholic Church]] over abuse scandals, including atheists, liberals, and Protestants, are often apologists for other institutions like Hollywood or are epistemologically incapable of defining objective morality.
@@ -534,7 +534,7 @@
 (27:13:00) [[Nicholas J. Fuentes]] noted that a wave of sex scandals in Hollywood, including about [[Harvey Weinstein]], emerged after the death of the well-connected [[Hugh Hefner]].
 
 ### AF 2018-03-20 0128
-(00:13:40) [[Nicholas J. Fuentes]] claimed the [[Democratic Party]]'s legislative agenda focused on banning semi-automatic rifles rather than handguns, which are used in the vast majority of gun crimes in cities like [[City of Chicago|Chicago]], Los Angeles, and [[New York|New York City]].
+(00:13:40) [[Nicholas J. Fuentes]] claimed the [[Democratic Party]]'s legislative agenda focused on banning semi-automatic rifles rather than handguns, which are used in the vast majority of gun crimes in cities like [[Chicago]], Los Angeles, and [[New York|New York City]].
 
 ### AF 2018-03-09 0122
 (00:11:40) The [[Me Too movement]] targeted figures in Hollywood, with many of the accused being [[Jews|Jewish]].
@@ -552,7 +552,7 @@
 (00:20:06) [[Nicholas J. Fuentes]] referenced an actor [[who]] received a 10-year ban from Hollywood after making drunken remarks.
 
 ### AF 2017-11-16 0052
-(00:07:92) [[Nicholas J. Fuentes]] returned to his studio in [[City of Chicago|Chicago]] after a weekend trip to Los Angeles for business and recreation.
+(00:07:92) [[Nicholas J. Fuentes]] returned to his studio in [[Chicago]] after a weekend trip to Los Angeles for business and recreation.
 
 ### AF 2017-11-16 0052
 (01:05:28) [[Nicholas J. Fuentes]] traveled to Los Angeles over the weekend to conduct business deals with his and [[James Allsup|James]]'s business partner, [[Matt Gaetz|Matt]].
@@ -570,7 +570,7 @@
 (03:26:54) [[Nicholas J. Fuentes]] observed that Los Angeles contained distinct ethnic enclaves, including [[Koreatown]], Mexican neighborhoods, [[black]] areas with gang violence, and a large homosexual enclave in [[West Hollywood]].
 
 ### AF 2017-11-16 0052
-(04:09:28) [[Nicholas J. Fuentes]] praised the beautiful 70-degree weather and interesting topography of Los Angeles, contrasting it with the below-freezing temperatures in [[City of Chicago|Chicago]].
+(04:09:28) [[Nicholas J. Fuentes]] praised the beautiful 70-degree weather and interesting topography of Los Angeles, contrasting it with the below-freezing temperatures in [[Chicago]].
 
 ### AF 2017-11-16 0052
 (06:50:64) [[Nicholas J. Fuentes]] and [[James Allsup|James]] have discussed on *Nationalist Review* the idea of conceding Los Angeles and [[State of California|California]] to Mexican and other ethnic enclaves, though [[Nicholas J. Fuentes]] believes the [[state]] is worth fighting to preserve.
@@ -579,7 +579,7 @@
 (02:52:54) [[Nicholas J. Fuentes]] claimed that [[Hispanic]] enclaves in cities like Los Angeles do not integrate, citing Spanish-language signs and bilingual schools as evidence, despite data showing rising English proficiency.
 
 ### AF 2017-11-03 0046
-(01:04:00) [[Nicholas J. Fuentes]] announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[City of Chicago|Chicago]], [[Boston]], [[New York]], and Los Angeles, with the goal of protesting daily until [[Donald Trump]] and [[Mike Pence]] were removed from power.
+(01:04:00) [[Nicholas J. Fuentes]] announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[Chicago]], [[Boston]], [[New York]], and Los Angeles, with the goal of protesting daily until [[Donald Trump]] and [[Mike Pence]] were removed from power.
 
 ### AF 2017-10-31 0043
 (00:59:45) [[Nicholas J. Fuentes]] expressed ambivalence about the [[U.S. Constitution|Second Amendment]], viewing firearms as a necessary last line of defense but arguing that cultural institutions like Hollywood and education were more critical for maintaining liberty and tradition.
@@ -588,7 +588,7 @@
 (33:49:09) [[Nicholas J. Fuentes]] suggested that Hollywood, the media, the government, and international finance hold a "pernicious grudge" against [[Europe|European]] people, [[Christianity]], and Western tradition.
 
 ### AF 2017-09-25 0017
-(01:11:40) [[Nicholas J. Fuentes]] argued that violent crime associated with drug trafficking is disproportionately committed by [[Hispanic|Hispanics]], citing cities like Los Angeles and [[City of Chicago|Chicago]].
+(01:11:40) [[Nicholas J. Fuentes]] argued that violent crime associated with drug trafficking is disproportionately committed by [[Hispanic|Hispanics]], citing cities like Los Angeles and [[Chicago]].
 
 ### AF 2017-09-25 0017
 (01:29:51) [[Nicholas J. Fuentes]] cited a [[Harvard University]] study by sociologist [[Robert Putnam]] which found that ethnic diversity directly correlates with lower social trust, using Los Angeles and rural [[United States|South Dakota]] as examples.
@@ -597,7 +597,34 @@
 (01:02:03) The [[city]] of Los Angeles replaced Columbus Day with Indigenous Peoples' Day, a move [[Nicholas J. Fuentes]] criticized.
 
 ### AF 2021-05-26 0817
-(26:15:740) [[City of Beijing|Beijing]] exerts influence over Hollywood, leading actors like [[John Cena]] to apologize for geopolitical missteps.
+(26:15:740) [[Beijing]] exerts influence over Hollywood, leading actors like [[John Cena]] to apologize for geopolitical missteps.
 
 ### AF 2021-05-26 0817
 (30:31:640) [[Nicholas J. Fuentes]] stated that a [[Republican Party|Republican]] or conservative can go on [[Fox News]] to criticize [[China|Chinese]] influence over Hollywood without repercussions.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:40:00:81) A truckload of [[Tucker Carlson]]'s alp nicotine pouches (375,000 pouches) was stolen from a facility in Los Angeles using false credentials and a fake GPS system.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:47:55) [[Nicholas J. Fuentes]] argued that Hollywood operates in the same business as [[Jeffrey Epstein]] by exploiting individuals for profit.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:43:10) [[Nicholas J. Fuentes]] stated that the future of the [[United States]] will look like Los Angeles and [[New York|New York City]], where it is impossible for a white [[person]] or a right-wing [[person]] to win an election.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:08:05) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democrats]] had rallied and organized an organized resistance to deportations, which was visible in [[Chicago]], Los Angeles, [[New York]], and [[Minneapolis]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:44:17) [[Nicholas J. Fuentes]] stated that ethnic enclaves in major cities will continue to grow "until there's nothing left," citing [[London]], [[Paris]], [[Berlin]], [[Rome]], [[Madrid]], [[New York]], [[Chicago]], and Los Angeles as already lost.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:31:00) [[Nicholas J. Fuentes]] said he prefers Los Angeles over [[Miami]], citing Los Angeles's better weather, food, and more laid-back atmosphere.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:58:28) [[Nicholas J. Fuentes]] stated that the [[United States]] is approaching one year into [[Donald Trump]]'s second term and that the administration has not crushed protests in Los Angeles or [[Minneapolis]] and has not arrested a single politician, including [[Barack Obama]], [[Anthony Fauci]], or [[Hillary Clinton]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(04:19:36) [[Nicholas J. Fuentes]] recalled his last visit to the Cheesecake Factory was at [[The Grove]] in Los Angeles with [[Jackson Hinkle]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:39:33) [[Nicholas J. Fuentes]] stated that power is concentrated in elite institutions like [[New York]] and Los Angeles, giving more "bang for your buck."

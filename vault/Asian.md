@@ -2,7 +2,7 @@
 #Unknown
 
 ### AF 2022-05-17 0995
-(00:22:43) [[Nicholas J. Fuentes]] noted that a clip of an Asian man wearing an [[America First]] hat at a pro-abortion rally in [[City of Phoenix|Phoenix]], [[Arizona]], was featured on [[Tucker Carlson]]'s [[Fox News]] program.
+(00:22:43) [[Nicholas J. Fuentes]] noted that a clip of an Asian man wearing an [[America First]] hat at a pro-abortion rally in [[Phoenix]], [[Arizona]], was featured on [[Tucker Carlson]]'s [[Fox News]] program.
 
 
 ### AF 2018-09-15 0240

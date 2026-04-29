@@ -77,3 +77,6 @@
 
 ### AF 2018-09-24 0246
 (00:37:40) [[Nicholas J. Fuentes]] argued the allegations against [[Brett Kavanaugh]] were intended to stall his confirmation so [[Democratic Party|Democrats]] could preserve Roe v. Wade and continue abortion access.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:14:31) Roe v. Wade was overturned when [[Nicholas J. Fuentes]] was going out of town for a wedding.

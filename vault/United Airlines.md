@@ -10,7 +10,7 @@
 (01:22:42) United Airlines launched a flight school with the goal that at least half of the 5,000 pilots it aims to hire by 2030 would be women or people of color, with 78% of its initial 121 students falling into those categories.
 
 ### AF 2022-02-15 0947
-(00:09:43) After being denied boarding by [[American Airlines]], [[Nicholas J. Fuentes]] was also prevented from boarding a United Airlines flight from [[City of Chicago|Chicago]] to [[Palm Beach, Florida]].
+(00:09:43) After being denied boarding by [[American Airlines]], [[Nicholas J. Fuentes]] was also prevented from boarding a United Airlines flight from [[Chicago]] to [[Palm Beach, Florida]].
 
 ### AF 2021-10-13 0895
 (00:29:98) A federal judge in [[State of Texas|Texas]] blocked United Airlines from enforcing a [[COVID-19]] vaccine mandate on its employees, preventing approximately 600 workers from being placed on unpaid leave.
@@ -43,7 +43,7 @@
 (00:50:08) [[Nicholas J. Fuentes]] cited United Airlines' report that 97% of its employees complied with a vaccine mandate as an example of a lack of resistance that would encourage further government mandates.
 
 ### AF 2021-04-27 0800
-(00:09:13) After being prevented from boarding flights on [[American Airlines]] and United Airlines at [[City of Chicago|Chicago]] O'Hare International Airport, [[Nicholas J. Fuentes]] publicly claimed he had been placed on a federal no-fly list.
+(00:09:13) After being prevented from boarding flights on [[American Airlines]] and United Airlines at [[Chicago]] O'Hare International Airport, [[Nicholas J. Fuentes]] publicly claimed he had been placed on a federal no-fly list.
 
 ### AF 2021-04-27 0800
 (00:18:27) After being prevented from flying on three different airlines ([[American Airlines]], United Airlines, and [[Southwest Airlines]]) at two different airports (O'Hare and Midway) to two different destinations ([[State of Florida|Florida]] and [[Arizona]]), [[Nicholas J. Fuentes]] concluded he was on a federal [[Transportation Security Administration|TSA]]-enforced no-fly list.

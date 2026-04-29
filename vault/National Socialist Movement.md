@@ -12,7 +12,7 @@
 (00:21:45) [[Nicholas J. Fuentes]] argued that old white nationalist groups like the National Socialist Movement were either run by or totally infiltrated by federal agents.
 
 ### AF 2020-07-17 0643
-(01:49:53) [[Nicholas J. Fuentes]] argued that in-[[person]] organizing is necessary and that the failures of the [[City of Charlottesville|Charlottesville]] rally were preventable mistakes, such as inviting the National Socialist Movement and holding an open, outdoor event instead of a controlled, indoor gathering.
+(01:49:53) [[Nicholas J. Fuentes]] argued that in-[[person]] organizing is necessary and that the failures of the [[Charlottesville]] rally were preventable mistakes, such as inviting the National Socialist Movement and holding an open, outdoor event instead of a controlled, indoor gathering.
 
 ### AF 2020-04-02 0577
 (00:15:02) [[Jeff Schoep]], the former commander of the National Socialist Movement, participated in [[Matthew Heimbach]]'s Light for Light [[organization]].
@@ -27,7 +27,7 @@
 (00:12:45) [[Jared Holt]], based in [[Washington D.C.|Washington, D.C.]], travels to cover small gatherings of groups like the [[Ku Klux Klan]] or the National Socialist Movement in towns across the [[United States]].
 
 ### AF 2018-11-14 0282
-(00:39:50) [[Nicholas J. Fuentes]] expressed regret for his involvement in the 2017 [[City of Charlottesville|Charlottesville]] rally where the National Socialist Movement and the [[League of the South]] were present, calling the participants "losers" and "bad people."
+(00:39:50) [[Nicholas J. Fuentes]] expressed regret for his involvement in the 2017 [[Charlottesville]] rally where the National Socialist Movement and the [[League of the South]] were present, calling the participants "losers" and "bad people."
 
 ### AF 2018-06-21 0185
 (00:10:49) [[Nicholas J. Fuentes]] referenced a Netflix documentary featuring [[Jared Taylor]] that followed a [[Pakistan|Pakistani]] [[Islam|Muslim]] filmmaker interviewing members of the NSM.
@@ -43,3 +43,6 @@
 
 ### AF 2017-10-26 0040
 (00:11:17) [[Nicholas J. Fuentes]] engaged in a public argument with [[Hunter Wallace]], the head of the [[League of the South]], over the inclusion of groups like the National Socialist Movement in the "White Lives Matter" rally.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:41:30) The [[Southern Poverty Law Center|SPLC]] allegedly paid millions of dollars to secret informants within right-wing extremist groups, including the [[Ku Klux Klan]] and the National Socialist Movement.

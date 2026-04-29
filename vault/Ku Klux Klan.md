@@ -21,13 +21,13 @@
 (03:02:30) [[Nicholas J. Fuentes]] pointed out that [[Ethan Klein]] compared putting up a cross in the [[United States Capitol|U.S. Capitol]] to the KKK, and [[Ben Shapiro]] compared the event to [[September 11 attacks|9/11]], asking what the two commentators have in common.
 
 ### AF 2020-09-29 0691
-(44:53:83) [[Joe Biden]] described the 2017 [[City of Charlottesville|Charlottesville rally]] with people carrying torches and spewing anti-Semitic bile, accompanied by the Ku Klux Klan, and stated [[Donald Trump]]'s "very fine people on both sides" remark was a [[turning point]].
+(44:53:83) [[Joe Biden]] described the 2017 [[Charlottesville rally]] with people carrying torches and spewing anti-Semitic bile, accompanied by the Ku Klux Klan, and stated [[Donald Trump]]'s "very fine people on both sides" remark was a [[turning point]].
 
 ### AF 2020-09-25 0689
 (01:33:33) [[Donald Trump]]'s "Platinum Plan" for [[black]] [[United States|America]] included designating the KKK and [[Antifa]] as terrorist organizations, making lynching a national hate crime, and pledging nearly $500 billion to increase access to capital in [[black]] communities.
 
 ### AF 2019-12-10 0510
-(01:10:25) Producers from [[Paramount Global|MTV]] filmed [[Nicholas J. Fuentes]] at his home for a week in February 2018, recording him doing his show, driving, attending an anti-gun protest in [[City of Chicago|Chicago]], and meeting with a former KKK member named [[Shane Johnson]].
+(01:10:25) Producers from [[Paramount Global|MTV]] filmed [[Nicholas J. Fuentes]] at his home for a week in February 2018, recording him doing his show, driving, attending an anti-gun protest in [[Chicago]], and meeting with a former KKK member named [[Shane Johnson]].
 
 ### AF 2019-11-05 0492
 (01:27:01) [[Nicholas J. Fuentes]] declared that a question asked at a [[Matt Walsh]] event about [[Republican Party|Republicans]] partnering with the KKK was likely from a "plant" or "controlled opposition."
@@ -64,3 +64,6 @@
 
 ### AF 2017-12-07 0066
 (01:59:41) [[Nicholas J. Fuentes]] declined to invite [[David Duke]] onto his show, citing Duke's permanent public association with the Ku Klux Klan as detrimental to the movement's pragmatic optics, despite expressing personal respect for him.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:41:30) The [[Southern Poverty Law Center|SPLC]] allegedly paid millions of dollars to secret informants within right-wing extremist groups, including the Ku Klux Klan and the [[National Socialist Movement]].

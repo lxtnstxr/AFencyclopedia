@@ -5,7 +5,7 @@
 (03:00:32) The national defense strategy talks about a Newman Road doctrine, specifically the [[Donald Trump|Trump]] Corollary to the Monroe Doctrine.
 
 (03:32:02) The national defense strategy addresses [[Latin America]] and the Monroe Doctrine.
-(03:33:35) The [[Donald Trump|Trump]] corollary to the Monroe Doctrine involves using the military to go to the border and engage inside [[Mexico]], [[Columbia|Colombia]], or other countries to fight drug traffickers.
+(03:33:35) The [[Donald Trump|Trump]] corollary to the Monroe Doctrine involves using the military to go to the border and engage inside [[Mexico]], [[Colombia]], or other countries to fight drug traffickers.
 (03:33:51) The national security strategy describes [[United States]] operations in [[Venezuela]] as part of the [[Donald Trump|Trump]] corollary to the Monroe Doctrine.
 (03:34:10) The 1823 Monroe Doctrine originally opposed [[Europe|European]] interference in the Western Hemisphere and justified [[United States]] military intervention in [[Latin America]].
 (03:42:00) The [[United States]] is reasserting the Monroe Doctrine to prevent great powers like [[China]] from gaining a foothold in Central and [[Southern United States|South]] [[United States|America]].

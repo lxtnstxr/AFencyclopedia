@@ -9,7 +9,7 @@
 (34:43:11) [[Nicholas J. Fuentes]] listed [[Paul Gosar]], [[Marjorie Taylor Greene]], [[Matt Gaetz]], [[Madison Cawthorn]], and Louie Gohmert as members of the "real [[America First]] movement" in [[Congress]].
 
 ### AF 2022-03-01 0952
-(02:45:53) [[Nicholas J. Fuentes]] argued that the [[Republican Party]]'s base and platform are behind figures like [[Marjorie Taylor Greene]], [[Paul Gosar]], Louie Gohmert, and [[Donald Trump]], and the [[America First]] agenda, rather than behind [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Ronna McDaniel]], [[Mitt Romney]], or [[Liz Cheney]].
+(02:45:53) [[Nicholas J. Fuentes]] argued that the [[Republican Party]]'s base and platform are behind figures like [[Marjorie Taylor Greene]], [[Paul Gosar]], Louie Gohmert, and [[Donald Trump]], and the [[America First]] agenda, rather than behind [[Kevin McCarthy]], [[Mitch McConnell]], [[Ronna McDaniel]], [[Mitt Romney]], or [[Liz Cheney]].
 
 ### AF 2022-03-01 0952
 (02:56:40) [[Nicholas J. Fuentes]] described a coalition forming behind "[[Jesus Christ|Christ]] is [[Martin Luther King Jr.|King]], [[America First]]," including figures like Louie Gohmert, [[Paul Gosar]], [[Marjorie Taylor Greene]], [[Tucker Carlson]], [[Donald Trump]], [[Michelle Malkin]], and [[Alex Jones]].
@@ -18,7 +18,7 @@
 (02:30:45) [[Nicholas J. Fuentes]] toured the [[Washington D.C.|D.C.]] jail along with his colleague Congressman Louie Gohmert and witnessed [[January 6th Attack|January 6th]] defendants denied basic rights like shaving, haircuts, chapel, communion, and counsel with their attorneys.
 
 ### AF 2022-03-02 0951
-(02:45:14) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] was behind [[Marjorie Taylor Greene]], [[Paul Gosar]], Louie Gohmert, and [[Donald Trump]], representing the [[America First]] platform, not behind [[Mike Johnson|Kevin McCarthy]] or [[Mitch McConnell]].
+(02:45:14) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] was behind [[Marjorie Taylor Greene]], [[Paul Gosar]], Louie Gohmert, and [[Donald Trump]], representing the [[America First]] platform, not behind [[Kevin McCarthy]] or [[Mitch McConnell]].
 
 ### AF 2022-03-02 0951
 (02:55:52) A coalition was forming behind [[Jesus Christ|Christ]] and [[United States|America]], including Louie Gohmert, [[Paul Gosar]], [[Marjorie Taylor Greene]], [[Tucker Carlson]], [[Donald Trump]], [[Nicholas J. Fuentes]], [[Michelle Malkin]], and [[Alex Jones]].

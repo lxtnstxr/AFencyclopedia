@@ -2,9 +2,9 @@
 #city
 
 ### AF 2021-06-14 0828
-(52:17:02) The [[City of Charlottesville|Charlottesville]] rally aimed to defend the [[Robert E. Lee]] statue in Lee Park from removal, which was proposed after the 2015 church shooting in Charleston, [[State of South Carolina|South Carolina]].
+(52:17:02) The [[Charlottesville]] rally aimed to defend the [[Robert E. Lee]] statue in Lee Park from removal, which was proposed after the 2015 church shooting in Charleston, [[State of South Carolina|South Carolina]].
 
-(57:00:68) [[Nicholas J. Fuentes]] argued that the reaction to the 2015 [[Dylann Roof]] shooting in Charleston and the 2017 [[City of Charlottesville|Charlottesville]] death were used as a pretext for a cultural revolution far more damaging than the original sporadic acts of violence.
+(57:00:68) [[Nicholas J. Fuentes]] argued that the reaction to the 2015 [[Dylann Roof]] shooting in Charleston and the 2017 [[Charlottesville]] death were used as a pretext for a cultural revolution far more damaging than the original sporadic acts of violence.
 
 ### AF 2021-03-23 0778 (2)
 (03:17:30) [[Nicholas J. Fuentes]] noted that the manifestos of [[Dylann Roof]] and [[Brenton Tarrant]], perpetrators of high-profile attacks in Charleston and [[Christchurch]], contained no significant mention of [[Jews|Jewish]] power, which he found conspicuous for alleged white supremacist extremists.

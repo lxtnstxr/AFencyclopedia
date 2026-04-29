@@ -11,3 +11,12 @@
 
 ### AF 2018-05-23 0170
 (00:38:56) [[Nicholas J. Fuentes]] read a [[Twitter]] headline stating "People have strong opinions about Tomi Lahren getting water thrown at her," contrasting it with the coverage he believed a [[black]] intellectual like Ta-Nehisi Coates would receive.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:25:37) [[Nicholas J. Fuentes]] described Tony Dokoupil as the "infamous [[Jews|Jewish]] news anchor [[who]] grilled Ta-Nehisi Coates" about his book on the "[[Israel|Israeli]] genocide in the occupied [[Palestinian territories]]."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:18:52) [[Nicholas J. Fuentes]] reminded viewers of the interview where Tony Dokoupil aggressively interrogated Ta-Nehisi Coates about his book on [[Palestine]] and [[Israel]], leading to a reprimand from [[CBS News]] executives.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:20:37) [[Nicholas J. Fuentes]] stated that Tony Dokoupil called Ta-Nehisi Coates a "terrorist sympathizer" for being critical of [[Israel]].

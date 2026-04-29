@@ -68,3 +68,6 @@
 
 ### AF 2024-04-19 1322
 (01:06:16) [[Nicholas J. Fuentes]] commented that commentator Patrick Bet-David appeared "like a boomer" after Patrick Bet-David went on [[Piers Morgan]]'s show to claim he is "[[United States|America]] First" and downplay [[United States]] funding for [[Israel]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:37:00) [[Nicholas J. Fuentes]] criticized [[Adam Sosnick]] as a "sleazy guy" with "no integrity," and stated that his affiliation with Patrick Bet-David reflects badly on Bet-David.

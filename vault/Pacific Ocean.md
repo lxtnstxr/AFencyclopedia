@@ -14,3 +14,9 @@
 
 ### AF 2017-08-28 0003
 (05:29:12) [[North Korea]] launched an intermediate-range ballistic missile over a northern island of [[State of Japan|Japan]] that landed in the Pacific Ocean, an act [[Nicholas J. Fuentes]] reported was in retaliation for joint [[United States]]-[[South Korea]] military exercises.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:20:40) 4,000 to 5,000 [[US Marines]] on amphibious assault vehicles were deployed from the Pacific to the [[Persian Gulf]], arriving by Friday.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:53:55) [[China]]’s potential takeover of [[Taiwan]] would give them a breakout into the Pacific Ocean, making it difficult to monitor their submarines, aircraft carriers, and destroyers.

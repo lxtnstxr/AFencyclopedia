@@ -12,7 +12,7 @@
 (00:00:23) A mass shooting occurred at a hospital in Tulsa, [[Oklahoma]], resulting in four people being shot.
 
 ### AF 2022-06-02 1006
-(00:22:48) [[Nicholas J. Fuentes]] contrasted the extensive media coverage of the [[City of Buffalo|Buffalo]] and [[Uvalde]] shootings, which involved white perpetrators, with the minimal coverage of the Tulsa shooting, where the perpetrator was [[black]].
+(00:22:48) [[Nicholas J. Fuentes]] contrasted the extensive media coverage of the [[Buffalo]] and [[Uvalde]] shootings, which involved white perpetrators, with the minimal coverage of the Tulsa shooting, where the perpetrator was [[black]].
 
 ### AF 2022-06-02 1006
 (00:23:40) The Tulsa Police Department reported that four people were killed and several others wounded in a shooting at a medical building on the campus of [[St. Francis Hospital]].
@@ -24,7 +24,7 @@
 (00:25:07) Tulsa Police described the gunman as a [[black]] male between 35 and 40 years old, armed with a long gun and a handgun, who died from an apparent self-inflicted gunshot wound.
 
 ### AF 2022-06-02 1006
-(00:40:27) [[Joe Biden]], in a prime-[[time]] address from the [[Joe Biden|White House]], called for a ban on assault-style weapons and high-capacity magazines, citing recent mass shootings in [[City of Buffalo|Buffalo]], [[Uvalde]], and Tulsa.
+(00:40:27) [[Joe Biden]], in a prime-[[time]] address from the [[Joe Biden|White House]], called for a ban on assault-style weapons and high-capacity magazines, citing recent mass shootings in [[Buffalo]], [[Uvalde]], and Tulsa.
 
 ### AF 2020-09-08 0676
 (01:08:92) [[Donald Trump]] held a rally in Tulsa, [[Oklahoma]] in June that was considered a disaster due to low crowd size, a lackluster speech, and subsequent coronavirus cases among attendees, marking a low point in his 2020 campaign.

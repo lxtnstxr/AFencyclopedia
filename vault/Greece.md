@@ -15,7 +15,7 @@
 (01:54:45) [[Nicholas J. Fuentes]] stated that the [[United Kingdom]] lost its status as the world's reserve currency in 1947 due to its obligations in Greece and [[Turkey]].
 
 ### AF 2022-09-10 1058
-(30:51:12) [[Italian Republic|Italy]], [[Israel|Poland]], [[Hungary]], and Greece were among the most vocal opponents of a price cap on [[Russia]]n gas within the [[Europe|European Union]].
+(30:51:12) [[Italian Republic|Italy]], [[Israel|Poland]], [[Hungary]], and Greece were among the most vocal opponents of a price cap on [[Russia]]n gas within the [[European Union]].
 
 ### AF 2019-01-04 0306
 (00:53:37) The caller "Real Question" argued that ancient advanced civilizations like those in [[Pakistan]] and the [[Middle East]] predated Greece and [[Rome]], challenging the idea that high IQ is tied solely to Northern [[Europe|European]] advancement.
@@ -34,3 +34,21 @@
 
 ### AF 2017-08-29 0004
 (00:09:50) [[The Guardian]] published an article by [[Kwame Apaya]] titled "There is no such thing as western civilization," which argued that Western civilization is not a coherent historical continuum from Greece and [[Rome]] to the present.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:27:57) The [[USS Gerald R. Ford]] is at port in Greece undergoing repairs, with speculation that the damage was caused by a missile hit rather than a laundry fire.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:47:46) The [[USS Gerald R. Ford|USS Gerald Ford]] (CVN-78) was taken out of the picture and was being repaired in Greece.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:06:52) [[Nicholas J. Fuentes]] reported that the [[United States]] had only one carrier, the [[USS Abraham Lincoln]], in the [[Middle East]], with the [[USS Gerald R. Ford|USS Gerald Ford]] having left for Greece due to a fire.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:21:13) [[Nicholas J. Fuentes]] reported that the [[USS Gerald R. Ford|USS Gerald Ford]] was in Greece being repaired because the kitchen exploded.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:45:06) [[Nicholas J. Fuentes]] reported that the [[USS Gerald R. Ford|USS Gerald Ford]] has left the theater of conflict to go to a port in Greece for repairs, and that it will come back in at least a week.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:15:29:31) [[Nicholas J. Fuentes]] stated that he is an [[United States|American]] nationalist, tracing [[United States|America]]'s roots to [[Europe]], [[Christianity]], Greece, and [[Rome]], whereas [[Jews|Jewish]] nationalists have a different story of enmity with the same peoples.

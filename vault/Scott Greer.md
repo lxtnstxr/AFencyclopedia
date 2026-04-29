@@ -198,7 +198,10 @@
 (00:58:55) [[Nicholas J. Fuentes]] criticized [[The Daily Caller]] for disavowing writer Scott Greer after [[The Atlantic]] exposed his pseudonymous writings, contrasting it with the media's defense of [[Sarah Jeong]]'s anti-white tweets.
 
 ### AF 2018-09-05 0233
-(01:00:25) [[Nicholas J. Fuentes]] stated that every individual whose life intersected with [[Richard Spencer]], including [[Daryl Cooper|Darren Beattie]], [[Peter Brimelow]], Scott Greer, and [[Eli Mosley]], had been worse off for it.
+(01:00:25) [[Nicholas J. Fuentes]] stated that every individual whose life intersected with [[Richard Spencer]], including [[Darren Beattie]], [[Peter Brimelow]], Scott Greer, and [[Eli Mosley]], had been worse off for it.
 
 ### AF 2017-11-24 0057
 (01:06:35.850) [[Nicholas J. Fuentes]] called commentator Scott Greer a good, smart, nice guy [[who]] works at the [[The Daily Caller|Daily Caller]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:49:51) [[Nicholas J. Fuentes]] criticized "white pill" parties hosted by [[Patrick Casey]] and Scott Greer as ineffective.

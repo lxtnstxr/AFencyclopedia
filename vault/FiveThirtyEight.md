@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2020-11-04 0716
-(01:43:14) A tweet from FiveThirtyEight reported that a batch of 23,277 votes from [[City of Philadelphia|Philadelphia]], [[Commonwealth of Pennsylvania|Pennsylvania]] were all for [[Joe Biden]], with zero votes for [[Donald Trump]].
+(01:43:14) A tweet from FiveThirtyEight reported that a batch of 23,277 votes from [[Philadelphia]], [[Commonwealth of Pennsylvania|Pennsylvania]] were all for [[Joe Biden]], with zero votes for [[Donald Trump]].
 
 
 ### AF 2020-11-03 0715

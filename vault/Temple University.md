@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2018-12-06 0290
-(00:33:09) The chairman of Temple University's board sought to punish [[Marc Lamont Hill]], a tenured professor, for his comments on [[Gaza Strip|Palestine]].
+(00:33:09) The chairman of Temple University's board sought to punish [[Marc Lamont Hill]], a tenured professor, for his comments on [[Palestine]].
 
 
 ### AF 2018-07-05 0194

@@ -84,7 +84,7 @@
 (00:24:18) A new bill passed by a [[House]] committee grants [[Joe Biden]] the authority to ban TikTok on all devices in the [[United States]].
 
 ### AF 2023-03-02 1126
-(00:43:46) [[Dominion of Canada|Canada]] and the [[Europe|European Union]] have banned TikTok on government-issued phones.
+(00:43:46) [[Dominion of Canada|Canada]] and the [[European Union]] have banned TikTok on government-issued phones.
 
 ### AF 2023-03-02 1126
 (00:51:22) [[ByteDance]], the parent company of TikTok, is headquartered in [[China]] and subject to [[China|Chinese]] law, meaning user data could be accessible to the [[China|Chinese]] government.
@@ -102,7 +102,7 @@
 (46:46:52) The [[U.S. House Foreign Affairs Committee]] voted along party lines to advance a bill granting [[Joe Biden]] the power to ban TikTok.
 
 ### AF 2023-03-02 1126
-(48:42:14) The [[Joe Biden|White House]] gave federal agencies 30 days to remove TikTok from government devices, a policy already enacted by over 30 [[United States|U.S]]. states, [[Dominion of Canada|Canada]], and the [[Europe|European Union]].
+(48:42:14) The [[Joe Biden|White House]] gave federal agencies 30 days to remove TikTok from government devices, a policy already enacted by over 30 [[United States|U.S]]. states, [[Dominion of Canada|Canada]], and the [[European Union]].
 
 ### AF 2023-03-02 1126
 (49:52:38) [[Nicholas J. Fuentes]] criticizes [[Republican Party|Republicans]] for refusing to regulate [[Facebook]], [[Twitter]], or [[Wells Fargo]] for censoring or debanking conservatives while moving to ban TikTok.
@@ -370,3 +370,51 @@
 
 ### AF 2020-04-13 0584
 (02:10:01) [[Nicholas J. Fuentes]] speculated that while TikTok likely collects facial recognition data for the [[China|Chinese]] government, this was probably not the app's original intention but a subsequent use of its platform.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:29:30) [[Nicholas J. Fuentes]] argued that the media supports the war in [[Iran]] because the people [[who]] own the media, such as [[Rupert Murdoch]] ([[Fox News|Fox]]) and [[Larry Ellison]] ([[Paramount Global|Paramount]], [[Warner Bros. Discovery|Warner Brothers]], [[Skydance Media|Skydance]], TikTok), support it.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:34:20) [[Nicholas J. Fuentes]] stated that [[Larry Ellison]], a friend of [[Benjamin Netanyahu]], controls [[Skydance Media|Skydance]], [[Paramount Global]], [[Warner Bros. Discovery|Warner Bros.]], and TikTok.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:23:20) [[Larry Ellison]] holds a significant percentage of TikTok, owns the algorithm, and all the data of the company.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:25:02) The [[United States]] government forced the sale of TikTok to [[Larry Ellison]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:23:12) [[Nicholas J. Fuentes]] argued that the war in [[Iran]], the acquisition of [[Warner Bros. Discovery|Warner Bros.]] by [[Paramount Global]], and the acquisition of TikTok by [[Larry Ellison]] are all for [[Israel]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:35:19) [[Nicholas J. Fuentes]] argued that [[Larry Ellison]] is in control of TikTok with a new [[Jews|Jewish]] CEO.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:18:46) [[Nicholas J. Fuentes]] announced that the deal for the [[United States]] to acquire the [[United States|U.S]]. side of TikTok's business had been finalized.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:19:00) The [[United States|U.S]]. side of TikTok's business will be owned by a newly created private entity, with stakes held by [[ByteDance]], [[Oracle Corporation|Oracle]], and a bank from the [[Gulf]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:19:27) [[Nicholas J. Fuentes]] characterized the deal for TikTok as an institutional coup to install [[United States|American]] pro-[[Israel]] forces inside one of the world's largest social platforms.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:19:46) [[Nicholas J. Fuentes]] described a pro-[[Israel]] coup occurring across society since [[October 7th Attack|October 7th]], affecting the [[White House]], [[Harvard University]], TikTok, and now ongoing at [[CBS News]], [[Paramount Global]], and potentially at [[Warner Bros. Discovery|Warner Bros.]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:50:35) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] negotiated a deal with [[China]] forcing ByteDance to sell TikTok to a consortium of [[United States|American]] companies.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:51:40) [[Nicholas J. Fuentes]] stated that [[Oracle Corporation|Oracle]] will take the biggest stake in TikTok from the consortium, become the host of all [[United States|American]] TikTok data, and gain exclusive access to TikTok's algorithm to manipulate it for the [[United States|US]] user base.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:56:40) [[Nicholas J. Fuentes]] stated that the TikTok deal happened through [[Donald Trump|Trump]]'s intervention twice: first in 2020 to host [[United States|US]] data on [[Oracle Corporation|Oracle]], and then in his second term to force ByteDance to sell TikTok to [[Oracle Corporation|Oracle]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:07:46) [[Nicholas J. Fuentes]] listed the properties the Ellisons would own if successful: [[Skydance Media|Skydance]] Production, [[Paramount Global]], [[CBS]], [[Warner Bros. Discovery|Warner Bros.]] studios, [[Warner Bros. Discovery|HBO]], [[Warner Bros. Discovery|HBO Max]], [[Warner Bros. Discovery|CNN]], and TikTok.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:58:53:17) [[Nicholas J. Fuentes]] stated that clips of [[Paul Miller|Gypsy Crusader]] and [[Artificial Intelligence|AI]]-translated [[Adolf Hitler|Hitler]] speeches go mega viral on TikTok and [[Instagram]], showing people are "past that sort of thing."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:05:41) [[David Ellison]]'s company [[Skydance Media]] acquired [[Paramount Global]], and [[David Ellison]]'s father [[Oracle Corporation|Larry Ellison]] owns TikTok.

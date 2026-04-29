@@ -27,7 +27,7 @@
 (00:01:34) Michael Cohen entered a plea bargain and pleaded guilty to eight counts, including campaign finance violations that implicated [[Donald Trump]].
 
 ### AF 2018-08-21 0223
-(00:12:14) Michael Cohen, a former lawyer and fixer for [[Donald Trump]], implicated [[Donald Trump|the president]] in a payoff to [[Stormy Daniels]] to silence an alleged affair.
+(00:12:14) Michael Cohen, a former lawyer and fixer for [[Donald Trump]], implicated [[the president]] in a payoff to [[Stormy Daniels]] to silence an alleged affair.
 
 ### AF 2018-08-21 0223
 (01:06:45) [[Nicholas J. Fuentes]] listed [[Barack Obama]], [[John Brennan|John O. Brennan]], [[James Clapper Jr.|James Clapper]], [[Hillary Clinton]], and [[Lois Lerner]] as individuals involved in what he characterized as criminal scandals, contrasting them with the charges against [[Paul Manafort]] and Michael Cohen.

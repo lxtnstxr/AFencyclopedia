@@ -87,7 +87,7 @@
 (01:34:10) [[Charlie Kirk]]'s event at Ohio State University featured [[Turning Point USA]] ambassador [[Rob Smith]].
 
 ### AF 2019-10-29 0487
-(03:30:40) A left-wing pro-[[Gaza Strip|Palestine]] protester disrupted [[Charlie Kirk]]'s event at Ohio State University, after which [[Charlie Kirk]] announced a Q&A session.
+(03:30:40) A left-wing pro-[[Palestine]] protester disrupted [[Charlie Kirk]]'s event at Ohio State University, after which [[Charlie Kirk]] announced a Q&A session.
 
 ### AF 2019-10-29 0487
 (04:41:40) At the Ohio State University event, nearly every question during the Q&A came from dissident-right individuals critiquing [[Charlie Kirk]].

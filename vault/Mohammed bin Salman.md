@@ -62,10 +62,10 @@
 (25:01:45) [[Jared Kushner]] was best friends with [[Saudi Arabia|Saudi Crown Prince]] Mohammed bin Salman, was tight with [[Israel]], and was the architect behind the [[Donald Trump|Trump]] administration's [[Middle East]] plans.
 
 ### AF 2018-10-15 0261
-(35:22:35) The 2017 [[City of Las Vegas|Las Vegas]] shooting had curious ties to [[Saudi Arabia]], coinciding with the ascendancy of Mohammed bin Salman.
+(35:22:35) The 2017 [[Las Vegas]] shooting had curious ties to [[Saudi Arabia]], coinciding with the ascendancy of Mohammed bin Salman.
 
 ### AF 2018-05-08 0160
-(00:32:57) [[Nicholas J. Fuentes]] argued that adversaries of [[Iran]], namely [[Israel]] under the [[Labor Party|Likud]] party and [[Saudi Arabia]] under Mohammed bin Salman, would actively work to sabotage any diplomatic process or deal.
+(00:32:57) [[Nicholas J. Fuentes]] argued that adversaries of [[Iran]], namely [[Israel]] under the [[Likud]] party and [[Saudi Arabia]] under Mohammed bin Salman, would actively work to sabotage any diplomatic process or deal.
 
 ### AF 2018-04-09 0141
 (00:28:57) Mohammed bin Salman, the Crown Prince of [[Saudi Arabia]], had been consolidating power and making disruptive reforms while strengthening ties with the [[United States]] and [[Europe]] in early 2018.
@@ -95,7 +95,7 @@
 (01:24:04) [[Nicholas J. Fuentes]] speculated that [[Donald Trump]]'s [[United States Embassy in Jerusalem|embassy]] move might be intended to provoke outrage and signal a rejection of a two-[[state]] solution, aligning with a reported proposal from Crown Prince Mohammed bin Salman and [[Jared Kushner]] that offered [[Palestinians]] no sovereign [[state]].
 
 ### AF 2017-12-04 0063
-(30:41:20) [[Jared Kushner]] reportedly believed his partnership with [[Saudi Arabia|Saudi Crown Prince]] Mohammed bin Salman was strong enough to manage any civil unrest resulting from the [[United States|U.S]]. recognizing [[City of Jerusalem|Jerusalem]] as [[Israel|Israel's]] capital.
+(30:41:20) [[Jared Kushner]] reportedly believed his partnership with [[Saudi Arabia|Saudi Crown Prince]] Mohammed bin Salman was strong enough to manage any civil unrest resulting from the [[United States|U.S]]. recognizing [[Jerusalem]] as [[Israel|Israel's]] capital.
 
 ### AF 2017-11-22 0056
 (01:00:48) [[Nicholas J. Fuentes]] analyzed rising tensions between [[Saudi Arabia]] and [[Iran]], tracing the conflict to a [[Saudi Arabia|Saudi]]-led boycott of [[Qatar]] in July, the forced resignation of [[Lebanon]]'s Prime Minister [[Saad Hariri]], and a missile strike by [[Houthis|Houthi]] rebels, viewing it as a regional cold war orchestrated by [[Saudi Arabia|Saudi Crown Prince]] Mohammed bin Salman.

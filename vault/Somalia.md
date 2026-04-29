@@ -27,7 +27,7 @@
 (38:08:55) [[Nicholas J. Fuentes]] compared [[Israel]]'s "Total Victory" doctrine to the [[United States]]' global war on terror, which expanded from targeting [[al-Nusra Front|al-Qaeda]] in [[Afghanistan]] to wars in [[Iraq]], [[Libya]], [[Syria]], [[Yemen]], and Somalia over two decades.
 
 ### AF 2024-05-21 1332
-(00:55:50) [[Nicholas J. Fuentes]] cited [[Ilhan Omar]] as an example of the tribalization of [[United States|American]] politics, noting she intervenes in the conflict between Somalia and Somaliland on behalf of her Somali constituents in [[City of Minneapolis|Minneapolis]].
+(00:55:50) [[Nicholas J. Fuentes]] cited [[Ilhan Omar]] as an example of the tribalization of [[United States|American]] politics, noting she intervenes in the conflict between Somalia and Somaliland on behalf of her Somali constituents in [[Minneapolis]].
 
 ### AF 2025-12-06 1609
 (03:05:05) [[Donald Trump]] made comments on immigration, including criticizing Somalia and Somalis.
@@ -57,7 +57,7 @@
 (00:17:56) [[Ilhan Omar]] claimed her remarks were mistranslated and slanted, a claim disputed by the Republic of Somaliland's Foreign Minister [[Rhoda Elmi]].
 
 ### AF 2024-02-01 1287
-(00:19:31) [[Ilhan Omar]]'s explicit advocacy for Somalia was contrasted with the broader issue of immigrants forming segregated communities in cities like [[City of Minneapolis|Minneapolis]], [[Los Angeles]], [[City of Chicago|Chicago]], and [[New York|New York City]], which hinders assimilation into [[United States|American]] society.
+(00:19:31) [[Ilhan Omar]]'s explicit advocacy for Somalia was contrasted with the broader issue of immigrants forming segregated communities in cities like [[Minneapolis]], [[Los Angeles]], [[Chicago]], and [[New York|New York City]], which hinders assimilation into [[United States|American]] society.
 
 ### AF 2024-02-01 1287
 (00:26:19) The Foreign Minister of Somaliland, [[Rhoda Elmi]], reprimanded [[Ilhan Omar]] for not being "[[United States|America]] First."
@@ -117,13 +117,13 @@
 (00:51:18) [[Joe Biden]] noted that [[al-Nusra Front|al-Qaeda]] and [[Islamic State of Iraq and Syria|ISIS]] had metastasized to places like [[Yemen]], [[Syria]], and Somalia.
 
 ### AF 2021-03-24 0779
-(01:47:05) A [[Republican Party|GOP]] campaign chair from [[Minnesota]] advocated for running more minority candidates, a strategy correlated with the election of [[Ilhan Omar]] and the growth of a Somali refugee population in [[City of Minneapolis|Minneapolis]].
+(01:47:05) A [[Republican Party|GOP]] campaign chair from [[Minnesota]] advocated for running more minority candidates, a strategy correlated with the election of [[Ilhan Omar]] and the growth of a Somali refugee population in [[Minneapolis]].
 
 ### AF 2020-09-16 0682
-(47:23:760) Even with the drastic reduction in stops after [[George Floyd]]'s death, 47% of recorded traffic stops in [[City of Minneapolis|Minneapolis]] were of people identified as [[Black]], 7% as [[East African]] (Somalis), and only 24% as [[White]].
+(47:23:760) Even with the drastic reduction in stops after [[George Floyd]]'s death, 47% of recorded traffic stops in [[Minneapolis]] were of people identified as [[Black]], 7% as [[East African]] (Somalis), and only 24% as [[White]].
 
 ### AF 2020-06-08 0616
-(01:18:12:67) A [[The New York Times|New York Times]] article quoted [[Omar Jamal]], a Somali immigrant in [[City of St. Paul|St. Paul]], [[who]] said the heavy security presence during the riots made the [[United States]] indistinguishable from Somalia, a failed state he had fled.
+(01:18:12:67) A [[The New York Times|New York Times]] article quoted [[Omar Jamal]], a Somali immigrant in [[St. Paul]], [[who]] said the heavy security presence during the riots made the [[United States]] indistinguishable from Somalia, a failed state he had fled.
 
 ### AF 2020-05-28 0615
 (01:03:13) [[Nicholas J. Fuentes]] claimed the disproportionate frequency of such riots among [[black]] communities, both in the [[United States]] and in countries like [[Haiti]], [[Nigeria]], Somalia, and [[Jamaica]], pointed to a behavioral pattern rather than political or economic causes.
@@ -132,19 +132,19 @@
 (00:41:17) [[Nicholas J. Fuentes]] compared the lack of a coronavirus travel ban to the legal challenges faced by [[Donald Trump]]'s 2017 executive order restricting travel from seven [[Islam|Muslim]]-majority countries, including [[Syria]], [[Iran]], Somalia, [[Iraq]], [[Afghanistan]], and [[Libya]].
 
 ### AF 2019-09-20 0466
-(00:34:00) [[Nicholas J. Fuentes]] linked a spike in violent crime in [[City of Minneapolis|Minneapolis]] to migrants from Somalia, arguing that people bring the violent tendencies of their home countries with them when they immigrate.
+(00:34:00) [[Nicholas J. Fuentes]] linked a spike in violent crime in [[Minneapolis]] to migrants from Somalia, arguing that people bring the violent tendencies of their home countries with them when they immigrate.
 
 ### AF 2019-09-19 0465
-(04:36:72) A string of high-profile attacks occurred in downtown [[City of Minneapolis|Minneapolis]], involving packs of 10 to 30 Somali individuals targeting impaired or distracted white male victims for robbery and assault.
+(04:36:72) A string of high-profile attacks occurred in downtown [[Minneapolis]], involving packs of 10 to 30 Somali individuals targeting impaired or distracted white male victims for robbery and assault.
 
 ### AF 2019-09-19 0465
-(05:29:54) In the [[City of Minneapolis|Minneapolis]] attacks, all the assailants were [[black]], many of them Somali, and all the victims were white, though authorities did not classify the incidents as hate crimes.
+(05:29:54) In the [[Minneapolis]] attacks, all the assailants were [[black]], many of them Somali, and all the victims were white, though authorities did not classify the incidents as hate crimes.
 
 ### AF 2019-09-19 0465
-(18:55:80) Violent crime in [[City of Minneapolis|Minneapolis]]'s Cedar-Riverside neighborhood, nicknamed "Little Mogadishu," increased by more than 50% in 2018, which authorities attributed to Somali gang activity.
+(18:55:80) Violent crime in [[Minneapolis]]'s Cedar-Riverside neighborhood, nicknamed "Little Mogadishu," increased by more than 50% in 2018, which authorities attributed to Somali gang activity.
 
 ### AF 2019-09-19 0465
-(19:22:34) Authorities linked the violence in [[City of Minneapolis|Minneapolis]] to rivalries between Somali gangs such as the [[Somali Mafia]], the [[Somali Outlaws]], the [[Hot Boys]], and the [[Madiban with Attitude]].
+(19:22:34) Authorities linked the violence in [[Minneapolis]] to rivalries between Somali gangs such as the [[Somali Mafia]], the [[Somali Outlaws]], the [[Hot Boys]], and the [[Madiban with Attitude]].
 
 ### AF 2019-09-19 0465
 (20:06:74) Economist [[Thomas Sowell]] argued that high crime rates among African [[United States|Americans]] resulted from factors like fatherless households and a welfare state, a theory [[Nicholas J. Fuentes]] challenged by pointing to recently-arrived Somalis exhibiting similar behavior.
@@ -208,3 +208,39 @@
 
 ### AF 2017-10-13 0031
 (01:29:20) Over the past 25 years, the [[United States]] has undertaken military actions in [[Iraq]], Somalia, [[State of Libya|Libya]], [[Arab Republic of Egypt|Egypt]], [[Syria]], and [[Yemen]], countries that were all regional rivals of [[Israel]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(22:18:30) [[Donald Trump]] announced a "war on fraud" targeting the Somali community in [[Minnesota]], [[who]] he claimed had stolen an estimated $19 billion from taxpayers.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:40:12) [[Nicholas J. Fuentes]] stated that the scandal in [[Minneapolis]] involved illegal immigrants from Somalia, [[who]] are [[Islam|Muslim]], with Somalia being one of the worst countries in the world.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:15:27) [[Nicholas J. Fuentes]] denounced Somali illegal immigrants as [[Islam|Muslim]] Africans [[who]] are scamming the government.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:41:24.720) [[Nicholas J. Fuentes]] accused [[Ilhan Omar]] of using chain migration to bring her family from Somalia to colonize his home.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:18:23) [[Nicholas J. Fuentes]] argued that the [[United States]] was wrong to take in refugees from Somalia when it collapsed, stating it was not beneficial for [[United States|Americans]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:55:40:61) [[Nicholas J. Fuentes]] stated that Somali immigrants in [[Minnesota]] are stealing $8 billion by claiming the money is for charity, then buying luxury cars and sending the money to relatives in Somalia.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:56:26:19) [[Nicholas J. Fuentes]] called for every Somali involved in the fraud to be denaturalized and put on a military cargo plane to be dropped back into Somalia.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:39:04:64) [[Nicholas J. Fuentes]] described immigrants from [[Haiti]] and Somalia as invaders [[who]] hate [[United States|Americans]] and steal from them.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:46:37) [[Nicholas J. Fuentes]] criticized immigrants [[who]] "spin up a nonprofit," collect billions of dollars, and send money to Somalia while bringing their families to the [[United States]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:57:33) [[Nicholas J. Fuentes]] described the situation in [[Minneapolis]] as one where people from Somalia are being resettled in [[Minnesota]], one of the best states with high human development, and that they then start stealing.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:01:19) [[Nicholas J. Fuentes]] described Somalia as a [[country]] that is not even a real [[state]], run by clans and controlled by [[Islamic State of Iraq and Syria|ISIS]], and criticized bringing “the worst of the worst” from there to a well-run white [[state]] like [[Minnesota]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:05:05) [[Nicholas J. Fuentes]] criticized the [[Donald Trump|Trump]] administration's first year, noting 330,000 deportations (below promises), bombing of multiple countries (Somalia, [[Nigeria]], [[Venezuela]], [[Iran]], [[Syria]], [[Yemen]]), continued war in [[Ukraine]], and a failure to release unredacted [[Jeffrey Epstein|Epstein]] files.

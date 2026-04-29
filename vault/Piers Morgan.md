@@ -185,7 +185,7 @@
 (02:08:17) Piers Morgan challenged [[Kanye West|Ye]] on his suggestion to [[Tucker Carlson]] that [[Gap]] had prior knowledge of the [[Uvalde]] school shooting, calling the idea "completely insane."
 
 ### AF 2022-10-22 1084
-(02:10:57) Piers Morgan agreed that gun violence in [[City of Chicago|Chicago]] receives insufficient media attention, citing his son's experience at the [[University of Chicago]], but rejected any suggestion of prior knowledge by [[Gap]] or [[Matthew McConaughey]].
+(02:10:57) Piers Morgan agreed that gun violence in [[Chicago]] receives insufficient media attention, citing his son's experience at the [[University of Chicago]], but rejected any suggestion of prior knowledge by [[Gap]] or [[Matthew McConaughey]].
 
 ### AF 2022-10-22 1084
 (02:13:18) Piers Morgan disagreed, arguing the policeman premeditated the murder through callous disregard, not conspiracy, and refused to revisit the topic.
@@ -197,7 +197,118 @@
 (02:21:10) Piers Morgan praised the apology as a sign of self-awareness, stating that someone as passionate as [[Kanye West|Ye]] will occasionally trip up with his wording.
 
 ### AF 2018-04-12 0144
-(00:40:13) Commentator [[Ben Shapiro]] criticized journalist Piers Morgan for using the [[City of Newtown|Sandy Hook]] tragedy to advocate for gun control.
+(00:40:13) Commentator [[Ben Shapiro]] criticized journalist Piers Morgan for using the [[Sandy Hook]] tragedy to advocate for gun control.
 
 ### AF 2018-01-26 0095
 (18:05:07) [[Donald Trump]] apologized to Piers Morgan in an interview for retweeting videos from the group [[Britain First]] several months prior.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:56:24) [[Megyn Kelly]] and Piers Morgan are also explicitly confronting [[American Israel Public Affairs Committee|Israel First]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:24:57) [[Tucker Carlson]], when interviewed by Piers Morgan in [[Saudi Arabia]], would not commit to a position on whether foreign aid to [[Israel]] should be cut.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:19:28) [[Nicholas J. Fuentes]] argued that [[Stephen Miller]] agitates for war with [[Iran]] while his wife appears on Piers Morgan.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:32:27) [[Nicholas J. Fuentes]] argued that [[the left]] does not care about [[Jeffrey Epstein|Epstein]] or sexual abuse, citing that they got mad when [[Roger Stone]] said [[Bill Clinton]] is a rapist but now go on Piers Morgan to call [[Donald Trump|Trump]] a “pedo protector” because they do not like his mass deportations.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:38:16) [[Nicholas J. Fuentes]] complained that since revealing his virginity in the Piers Morgan interview, he has been solicited by "every chop bitch in the world," and argued that he is "rich, handsome, and famous" and expects a "bad bitch," not a "chop."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:57:09) [[Nicholas J. Fuentes]] argued that Piers Morgan is "even more pathetic" than [[he]] is for calling him a 27-year-old virgin, given that Piers Morgan's wife is "publicly humiliating him on [[Instagram]]."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:45:00) [[Nicholas J. Fuentes]] announced that he appeared on *Piers Morgan Uncensored* that morning for a two-hour, live, one-on-one interview.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:56:28:80) Piers Morgan played clips from [[Nicholas J. Fuentes]]'s own show and asked him if he agreed with himself, a format [[Nicholas J. Fuentes]] described as a "clip show."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:30:07:57) Piers Morgan had stated that [[Nicholas J. Fuentes]] would never be allowed on his show, leading [[Nicholas J. Fuentes]] to tweet that a show called "Uncensored" cannot be uncensored if he is censored from it.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:30:23:89) [[Nicholas J. Fuentes]] reported that after his interview with [[Tucker Carlson]], *Piers Morgan Uncensored* held panel discussions about him for approximately seven shows while he was not allowed to speak.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:31:11:48) Piers Morgan challenged [[Nicholas J. Fuentes]] to appear on his show around Thanksgiving.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:33:15:23) [[Nicholas J. Fuentes]] stated that Piers Morgan went into the interview expecting him to be embarrassed or ashamed of his views.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:33:46:84) Piers Morgan asked [[Nicholas J. Fuentes]] if he was a racist, to which [[Nicholas J. Fuentes]] answered "Yes."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:35:07:65) Piers Morgan began the interview by playing a clip from [[Coleman Hughes]], a writer at [[Bari Weiss|The Free Press]] publication owned by [[Bari Weiss]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:43:18:92) Piers Morgan played a clip where [[Nicholas J. Fuentes]] stated that [[black]] people should be in prison and women should shut up; [[Nicholas J. Fuentes]] agreed with the statements, arguing that [[black]] people commit more crime proportionally.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:48:46:85) [[Nicholas J. Fuentes]] argued that the legacy media, including Piers Morgan, is only finding out in 2025 that calling someone a racist no longer has the social power it did in 2015.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:55:51:38) [[Nicholas J. Fuentes]] criticized Piers Morgan for being "anti-woke" while having previously pushed for LGBT education, COVID lockdowns, and the vax mandate, and questioned what "anti-woke" actually means.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:57:10:36) [[Nicholas J. Fuentes]] told Piers Morgan that his generation is losing because of the "haughty, morally superior, liberal, woke tone."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:59:14:46) Piers Morgan asked [[Nicholas J. Fuentes]] if he affirms [[the Holocaust]] and if [[Adolf Hitler|Hitler]] is cool.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:12:50:53) [[Nicholas J. Fuentes]] told Piers Morgan that curry cannot replace the civilization that gave [[Shakespeare]] and the [[Concept|Magna Carta]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:18:14:13) [[Nicholas J. Fuentes]] told Piers Morgan that he does not know how many [[Jews]] died in [[the Holocaust]] and that he does not care, stating he would say 300,000 or 100 million to signal his lack of concern.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:24:39:04) [[Nicholas J. Fuentes]] described Piers Morgan's left-wing flavor of universalism and [[Tucker Carlson]]'s right-wing flavor as a "false dialectic," arguing that "the real tidal wave is identity."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:26:11:93) [[Nicholas J. Fuentes]] described a moment in the interview where Piers Morgan asked how he could make a joke about [[the Holocaust]], and he replied, "Why is it too soon?" causing the audience to laugh.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:27:20:00) [[Nicholas J. Fuentes]] reported that Piers Morgan became increasingly frustrated and towards the end of the interview called him a "virgin" and a "sexist virgin" in a "complete meltdown."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:28:37:35) [[Nicholas J. Fuentes]] stated that following his interview with Piers Morgan, the second big story involves a coordinated "matrix attack" against him.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:35:04:28) [[Nicholas J. Fuentes]] noted that Piers Morgan started his career at a [[Rupert Murdoch]]-owned publication and that *Piers Morgan Uncensored* debuted on a [[Rupert Murdoch|Murdoch]]-owned channel, and that [[Rupert Murdoch|Murdoch]] is an investor in the now-independent show.Here is the chronological knowledge log derived from the provided transcript.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:52:24) [[Nicholas J. Fuentes]] appeared on a show owned by [[Rupert Murdoch]] with Piers Morgan, [[who]] attempted to attack him on the topics of [[Adolf Hitler]], [[the Holocaust]], and racism.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:00:49) [[Nicholas J. Fuentes]] described the day's events as a "matrix attack," including the Piers Morgan hit piece and his interview.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:02:05) [[Nicholas J. Fuentes]] explained his interviewing strategy against journalists like Piers Morgan is to have "contempt" for the process, as they are acting as "judge and jury," not as a good-faith interviewers.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:13:25) Piers Morgan named the father of [[Nicholas J. Fuentes]] on air and called him a racist, which [[Nicholas J. Fuentes]] said was a low blow intended to incite political attacks against his family.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:14:23) [[Nicholas J. Fuentes]] stated that his father is a private citizen with cancer [[who]] is working to pay for healthcare, and that Piers Morgan attacked him despite knowing this.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:16:07) [[Nicholas J. Fuentes]] contrasted his financial situation with that of [[Tucker Carlson]] (worth $50 million) and Piers Morgan (worth $100 million), stating that the controversy is a game for them but a matter of life for his family.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:18:56) [[Nicholas J. Fuentes]] explained that his response to Piers Morgan's question about [[the Holocaust]] death toll—stating "at least six million," adding it "could be ten times that"—was a joke that demonstrated a tactical principle of never conceding ground to a hostile interviewer like Piers Morgan.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:37:04) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] behaves as he does—with "contemptuously dishonest" self-confidence—because the media environment demands it to survive against figures like Piers Morgan.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:41:06) [[Nicholas J. Fuentes]] contrasted legacy media journalists like Piers Morgan, [[who]] operate through shame and humiliation, with younger independent media figures like [[Bradley Martin]] and [[Jack Neil]], [[who]] are "curious" about his ideas.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:55:50) Piers Morgan claimed to be a [[Catholic Church|Catholic]] while advocating for female priests and mocking celibacy, which [[Nicholas J. Fuentes]] criticized as inconsistent.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:57:00) [[Nicholas J. Fuentes]] described Piers Morgan as a "totally dishonest liar" [[who]] did the same thing to [[Kanye West]] and Dave that he did to [[Nicholas J. Fuentes]].

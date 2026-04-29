@@ -80,7 +80,7 @@
 (00:34:16) Following [[January 6th Attack|January 6th]], [[Nicholas J. Fuentes]] was banned from [[DLive]], his payment processor, [[Facebook]], and Instagram, destroying his primary income streams.
 
 ### AF 2023-09-29 1226
-(01:35:40) [[Nicholas J. Fuentes]] observed that videos depicting [[black]] crime in cities like [[City of Philadelphia|Philadelphia]] and [[City of Chicago|Chicago]] appear primarily on [[Twitter]] and [[TikTok]], owned by [[Elon Musk]] and a [[China|Chinese]] company respectively, but not on Instagram, [[Google|YouTube]], or [[Facebook]].
+(01:35:40) [[Nicholas J. Fuentes]] observed that videos depicting [[black]] crime in cities like [[Philadelphia]] and [[Chicago]] appear primarily on [[Twitter]] and [[TikTok]], owned by [[Elon Musk]] and a [[China|Chinese]] company respectively, but not on Instagram, [[Google|YouTube]], or [[Facebook]].
 
 ### AF 2023-09-05 1210
 (00:47:47) [[Andrew Tate]]'s rise as a reactionary force came from [[TikTok Inc.|TikTok]] rather than [[Google|YouTube]] or Instagram, which [[Nicholas J. Fuentes]] argued would have censored him immediately.
@@ -333,3 +333,15 @@
 
 ### AF 2017-08-30 0005
 (58:33:45) [[Nicholas J. Fuentes]] commented on [[Benji Backer]], describing him as looking like "a [[little]] baby" and giving him a warning during a [[Twitter]] beef, which Backer heeded. He also mocked an Instagram photo of Backer dressed entirely in [[United States|American]] flag apparel.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(04:18:13) [[Nicholas J. Fuentes]] stated that young people [[who]] think they can rival [[Jews|Jewish]] influence through [[X]] and Instagram are wrong, as he has "been around a long [[time]]."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:57:09) [[Nicholas J. Fuentes]] argued that [[Piers Morgan]] is "even more pathetic" than [[he]] is for calling him a 27-year-old virgin, given that [[Piers Morgan]]'s wife is "publicly humiliating him on Instagram."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:58:53:17) [[Nicholas J. Fuentes]] stated that clips of [[Paul Miller|Gypsy Crusader]] and [[Artificial Intelligence|AI]]-translated [[Adolf Hitler|Hitler]] speeches go mega viral on [[TikTok Inc.|TikTok]] and Instagram, showing people are "past that sort of thing."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:40:50) [[Nicholas J. Fuentes]] stated that [[The New York Post]] reported that his popularity on Instagram, [[Rumble Inc.|Rumble]], and [[Twitter]] is "fake" and run by bot farms in countries that hate [[United States|America]].

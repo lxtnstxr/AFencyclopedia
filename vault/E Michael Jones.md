@@ -6,7 +6,7 @@
 
 (00:22:14) E. Michael Jones, [[Destiny]], and [[Sneako]] had all accused [[Nicholas J. Fuentes]] of being confused about whether his primary identity was white or [[Catholic Church|Catholic]].
 (00:32:06) [[Nicholas J. Fuentes]] rejected E. Michael Jones's claim that a [[black]] African applying for an [[Ireland|Irish]] passport makes him [[Ireland|Irish]], arguing that race and ancestry are tangible and important.
-(00:57:04) [[Nicholas J. Fuentes]] criticized E. Michael Jones for being glib and repeating the line that [[Nicholas J. Fuentes]] doesn't know if he's white or [[Catholic Church|Catholic]], challenging him to visit the [[Southern United States|South]] Side of [[City of Chicago|Chicago]] and tell [[black]] assailants they are "just [[Catholic Church|Catholic]]."
+(00:57:04) [[Nicholas J. Fuentes]] criticized E. Michael Jones for being glib and repeating the line that [[Nicholas J. Fuentes]] doesn't know if he's white or [[Catholic Church|Catholic]], challenging him to visit the [[Southern United States|South]] Side of [[Chicago]] and tell [[black]] assailants they are "just [[Catholic Church|Catholic]]."
 
 ### AF 2024-07-08 1350
 (02:28:52) [[Nicholas J. Fuentes]] disagreed with E. Michael Jones's statement that being white and [[Catholic Church|Catholic]] are contradictory terms, arguing it is harmful and untrue, as [[Catholic Church|Catholic]] doctrine allows for national identity and assimilation.
@@ -39,7 +39,7 @@
 (00:36:27) [[Nicholas J. Fuentes]] reflected that over the past year, many right-wing or alternative content creators including himself, [[Timothy Gionet|Baked Alaska]], E. Michael Jones, [[Roosh V]], [[American Renaissance]], [[Samuel J. Hyde|Sam Hyde]], and [[Stefan Molyneux]] have been banned from [[Google|YouTube]].
 
 ### AF 2020-07-14 0640
-(01:47:11) E. Michael Jones was scheduled to debate [[Umar Lee]], a move some [[City of St. Louis|St. Louis]] [[Catholic Church|Catholics]] opposed for fear it would allow [[the left]] to label them white supremacists, a concern [[Nicholas J. Fuentes]] considered weak.
+(01:47:11) E. Michael Jones was scheduled to debate [[Umar Lee]], a move some [[St. Louis]] [[Catholic Church|Catholics]] opposed for fear it would allow [[the left]] to label them white supremacists, a concern [[Nicholas J. Fuentes]] considered weak.
 
 ### AF 2020-07-13 0639
 (02:11:49) [[Nicholas J. Fuentes]] stated that [[Google|YouTube]] had banned numerous right-wing channels in recent weeks, including E. Michael Jones, [[American Renaissance]], [[Richard Spencer]]'s NPI, and [[Stefan Molyneux]].
@@ -105,7 +105,7 @@
 (00:13:34) E. Michael Jones claimed that removing discussion of Logos from the public sphere hands control over to the rich and powerful, [[who]] currently use homosexuals as their main proxy warriors.
 
 ### AF 2019-05-24 0394
-(00:14:04) [[Nicholas J. Fuentes]] shifted the topic to E. Michael Jones's book *The Slaughter of the Cities* and asked for an explanation of the chaos in modern [[United States|American]] cities like [[City of Chicago|Chicago]].
+(00:14:04) [[Nicholas J. Fuentes]] shifted the topic to E. Michael Jones's book *The Slaughter of the Cities* and asked for an explanation of the chaos in modern [[United States|American]] cities like [[Chicago]].
 
 ### AF 2019-05-24 0394
 (00:15:03) E. Michael Jones described his book *The Slaughter of the Cities* as being about urban renewal as ethnic cleansing, targeting [[Catholic Church|Catholic]] ethnic neighborhoods after [[World War II]].
@@ -120,7 +120,7 @@
 (00:17:44) E. Michael Jones argued that one of the greatest triumphs of social engineers was convincing [[Catholic Church|Catholics]] displaced from cities that they were "white," a negative identity with no real content.
 
 ### AF 2019-05-24 0394
-(00:17:56) E. Michael Jones cited [[Martin Luther King Jr.|Martin Luther King]]'s 1966 march in [[City of Chicago|Chicago]]'s [[Marquette Park]] as an iconic moment where Lithuanians and [[Catholic Church|Catholics]] were redefined as "white" and thus as racists.
+(00:17:56) E. Michael Jones cited [[Martin Luther King Jr.|Martin Luther King]]'s 1966 march in [[Chicago]]'s [[Marquette Park]] as an iconic moment where Lithuanians and [[Catholic Church|Catholics]] were redefined as "white" and thus as racists.
 
 ### AF 2019-05-24 0394
 (00:19:32) E. Michael Jones claimed that the same social engineering experiment manipulating populations occurred in [[Sweden]] and [[Dominion of Canada|Canada]], orchestrated by figures like [[Gunnar Myrdal]] and [[Harry Schein]].
@@ -138,7 +138,7 @@
 (00:25:34) E. Michael Jones stated that the proxy warriors for oligarchs shifted from [[black]] people after [[World War II]] to homosexuals in the present day.
 
 ### AF 2019-05-24 0394
-(00:25:53) E. Michael Jones pointed to [[South Bend, Indiana]]'s homosexual mayor and a similar figure in [[City of Chicago|Chicago]] as examples of narcissistic fantasies nurtured by the current proxy warrior class.
+(00:25:53) E. Michael Jones pointed to [[South Bend, Indiana]]'s homosexual mayor and a similar figure in [[Chicago]] as examples of narcissistic fantasies nurtured by the current proxy warrior class.
 
 ### AF 2019-05-24 0394
 (00:27:11) [[Nicholas J. Fuentes]] asked E. Michael Jones for his take on the 100th anniversary of the 19th Amendment (women's suffrage) and the role of women in politics.
@@ -183,7 +183,7 @@
 (00:39:29) E. Michael Jones argued that the war in [[Syria]] followed [[Hillary Clinton]]'s destruction of [[Libya]] and the murder of [[Muammar Gaddafi]], but failed due to the combined efforts of [[Russia]], [[Iran]], and [[Hezbollah]].
 
 ### AF 2019-05-24 0394
-(00:40:50) E. Michael Jones described [[Benjamin Netanyahu|Bibi Netanyahu]]'s speeches to [[United States Capitol|U.S. Congress]], where he received standing ovations from lawmakers [[who]] take [[AIPAC]] money and fear being primaried if they do not comply.
+(00:40:50) E. Michael Jones described [[Benjamin Netanyahu|Bibi Netanyahu]]'s speeches to [[U.S. Congress]], where he received standing ovations from lawmakers [[who]] take [[AIPAC]] money and fear being primaried if they do not comply.
 
 ### AF 2019-05-24 0394
 (00:41:34) E. Michael Jones expressed disappointment that [[Donald Trump]]'s presidency resulted in "[[Israel First]]" rather than the "[[United States|America]] First" policy he voted for.
@@ -225,13 +225,13 @@
 (00:55:14) E. Michael Jones characterized [[Martin Luther King Jr.|Martin Luther King]] as being paid to promote integration, which led to a loss of [[black]] ethnic identity and the destruction of local [[black]] establishments in favor of a national one.
 
 ### AF 2019-05-24 0394
-(00:56:03) E. Michael Jones cited a missed opportunity in 1930s [[City of Philadelphia|Philadelphia]], where Cardinal [[Dougherty]] rejected a proposal from Jesuits to create a [[black]] ethnic parish, which he believed would have given [[blacks]] a positive ethnic identity.
+(00:56:03) E. Michael Jones cited a missed opportunity in 1930s [[Philadelphia]], where Cardinal [[Dougherty]] rejected a proposal from Jesuits to create a [[black]] ethnic parish, which he believed would have given [[blacks]] a positive ethnic identity.
 
 ### AF 2019-05-24 0394
 (00:57:39) E. Michael Jones stated that ethnicity is part of nature, but "white" is an artificial, negative creation, referencing [[Madison Grant]]'s early 20th-century racial theories that divided [[Europe]]ans into Teutonic, Alpine, and [[Mediterranean Sea|Mediterranean]] races.
 
 ### AF 2019-05-24 0394
-(00:58:52) E. Michael Jones recounted a story of a Swede whose grandfather was persecuted by Poles in [[City of Chicago|Chicago]] steel mills, illustrating that in previous generations, ethnic identity (Pole vs. Swede) was real, while "white" identity did not exist.
+(00:58:52) E. Michael Jones recounted a story of a Swede whose grandfather was persecuted by Poles in [[Chicago]] steel mills, illustrating that in previous generations, ethnic identity (Pole vs. Swede) was real, while "white" identity did not exist.
 
 ### AF 2019-05-24 0394
 (01:00:03) E. Michael Jones advised young men to pursue skilled trades like carpentry, which provide direct payment, no student debt, and a needed service, contrasting this with worthless degrees that lead to wage slavery.

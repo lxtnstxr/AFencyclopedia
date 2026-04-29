@@ -47,7 +47,7 @@
 (05:33:32) [[William Ackman|Bill Ackman]] and Ronald Lauder, [[Jews|Jewish Zionist]] billionaires, waged campaigns that led to the resignations of [[Claudine Gay]] from [[Harvard University]] and [[Elizabeth Magill]] from the [[University of Pennsylvania]] over issues related to [[Israel]] and antisemitism.
 
 ### AF 2024-08-02 1366
-(14:49:82) Following the [[October 7th Attack]], [[Jewish]] billionaires Ronald Lauder and [[William Ackman]] led a campaign against [[Ivy League]] universities, including [[Harvard University]], [[University of Pennsylvania]], [[Massachusetts Institute of Technology|MIT]], and [[Columbia]], over pro-[[Gaza Strip|Palestine]] demonstrations.
+(14:49:82) Following the [[October 7th Attack]], [[Jewish]] billionaires Ronald Lauder and [[William Ackman]] led a campaign against [[Ivy League]] universities, including [[Harvard University]], [[University of Pennsylvania]], [[Massachusetts Institute of Technology|MIT]], and [[Columbia]], over pro-[[Palestine]] demonstrations.
 
 ### AF 2024-01-30 1285
 (05:33:40) Ronald Lauder, a [[Jewish]] donor, led a campaign that resulted in the [[University of Pennsylvania]] firing its president, [[Elizabeth Magill]], in December.
@@ -77,7 +77,7 @@
 (40:44:18) The charge to remove the non-[[Jewish]] [[Ivy League]] presidents was led by [[Jewish]] billionaires like [[William Ackman|Bill Ackman]], a [[Harvard University]] alum, and Ronald Lauder, a [[University of Pennsylvania|UPenn]] alum.
 
 ### AF 2023-12-12 1261
-(41:00:58) Ronald Lauder is [[Donald Trump|the president]] of the [[World Jewish Congress]], which presides over [[Jewish]] groups and federations worldwide.
+(41:00:58) Ronald Lauder is [[the president]] of the [[World Jewish Congress]], which presides over [[Jewish]] groups and federations worldwide.
 
 ### AF 2023-03-29 1137
 (05:11:40) [[Benjamin Netanyahu|Bibi]]'s campaign received 90% of its contributions from outside [[Israel]], including from [[United States|American]] billionaires like [[Sheldon Adelson]], [[Sumner Redstone]], [[Robert Kraft]], [[Les Wexner]], and the Lauder family.
@@ -87,3 +87,72 @@
 
 ### AF 2019-04-22 0371
 (01:39:26) [[The president]] of the [[World Jewish Congress]] is Ronald S. Lauder, heir to the [[Estée Lauder Companies]], and the chief executive officer is [[David de Rothschild]], head of the Rothschild banks in [[France]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:26:17) Ronald Lauder, chairman of the [[World Jewish Congress]], has a son-in-law [[who]] is the chair of the [[Federal Reserve]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:20:31) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] is covering up the [[Jeffrey Epstein|Epstein]] files to protect [[Peter Thiel]], Ronald Lauder, [[Leon Black]], and [[Les Wexner]], [[who]] are in the files.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:38:04:00) [[Nicholas J. Fuentes]] stated that the [[Donald Trump|Trump]] administration is covering up for [[Les Wexner]], Ronald Lauder, the [[United Arab Emirates|Emirates]], [[Israel]], and [[Ehud Barak]].
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:07:32.020) [[Nicholas J. Fuentes]] called for investigations into [[Howard Lutnick]], [[Les Wexner]], [[Steve Bannon]], [[Elon Musk]], [[Donald Trump]], Ronald Lauder, and [[Leon Black]] for their connections to [[Jeffrey Epstein]].
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:11:17.980) [[Nicholas J. Fuentes]] stated that "you can't even trust [[Donald Trump|President Trump]]" because "Ronald Lauder is named in the Files 961 times" and his son-in-law is nominated to "chair the [[Federal Reserve]]," [[Leon Black]]'s son is head of the [[United States Agency for International Development|Development Finance Corporation]], and [[Howard Lutnick]] is [[Donald Trump|Trump's]] commerce secretary.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:50:25) Ronald Lauder is a member of the "[[American Israel Public Affairs Committee|mega group]]" and a [[Jews|Jewish]] billionaire [[who]] is the heir to the [[Estée Lauder]] fortune.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:50:33) Ronald Lauder was one of the billionaires [[who]] got the [[president]] of the [[University of Pennsylvania]] fired for tolerating a pro-[[Palestine]] protest on campus.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:50:43) Ronald Lauder is the head of the [[World Jewish Congress]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:50:55) Ronald Lauder was deeply involved with [[Jeffrey Epstein]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:51:07) Ronald Lauder appeared more than 900 times in the set of [[Jeffrey Epstein]]-related files released by the [[U.S. Department of Justice|DOJ]] at the end of January.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:51:36) Assistants for Ronald Lauder and [[Jeffrey Epstein]] emailed frequently to discuss the arrangement of meals and phone calls, and the two were often looped into these email chains.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:52:04) In a 2017 message, an assistant for [[Jeffrey Epstein]] mentioned to Ronald Lauder's assistant that [[Jeffrey Epstein|Epstein]] wanted to see two years of tax returns from Lauder.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:52:40) Documents showed that [[Jeffrey Epstein]] may have played a role in Ronald Lauder's art-related dealings with [[Leon Black]], another major art collector.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:53:20) Ronald Lauder's son-in-law was nominated to be the chair of the [[Federal Reserve]] of the [[United States]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:54:26) Ronald Lauder is a member of the "[[American Israel Public Affairs Committee|mega group]]," which is a pro-[[Israel]] group of billionaires.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:54:35) Ronald Lauder is the chair of the [[World Jewish Congress]], gave $5 million to [[Donald Trump|Trump's]] [[Super PAC]], and his son-in-law is [[Donald Trump]]'s nominee to be the chair of the [[Federal Reserve]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:04:19) [[Jeffrey Epstein]] did art deals with Ronald Lauder and [[Leon Black]] and the [[Metropolitan Museum of Art]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:00) The nominee for chairman of the [[Federal Reserve]] is the son-in-law of Ronald Lauder, for whom [[Jeffrey Epstein]] laundered money by purchasing art with [[Leon Black]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:10) Ronald Lauder is a [[Donald Trump]] ally and the father-in-law of [[Donald Trump|Trump's]] [[Federal Reserve]] nominee, and he has given [[Donald Trump|Trump]] millions of dollars over the years.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:28) Ronald Lauder is the chair of the [[World Jewish Congress]] and the [[World Economic Forum]], succeeding [[Edgar Bronfman Sr.]]
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:31) Ronald Lauder, [[Edgar Bronfman Sr.]], and [[Les Wexner]] all formed the "[[American Israel Public Affairs Committee|mega group]]" 30 years ago to push for the war in [[Iraq]] with [[Frank Luntz]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:33:53) Ronald Lauder is the head of the [[World Economic Forum]], having succeeded [[World Economic Forum|Klaus Schwab]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:34:19) Ronald Lauder led the charge to get the [[president]] of the [[University of Pennsylvania]] fired in 2024 because Lauder is an alumnus of the [[University of Pennsylvania|Wharton School of Business]].

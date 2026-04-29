@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2022-08-11 1045
-(12:52:20) [[Nicholas J. Fuentes]] recounted meeting [[Richard Spencer]], [[Patrick Casey]], and [[Jared Taylor]] at a gathering at [[Richard Spencer|Spencer]]'s townhouse in [[City of Alexandria|Alexandria]], which attendees called "the hate lair," after a U.S. Inc. conference in September 2017.
+(12:52:20) [[Nicholas J. Fuentes]] recounted meeting [[Richard Spencer]], [[Patrick Casey]], and [[Jared Taylor]] at a gathering at [[Richard Spencer|Spencer]]'s townhouse in [[Alexandria]], which attendees called "the hate lair," after a U.S. Inc. conference in September 2017.
 
 (13:24:20) [[Nicholas J. Fuentes]] stated that [[Jared Taylor]] offered him a job at [[American Renaissance]] on the spot after his speech at the U.S. Inc. conference, but he declined to avoid losing his [[Google|YouTube]] channel and to focus on his own show.
 

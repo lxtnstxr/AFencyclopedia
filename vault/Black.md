@@ -51,10 +51,10 @@
 (00:57:20) [[Kamala Harris]] was expected to secure the Black vote due to the "[[Barack Obama|Obama]] effect" and the [[women]]'s vote by campaigning on abortion.
 
 ### AF 2020-09-16 0682
-(46:43:400) Data showed that in [[City of Minneapolis|Minneapolis]], a [[city]] that is 64% [[White]] and 19% Black, [[Black people]] were consistently pulled over more than [[White people]] year after year.
+(46:43:400) Data showed that in [[Minneapolis]], a [[city]] that is 64% [[White]] and 19% Black, [[Black people]] were consistently pulled over more than [[White people]] year after year.
 
 ### AF 2020-09-16 0682
-(47:23:760) Even with the drastic reduction in stops after [[George Floyd]]'s death, 47% of recorded traffic stops in [[City of Minneapolis|Minneapolis]] were of people identified as Black, 7% as [[East African]] ([[Somalia|Somalis]]), and only 24% as [[White]].
+(47:23:760) Even with the drastic reduction in stops after [[George Floyd]]'s death, 47% of recorded traffic stops in [[Minneapolis]] were of people identified as Black, 7% as [[East African]] ([[Somalia|Somalis]]), and only 24% as [[White]].
 
 ### AF 2018-09-15 0240
 (27:38:22) Foreign-born [[Asian]] populations in the [[United States]] assimilate more quickly and show more political elasticity than [[Hispanic]] or Black populations.

@@ -66,7 +66,7 @@ Files cleaned: 95
 (01:21:14:99) Five out of the eight Ivy League universities have [[Jewish]] presidents.
 
 ### AF 2025-08-04 1544
-(01:00:25) The [[Donald Trump|Trump]] administration went to war with six out of eight Ivy League universities, seizing their federal funding unless they gave settlements to [[Jewish]] faculty, prevented pro-[[Gaza Strip|Palestine]] protests, installed an anti-Semitism monitor, and allowed oversight of [[Middle East]] Studies Departments by the [[United States Department of Education]].
+(01:00:25) The [[Donald Trump|Trump]] administration went to war with six out of eight Ivy League universities, seizing their federal funding unless they gave settlements to [[Jewish]] faculty, prevented pro-[[Palestine]] protests, installed an anti-Semitism monitor, and allowed oversight of [[Middle East]] Studies Departments by the [[United States Department of Education]].
 
 ### AF 2025-07-28 1540
 (01:03:43) The [[White House]], under [[Donald Trump]], has been waging a war against Ivy League universities, accusing them of anti-Semitism.
@@ -75,7 +75,7 @@ Files cleaned: 95
 (01:04:12) [[Donald Trump]] withheld federal money from six Ivy League universities, including [[Harvard University]] and [[Colombia]], to force them to combat anti-Semitism.
 
 ### AF 2025-07-28 1540
-(03:03:92) [[Nicholas J. Fuentes]] stated that [[Donald Trump]]'s administration blackmailed [[Colombia]] and other Ivy League universities by withholding federal funds to force them to crack down on pro-[[Gaza Strip|Palestine]] protests and change curricula to be more pro-[[Israel]].
+(03:03:92) [[Nicholas J. Fuentes]] stated that [[Donald Trump]]'s administration blackmailed [[Colombia]] and other Ivy League universities by withholding federal funds to force them to crack down on pro-[[Palestine]] protests and change curricula to be more pro-[[Israel]].
 
 ---
 
@@ -141,7 +141,7 @@ Files cleaned: 95
 (00:04:27) Under the tentative framework agreement, [[Oracle]], owned by [[Larry Ellison]], was set to hold the lion's share of an 80% stake in TikTok.
 
 ### AF 2025-09-18 1567
-(00:05:59) During the [[Israel]]-[[Gaza Strip|Palestine]] war, pro-[[Gaza Strip|Palestine]] narratives were far more popular on TikTok than on any other social media platform.
+(00:05:59) During the [[Israel]]-[[Palestine]] war, pro-[[Palestine]] narratives were far more popular on TikTok than on any other social media platform.
 
 ### AF 2025-09-19 1568
 (00:05:00) [[Donald Trump]]'s administration is facilitating the sale of TikTok from its [[China|Chinese]] parent company to a consortium of [[U.S]]. companies, including [[Oracle]].
@@ -168,7 +168,7 @@ Files cleaned: 95
 (01:00:00) In 2020, the [[Donald Trump]] administration brokered a deal to transfer TikTok's [[U.S]]. user data to [[Oracle]]'s [[American]]-owned data centers.
 
 ### AF 2025-09-19 1568
-(01:05:00) In December 2023, analytics showed pro-[[Israel]] content dominated [[American]] social platforms, while pro-[[Gaza Strip|Palestine]] sentiment dominated TikTok.
+(01:05:00) In December 2023, analytics showed pro-[[Israel]] content dominated [[American]] social platforms, while pro-[[Palestine]] sentiment dominated TikTok.
 
 ### AF 2025-09-19 1568
 (01:05:00) The [[Anti-Defamation League]] and over 50 [[Jewish]] organizations began lobbying the [[U.S. government]] to ban TikTok, citing a rise in anti-Semitism on the platform.
@@ -195,7 +195,7 @@ Files cleaned: 95
 (00:05:41) [[Nicholas J. Fuentes]] stated that [[Benjamin Netanyahu]] hosted a panel with [[American]] social media influencers where he described fighting a war on platforms like TikTok and [[Twitter]] to gain support for [[Israel]].
 
 ### AF 2025-09-30 1574
-(01:15:27) The [[U.S. Congress]] decided that TikTok had to be sold to an [[American]] company or banned within months of the [[October 7th Attack]], citing concerns over pro-[[Gaza Strip|Palestine]] content on the platform.
+(01:15:27) The [[U.S. Congress]] decided that TikTok had to be sold to an [[American]] company or banned within months of the [[October 7th Attack]], citing concerns over pro-[[Palestine]] content on the platform.
 
 ### AF 2025-09-30 1574
 (01:45:53) [[Larry Ellison]] took a significant role in a consortium of [[U.S.]] companies that acquired TikTok's [[American]] business.
@@ -1051,7 +1051,7 @@ Files cleaned: 95
 (00:31:11) The United States government faced a potential shutdown as the deadline to fund the government approached at midnight on the end of the fiscal year.
 
 ### AF 2025-09-30 1574
-(01:15:27) The [[U.S. Congress]] decided that [[TikTok]] had to be sold to an American company or banned within months of the [[October 7th Attack]], citing concerns over pro-[[Gaza Strip|Palestine]] content on the platform.
+(01:15:27) The [[U.S. Congress]] decided that [[TikTok]] had to be sold to an American company or banned within months of the [[October 7th Attack]], citing concerns over pro-[[Palestine]] content on the platform.
 
 ### AF 2025-09-30 1574
 (01:45:53) [[Larry Ellison]] took a significant role in a consortium of U.S. companies that acquired [[TikTok]]'s American business.
@@ -1177,7 +1177,7 @@ Files cleaned: 95
 (00:07:25) [[France]] has made an enemy of [[Russian Federation|Russia]] and [[Israel]], with [[Emmanuel Macron]] specifically creating animosity with [[Vladimir Putin]], [[Benjamin Netanyahu]], and the [[Kushner family]] in the United States.
 
 ### AF 2025-08-26 1557
-(00:23:20) The conflict in [[Gaza Strip|Palestine]] involves [[Israel]], a nuclear-armed country with unconditional backing from the United States, using advanced military technology against a civilian population in [[Gaza Strip|Palestine]] that lacks a standing army, government, military, or counterattack capability.
+(00:23:20) The conflict in [[Palestine]] involves [[Israel]], a nuclear-armed country with unconditional backing from the United States, using advanced military technology against a civilian population in [[Palestine]] that lacks a standing army, government, military, or counterattack capability.
 
 ### AF 2025-08-26 1557
 (00:40:37) The policy of many countries, including the United States, supports a [[Palestinian]] state, but [[Benjamin Netanyahu]] is obstructing this goal while accepting financial aid.
@@ -1189,7 +1189,7 @@ Files cleaned: 95
 (00:41:41) [[Charles Kushner]], the United States ambassador to [[France]], is the father of [[Jared Kushner]], who is [[Donald Trump]]'s son-in-law and married to [[Ivanka Trump]], who converted to Judaism.
 
 ### AF 2025-08-26 1557
-(00:42:43) [[Charles Kushner]] sent a letter to [[Emmanuel Macron]], the [[France|French]] President, on behalf of the United States, accusing [[France]] of insufficient action against anti-Semitism and condemning [[France]]'s recognition of [[Gaza Strip|Palestine]].
+(00:42:43) [[Charles Kushner]] sent a letter to [[Emmanuel Macron]], the [[France|French]] President, on behalf of the United States, accusing [[France]] of insufficient action against anti-Semitism and condemning [[France]]'s recognition of [[Palestine]].
 
 ### AF 2025-08-26 1557
 (00:44:14) The summoning of [[Charles Kushner]] by the [[Ministry for Europe and Foreign Affairs|French foreign ministry]] sparked backlash from the United States and [[Israel]].
@@ -1204,7 +1204,7 @@ Files cleaned: 95
 (00:47:00) [[Israel]] is using United States money, weapons, political support, and defense guarantees to conduct a war that opposes 80 years of United States foreign policy.
 
 ### AF 2025-08-26 1557
-(00:47:45) [[France]] is intervening to prevent [[Israel]] from erasing [[Gaza Strip|Palestine]] from the map, for which the United States is condemning [[France]].
+(00:47:45) [[France]] is intervening to prevent [[Israel]] from erasing [[Palestine]] from the map, for which the United States is condemning [[France]].
 
 ### AF 2025-08-26 1557
 (00:48:40) The United States ambassador to [[France]] is [[Charles Kushner]], a person with clear loyalty to [[Israel]].
@@ -1216,7 +1216,7 @@ Files cleaned: 95
 (01:02:28) An "America First" approach would involve stopping aid to [[Israel]] for its conflicts with neighbors and ceasing the influx of refugees into the United States.
 
 ### AF 2025-08-26 1557
-(01:12:20) The situation in the United States is compared to [[Europe]], with [[Afghanistan|Afghans]], [[Pakistan|Pakistanis]], and Muslims in the [[United Kingdom]]; Venezuelans and Salvadorians in [[New York]], [[State of Texas|Texas]], or [[State of California|California]]; and [[India|Indians]] and [[China|Chinese]] in [[City of Seattle|Seattle]] and [[City of Portland|Portland]].
+(01:12:20) The situation in the United States is compared to [[Europe]], with [[Afghanistan|Afghans]], [[Pakistan|Pakistanis]], and Muslims in the [[United Kingdom]]; Venezuelans and Salvadorians in [[New York]], [[State of Texas|Texas]], or [[State of California|California]]; and [[India|Indians]] and [[China|Chinese]] in [[Seattle]] and [[Portland]].
 
 ### AF 2025-08-26 1557
 (01:12:53) The decision to allow global immigration into the United States has led to foreigners who are often rude, inconsiderate, do not assimilate, dislike and disrespect Americans, feel entitled to the country, and act arrogantly.
@@ -1381,7 +1381,7 @@ Files cleaned: 95
 (02:03:00) [[City Boy Farmer]], an oil broker, sent a $100 super chat contesting the concept of peak oil, stating 70% of U.S. refineries run on heavy crude extracted domestically.
 
 ### AF 2025-08-05 1545
-(03:27:10) In response to [[Europe|European]] moves toward recognizing [[Gaza Strip|Palestine]], [[Israel]] accelerated its own timeline to eradicate the [[Palestinian]] state, with the United States permitting the action.
+(03:27:10) In response to [[Europe|European]] moves toward recognizing [[Palestine]], [[Israel]] accelerated its own timeline to eradicate the [[Palestinian]] state, with the United States permitting the action.
 
 ### AF 2025-08-05 1545
 (16:58:70) [[Donald Trump]] signed a series of executive orders, including one stating the United States would never regulate [[artificial intelligence]].
@@ -1540,7 +1540,7 @@ Files cleaned: 95
 (01:15:37) The United States intervened in the Kosovo War, resulting in [[Kosovo]]'s independence as an Albanian-majority state.(01:29:50) [[Nicholas J. Fuentes]] stated his primary interest is America and that he is not a Gazan nationalist and does not advocate for a [[Palestinian]] state as a political cause.
 
 ### AF 2025-07-23 1537
-(01:30:45) [[Nicholas J. Fuentes]] stated he cares that the United States is involved in the conflict in [[Gaza Strip|Palestine]].
+(01:30:45) [[Nicholas J. Fuentes]] stated he cares that the United States is involved in the conflict in [[Palestine]].
 
 ### AF 2025-07-23 1537
 (01:38:23) [[Nicholas J. Fuentes]] claimed that organized, international, powerful [[Jews]] are manipulating the United States for their own benefit.
@@ -1814,7 +1814,7 @@ Files cleaned: 95
 (00:41:04) Nicholas J. Fuentes stated that [[Donald Trump]] gets away with bombing [[Iran]], accelerating the war in [[Ukraine]], and covering up for [[Jeffrey Epstein|Epstein]], while his supporters defend him.
 
 ### AF 2025-09-01 1559
-(00:42:13) Nicholas J. Fuentes argued he did not become [[left]]-wing, but that the right changed by supporting policies they previously opposed under [[Donald Trump]], such as the war in [[Ukraine]], policy towards [[Gaza Strip|Gaza]], and covering up [[Donald Trump|the president's]] health condition.
+(00:42:13) Nicholas J. Fuentes argued he did not become [[left]]-wing, but that the right changed by supporting policies they previously opposed under [[Donald Trump]], such as the war in [[Ukraine]], policy towards [[Gaza Strip|Gaza]], and covering up [[the president's]] health condition.
 
 ### AF 2025-09-01 1559
 (00:44:25) Nicholas J. Fuentes stated he has been disavowed by the [[Republican Party]], does not take money from them, and is not beholden to [[Donald Trump]], allowing him to criticize the administration freely.
@@ -2969,7 +2969,7 @@ Files cleaned: 95
 (00:04:00) Nicholas J. Fuentes stated that [[Benjamin Netanyahu]] pushed back against international efforts to create a [[Palestinian state]], declaring [[Israel]] would not allow it.
 
 ### AF 2025-09-26 1572
-(00:04:49) Nicholas J. Fuentes noted that [[Benjamin Netanyahu]]'s speech directly addressed efforts by [[France]], the [[United Kingdom]], [[Canada]], and other countries to recognize [[Gaza Strip|Palestine]].
+(00:04:49) Nicholas J. Fuentes noted that [[Benjamin Netanyahu]]'s speech directly addressed efforts by [[France]], the [[United Kingdom]], [[Canada]], and other countries to recognize [[Palestine]].
 
 ### AF 2025-09-26 1572
 (00:05:01) Nicholas J. Fuentes reported that [[Benjamin Netanyahu]] suggested [[Israel]] might have to become like Sparta, embracing pariah status.
@@ -2978,7 +2978,7 @@ Files cleaned: 95
 (00:05:41) Nicholas J. Fuentes stated that [[Benjamin Netanyahu]] hosted a panel with [[American]] social media influencers where he described fighting a war on platforms like [[TikTok]] and [[Twitter]] to gain support for [[Israel]].
 
 ### AF 2025-09-26 1572
-(00:07:52) Nicholas J. Fuentes referenced an incident where [[Kanye West]] tweeted about [[Jews]] inventing cancel culture, after which [[Donald Trump|the president]] of the [[Anti-Defamation League]] stated they had to shut him down.
+(00:07:52) Nicholas J. Fuentes referenced an incident where [[Kanye West]] tweeted about [[Jews]] inventing cancel culture, after which [[the president]] of the [[Anti-Defamation League]] stated they had to shut him down.
 
 ### AF 2025-09-26 1572
 (00:09:31) Nicholas J. Fuentes expressed a negative view of [[Erika Frantz Kirk]], the widow of [[Charlie Kirk]], calling her public appearances fake and the handling of his death by [[Turning Point USA]] gratuitous and excessive.
@@ -3122,7 +3122,7 @@ Files cleaned: 95
 (01:07:33) Nicholas J. Fuentes reported that the [[Egypt]]ian government described [[Israel]] as an enemy in a document that week.
 
 ### AF 2025-09-26 1572
-(01:07:53) Nicholas J. Fuentes read from a [[The New York Times]] article stating [[Benjamin Netanyahu]] ruled out a [[Palestinian state]] and vowed to finish the war against [[Hamas]], calling recognition of [[Gaza Strip|Palestine]] "disgraceful."
+(01:07:53) Nicholas J. Fuentes read from a [[The New York Times]] article stating [[Benjamin Netanyahu]] ruled out a [[Palestinian state]] and vowed to finish the war against [[Hamas]], calling recognition of [[Palestine]] "disgraceful."
 
 ### AF 2025-09-26 1572
 (01:09:53) Nicholas J. Fuentes argued that it is not just [[Benjamin Netanyahu]] but the entire [[Israel]]i government and most of its people who support the policy of annexing [[Gaza Strip]] and the [[Gaza Strip|West Bank]].
@@ -4742,7 +4742,7 @@ Files cleaned: 95
 (00:23:10) [[Josh Hammer]] wrote an article in the [[Daily Mail]] about the conversation between Nicholas J. Fuentes and [[Tucker Carlson]].
 
 ### AF 2025-10-29 1588
-(00:23:40) Nicholas J. Fuentes characterized [[United States|American]] politics as a debate between pro-[[Israel]] [[Jews]] on the [[Republican Party|Republican]] side, like [[Sheldon Adelson|Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], [[Larry Ellison]], [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and [[Michael Bloomberg]].
+(00:23:40) Nicholas J. Fuentes characterized [[United States|American]] politics as a debate between pro-[[Israel]] [[Jews]] on the [[Republican Party|Republican]] side, like [[Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], [[Larry Ellison]], [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and [[Michael Bloomberg]].
 
 ### AF 2025-10-29 1588
 (00:24:20) Nicholas J. Fuentes stated the overriding mission of right-wing [[Jews]] is to use [[United States|America]] to help [[Israel]] with aid and wars, while [[left]]-wing [[Jews]] aim to make [[United States|America]] minority white.
@@ -4817,7 +4817,7 @@ Files cleaned: 95
 (00:52:50) Nicholas J. Fuentes stated the [[United States]] is done with the [[Jewish]] oligarchy, slavish surrender to [[Israel]], wars, foreign aid, policing of anti-Semitism, and the Holocaust religion.
 
 ### AF 2025-10-29 1588
-(00:53:40) Nicholas J. Fuentes stated that in 10, 20, or 30 years, there will only be more people like him, and even [[JD Vance]] had to pander to them at Turning Point [[United States|USA]] by answering questions about [[Palantir Technologies|Palantir]], [[Sheldon Adelson|Miriam Adelson]], and whether [[Donald Trump]] obeys [[Israel]].
+(00:53:40) Nicholas J. Fuentes stated that in 10, 20, or 30 years, there will only be more people like him, and even [[JD Vance]] had to pander to them at Turning Point [[United States|USA]] by answering questions about [[Palantir Technologies|Palantir]], [[Miriam Adelson]], and whether [[Donald Trump]] obeys [[Israel]].
 
 ### AF 2025-10-29 1588
 (00:54:00) Nicholas J. Fuentes told [[Josh Hammer]], [[Mark Levin]], [[Ben Shapiro]], and [[Laura Loomer]] to get on board with the [[United States|America]] First vision or leave the [[United States]] for [[Israel]].
@@ -4901,7 +4901,7 @@ Files cleaned: 95
 (00:14:20) Nicholas J. Fuentes claimed that critics of [[Palestine]] have advocated for population transfer, said there is no innocence among [[Palestine|Palestinian]] women and children, made fun of [[Aaron Bushnell]]'s self-immolation, and suggested [[Greta Thunberg]] should be shot with a missile.
 
 ### AF 2025-10-30 1589
-(00:15:35) Nicholas J. Fuentes stated that [[Donald Trump]]'s opponents were "never [[Donald Trump|Trump]]" in 2016 because he said "[[United States|America]] first," but now that [[Donald Trump]] took money from [[Sheldon Adelson|Miriam Adelson]], they hide behind him.
+(00:15:35) Nicholas J. Fuentes stated that [[Donald Trump]]'s opponents were "never [[Donald Trump|Trump]]" in 2016 because he said "[[United States|America]] first," but now that [[Donald Trump]] took money from [[Miriam Adelson]], they hide behind him.
 
 ### AF 2025-10-30 1589
 (00:21:22) Nicholas J. Fuentes claimed that if [[JD Vance]] condemns the "Groypers," his movement will deploy to early primary states like [[Iowa]], [[New Hampshire]], [[Nevada]], and [[South Carolina]] to challenge him at every event.
@@ -4910,7 +4910,7 @@ Files cleaned: 95
 (00:21:31) Nicholas J. Fuentes argued that [[JD Vance]] is being squeezed between "Groypers" demanding an [[United States|America]] First stance and donors from the [[Israel]] lobby who will defund him if he does not condemn them, with money potentially shifting to competitors like [[Marco Rubio]].
 
 ### AF 2025-10-30 1589
-(00:25:54) Nicholas J. Fuentes stated he refused to vote for [[Donald Trump]] in the last election because [[Donald Trump]] was no longer putting [[United States|America]] first, citing his acceptance of $100 million from [[Sheldon Adelson|Miriam Adelson]], endorsement by [[Nikki Haley]] in [[Israel]], promise to bomb [[Iran]], and plan to staple green cards to Indian diplomas.
+(00:25:54) Nicholas J. Fuentes stated he refused to vote for [[Donald Trump]] in the last election because [[Donald Trump]] was no longer putting [[United States|America]] first, citing his acceptance of $100 million from [[Miriam Adelson]], endorsement by [[Nikki Haley]] in [[Israel]], promise to bomb [[Iran]], and plan to staple green cards to Indian diplomas.
 
 ### AF 2025-10-30 1589
 (00:26:48) Nicholas J. Fuentes claimed [[Donald Trump]] appointed [[Mike Walz]] as [[U.S. National Security Council|National Security Advisor]], who was fired three months later for being on the phone with [[Benjamin Netanyahu]] daily and trying to push the [[United States]] into a war with [[Iran]].
@@ -4949,7 +4949,7 @@ Files cleaned: 95
 (00:38:06) Nicholas J. Fuentes accused [[Mark Levin]] and [[Josh Hammer]] of engaging in stochastic terrorism by stoking hatred and violence against him and [[Tucker Carlson]], hoping some extremist would kill them.
 
 ### AF 2025-10-30 1589
-(00:38:46) Nicholas J. Fuentes stated that the [[Heritage Foundation]] initially appeared to distance itself from [[Tucker Carlson]] by removing his name from their website, but [[Donald Trump|the president]] later released a video forcefully denying this and supporting [[Tucker Carlson]].
+(00:38:46) Nicholas J. Fuentes stated that the [[Heritage Foundation]] initially appeared to distance itself from [[Tucker Carlson]] by removing his name from their website, but [[the president]] later released a video forcefully denying this and supporting [[Tucker Carlson]].
 
 ### AF 2025-10-30 1589
 (00:39:18) [[The president]] of the [[Heritage Foundation]] stated that although he disagrees with and abhors some positions of Nicholas J. Fuentes, he does not believe in cancel culture and that differences should be debated.
@@ -5048,7 +5048,7 @@ Files cleaned: 95
 (01:09:13) Nicholas J. Fuentes asserted that the [[American Israel Public Affairs Committee|AIPAC]] and the [[Israel]] lobby maintain influence over [[U.S. Congress]] through bribery, intimidation, and blackmail, citing the need for politicians to "kiss the wall" in [[Jerusalem]].
 
 ### AF 2025-11-03 1590
-(01:09:14) Nicholas J. Fuentes stated that his interview with [[Tucker Carlson]] became the fourth most-viewed video on [[Tucker Carlson|Carlson]]'s channel, behind interviews with [[Vladimir Putin]], [[Donald Trump|the president]] of [[El Salvador]], and an exposé on the [[September 11 attacks]].
+(01:09:14) Nicholas J. Fuentes stated that his interview with [[Tucker Carlson]] became the fourth most-viewed video on [[Tucker Carlson|Carlson]]'s channel, behind interviews with [[Vladimir Putin]], [[the president]] of [[El Salvador]], and an exposé on the [[September 11 attacks]].
 
 ### AF 2025-11-03 1590
 (01:09:15) Nicholas J. Fuentes claimed that for ten years, [[Ben Shapiro]], [[Media Matters]], the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]] conducted a defamatory campaign that made him unemployable, got him banned from [[CPAC]], and turned his friends against him.
@@ -5324,7 +5324,7 @@ Files cleaned: 95
 (01:11:04:17) Nicholas J. Fuentes stated that [[Wall Street]] got its corporate tax cut and deregulation, and big agriculture got the [[Donald Trump|Trump]] administration to stop deporting illegal immigrant farmers and not take soda off food stamps.
 
 ### AF 2025-11-05 1592
-(01:12:15:97) Nicholas J. Fuentes listed major donors to [[Donald Trump]]'s campaign as [[Elon Musk]] ($270 million), [[Tim Mellon]] ($200 million), [[Sheldon Adelson|Miriam Adelson]] ($100 million), and [[Marc Andreessen]] ($65 million).
+(01:12:15:97) Nicholas J. Fuentes listed major donors to [[Donald Trump]]'s campaign as [[Elon Musk]] ($270 million), [[Tim Mellon]] ($200 million), [[Miriam Adelson]] ($100 million), and [[Marc Andreessen]] ($65 million).
 
 ### AF 2025-11-05 1592
 (01:13:01:51) Nicholas J. Fuentes claimed the [[Donald Trump|Trump]] administration is working overtime to fight anti-Semitism and [[Israel]]'s enemies, win the AI race, jack up the stock market, and cut corporate taxes, while cutting Medicaid to pay for corporate tax cuts and taking food stamps from 40 million people.
@@ -5393,7 +5393,7 @@ Files cleaned: 95
 (18:38:10) Nicholas J. Fuentes claimed [[Benjamin Netanyahu|Bibi]] was "living part [[time]] at the [[White House]] ordering [[us]] around," including demanding the [[United States]] "bomb [[Iran]] immediately."
 
 ### AF 2025-11-06 1593
-(21:26:21) Nicholas J. Fuentes stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Sheldon Adelson|Miriam Adelson]], and [[Mark Levin]] used their influence in [[Wall Street]], [[Silicon Valley]], and politics to benefit themselves and [[Israel]] at the expense of [[United States|Americans]].
+(21:26:21) Nicholas J. Fuentes stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Miriam Adelson]], and [[Mark Levin]] used their influence in [[Wall Street]], [[Silicon Valley]], and politics to benefit themselves and [[Israel]] at the expense of [[United States|Americans]].
 
 ### AF 2025-11-06 1593
 (28:13:13) Nicholas J. Fuentes described an incident where an [[Israel Defense Forces|IDF]] soldier yelled at [[Kevin Roberts]] at the [[Heritage Foundation]], leading Roberts to issue a video apology he characterized as a "hostage video."
@@ -5429,7 +5429,7 @@ Files cleaned: 95
 (00:48:40) [[Ben Shapiro]] led a campaign of criticism against Nicholas J. Fuentes, [[Tucker Carlson]], [[Candace Owens]], and [[Megyn Kelly]] for their positions on [[Israel]].
 
 ### AF 2025-11-10 1595
-(01:15:40) Nicholas J. Fuentes asserted that a [[Jewish]] oligarchy, including figures like [[Sheldon Adelson|Miriam Adelson]], [[Michael Bloomberg]], and [[George Soros]], controls major political donations, media, and universities in the [[United States]].
+(01:15:40) Nicholas J. Fuentes asserted that a [[Jewish]] oligarchy, including figures like [[Miriam Adelson]], [[Michael Bloomberg]], and [[George Soros]], controls major political donations, media, and universities in the [[United States]].
 
 ### AF 2025-11-10 1595
 (01:16:40) Nicholas J. Fuentes stated that [[Jewish]] billionaires frequently prioritize [[Israel]]'s interests over those of the [[United States]].
@@ -6932,10 +6932,10 @@ Files cleaned: 95
 (02:54:89) Nicholas J. Fuentes asserted that [[Charlie Kirk]] was likely being paid by [[Israel]] for producing propaganda denying starvation in [[Gaza Strip]].
 
 ### AF 2025-07-28 1540
-(03:03:92) Nicholas J. Fuentes stated that [[Donald Trump]]'s administration blackmailed [[Colombia]] and other [[Ivy League]] universities by withholding federal funds to force them to crack down on pro-[[Gaza Strip|Palestine]] protests and change curricula to be more pro-[[Israel]].
+(03:03:92) Nicholas J. Fuentes stated that [[Donald Trump]]'s administration blackmailed [[Colombia]] and other [[Ivy League]] universities by withholding federal funds to force them to crack down on pro-[[Palestine]] protests and change curricula to be more pro-[[Israel]].
 
 ### AF 2025-07-28 1540
-(03:05:10) Nicholas J. Fuentes noted that [[Bari Weiss]] and [[Costin Alamariu]] ([[Costin Alamariu|Bronze Age Pervert]]) were part of [[the David Project]] at [[Colombia]] in 2004-2005, campaigning to fire a pro-[[Gaza Strip|Palestine]] professor.
+(03:05:10) Nicholas J. Fuentes noted that [[Bari Weiss]] and [[Costin Alamariu]] ([[Costin Alamariu|Bronze Age Pervert]]) were part of [[the David Project]] at [[Colombia]] in 2004-2005, campaigning to fire a pro-[[Palestine]] professor.
 
 ### AF 2025-07-28 1540
 (03:06:16) Nicholas J. Fuentes connected the [[Columbia]] settlement to broader support for [[Donald Trump]] from figures like [[Bari Weiss]], [[Costin Alamariu]], and [[Joe Lonsdale]].
@@ -7199,7 +7199,7 @@ Files cleaned: 95
 (00:51:48) Nicholas J. Fuentes defined the core issue as "organized [[Jews|Jewry]]," a [[Jewish]] nation that transcends borders and uses organizations like [[American Israel Public Affairs Committee|AIPAC]] and the [[Anti-Defamation League]] to exercise influence worldwide at the expense of [[America]].
 
 ### AF 2025-07-25 1539
-(00:56:52) Nicholas J. Fuentes claimed that [[Israel]]'s long-term goal, accelerated by [[France]]'s recognition of [[Gaza Strip|Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating [[Hezbollah]], [[Iran]], and other enemies.
+(00:56:52) Nicholas J. Fuentes claimed that [[Israel]]'s long-term goal, accelerated by [[France]]'s recognition of [[Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating [[Hezbollah]], [[Iran]], and other enemies.
 
 ### AF 2025-07-25 1539
 (01:00:06) Nicholas J. Fuentes noted that both [[Tucker Carlson]] and [[Charlie Kirk]] have recently stated they love [[Israel]], support its right to exist, and have visited the [[country]], while pushing a "new path" of criticizing foreign aid.
@@ -7367,10 +7367,10 @@ Files cleaned: 95
 (01:15:37) The [[United States]] intervened in the Kosovo War, resulting in [[Kosovo]]'s independence as an Albanian-majority state.(01:29:50) Nicholas J. Fuentes stated his primary interest is [[America]] and that he is not a Gazan nationalist and does not advocate for a [[Palestinian]] state as a political cause.
 
 ### AF 2025-07-23 1537
-(01:30:23) Nicholas J. Fuentes characterized the events in [[Gaza Strip|Palestine]] as deeply evil and immoral, and stated he cares about the suffering of children being starved.
+(01:30:23) Nicholas J. Fuentes characterized the events in [[Palestine]] as deeply evil and immoral, and stated he cares about the suffering of children being starved.
 
 ### AF 2025-07-23 1537
-(01:30:45) Nicholas J. Fuentes stated he cares that the [[United States]] is involved in the conflict in [[Gaza Strip|Palestine]].
+(01:30:45) Nicholas J. Fuentes stated he cares that the [[United States]] is involved in the conflict in [[Palestine]].
 
 ### AF 2025-07-23 1537
 (01:31:46) Nicholas J. Fuentes argued that [[Adolf Hitler|Hitler]] should be judged according to his historical circumstances as a particular leader of [[Germany]], not as a universal moral devil.
@@ -7849,13 +7849,13 @@ Files cleaned: 95
 (01:20:00) [[Jewish]] advocacy groups used data reports to lobby U.S. Congress to ban [[TikTok]], threatening political consequences for those who opposed the bill.
 
 ### AF 2025-09-30 1574
-(01:15:27) The U.S. Congress decided that [[TikTok]] had to be sold to an [[American]] company or banned within months of the [[October 7th Attack]], citing concerns over pro-[[Gaza Strip|Palestine]] content on the platform.
+(01:15:27) The U.S. Congress decided that [[TikTok]] had to be sold to an [[American]] company or banned within months of the [[October 7th Attack]], citing concerns over pro-[[Palestine]] content on the platform.
 
 ### AF 2025-09-30 1574
 (38:27:97) The [[Anti-Defamation League|ADL]] and the [[JFNA|Jewish Federations of North America]] welcomed the U.S. Congress's move to ban [[TikTok]], citing its impact on the rise in anti-Semitism.
 
 ### AF 2025-10-02 1576
-(34:53:25) The [[U.S. government]] banned [[TikTok]], citing national security problems and anti-Semitism, forcing [[China]] to sell it to [[United States|America]], an act facilitated by Congress and [[Donald Trump|the president]].
+(34:53:25) The [[U.S. government]] banned [[TikTok]], citing national security problems and anti-Semitism, forcing [[China]] to sell it to [[United States|America]], an act facilitated by Congress and [[the president]].
 
 ### AF 2025-10-02 1576
 (50:53:41) [[Charlie Kirk]] begged [[Benjamin Netanyahu]] to assault [[United States|America]] with foreign propaganda, stating [[Israel]] was losing the information battle, leading pro-[[Israel]] allies in Congress to ban [[TikTok]].
@@ -8497,7 +8497,7 @@ Files cleaned: 95
 (01:15:00) [[Erica Mendel]] previously worked as a contractor for the U.S. Department of State's Special Envoy to Monitor and Combat Anti-Semitism.
 
 ### AF 2025-09-24 1570
-(00:24:10) [[Marco Rubio]], a pawn of the [[American Israel Public Affairs Committee|Israel lobby]], controls the U.S. Department of State and the [[U.S. National Security Council]], which synthesizes intelligence and provides military options to [[Donald Trump|the president]].
+(00:24:10) [[Marco Rubio]], a pawn of the [[American Israel Public Affairs Committee|Israel lobby]], controls the U.S. Department of State and the [[U.S. National Security Council]], which synthesizes intelligence and provides military options to [[the president]].
 
 ### AF 2025-09-24 1570
 (00:25:37) [[Jewish]] Zionists run major [[American]] institutions including the U.S. Department of State, the [[U.S. National Security Council]], [[BlackRock]], the [[World Economic Forum]], and [[Harvard University]].
@@ -8695,7 +8695,7 @@ Files cleaned: 95
 ## US National Security Council
 
 ### AF 2025-09-24 1570
-(00:24:10) [[Marco Rubio]], a pawn of the [[American Israel Public Affairs Committee|Israel lobby]], controls the [[U.S. Department of State]] and the U.S. National Security Council, which synthesizes intelligence and provides military options to [[Donald Trump|the president]].
+(00:24:10) [[Marco Rubio]], a pawn of the [[American Israel Public Affairs Committee|Israel lobby]], controls the [[U.S. Department of State]] and the U.S. National Security Council, which synthesizes intelligence and provides military options to [[the president]].
 
 ### AF 2025-09-24 1570
 (00:25:37) [[Jewish]] Zionists run major [[American]] institutions including the [[U.S. Department of State]], the U.S. National Security Council, [[BlackRock]], the [[World Economic Forum]], and [[Harvard University]].
@@ -8828,7 +8828,7 @@ Files cleaned: 95
 (06:26:74) [[Nicholas J. Fuentes]] stated that [[Kevin Roberts]] said [[Youram Hazony|Yoram Hazony]] was flying to DC to help him "get better."
 
 ### AF 2025-08-20 1552
-(00:45:40) [[Volodymyr Zelenskyy]] traveled to Washington D.C. accompanied by the heads of state of major [[Europe|European]] [[NATO]] allies, including [[Donald Trump|the president]] of [[France]], the prime minister of the [[United Kingdom]], the prime minister of [[Italian Republic|Italy]], [[Donald Trump|the president]] of [[Finland]], the head of the [[European Commission]], and the general secretary of [[NATO]].
+(00:45:40) [[Volodymyr Zelenskyy]] traveled to Washington D.C. accompanied by the heads of state of major [[Europe|European]] [[NATO]] allies, including [[the president]] of [[France]], the prime minister of the [[United Kingdom]], the prime minister of [[Italian Republic|Italy]], [[the president]] of [[Finland]], the head of the [[European Commission]], and the general secretary of [[NATO]].
 
 ### AF 2025-08-14 1550
 (00:05:21) [[Nicholas J. Fuentes]] participated in a discussion with [[Alex Jones]] the previous day, which he characterized as a friendly conversation rather than a debate, covering the [[Donald Trump]] administration and the takeover of Washington D.C..
@@ -8865,7 +8865,7 @@ Files cleaned: 95
 (32:04:75) U.S. military support for [[Israel]] is conditioned upon U.S. political support, which in turn depends on [[American]] public opinion, making that opinion a national security concern for [[Israel]].
 
 ### AF 2025-10-02 1576
-(34:53:25) The U.S. government banned [[TikTok]], citing national security problems and anti-Semitism, forcing [[China]] to sell it to [[United States|America]], an act facilitated by [[Congress]] and [[Donald Trump|the president]].
+(34:53:25) The U.S. government banned [[TikTok]], citing national security problems and anti-Semitism, forcing [[China]] to sell it to [[United States|America]], an act facilitated by [[Congress]] and [[the president]].
 
 ---
 

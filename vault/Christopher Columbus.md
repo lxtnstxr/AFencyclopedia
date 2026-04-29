@@ -27,10 +27,10 @@
 (01:39:21) [[Nicholas J. Fuentes]] declared [[Italian Republic|Italians]] "the greatest people that ever existed" in response to a question about Christopher Columbus being buried in [[Spain]].
 
 ### AF 2020-07-24 0648
-(00:01:00) Two Christopher Columbus statues in [[City of Chicago|Chicago]] were removed overnight, an action [[Nicholas J. Fuentes]] connected to the recent removal of Confederate names from military bases.
+(00:01:00) Two Christopher Columbus statues in [[Chicago]] were removed overnight, an action [[Nicholas J. Fuentes]] connected to the recent removal of Confederate names from military bases.
 
 ### AF 2020-07-24 0648
-(00:44:48) [[Nicholas J. Fuentes]] reported that [[City of Chicago|Chicago]] Mayor [[Lori Lightfoot]] ordered the removal of two Christopher Columbus statues, one in Grant Park and another in Little [[Italian Republic|Italy]], at 3 a.m. under the cover of darkness to de-escalate tensions.
+(00:44:48) [[Nicholas J. Fuentes]] reported that [[Chicago]] Mayor [[Lori Lightfoot]] ordered the removal of two Christopher Columbus statues, one in Grant Park and another in Little [[Italian Republic|Italy]], at 3 a.m. under the cover of darkness to de-escalate tensions.
 
 ### AF 2020-07-24 0648
 (00:49:34) [[Nicholas J. Fuentes]] stated that Christopher Columbus statues were erected in the last century as a cultural celebration for Italian immigrants in industrial cities, making their removal a direct attack on Italian [[heritage]].
@@ -39,7 +39,7 @@
 (00:50:09) [[Nicholas J. Fuentes]] defended the Christopher Columbus statues, not as a sanitized historical artifact, but as a celebration of [[Europe|European]] civilization bringing [[Jesus Christ|Christ]] and conquest to the continent, which he considered good and necessary history.
 
 ### AF 2020-07-24 0648
-(00:52:56) [[Nicholas J. Fuentes]] linked the creation of [[City of Chicago|Chicago]]'s skyline, the reversed [[City of Chicago|Chicago]] River, and the Columbian Exposition to Christopher Columbus's arrival, arguing that all of it would be impossible without the [[Europe|European]] colonization he initiated.
+(00:52:56) [[Nicholas J. Fuentes]] linked the creation of [[Chicago]]'s skyline, the reversed [[Chicago]] River, and the Columbian Exposition to Christopher Columbus's arrival, arguing that all of it would be impossible without the [[Europe|European]] colonization he initiated.
 
 ### AF 2020-07-24 0648
 (01:01:01) [[Nicholas J. Fuentes]] asserted that activists tearing down the Christopher Columbus statue were resisting "[[Europe|European]] colonists," seeing themselves as part of an indigenous coalition of Africans, [[United States|Americans]], and Asians against [[Europe|European]] primacy.

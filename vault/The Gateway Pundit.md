@@ -39,7 +39,7 @@
 (00:01:17) The [[White House]] hosted a social media summit featuring conservative figures including [[Benny Johnson]], [[Charlie Kirk]], and [[Jim Hoft]] of Gateway Pundit to discuss alleged bias against conservatives by companies like [[Facebook]], [[Google]], and [[Twitter]].
 
 ### AF 2018-11-14 0282
-(00:35:40) [[Jim Hoft]] of The Gateway Pundit regularly featured [[Cassandra Fairbanks]] on his live streams and in his publication, and [[Steven Crowder|Steve Bannon]] granted an interview to [[Mike Cernovich]].
+(00:35:40) [[Jim Hoft]] of The Gateway Pundit regularly featured [[Cassandra Fairbanks]] on his live streams and in his publication, and [[Steve Bannon]] granted an interview to [[Mike Cernovich]].
 
 ### AF 2018-08-14 0219
 (00:06:12) [[Nicholas J. Fuentes]] reported that [[Lucian Wintrich]] was no longer working for The Gateway Pundit after appearing on his show, with figures like [[Jared Holt]] claiming the appearance led to his firing.

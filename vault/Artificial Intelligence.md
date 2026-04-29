@@ -17,3 +17,24 @@
 
 ### AF 2024-08-12 1372
 (00:59:57) [[Elon Musk]] pointed out that AI requires twice the energy the [[United States]] currently produces for everything, necessitating a massive build-out of energy infrastructure to compete with [[China]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(01:18:14) [[Palantir Technologies|Palantir]] operates as an AI data analytics company.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(01:24:53) [[Nicholas J. Fuentes]] warned that without internet freedom in the age of AI, individuals risk constant mental manipulation.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(01:25:26) AI can acquire comprehensive personal data, including relationships, preferences, habits, routines, sleep patterns, heart rate, and calorie consumption.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:28:49) [[Nicholas J. Fuentes]] argued that the number one national security threat is getting what he called "these [[Jews]]" out of AI (Artificial Intelligence), claiming that [[United States|American]] AI is run by [[Sam Altman]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:20:19) Artificial Intelligence and [[Robotics]] are expected to replace both white-collar and blue-collar work, leading to large-scale unemployment.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:34:03) [[Nicholas J. Fuentes]] argued that a new prompt on [[Grok]], the xAI AI, claiming to show how "censored" a user is, is fake and not how an LLM works.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(00:20:37) [[Nicholas J. Fuentes]] argued that if the [[United States]] lacks freedom on the internet in the age of AI, its population will be "mind-raped" by a surveillance system.

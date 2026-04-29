@@ -12,7 +12,7 @@
 (02:32:08) [[Nicholas J. Fuentes]] stated he has no strong feelings about David Duke's support for him and does not know him, while acknowledging people often call him "the new David Duke."
 
 ### AF 2023-11-02 1242
-(00:24:27) An organizer of the [[City of Charlottesville|Charlottesville rally]] approached [[Nicholas J. Fuentes]] in April or May 2017 to speak, but he declined after seeing the speaker list included [[Mike Cernovich|Mike Enoch]], [[Chris Cantwell]], and David Duke.
+(00:24:27) An organizer of the [[Charlottesville rally]] approached [[Nicholas J. Fuentes]] in April or May 2017 to speak, but he declined after seeing the speaker list included [[Mike Cernovich|Mike Enoch]], [[Chris Cantwell]], and David Duke.
 
 ### AF 2023-05-26 1167
 (12:43:16) [[Nicholas J. Fuentes]] listed [[Henry Ford]], David Duke, the [[Ayatollah Ali Khamenei|Ayatollah]] of [[Iran]], [[Osama bin Laden]], [[Martin Luther King Jr.|King]] Edward in the 13th century, and [[Fyodor Dostoevsky]] as figures who gave similar reasons for anti-[[Jewish]] sentiment.
@@ -42,7 +42,7 @@
 (00:30:11) [[Cenk Uygur]] has argued that bestiality should be legal and hosted white supremacist figures including David Duke on his show.
 
 ### AF 2019-08-12 0438
-(01:20:24) David Duke, [[Mike Cernovich|Mike Enoch]], and [[Richard Spencer]] were listed as speakers for the [[City of Charlottesville|Charlottesville]] rally, which initially dissuaded [[Nicholas J. Fuentes]] from agreeing to attend or speak.
+(01:20:24) David Duke, [[Mike Cernovich|Mike Enoch]], and [[Richard Spencer]] were listed as speakers for the [[Charlottesville]] rally, which initially dissuaded [[Nicholas J. Fuentes]] from agreeing to attend or speak.
 
 ### AF 2019-05-30 0397
 (02:20:580) The article by [[Luke O'Brien]] listed individuals including [[Richard Spencer]], David Duke, and [[Mike Cernovich|Michael Enoch]].
@@ -126,4 +126,4 @@
 (49:43:48) [[Nicholas J. Fuentes]] stated he and David Duke were mutuals on [[Twitter]] and considered him a meme, similar to how [[Samuel J. Hyde|Sam Hyde]] used him, but asserted Duke was not viable for their political movement.
 
 ### AF 2017-10-12 0030
-(18:12:15) [[Nicholas J. Fuentes]] reported that [[Wilt Chamberlain|Will Chamberlain]] told [[James Allsup]] he would only proceed with a debate if Allsup disavowed [[Richard Spencer]], David Duke, antisemitism, and the [[City of Charlottesville|Charlottesville]] rally.
+(18:12:15) [[Nicholas J. Fuentes]] reported that [[Wilt Chamberlain|Will Chamberlain]] told [[James Allsup]] he would only proceed with a debate if Allsup disavowed [[Richard Spencer]], David Duke, antisemitism, and the [[Charlottesville]] rally.

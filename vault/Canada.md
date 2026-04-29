@@ -2,7 +2,7 @@
 #country
 
 ### AF 2025-09-09 1563
-(08:08:00) [[France]], the [[United Kingdom]], Canada, [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Gaza Strip|Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
+(08:08:00) [[France]], the [[United Kingdom]], Canada, [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
 
 ### AF 2025-09-25 1571
 (00:47:57) At the [[United Nations]] General Assembly earlier in the week, [[France]] led a wave of recognition of [[Palestinian]] statehood, joined by Canada, the [[United Kingdom]], [[Australia]], and other countries.
@@ -10,7 +10,7 @@
 (01:07:06:79) At the [[United Nations]] last week, ten countries, including [[France]], the [[United Kingdom]], Canada, and [[Australia]], followed through and recognized a [[Palestinian]] state.
 
 ### AF 2025-09-26 1572
-(00:04:49) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu]]'s speech directly addressed efforts by [[France]], the [[United Kingdom]], Canada, and other countries to recognize [[Gaza Strip|Palestine]].
+(00:04:49) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu]]'s speech directly addressed efforts by [[France]], the [[United Kingdom]], Canada, and other countries to recognize [[Palestine]].
 
 ### AF 2025-10-23 1585
 (01:05:35) [[Nicholas J. Fuentes]] supported the idea of [[Donald Trump|Trump]] annexing Canada and [[Greenland]] and, in principle, overturning regimes in the [[Western Hemisphere]].
@@ -31,11 +31,11 @@
 
 
 ### AF 2025-08-05 1545
-(02:46:66) [[France]], the [[United Kingdom]], and Canada moved to recognize [[Gaza Strip|Palestine]] at the next month's [[United Nations]] General Assembly, accelerating the timeline for a two-state solution.
+(02:46:66) [[France]], the [[United Kingdom]], and Canada moved to recognize [[Palestine]] at the next month's [[United Nations]] General Assembly, accelerating the timeline for a two-state solution.
 
 
 ### AF 2025-08-05 1545
-(46:57:37) [[France]], the [[United Kingdom]], and Canada's move to recognize [[Gaza Strip|Palestine]] was meant to impose a diplomatic red line and heap consequences on [[Israel]] if it followed through with annexation plans.
+(46:57:37) [[France]], the [[United Kingdom]], and Canada's move to recognize [[Palestine]] was meant to impose a diplomatic red line and heap consequences on [[Israel]] if it followed through with annexation plans.
 
 
 ### AF 2025-07-31 1542
@@ -43,7 +43,7 @@
 
 
 ### AF 2025-07-31 1542
-(00:02:30) In response to Canada's announcement on [[Gaza Strip|Palestine]], [[Donald Trump]] stated on Truth Social that it would be very hard to reach a trade deal with Canada and subsequently increased tariffs on Canadian goods by 10%.
+(00:02:30) In response to Canada's announcement on [[Palestine]], [[Donald Trump]] stated on Truth Social that it would be very hard to reach a trade deal with Canada and subsequently increased tariffs on Canadian goods by 10%.
 
 
 ### AF 2025-07-31 1542
@@ -51,7 +51,7 @@
 
 
 ### AF 2025-07-31 1542
-(00:34:45) [[Donald Trump]] linked the ongoing [[US]]-Canada trade negotiations, with a deadline of August 2nd, to Canada's stance on [[Gaza Strip|Palestine]], stating the recognition made a deal "very hard" and announcing a 10% tariff increase.
+(00:34:45) [[Donald Trump]] linked the ongoing [[US]]-Canada trade negotiations, with a deadline of August 2nd, to Canada's stance on [[Palestine]], stating the recognition made a deal "very hard" and announcing a 10% tariff increase.
 
 
 ### AF 2025-07-23 1537

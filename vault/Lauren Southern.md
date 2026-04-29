@@ -168,7 +168,7 @@
 (01:09:24) [[Nicholas J. Fuentes]] announced a live stream scheduled for the following day at 7:00 PM Central [[Time]] on [[Cozy.tv]], featuring himself, Lauren Southern, and [[Destiny]].
 
 ### AF 2022-08-09 1043
-(05:07:84) [[Nicholas J. Fuentes]] scheduled a stream for Thursday at 7 PM Central [[Time]] with Lauren Southern and [[Destiny|Destiny]], marking the first [[time]] the trio would chat together in several years.
+(05:07:84) [[Nicholas J. Fuentes]] scheduled a stream for Thursday at 7 PM Central [[Time]] with Lauren Southern and [[Destiny]], marking the first [[time]] the trio would chat together in several years.
 
 ### AF 2022-08-08 1042
 (03:03:00) [[Nicholas J. Fuentes]] announced he would be doing a joint stream on Thursday evening with Lauren Southern and [[Destiny]] to discuss topics from their previous debate.
@@ -210,7 +210,7 @@
 (05:07:76) [[Nicholas J. Fuentes]] referenced a clip where [[Destiny|Stephen Bonnell]] ([[Destiny]]), while walking with Lauren Southern during an IRL stream wearing a [[MAGA]] hat, said he felt like [[Nicholas J. Fuentes]], to which Lauren Southern reportedly stopped laughing and fell silent.
 
 ### AF 2022-03-18 0960
-(01:12:04) [[Nicholas J. Fuentes]] referenced a clip where [[Destiny|Destiny]], wearing a [[MAGA]] hat during an IRL stream with Lauren Southern, said he felt like [[Nicholas J. Fuentes]], to which Lauren Southern reportedly stopped laughing and shut down.
+(01:12:04) [[Nicholas J. Fuentes]] referenced a clip where [[Destiny]], wearing a [[MAGA]] hat during an IRL stream with Lauren Southern, said he felt like [[Nicholas J. Fuentes]], to which Lauren Southern reportedly stopped laughing and shut down.
 
 ### AF 2021-03-26 0781
 (01:39:00) Lauren Southern, once [[known]] for anti-immigrant activism, later rebranded herself as a centrist documentarian, a pattern [[Nicholas J. Fuentes]] cites as emblematic of unreliable women in right-wing movements.
@@ -306,10 +306,10 @@
 (01:38:48) [[Nicholas J. Fuentes]] criticized Lauren Southern not for her past relationships but for publicly rationalizing and justifying behavior that contradicted the traditional values she promoted to her audience.
 
 ### AF 2018-05-07 0159
-(02:52:48) [[Nicholas J. Fuentes]] planned to discuss the "Day for Freedom" or "Free Speech Day" event in [[City of London|London]] featuring [[Milo Yiannopoulos]], Lauren Southern, and [[Tommy Robinson]].
+(02:52:48) [[Nicholas J. Fuentes]] planned to discuss the "Day for Freedom" or "Free Speech Day" event in [[London]] featuring [[Milo Yiannopoulos]], Lauren Southern, and [[Tommy Robinson]].
 
 ### AF 2018-05-07 0159
-(32:34:20) The "Day for Freedom" free speech rally in [[City of London|London]] drew about 4,000 people and was organized in response to figures like Lauren Southern, [[Martin Sellner]], and [[Brittany Pettibone]] being barred from the [[United Kingdom]].
+(32:34:20) The "Day for Freedom" free speech rally in [[London]] drew about 4,000 people and was organized in response to figures like Lauren Southern, [[Martin Sellner]], and [[Brittany Pettibone]] being barred from the [[United Kingdom]].
 
 ### AF 2018-05-07 0159
 (38:56:48) [[Nicholas J. Fuentes]] criticized the rally's lineup, which included a drag queen, [[Raheem Kassam]] from [[Breitbart News|Breitbart]], [[Milo Yiannopoulos]], and Lauren Southern, calling it a "parade of freaks" and a "leftist circus."
@@ -360,7 +360,7 @@
 (01:12:30) [[Nicholas J. Fuentes]] addressed the controversy surrounding Lauren Southern, stating he does not control other personalities and that his principles of traditionalism are separate from her actions.
 
 ### AF 2017-12-05 0064
-(01:53:50) [[Nicholas J. Fuentes]] said he did not believe Lauren Southern was a hardline traditionalist, suggesting unrealistic expectations led to criticism of her, similar to when [[Steven Crowder|Steve Bannon]] disavowed the alt-right.
+(01:53:50) [[Nicholas J. Fuentes]] said he did not believe Lauren Southern was a hardline traditionalist, suggesting unrealistic expectations led to criticism of her, similar to when [[Steve Bannon]] disavowed the alt-right.
 
 ### AF 2017-11-27 0058
 (01:45:00) [[Nicholas J. Fuentes]] referenced a video by Lauren Southern showing [[Bangladeshi]] [[Islam|Muslims]] [[who]] believed passports made them [[United Kingdom|British]], which he found disturbing.

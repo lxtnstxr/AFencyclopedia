@@ -6,7 +6,7 @@
 
 
 ### AF 2019-11-15 0500
-(01:49:39) [[Nicholas J. Fuentes]] recalled that a supporter joined him in [[City of Miami|Miami]] and confronted [[Charlie Kirk]] at the University of Florida in the name of [[United States|America]] First.
+(01:49:39) [[Nicholas J. Fuentes]] recalled that a supporter joined him in [[Miami]] and confronted [[Charlie Kirk]] at the University of Florida in the name of [[United States|America]] First.
 
 ### AF 2019-11-13 0498
 (00:51:00) [[Charlie Kirk]] held a "Prove Me Wrong" event at the University of Florida the previous night, where attendees questioned his support for [[Israel]] and his [[organization]]'s stance on homosexuality.

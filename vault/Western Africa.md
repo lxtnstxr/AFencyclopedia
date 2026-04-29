@@ -10,3 +10,6 @@
 
 ### AF 2024-08-13 1373
 (00:22:09) [[Nicholas J. Fuentes]] noted that by the end of [[Donald Trump]]'s first term, the [[United States]] remained involved in wars in [[Syria]], [[Afghanistan]], [[Iraq]], West Africa, [[Germany]], [[Europe]], and [[East Asia]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:16:30:00) [[Jeffrey Epstein]] and [[Ehud Barak]] worked together on arms contracts, surveillance contracts, and intelligence contracts to foreign governments and to [[San Francisco Bay Area|Silicon Valley]], including deals with [[Palantir Technologies|Palantir]] and in West Africa.

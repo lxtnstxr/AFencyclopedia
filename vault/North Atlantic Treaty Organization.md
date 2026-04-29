@@ -36,7 +36,7 @@
 (01:20:34) [[Nicholas J. Fuentes]] argued that the [[Ukraine]] war was avoidable and resulted from NATO expansion, contradicting figures like [[Ben Shapiro]] who claim [[Vladimir Putin|Putin]]'s land hunger was the sole cause.
 
 ### AF 2024-02-10 1290
-(00:27:00) [[Nicholas J. Fuentes]] argued that the real reason [[Russia]] invaded [[Ukraine]] was the prospect of [[Ukraine]] joining NATO and the [[Europe|European Union]], not the 1,000-year historical narrative [[Vladimir Putin]] presented.
+(00:27:00) [[Nicholas J. Fuentes]] argued that the real reason [[Russia]] invaded [[Ukraine]] was the prospect of [[Ukraine]] joining NATO and the [[European Union]], not the 1,000-year historical narrative [[Vladimir Putin]] presented.
 
 ### AF 2024-02-10 1290
 (00:28:00) [[Nicholas J. Fuentes]] stated that the war in [[Ukraine]] was motivated by contemporary domestic security concerns, specifically preventing NATO military bases and intermediate-range missiles from being deployed unacceptably close to [[Russia]].
@@ -54,10 +54,10 @@
 (00:36:46) Critics of the official [[September 11 attacks|September 11]] narrative point to the failure of NORAD to scramble fighter jets to intercept the hijacked planes as a point of contention.
 
 ### AF 2023-08-09 1199
-(00:19:34) [[Russia]]'s involvement in [[Niger]] is part of a broader geopolitical struggle against [[Government of France|France]] and NATO, centered on control of resources like uranium and a gas pipeline from [[Nigeria]] through [[Niger]] to [[Algeria]].
+(00:19:34) [[Russia]]'s involvement in [[Niger]] is part of a broader geopolitical struggle against [[France]] and NATO, centered on control of resources like uranium and a gas pipeline from [[Nigeria]] through [[Niger]] to [[Algeria]].
 
 ### AF 2023-07-22 1190
-(05:04:76) The [[United States]] approved sending cluster munitions to [[Ukraine]] for use in its war against [[Russia]], a move criticized by over 100 countries and some NATO allies like [[Government of France|France]] and the [[United Kingdom]]. (05:45:58)
+(05:04:76) The [[United States]] approved sending cluster munitions to [[Ukraine]] for use in its war against [[Russia]], a move criticized by over 100 countries and some NATO allies like [[France]] and the [[United Kingdom]]. (05:45:58)
 
 ### AF 2023-07-22 1190
 (08:06:48) [[Vladimir Putin]] stated that [[Russia]]'s military objectives in [[Ukraine]] were to demilitarize the [[country]], prevent it from joining NATO, protect ethnic [[Russians]], secure [[Crimea]] and the [[Donbas]], and denazify the [[Ukrainian state]]. (08:28:16)
@@ -72,13 +72,13 @@
 (36:00:00) [[Nicholas J. Fuentes]] assessed that the war in [[Ukraine]] has reached a stalemate, with [[Russia]] likely to retain annexed territories and [[Ukraine]] never joining NATO, making the day-to-day military developments less significant than the diplomatic repercussions.
 
 ### AF 2023-05-11 1160
-(00:26:08) [[Rashida Tlaib]] planned to host an event at the [[United States Capitol]] Visitor Center to commemorate the Nakba, the [[Palestinian]] term for the 1948 founding of [[Israel]] which translates to "catastrophe." (00:45:58) [[Mike Johnson|Kevin McCarthy]] canceled the event hosted by [[Rashida Tlaib]] and instead reserved the space to host a bipartisan discussion honoring the 75th anniversary of the [[United States]]-[[Israel]] relationship. (00:57:44) [[Mike Johnson|Kevin McCarthy]] decried [[Rashida Tlaib]]'s planned Nakba commemoration as anti-Semitic. (01:13:40) The [[Europe|European Union]]'s foreign policy chief stated that the war in [[Ukraine]] would end within days if [[United States]] military aid stopped. (01:13:40) The [[Europe|European Union]]'s foreign policy chief argued that without NATO and [[United States]] support, [[Ukraine]] would have to surrender to [[Russia]]. (01:22:02) [[Mike Johnson|Kevin McCarthy]], before the 2022 midterm elections, promised that a [[Republican Party|Republican]] [[House]] majority would not write a "blank check" for aid to [[Ukraine]]. (01:23:05) [[Mike Johnson|Kevin McCarthy]] became [[Mike Johnson|Speaker of the House]] in January 2023 after a battle over the speakership. (01:24:29) [[Mike Johnson|Kevin McCarthy]], speaking at a press conference in [[Jerusalem]], delivered a full-throated defense of [[United States]] aid to [[Ukraine]] and stated, "I support aid for [[Ukraine]]." (01:26:08) [[Mike Johnson|Kevin McCarthy]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] spoke by phone for the first [[time]] in April 2023. (01:32:32) [[Mike Johnson|Kevin McCarthy]] made a promise to release 40,000 to 45,000 hours of security footage from the [[United States Capitol]] on [[January 6th Attack|January 6th]] as a term of becoming Speaker. (01:33:02) [[Tucker Carlson]] aired a limited portion of the [[January 6th Attack|January 6th]] [[United States Capitol]] security footage. (01:33:09) [[Marjorie Taylor Greene]] helped broker the deal for [[Mike Johnson|Kevin McCarthy]] to become Speaker and later questioned on [[Twitter]] why the full [[January 6th Attack|January 6th]] footage had not been released. (01:38:36) [[Marjorie Taylor Greene]] was the first to strike a deal with [[Mike Johnson|Kevin McCarthy]] and dissuade the [[MAGA]] coalition in [[Congress]] from resisting his speakership. (02:20:42) [[Nicholas J. Fuentes]] stated he would vote for [[Donald Trump]], [[Kanye West|Ye]], [[Matt Gaetz]], and [[Paul Gosar]], but not for other [[Republican Party|Republican]] candidates. (02:23:44) [[Nicholas J. Fuentes]] argued that [[Israel]]'s founding in 1948 involved driving millions of [[Palestinians]] from their homes, with many massacres and destruction of villages. (02:48:24) [[Nicholas J. Fuentes]] characterized [[Rashida Tlaib]] as an Arab [[Islam|Muslim]] [[Democratic Party|Democrat]] and hardcore progressive who is anti-[[Israel]] because of its treatment of [[Palestinians]]. (02:59:54) [[Nicholas J. Fuentes]] characterized [[Mike Johnson|Kevin McCarthy]] as a white leader of the [[Republican Party]] who is pro-[[Israel]] and compromised by it. (03:14:38) [[Nicholas J. Fuentes]] stated that the [[Labor Party|Likud]] government under [[Benjamin Netanyahu|Netanyahu]] is right-wing, forming a basis for ideological affinity with [[United States|American]] conservatives. (03:47:04) [[Nicholas J. Fuentes]] positioned himself against the [[United States]] relationship with [[Israel]] but not on the side of progressive, anti-colonial [[Palestinian]] supporters. (04:12:26) [[Nicholas J. Fuentes]] argued that [[United States]] military aid, totaling nearly $200 billion, is the sole reason the war in [[Ukraine]] continues, preventing [[Russia]]'s victory. (04:14:74) [[Nicholas J. Fuentes]] claimed the [[Washington D.C.|Washington]] national security apparatus made a decision around May 2022 to provide unconditional support to [[Ukraine]], preventing the war's end. (04:46:58) [[Nicholas J. Fuentes]] stated that [[Mike Johnson|Kevin McCarthy]]'s promise of no "blank check" for [[Ukraine]] was broken, as aid continues unabated under his speakership. (05:09:12) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] risks a direct [[United States]]-[[Russia]] nuclear confrontation due to [[United States|American]] personnel and equipment involvement. (05:30:54) [[Nicholas J. Fuentes]] cited [[Mike Johnson|Kevin McCarthy]]'s reversal on [[Ukraine]] aid and failure to release [[January 6th Attack|January 6th]] footage as examples of broken promises to the [[Republican Party|Republican]] base. (06:42:46) [[Nicholas J. Fuentes]] referenced a mass shooting in [[State of Texas|Texas]] by a Mexican gunman, which media figures incorrectly linked to white supremacy by citing [[Nicholas J. Fuentes]] as an example of a Mexican white supremacist. (07:48:00) The [[State of Texas|Texas]] mall shooter mentioned [[Nicholas J. Fuentes]] by name in his journal, writing "What's going to happen when you have dozens, hundreds, or thousands of [[Nick]] Fuenteses running around?" (07:50:86) The [[State of Texas|Texas]] mall shooter's journal expressed hatred for white people and other Latino groups like [[Cubans]] and [[Puerto Rico|Puerto Ricans]]. (08:56:48) [[Nicholas J. Fuentes]] referenced the 2019 [[El Paso]] Walmart shooting, where the shooter's connection to an online manifesto was never firmly established. (09:12:90) [[Destiny]], a streamer, previously argued [[Nicholas J. Fuentes]] was not a Nazi but later stated a Mexican could be a Nazi like [[Nicholas J. Fuentes]] during coverage of the [[State of Texas|Texas]] shooting. (10:53:66) [[Nicholas J. Fuentes]] accused "liberal [[Jews|Jew]] types" of insinuating he was similar to the [[State of Texas|Texas]] mall shooter who mentioned him disparagingly. (12:44:54) [[Nicholas J. Fuentes]] claimed [[George Soros]] funds open society foundations to promote a global, multicultural world that benefits [[Jews|Jewish people]]. (13:00:42) [[Nicholas J. Fuentes]] argued that [[Jews]], having a historic animosity towards [[Europe|Europeans]] and [[Christianity]], benefit from and promote multiculturalism to avoid being identified as aliens in homogeneous societies. (13:48:18) [[Nicholas J. Fuentes]] stated that [[Jews]] comprised 1% of [[Gaza Strip|Palestine]]'s population at the turn of the 20th century and became a majority through settlement in the first half of the century. (14:13:50) [[Nicholas J. Fuentes]] characterized the political "squad"—including [[Rashida Tlaib]], [[Ilhan Omar]], and [[Alexandria Ocasio-Cortez (AOC)]]—as a brown, anti-colonial, Marxist new left that hates the historic [[United States|American]] nation. (14:30:68) [[Nicholas J. Fuentes]] stated that [[Alexandria Ocasio-Cortez (AOC)]] has [[Jewish]] ancestry, which he described as typical of new left leadership. (14:54:04) [[Nicholas J. Fuentes]] cited thinkers like [[Youram Hazony|Yoram Hazony]] and [[Costin Alamariu|Kostin Al-Amar]] for articulating a nationalist, pro-[[Israel]] ideology that positions [[Israel]] as a natural ally of Western nations against third-worldism. (15:31:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and [[Europe]] are bound by [[Christianity]], not a superficial "Western" or "Judeo-[[Christianity|Christian]]" identity constructed to include [[Israel]]. (16:02:42) [[Nicholas J. Fuentes]] proposed that the [[Holy Land]] should be administered by [[Christianity|Christians]] instead of [[Jews]] or [[Islam|Muslims]], restoring the [[Christianity|Christian]] control that existed prior to [[Islam|Muslim]] and [[Jewish]] rule.
+(00:26:08) [[Rashida Tlaib]] planned to host an event at the [[United States Capitol]] Visitor Center to commemorate the Nakba, the [[Palestinian]] term for the 1948 founding of [[Israel]] which translates to "catastrophe." (00:45:58) [[Kevin McCarthy]] canceled the event hosted by [[Rashida Tlaib]] and instead reserved the space to host a bipartisan discussion honoring the 75th anniversary of the [[United States]]-[[Israel]] relationship. (00:57:44) [[Kevin McCarthy]] decried [[Rashida Tlaib]]'s planned Nakba commemoration as anti-Semitic. (01:13:40) The [[European Union]]'s foreign policy chief stated that the war in [[Ukraine]] would end within days if [[United States]] military aid stopped. (01:13:40) The [[European Union]]'s foreign policy chief argued that without NATO and [[United States]] support, [[Ukraine]] would have to surrender to [[Russia]]. (01:22:02) [[Kevin McCarthy]], before the 2022 midterm elections, promised that a [[Republican Party|Republican]] [[House]] majority would not write a "blank check" for aid to [[Ukraine]]. (01:23:05) [[Kevin McCarthy]] became [[Mike Johnson|Speaker of the House]] in January 2023 after a battle over the speakership. (01:24:29) [[Kevin McCarthy]], speaking at a press conference in [[Jerusalem]], delivered a full-throated defense of [[United States]] aid to [[Ukraine]] and stated, "I support aid for [[Ukraine]]." (01:26:08) [[Kevin McCarthy]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] spoke by phone for the first [[time]] in April 2023. (01:32:32) [[Kevin McCarthy]] made a promise to release 40,000 to 45,000 hours of security footage from the [[United States Capitol]] on [[January 6th Attack|January 6th]] as a term of becoming Speaker. (01:33:02) [[Tucker Carlson]] aired a limited portion of the [[January 6th Attack|January 6th]] [[United States Capitol]] security footage. (01:33:09) [[Marjorie Taylor Greene]] helped broker the deal for [[Kevin McCarthy]] to become Speaker and later questioned on [[Twitter]] why the full [[January 6th Attack|January 6th]] footage had not been released. (01:38:36) [[Marjorie Taylor Greene]] was the first to strike a deal with [[Kevin McCarthy]] and dissuade the [[MAGA]] coalition in [[Congress]] from resisting his speakership. (02:20:42) [[Nicholas J. Fuentes]] stated he would vote for [[Donald Trump]], [[Kanye West|Ye]], [[Matt Gaetz]], and [[Paul Gosar]], but not for other [[Republican Party|Republican]] candidates. (02:23:44) [[Nicholas J. Fuentes]] argued that [[Israel]]'s founding in 1948 involved driving millions of [[Palestinians]] from their homes, with many massacres and destruction of villages. (02:48:24) [[Nicholas J. Fuentes]] characterized [[Rashida Tlaib]] as an Arab [[Islam|Muslim]] [[Democratic Party|Democrat]] and hardcore progressive who is anti-[[Israel]] because of its treatment of [[Palestinians]]. (02:59:54) [[Nicholas J. Fuentes]] characterized [[Kevin McCarthy]] as a white leader of the [[Republican Party]] who is pro-[[Israel]] and compromised by it. (03:14:38) [[Nicholas J. Fuentes]] stated that the [[Likud]] government under [[Benjamin Netanyahu|Netanyahu]] is right-wing, forming a basis for ideological affinity with [[United States|American]] conservatives. (03:47:04) [[Nicholas J. Fuentes]] positioned himself against the [[United States]] relationship with [[Israel]] but not on the side of progressive, anti-colonial [[Palestinian]] supporters. (04:12:26) [[Nicholas J. Fuentes]] argued that [[United States]] military aid, totaling nearly $200 billion, is the sole reason the war in [[Ukraine]] continues, preventing [[Russia]]'s victory. (04:14:74) [[Nicholas J. Fuentes]] claimed the [[Washington D.C.|Washington]] national security apparatus made a decision around May 2022 to provide unconditional support to [[Ukraine]], preventing the war's end. (04:46:58) [[Nicholas J. Fuentes]] stated that [[Kevin McCarthy]]'s promise of no "blank check" for [[Ukraine]] was broken, as aid continues unabated under his speakership. (05:09:12) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] risks a direct [[United States]]-[[Russia]] nuclear confrontation due to [[United States|American]] personnel and equipment involvement. (05:30:54) [[Nicholas J. Fuentes]] cited [[Kevin McCarthy]]'s reversal on [[Ukraine]] aid and failure to release [[January 6th Attack|January 6th]] footage as examples of broken promises to the [[Republican Party|Republican]] base. (06:42:46) [[Nicholas J. Fuentes]] referenced a mass shooting in [[State of Texas|Texas]] by a Mexican gunman, which media figures incorrectly linked to white supremacy by citing [[Nicholas J. Fuentes]] as an example of a Mexican white supremacist. (07:48:00) The [[State of Texas|Texas]] mall shooter mentioned [[Nicholas J. Fuentes]] by name in his journal, writing "What's going to happen when you have dozens, hundreds, or thousands of [[Nick]] Fuenteses running around?" (07:50:86) The [[State of Texas|Texas]] mall shooter's journal expressed hatred for white people and other Latino groups like [[Cubans]] and [[Puerto Rico|Puerto Ricans]]. (08:56:48) [[Nicholas J. Fuentes]] referenced the 2019 [[El Paso]] Walmart shooting, where the shooter's connection to an online manifesto was never firmly established. (09:12:90) [[Destiny]], a streamer, previously argued [[Nicholas J. Fuentes]] was not a Nazi but later stated a Mexican could be a Nazi like [[Nicholas J. Fuentes]] during coverage of the [[State of Texas|Texas]] shooting. (10:53:66) [[Nicholas J. Fuentes]] accused "liberal [[Jews|Jew]] types" of insinuating he was similar to the [[State of Texas|Texas]] mall shooter who mentioned him disparagingly. (12:44:54) [[Nicholas J. Fuentes]] claimed [[George Soros]] funds open society foundations to promote a global, multicultural world that benefits [[Jews|Jewish people]]. (13:00:42) [[Nicholas J. Fuentes]] argued that [[Jews]], having a historic animosity towards [[Europe|Europeans]] and [[Christianity]], benefit from and promote multiculturalism to avoid being identified as aliens in homogeneous societies. (13:48:18) [[Nicholas J. Fuentes]] stated that [[Jews]] comprised 1% of [[Palestine]]'s population at the turn of the 20th century and became a majority through settlement in the first half of the century. (14:13:50) [[Nicholas J. Fuentes]] characterized the political "squad"—including [[Rashida Tlaib]], [[Ilhan Omar]], and [[Alexandria Ocasio-Cortez (AOC)]]—as a brown, anti-colonial, Marxist new left that hates the historic [[United States|American]] nation. (14:30:68) [[Nicholas J. Fuentes]] stated that [[Alexandria Ocasio-Cortez (AOC)]] has [[Jewish]] ancestry, which he described as typical of new left leadership. (14:54:04) [[Nicholas J. Fuentes]] cited thinkers like [[Youram Hazony|Yoram Hazony]] and [[Costin Alamariu|Kostin Al-Amar]] for articulating a nationalist, pro-[[Israel]] ideology that positions [[Israel]] as a natural ally of Western nations against third-worldism. (15:31:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and [[Europe]] are bound by [[Christianity]], not a superficial "Western" or "Judeo-[[Christianity|Christian]]" identity constructed to include [[Israel]]. (16:02:42) [[Nicholas J. Fuentes]] proposed that the [[Holy Land]] should be administered by [[Christianity|Christians]] instead of [[Jews]] or [[Islam|Muslims]], restoring the [[Christianity|Christian]] control that existed prior to [[Islam|Muslim]] and [[Jewish]] rule.
 
 ### AF 2023-04-12 1146
-(00:59:98) The concept of a [[Europe|European]] army or a centralized [[Europe|European]] command separate from NATO raises complex questions about sovereignty, nuclear deterrence, and decision-making among the sovereign nations of the [[Europe|European Union]].
+(00:59:98) The concept of a [[Europe|European]] army or a centralized [[Europe|European]] command separate from NATO raises complex questions about sovereignty, nuclear deterrence, and decision-making among the sovereign nations of the [[European Union]].
 
 ### AF 2023-04-12 1146
-(58:50:88) [[Europe|European]] nations, particularly [[Government of France|France]] and [[Germany]], historically pursued a lighter stance towards [[Russia]] than [[Washington D.C.|Washington]], due to energy dependencies and greater sympathy for [[Russian]] security concerns regarding NATO expansion.
+(58:50:88) [[Europe|European]] nations, particularly [[France]] and [[Germany]], historically pursued a lighter stance towards [[Russia]] than [[Washington D.C.|Washington]], due to energy dependencies and greater sympathy for [[Russian]] security concerns regarding NATO expansion.
 
 ### AF 2023-03-30 1138
 (00:18:19) [[Nicholas J. Fuentes]] stated that the war in [[Ukraine]] is destroying [[United States|America]], breaking apart NATO, weakening [[Europe]], and strengthening [[China]] and [[Russia]].
@@ -87,7 +87,7 @@
 (00:17:36) [[Nicholas J. Fuentes]] stated that [[Vladimir Putin]] drew a red line in 2007 against NATO expansion into [[Ukraine]] and [[Country of Georgia|Georgia]], as these countries bordering [[Russia]]'s western core would give NATO a strategic stranglehold.
 
 ### AF 2023-03-10 1128
-(00:26:29) [[Nicholas J. Fuentes]] argued that the [[United States]] pours money into countries like [[Country of Georgia|Georgia]] and [[Ukraine]] through NGOs like the [[National Endowment for Democracy]] to influence their governments toward NATO and the [[Europe|European Union]], which he labeled "soft power."
+(00:26:29) [[Nicholas J. Fuentes]] argued that the [[United States]] pours money into countries like [[Country of Georgia|Georgia]] and [[Ukraine]] through NGOs like the [[National Endowment for Democracy]] to influence their governments toward NATO and the [[European Union]], which he labeled "soft power."
 
 ### AF 2023-03-10 1128
 (00:38:45) [[Nicholas J. Fuentes]] argued that when [[Donald Trump]] was elected in 2016 on a platform of breaking with NATO and ejecting globalists, the response—including Antifa at the inauguration, the Women's March, and [[Black Lives Matter]] riots—followed the same foreign influence playbook seen in [[Country of Georgia|Georgia]].
@@ -126,13 +126,13 @@
 (01:42:00) NATO member states, including the [[United States]], maintained only peacetime levels of military production, which were inadequate to sustain a prolonged conflict like the war in [[Ukraine]].
 
 ### AF 2022-09-29 1069
-(02:31:00) A protest in [[Prague]], [[Czech Republic]] targeted the government's support for [[Russian]] sanctions and the [[Ukraine|Ukrainian]] war effort, reflecting growing public pressure on NATO and the [[Europe|European Union]] as winter approached.
+(02:31:00) A protest in [[Prague]], [[Czech Republic]] targeted the government's support for [[Russian]] sanctions and the [[Ukraine|Ukrainian]] war effort, reflecting growing public pressure on NATO and the [[European Union]] as winter approached.
 
 ### AF 2022-09-29 1069
-(14:35:00) A protest in [[Prague]], organized by the group [[Czech Republic]] First, drew tens of thousands of people demonstrating against the [[Czech]] government, NATO, and the [[Europe|European Union]] over high energy prices caused by sanctions on [[Russia]].
+(14:35:00) A protest in [[Prague]], organized by the group [[Czech Republic]] First, drew tens of thousands of people demonstrating against the [[Czech]] government, NATO, and the [[European Union]] over high energy prices caused by sanctions on [[Russia]].
 
 ### AF 2022-09-29 1069
-(19:19:00) The 2014 Maidan revolution in [[Ukraine]] deposed the pro-[[Russian]] leader [[Viktor Yanukovych]], who had rejected a deal with the [[Europe|European Union]] and NATO in favor of closer ties with [[Russia]].
+(19:19:00) The 2014 Maidan revolution in [[Ukraine]] deposed the pro-[[Russian]] leader [[Viktor Yanukovych]], who had rejected a deal with the [[European Union]] and NATO in favor of closer ties with [[Russia]].
 
 ### AF 2022-09-29 1069
 (29:38:00) The [[Czech Republic]], as a member of NATO, was theoretically protected from [[Russian]] aggression by the alliance's collective defense clause, unlike non-member [[Ukraine]].
@@ -153,7 +153,7 @@
 (28:42:78) [[Nicholas J. Fuentes]] stated the conflict between [[Russia]] and [[Ukraine]] originated in a 2014 coup on [[Russia]]'s border backed by the [[United States]] and NATO.
 
 ### AF 2022-09-28 1068
-(29:01:52) Between 2014 and 2022, the [[United States]] and NATO built up the [[Ukraine|Ukrainian]] army with money, lethal aid, and training to eventually counterattack [[Russia]] and join NATO and the [[Europe|European Union]].
+(29:01:52) Between 2014 and 2022, the [[United States]] and NATO built up the [[Ukraine|Ukrainian]] army with money, lethal aid, and training to eventually counterattack [[Russia]] and join NATO and the [[European Union]].
 
 ### AF 2022-09-28 1068
 (59:06:79) The annexation of [[Luhansk]], [[Donetsk]], [[Zaporizhzhia]], and [[Kherson]] means subsequent fighting by [[Ukraine]] or NATO in those regions would constitute an attack on [[Russian]] territory, representing a major escalation in the conflict.
@@ -165,7 +165,7 @@
 (42:40:98) [[Nicholas J. Fuentes]] argued that the [[United States]] had a motive to rupture the gas pipelines to make it impossible for [[Germany]] to access [[Russian]] gas even if political pressure mounted, thereby keeping [[Germany]] aligned with NATO against [[Russia]].
 
 ### AF 2022-09-27 1067
-(49:54:76) [[Nicholas J. Fuentes]] argued that the [[Russia]]-[[Ukraine]] war destroyed the anti-NATO and anti-[[Europe|European Union]] movements that were rising across [[Europe]] after Brexit, as critics now fundamentally support the [[Europe|European Union]] project and all support NATO.
+(49:54:76) [[Nicholas J. Fuentes]] argued that the [[Russia]]-[[Ukraine]] war destroyed the anti-NATO and anti-[[European Union]] movements that were rising across [[Europe]] after Brexit, as critics now fundamentally support the [[European Union]] project and all support NATO.
 
 ### AF 2022-09-27 1067
 (57:36:56) [[Giorgia Meloni]] is stridently pro-NATO, supported sanctions against [[Russia]] after its invasion of [[Ukraine]], and is a staunch supporter of [[Israel]], comparing herself to [[Benjamin Netanyahu's Likud party]].
@@ -186,7 +186,7 @@
 (01:09:08:72) [[Nicholas J. Fuentes]] argued that NATO is a bigger problem than immigration for [[Europe]], as NATO interventions in [[Libya]] and [[Syria]] caused the migrant crises that politicians like [[Giorgia Meloni]] now campaign against.
 
 ### AF 2022-09-27 1067
-(01:11:20:70) [[Nicholas J. Fuentes]] stated he wants to see an Italian prime minister who pulls [[Italian Republic|Italy]] out of the [[Europe|European Union]] and criticizes NATO, not a pro-[[EU]] and pro-NATO leader who is merely "based on the family."
+(01:11:20:70) [[Nicholas J. Fuentes]] stated he wants to see an Italian prime minister who pulls [[Italian Republic|Italy]] out of the [[European Union]] and criticizes NATO, not a pro-[[EU]] and pro-NATO leader who is merely "based on the family."
 
 ### AF 2022-09-23 1066
 (00:11:33) [[Nicholas J. Fuentes]] argued that [[Russia]]'s invasion of [[Ukraine]] was defensible on grounds of legitimate national interest, such as securing its western border and preventing NATO expansion, unlike [[United States|American]] wars he deemed unnecessary.
@@ -216,10 +216,10 @@
 (01:32:03) The war in [[Ukraine]] differs from a proxy war because [[Russia]] is directly involved and NATO's involvement through equipment, intelligence, officers, and mercenaries has become increasingly direct.
 
 ### AF 2022-09-22 1065
-(01:33:22) [[Russia]] initially invaded [[City of Sevastopol|Crimea]] and supported separatists in [[Donetsk|Donbass]] in 2014 to prevent [[Ukraine]] from acceding to NATO, as a nation at war cannot join the alliance.
+(01:33:22) [[Russia]] initially invaded [[Crimea]] and supported separatists in [[Donetsk|Donbass]] in 2014 to prevent [[Ukraine]] from acceding to NATO, as a nation at war cannot join the alliance.
 
 ### AF 2022-09-22 1065
-(01:34:59) The 2014 Maidan Revolution in [[Ukraine]] ousted the pro-[[Russian]] leader [[Viktor Yanukovych]] and installed a pro-Western government intent on integrating with the [[Europe|European Union]] and NATO.
+(01:34:59) The 2014 Maidan Revolution in [[Ukraine]] ousted the pro-[[Russian]] leader [[Viktor Yanukovych]] and installed a pro-Western government intent on integrating with the [[European Union]] and NATO.
 
 ### AF 2022-09-22 1065
 (01:35:31) Despite [[Ukraine]] not being a NATO member, the alliance has treated the [[Russian]] invasion as if it were, providing military support just short of direct combat, thereby ignoring the nuclear deterrence logic that previously blocked [[Ukraine]]'s accession.
@@ -252,7 +252,7 @@
 (22:40:16) When [[Russia]] invaded [[Ukraine]], NATO countries and allies of the [[United States]] imposed unprecedented sanctions, including banning [[Russia]] from the international banking system.
 
 ### AF 2022-09-10 1058
-(48:09:76) The NATO complex, [[State Department]], and [[Europe|European Union]] were accused of refusing to negotiate with reality and engaging in delusion about their power.
+(48:09:76) The NATO complex, [[State Department]], and [[European Union]] were accused of refusing to negotiate with reality and engaging in delusion about their power.
 
 ### AF 2022-09-10 1058
 (48:45:92) There was a described refusal to accept [[Russia]] as a world power, that [[Ukraine]] is in its neighborhood, and that it was always unacceptable for [[Ukraine]] to be a NATO state.
@@ -333,13 +333,13 @@
 (01:11:12:48) [[Nicholas J. Fuentes]] argued that [[Russia]] would use tactical nuclear weapons if NATO directly intervened in [[Ukraine]], as [[Russia]] could not defeat NATO conventionally and could not afford to lose the war.
 
 ### AF 2022-04-25 0983
-(01:00:58) [[Nicholas J. Fuentes]] stated that failure to stop the war would come at a high price for [[Europe]] and the [[Europe|European Union]], leading to a second Cold War with permanent NATO bases on [[Russia]]'s borders.
+(01:00:58) [[Nicholas J. Fuentes]] stated that failure to stop the war would come at a high price for [[Europe]] and the [[European Union]], leading to a second Cold War with permanent NATO bases on [[Russia]]'s borders.
 
 ### AF 2022-04-25 0983
 (01:03:15) [[Nicholas J. Fuentes]] argued that if NATO intervened directly in [[Ukraine]], [[Russia]] could not win conventionally and might resort to using tactical nuclear weapons.
 
 ### AF 2022-04-15 0978
-(00:13:10) [[Nicholas J. Fuentes]] appeared in a segment on [[Russia Today]], where he characterized rhetoric from NATO, the [[Europe|European Union]], and the [[United States]] towards [[Russia]] since the beginning of the conflict in [[Ukraine]] as "nothing more than Russophobia" and bigoted.
+(00:13:10) [[Nicholas J. Fuentes]] appeared in a segment on [[Russia Today]], where he characterized rhetoric from NATO, the [[European Union]], and the [[United States]] towards [[Russia]] since the beginning of the conflict in [[Ukraine]] as "nothing more than Russophobia" and bigoted.
 
 ### AF 2022-04-12 0976
 (00:54:50) [[Nicholas J. Fuentes]] argued that [[Vladimir Putin]] had no strategic reason to use chemical weapons in [[Ukraine]], as it would be a provocative escalation that could trigger direct NATO intervention, which [[Russia]] desperately wanted to avoid.
@@ -351,7 +351,7 @@
 (00:01:51) The [[Czech Republic]] began sending T-72 tanks and BVP-1 infantry fighting vehicles to [[Ukraine]] as part of a coordinated effort with NATO allies.
 
 ### AF 2022-04-06 0973
-(00:02:04) NATO countries, including the [[United States]], [[United Kingdom|Britain]], [[Government of France|France]], and [[Germany]], were engaged in a full-scale proxy war with [[Russia]] by providing military personnel and equipment to [[Ukraine]].
+(00:02:04) NATO countries, including the [[United States]], [[United Kingdom|Britain]], [[France]], and [[Germany]], were engaged in a full-scale proxy war with [[Russia]] by providing military personnel and equipment to [[Ukraine]].
 
 ### AF 2022-04-06 0973
 (00:24:51) [[Germany|German]] Chancellor [[Olaf Scholz]] stated that [[Volodymyr Zelenskyy]] had refused to abandon [[Ukraine]]'s aspirations to join NATO in January 2022, a month before [[Russia]]'s invasion.
@@ -363,13 +363,13 @@
 (00:27:02) In 2014, [[Russia]] supported separatist forces in [[Luhansk]] and [[Donetsk]] following [[Ukraine]]'s movement toward NATO membership, fueling a [[civil war]].
 
 ### AF 2022-04-06 0973
-(00:28:18) In January 2022, [[Russia]] presented demands to the [[United States]] and NATO in Geneva, including [[Ukraine]]'s neutral status, a moratorium on missile deployments in [[Europe]], and recognition of [[Russia]]'s annexation of [[City of Sevastopol|Crimea]].
+(00:28:18) In January 2022, [[Russia]] presented demands to the [[United States]] and NATO in Geneva, including [[Ukraine]]'s neutral status, a moratorium on missile deployments in [[Europe]], and recognition of [[Russia]]'s annexation of [[Crimea]].
 
 ### AF 2022-04-05 0972
 (00:48:05) NATO Secretary General [[Jens Stoltenberg]] branded the [[Bucha]] incident a brutality against civilians not seen in [[Europe]] for decades.
 
 ### AF 2022-04-05 0972
-(00:58:44) [[Nicholas J. Fuentes]] identified the beneficiaries of the war as the [[National Endowment for Democracy]], the [[United States|U.S.]] [[State Department]], the [[Council on Foreign Relations]], the [[Atlantic Council]], the [[U.S. National Security Council|National Security Council]], the [[U.S. Department of Defense|Pentagon]], NATO, and the [[Europe|European Union]].
+(00:58:44) [[Nicholas J. Fuentes]] identified the beneficiaries of the war as the [[National Endowment for Democracy]], the [[United States|U.S.]] [[State Department]], the [[Council on Foreign Relations]], the [[Atlantic Council]], the [[U.S. National Security Council|National Security Council]], the [[U.S. Department of Defense|Pentagon]], NATO, and the [[European Union]].
 
 ### AF 2022-04-01 0971
 (00:00:43) [[Vladimir Putin]] weaponized natural gas against NATO and unfriendly [[Europe|European]] countries by demanding payment for gas in rubles in response to sanctions on the [[Russian]] currency.
@@ -384,10 +384,10 @@
 (00:19:01) In response to the [[Russian]] invasion of [[Ukraine]], the [[United States]] and NATO enacted an unprecedented sanctions regime, including seizing [[Russia]]'s foreign currency reserves and banning [[Russian]] banks from the international banking system.
 
 ### AF 2022-04-01 0971
-(00:23:48) At the [[G20]] summit, [[Europe|European Union]] conference, and NATO summit, [[Europe|European]] leaders refused [[Vladimir Putin]]'s demand to pay for gas in rubles, initiating a strategic standoff over [[Europe|European]] energy needs and [[Russian]] war financing.
+(00:23:48) At the [[G20]] summit, [[European Union]] conference, and NATO summit, [[Europe|European]] leaders refused [[Vladimir Putin]]'s demand to pay for gas in rubles, initiating a strategic standoff over [[Europe|European]] energy needs and [[Russian]] war financing.
 
 ### AF 2022-03-31 0970
-(01:13:28) [[Nicholas J. Fuentes]] stated that the [[United States]] faces influence operations not only from [[China]], [[Russia]], and [[Iran]], but also from NATO, the [[Europe|European Union]], [[Israel]], [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and [[India]].
+(01:13:28) [[Nicholas J. Fuentes]] stated that the [[United States]] faces influence operations not only from [[China]], [[Russia]], and [[Iran]], but also from NATO, the [[European Union]], [[Israel]], [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and [[India]].
 
 ### AF 2022-03-26 0967
 (00:33:07) [[Nicholas J. Fuentes]] pointed to [[Kanye West]]'s conversion to [[Christianity]], the conflict between NATO and [[Russia]], the rise of the Groypers, and even the [[Britney Spears]] and [[Milo Yiannopoulos]] situations as signs that events were aligning according to a divine plan.
@@ -453,7 +453,7 @@
 (00:37:53) [[Nicholas J. Fuentes]] noted that while [[Russia]] was not talking about using chemical weapons, NATO Secretary General [[Jens Stoltenberg]] and [[Joe Biden]] were discussing the threat.
 
 ### AF 2022-03-24 0965
-(00:38:38) [[Nicholas J. Fuentes]] reported that [[Volodymyr Zelenskyy|Volodymyr Zelensky]] was scheduled to join NATO, [[Group of Seven|G7]], and [[Europe|European Union]] summits virtually to seek further aid and sanctions.
+(00:38:38) [[Nicholas J. Fuentes]] reported that [[Volodymyr Zelenskyy|Volodymyr Zelensky]] was scheduled to join NATO, [[Group of Seven|G7]], and [[European Union]] summits virtually to seek further aid and sanctions.
 
 ### AF 2022-03-24 0965
 (00:39:07) [[Nicholas J. Fuentes]] argued that all information about the war from NATO and the [[United States]] government was propaganda designed to shape public opinion as a tool of war.
@@ -501,7 +501,7 @@
 (01:00:52) [[Nicholas J. Fuentes]] argued that when [[Joe Biden]] and [[Jens Stoltenberg]] talk about chemical weapons, they are sending a deliberate message to [[Vladimir Putin]] about creating a pretext for NATO intervention under the "right to protect" doctrine.
 
 ### AF 2022-03-23 0963
-(01:25:36) [[Vladimir Putin|Putin]] demanded the annexation of [[City of Sevastopol|Crimea]], the independence of breakaway republics in the [[Donetsk|Donbass]], a change to the [[Ukraine|Ukrainian]] constitution to enshrine neutrality and bar NATO membership, and the demilitarization and "denazification" of [[Kyiv]].
+(01:25:36) [[Vladimir Putin|Putin]] demanded the annexation of [[Crimea]], the independence of breakaway republics in the [[Donetsk|Donbass]], a change to the [[Ukraine|Ukrainian]] constitution to enshrine neutrality and bar NATO membership, and the demilitarization and "denazification" of [[Kyiv]].
 
 ### AF 2022-03-23 0963
 (02:50:20) [[Volodymyr Zelenskyy|Zelensky]] believed he would secure a no-fly zone and intended to drag NATO and Western powers into a conflict with [[Russia]], according to [[Nicholas J. Fuentes]].
@@ -510,10 +510,10 @@
 (06:24:80) [[Nicholas J. Fuentes]] characterized the NATO media as "[[Jewish]] NATO media" in its coverage of the war in [[Ukraine]].
 
 ### AF 2022-03-23 0963
-(22:48:64) [[Nicholas J. Fuentes]] listed [[Vladimir Putin|Putin]]'s pre-invasion demands from January, which included [[Ukraine]] never joining NATO, a NATO membership freeze, an end to NATO drills in [[Europe|Eastern Europe]], a withdrawal of NATO forces from [[Europe|Eastern Europe]], a moratorium on missiles in [[Europe]], and keeping [[City of Sevastopol|Crimea]] and [[Donetsk|Donbass]].
+(22:48:64) [[Nicholas J. Fuentes]] listed [[Vladimir Putin|Putin]]'s pre-invasion demands from January, which included [[Ukraine]] never joining NATO, a NATO membership freeze, an end to NATO drills in [[Europe|Eastern Europe]], a withdrawal of NATO forces from [[Europe|Eastern Europe]], a moratorium on missiles in [[Europe]], and keeping [[Crimea]] and [[Donetsk|Donbass]].
 
 ### AF 2022-03-23 0963
-(24:03:40) [[Vladimir Putin|Putin]]'s post-invasion demands included [[Russian]] sovereignty over [[City of Sevastopol|Crimea]], recognition of independent republics in [[Donetsk|Donbass]], [[Ukraine|Ukrainian]] demilitarization, "denazification," and a constitutional change barring NATO membership.
+(24:03:40) [[Vladimir Putin|Putin]]'s post-invasion demands included [[Russian]] sovereignty over [[Crimea]], recognition of independent republics in [[Donetsk|Donbass]], [[Ukraine|Ukrainian]] demilitarization, "denazification," and a constitutional change barring NATO membership.
 
 ### AF 2022-03-23 0963
 (40:22:98) [[Nicholas J. Fuentes]] asserted that [[Volodymyr Zelenskyy|Zelensky]] would not accept [[Vladimir Putin|Putin]]'s demands because he was delusional, trying to save face, and believed he could win the war with NATO help.
@@ -525,13 +525,13 @@
 (45:57:28) [[Nicholas J. Fuentes]] summarized [[Vladimir Putin|Putin]]'s position since 2014 as being willing to destroy [[Ukraine]] before allowing it to join NATO, a position he claimed the [[Kanye West|West]] foolishly challenged.
 
 ### AF 2022-03-23 0963
-(46:54:20) [[Nicholas J. Fuentes]] argued that had NATO not pushed for expansion after 2008 and the [[Maidan Revolution]] not occurred in 2014, [[City of Sevastopol|Crimea]] would still be part of [[Ukraine]] and there would be no [[civil war]].
+(46:54:20) [[Nicholas J. Fuentes]] argued that had NATO not pushed for expansion after 2008 and the [[Maidan Revolution]] not occurred in 2014, [[Crimea]] would still be part of [[Ukraine]] and there would be no [[civil war]].
 
 ### AF 2022-03-23 0963
 (52:02:88) [[Volodymyr Zelenskyy|Zelensky]] repeated his call for [[Ukraine]] to be accepted into NATO, stating there would be no war if [[Ukraine]] were a member.
 
 ### AF 2022-03-23 0963
-(52:46:80) [[Nicholas J. Fuentes]] concluded that [[Volodymyr Zelenskyy|Zelensky]] was unwilling to accept in principle any of [[Vladimir Putin|Putin]]'s terms for surrender, including on [[City of Sevastopol|Crimea]], [[Donetsk|Donbass]], NATO membership, disarmament, or denazification.
+(52:46:80) [[Nicholas J. Fuentes]] concluded that [[Volodymyr Zelenskyy|Zelensky]] was unwilling to accept in principle any of [[Vladimir Putin|Putin]]'s terms for surrender, including on [[Crimea]], [[Donetsk|Donbass]], NATO membership, disarmament, or denazification.
 
 ### AF 2022-03-23 0963
 (53:52:74) [[Nicholas J. Fuentes]] stated that [[Volodymyr Zelenskyy|Zelensky]] acted as if NATO was at his "beck and call," and that NATO's security guarantee was ultimately backed by the [[United States|American]] military and taxpayer.
@@ -549,13 +549,13 @@
 (02:17:44) [[Nicholas J. Fuentes]] rejected a comparison of NATO and [[United States|America]] in [[Ukraine]] to the [[USSR]] in [[Vietnam]], stating the geopolitical context was totally different.
 
 ### AF 2022-03-21 0962
-(02:36:08) [[Russia]]'s demands for [[Ukraine]] included recognizing the annexation of [[City of Sevastopol|Crimea]], allowing [[Donetsk|Donbass]] to break away, amending its constitution to declare neutrality and forswear NATO membership, and demilitarizing.
+(02:36:08) [[Russia]]'s demands for [[Ukraine]] included recognizing the annexation of [[Crimea]], allowing [[Donetsk|Donbass]] to break away, amending its constitution to declare neutrality and forswear NATO membership, and demilitarizing.
 
 ### AF 2022-03-21 0962
 (03:04:20) [[Volodymyr Zelenskyy|Volodymyr Zelensky]] stated he would not capitulate to [[Russia]]'s demands and warned that if [[Russia]] did not surrender, there would be a third world war and a no-fly zone, while still seeking NATO membership.
 
 ### AF 2022-03-21 0962
-(21:19:03) During his debate, [[Destiny|Destiny]] argued that [[Russia]] violated [[Ukraine]]'s sovereignty, that [[Ukraine]]'s desire to join NATO should take precedence over [[Russia]]'s security interests, and that nothing justified the [[Russia]]n invasion, which he attributed to [[Vladimir Putin]]'s revanchist desires.
+(21:19:03) During his debate, [[Destiny]] argued that [[Russia]] violated [[Ukraine]]'s sovereignty, that [[Ukraine]]'s desire to join NATO should take precedence over [[Russia]]'s security interests, and that nothing justified the [[Russia]]n invasion, which he attributed to [[Vladimir Putin]]'s revanchist desires.
 
 ### AF 2022-03-21 0962
 (26:00:41) During his debate, [[Nicholas J. Fuentes]] argued that the [[United States]], through a 30-year pattern of expanding NATO and undermining other nations' security, provoked the [[Russia]]-[[Ukraine]] crisis and should accede to [[Vladimir Putin]]'s demands to neutralize the situation.
@@ -573,7 +573,7 @@
 (57:44:94) In 2014, a Western-backed coup overthrew the [[Ukraine|Ukrainian]] government, installing a new regime that sought NATO membership, which [[Nicholas J. Fuentes]] argued was a decisive crossing of [[Russia]]'s red line.
 
 ### AF 2022-03-21 0962
-(58:04:20) In response to the 2014 coup, [[Russia]] invaded and annexed [[City of Sevastopol|Crimea]] to secure its [[Black Sea]] naval base and fueled a separatist [[civil war]] in [[Donetsk|Donbass]], thereby precluding [[Ukraine]] from joining NATO.
+(58:04:20) In response to the 2014 coup, [[Russia]] invaded and annexed [[Crimea]] to secure its [[Black Sea]] naval base and fueled a separatist [[civil war]] in [[Donetsk|Donbass]], thereby precluding [[Ukraine]] from joining NATO.
 
 ### AF 2022-03-21 0962
 (01:04:22:80) [[Russia]] ultimately invaded [[Ukraine]] to prevent it from acquiring nuclear weapons, joining NATO, militarizing its border, and challenging [[Russia]]n territory in the [[Black Sea]].
@@ -588,10 +588,10 @@
 (01:08:50:32) [[Nicholas J. Fuentes]] used the analogy of [[Russia]] forming an alliance with [[Mexico]], placing missiles and a naval base in the [[Gulf of Mexico]], to illustrate the [[Russia]]n security perspective on [[Ukraine]] joining NATO.
 
 ### AF 2022-03-21 0962
-(01:10:43:42) [[Destiny|Destiny]] argued that NATO's 2011 intervention in [[Libya]] to depose [[Muammar Gaddafi]] was a justified violation of sovereignty, leading [[Nicholas J. Fuentes]] to conclude that, in [[Destiny]]'s view, sovereignty was conditional and determined by NATO.
+(01:10:43:42) [[Destiny]] argued that NATO's 2011 intervention in [[Libya]] to depose [[Muammar Gaddafi]] was a justified violation of sovereignty, leading [[Nicholas J. Fuentes]] to conclude that, in [[Destiny]]'s view, sovereignty was conditional and determined by NATO.
 
 ### AF 2022-03-21 0962
-(01:11:41:58) [[Destiny|Destiny]] argued that [[Ukraine]] wanted NATO membership and not to be in [[Russia]]'s sphere of influence, a position [[Nicholas J. Fuentes]] contested by citing the 2014 Western-backed revolution required to install a pro-NATO government.
+(01:11:41:58) [[Destiny]] argued that [[Ukraine]] wanted NATO membership and not to be in [[Russia]]'s sphere of influence, a position [[Nicholas J. Fuentes]] contested by citing the 2014 Western-backed revolution required to install a pro-NATO government.
 
 ### AF 2022-03-21 0962
 (01:12:07:68) [[Nicholas J. Fuentes]] argued that [[Ukraine]] enhancing its security by joining NATO would come at the direct detriment of [[Russia]]'s security, invalidating the principle that no [[country]]'s security should be enhanced at the expense of another's.
@@ -603,13 +603,13 @@
 (01:25:40:93) [[Nicholas J. Fuentes]] claimed that Western energy companies wanted [[Ukraine]] in NATO to invest in its shale oil and [[Black Sea]] natural gas deposits, profiting by replacing cheaper [[Russia]]n pipeline gas with expensive liquefied natural gas shipped to [[Europe|Western Europe]].
 
 ### AF 2022-03-21 0962
-(01:32:45:61) During the debate, [[Destiny|Destiny]] asserted that NATO determines when national sovereignty can be violated, a position [[Nicholas J. Fuentes]] argued was hypocritical and meant [[Destiny]] lost the debate.
+(01:32:45:61) During the debate, [[Destiny]] asserted that NATO determines when national sovereignty can be violated, a position [[Nicholas J. Fuentes]] argued was hypocritical and meant [[Destiny]] lost the debate.
 
 ### AF 2022-03-21 0962
-(01:33:38:83) [[Destiny|Destiny]] argued that NATO would never invade [[Russia]], an assertion [[Nicholas J. Fuentes]] countered by comparing it to having a loaded gun held to one's head with only a promise it wouldn't be fired, which is an unacceptable security posture.
+(01:33:38:83) [[Destiny]] argued that NATO would never invade [[Russia]], an assertion [[Nicholas J. Fuentes]] countered by comparing it to having a loaded gun held to one's head with only a promise it wouldn't be fired, which is an unacceptable security posture.
 
 ### AF 2022-03-18 0960
-(01:47:36) [[Nicholas J. Fuentes]] stated that [[Vladimir Putin]]'s demand that [[Ukraine]] never join NATO was something [[Germany]] and [[Government of France|France]] agreed with in 2008, and his demand to not deploy theater missiles in [[Europe|Eastern Europe]] was a reasonable security concern ignored by the [[Kanye West|West]].
+(01:47:36) [[Nicholas J. Fuentes]] stated that [[Vladimir Putin]]'s demand that [[Ukraine]] never join NATO was something [[Germany]] and [[France]] agreed with in 2008, and his demand to not deploy theater missiles in [[Europe|Eastern Europe]] was a reasonable security concern ignored by the [[Kanye West|West]].
 
 ### AF 2022-03-18 0960
 (02:05:51) [[Nicholas J. Fuentes]] explained that [[Russia]] did not intervene in the [[Baltic states]] before they joined NATO because [[Ukraine]] is a bigger strategic issue and [[Russia]] was not strong enough in the early 2000s, post-[[Iraq]] war.
@@ -669,7 +669,7 @@
 (06:42:01) [[Nicholas J. Fuentes]] claimed that NATO's expansion to the borders of [[Russia]] in the [[Baltic states]], and attempts to include [[Country of Georgia|Georgia]] and [[Ukraine]], along with discussions of placing missiles and a nuclear arsenal in [[Ukraine]], constituted [[United States|American]] aggression.
 
 ### AF 2022-03-08 0954
-(09:13:40) [[Vladimir Putin]]'s objective in amassing troops on the [[Ukraine|Ukrainian]] border was to force the [[United States]] to negotiate about preventing [[Ukraine]] from joining NATO and the [[Europe|European Union]].
+(09:13:40) [[Vladimir Putin]]'s objective in amassing troops on the [[Ukraine|Ukrainian]] border was to force the [[United States]] to negotiate about preventing [[Ukraine]] from joining NATO and the [[European Union]].
 
 ### AF 2022-03-08 0954
 (11:05:48) [[Joe Biden]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] refused to take [[Ukraine|Ukrainian]] NATO membership off the table, leading [[Russia]] to invade.
@@ -696,7 +696,7 @@
 (47:40:44) In 2007, NATO declared its intention to eventually bring [[Country of Georgia|Georgia]] and [[Ukraine]] into the alliance, a move [[Russia]] immediately declared an unacceptable red line due to the strategic threat of encirclement.
 
 ### AF 2022-03-08 0954
-(48:40:28) [[Ukraine]]'s proximity to [[Moscow]] and control of the [[Crimean]] port of [[City of Sevastopol|Sevastopol]], home to [[Russia]]'s [[Black Sea]] Fleet, made its potential NATO membership a critical national security issue for [[Russia]].
+(48:40:28) [[Ukraine]]'s proximity to [[Moscow]] and control of the [[Crimean]] port of [[Sevastopol]], home to [[Russia]]'s [[Black Sea]] Fleet, made its potential NATO membership a critical national security issue for [[Russia]].
 
 ### AF 2022-03-08 0954
 (49:21:04) NATO expansion to include [[Ukraine]] and [[Country of Georgia|Georgia]] would create a crescent encircling [[Russia]] from the [[Baltic Sea]] to the [[Black Sea]], an unacceptable security posture from [[Russia]]'s perspective.
@@ -708,7 +708,7 @@
 (53:18:48) In 2008, [[Russia]] invaded [[Country of Georgia|Georgia]] to secure the independence of [[South Ossetia]] and [[Abkhazia]], successfully preventing [[Country of Georgia|Georgia]] from joining NATO.
 
 ### AF 2022-03-08 0954
-(54:21:04) In 2014, the [[United States]] supported the overthrow of pro-[[Russian]] [[Ukraine|Ukrainian]] President [[Viktor Yanukovych]] after he rejected NATO and [[Europe|European Union]] membership, installing the pro-Western [[Petro Poroshenko]].
+(54:21:04) In 2014, the [[United States]] supported the overthrow of pro-[[Russian]] [[Ukraine|Ukrainian]] President [[Viktor Yanukovych]] after he rejected NATO and [[European Union]] membership, installing the pro-Western [[Petro Poroshenko]].
 
 ### AF 2022-03-08 0954
 (01:00:23:02) In the lead-up to the 2022 invasion, [[Ukraine|Ukrainian]] President [[Volodymyr Zelenskyy|Volodymyr Zelensky]], an actor, discussed acquiring a nuclear arsenal, and NATO deployed hypersonic missiles on [[Ukraine]]'s western border.
@@ -741,7 +741,7 @@
 (01:10:01) [[Nicholas J. Fuentes]] stated that for the past 30 years, [[Ukraine]] has functioned as a forward operating base for NATO to wage a cold war against [[Russia]].
 
 ### AF 2022-03-02 0951
-(01:10:10) [[Nicholas J. Fuentes]] argued that the 2014 overthrow of [[Viktor Yanukovych]] was a [[Central Intelligence Agency|CIA]]-backed color revolution to install a pro-Western, pro-NATO leader and seize the strategic port of [[City of Sevastopol|Sevastopol]] from [[Russia]].
+(01:10:10) [[Nicholas J. Fuentes]] argued that the 2014 overthrow of [[Viktor Yanukovych]] was a [[Central Intelligence Agency|CIA]]-backed color revolution to install a pro-Western, pro-NATO leader and seize the strategic port of [[Sevastopol]] from [[Russia]].
 
 ### AF 2022-03-02 0951
 (01:10:34) [[Nicholas J. Fuentes]] stated that NATO has been expanding eastward since 1997 with the goal of pushing [[Russia]] against a wall, making [[Russia]]'s actions in [[Ukraine]] a defensive response to an unacceptable security posture.
@@ -756,7 +756,7 @@
 (01:19:11) [[Nicholas J. Fuentes]] declared he does not support the "illegitimate government in [[Kyiv|Kiev]]," the "illegitimate fake [[country]] of [[Ukraine]]," the expansion of NATO, or the bullying of [[Russia]].
 
 ### AF 2022-02-12 0946
-(00:26:18) [[Russia]] found it unacceptable for [[Ukraine]] to fall within the orbit of NATO and the [[Europe|European Union]], viewing it as a violation of past treaties and an affront to its national interest.
+(00:26:18) [[Russia]] found it unacceptable for [[Ukraine]] to fall within the orbit of NATO and the [[European Union]], viewing it as a violation of past treaties and an affront to its national interest.
 
 ### AF 2022-02-12 0946
 (00:28:49) Following the dissolution of the [[Soviet Union]] and the [[Warsaw Pact]], NATO expanded its membership to include Baltic states on [[Russia]]'s border, such as [[Estonia]], [[Latvia]], [[Lithuania]], and [[Finland]].
@@ -771,7 +771,7 @@
 (02:06:74) [[Russia]] amassed a military buildup on its western border with [[Ukraine]], while NATO deployed additional troops to the eastern border of [[Ukraine]].
 
 ### AF 2022-02-04 0942
-(30:25:65) [[Nicholas J. Fuentes]] summarized the [[Russia]]-[[Ukraine]] standoff, stating that [[Vladimir Putin]] demanded a commitment that [[Ukraine]] would not join NATO or the [[Europe|European Union]], threatening war otherwise, while also having offensive objectives to seize valuable land in eastern [[Ukraine]].
+(30:25:65) [[Nicholas J. Fuentes]] summarized the [[Russia]]-[[Ukraine]] standoff, stating that [[Vladimir Putin]] demanded a commitment that [[Ukraine]] would not join NATO or the [[European Union]], threatening war otherwise, while also having offensive objectives to seize valuable land in eastern [[Ukraine]].
 
 ### AF 2022-02-04 0942
 (35:31:63) [[Nicholas J. Fuentes]] framed the [[Russia]]-[[Ukraine]] military buildup as a diplomatic negotiation conducted with military threats as leverage, over NATO expansion and strategic lands in eastern [[Ukraine]].
@@ -801,7 +801,7 @@
 (00:32:51) [[Nicholas J. Fuentes]] identified journalist [[Jared Holt]] as working for the [[Atlantic Council]], which he stated is funded by the governments of [[Lebanon]] and the [[United Arab Emirates]], the [[British Foreign Office]], the [[United States]] [[State Department]], NATO, [[JPMorgan]], and [[Pfizer]].
 
 ### AF 2022-01-21 0938
-(00:53:12) In the early 2010s, NATO and the [[Europe|European Union]] attempted to bring [[Ukraine]] into the Western sphere of influence, which [[Russia]] found unacceptable for its strategic security.
+(00:53:12) In the early 2010s, NATO and the [[European Union]] attempted to bring [[Ukraine]] into the Western sphere of influence, which [[Russia]] found unacceptable for its strategic security.
 
 ### AF 2022-01-21 0938
 (00:53:53) [[Russia]] viewed the potential inclusion of [[Ukraine]] in NATO as a direct threat, as it would mean [[United States]] and allied military forces stationed along almost the entirety of its western frontier.
@@ -843,7 +843,7 @@
 (00:42:55) NATO and the [[U.S. National Security Council|US National Security Council]] made claims that [[Russia]] was planning to use chemical weapons in [[Ukraine]].
 
 ### AF 2022-04-09 0975
-(41:21:03) [[Joe Biden]] attended NATO, [[Europe|European Union]], and [[Group of Seven|G7]] summits in [[Europe]], where the main topics were war crimes in [[Ukraine]] and the potential use of chemical weapons by [[Vladimir Putin]].
+(41:21:03) [[Joe Biden]] attended NATO, [[European Union]], and [[Group of Seven|G7]] summits in [[Europe]], where the main topics were war crimes in [[Ukraine]] and the potential use of chemical weapons by [[Vladimir Putin]].
 
 ### AF 2022-04-09 0975
 (42:46:87) Chemical weapons, war crimes, genocide, and invasion of a sovereign nation are considered legitimate pretexts for intervention by NATO or other states within the "rules-based international system."
@@ -864,7 +864,7 @@
 (00:51:40) [[Jared Holt]], an activist who previously wrote for [[Right Wing Watch]], works for the [[Atlantic Council]], an [[organization]] that [[Nicholas J. Fuentes]] stated is funded by corporations like [[JPMorgan Chase & Co.|J.P. Morgan]] and [[Pfizer]], as well as NATO and the [[U.S. Department of Defense|Department of Defense]].
 
 ### AF 2021-04-29 0802
-(00:43:40) [[Nicholas J. Fuentes]] argued that [[Joe Biden]] is not "[[City of Beijing|Beijing]] [[Joe Biden|Biden]]" but is instead [[Donald Trump|the president]] of the "[[United States|American]] regime," representing the interests of the national security apparatus, intelligence community, defense contractors like [[Lockheed Martin]] and [[Raytheon]], and multilateral alliances like NATO.
+(00:43:40) [[Nicholas J. Fuentes]] argued that [[Joe Biden]] is not "[[Beijing]] [[Joe Biden|Biden]]" but is instead [[the president]] of the "[[United States|American]] regime," representing the interests of the national security apparatus, intelligence community, defense contractors like [[Lockheed Martin]] and [[Raytheon]], and multilateral alliances like NATO.
 
 ### AF 2021-04-28 0801
 (00:44:45) [[Nicholas J. Fuentes]] argued that [[Joe Biden]]'s stress on allies and NATO was about maintaining [[United States|U.S.]] global hegemony to balance against the rising power of [[China]].
@@ -882,7 +882,7 @@
 (00:32:50) [[Nicholas J. Fuentes]] referenced a 50-[[page]] paper from the [[Atlantic Council]] that he claimed outlined efforts to push pro-NATO, pro-war narratives and conduct information warfare in the media.
 
 ### AF 2021-02-03 0754
-(01:52:860) [[Jared Holt]] of the [[Atlantic Council]], which is funded by NATO, the [[Europe|European Union]], the [[U.S. Department of Defense]], [[Bank of America Corporation|Bank of America]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Pfizer]], and [[JPMorgan Chase & Co.|JPMorgan Chase]], works to deplatform right-wing figures by pressuring payment processors and social media companies.
+(01:52:860) [[Jared Holt]] of the [[Atlantic Council]], which is funded by NATO, the [[European Union]], the [[U.S. Department of Defense]], [[Bank of America Corporation|Bank of America]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Pfizer]], and [[JPMorgan Chase & Co.|JPMorgan Chase]], works to deplatform right-wing figures by pressuring payment processors and social media companies.
 
 ### AF 2021-02-02 0753
 (03:24:00) [[Nicholas J. Fuentes]] stated that friends like [[Timothy Gionet|Baked Alaska]] were familiar with being "crushed under the boot of the intelligence community, of NATO and the [[Joe Biden|Biden]] administration."
@@ -954,7 +954,7 @@
 (00:24:30) [[Nicholas J. Fuentes]] argued that the "deep [[state]]" or military-industrial complex provided consistency in [[United States]] foreign policy, and that [[Donald Trump|Trump]] had been blocked by this establishment on issues like [[Syria]] withdrawal, rapprochement with [[Russia]], and pulling away from NATO.
 
 ### AF 2019-02-01 0323
-(00:57:40) [[Nicholas J. Fuentes]] argued that [[Vladimir Putin|Putin]]'s actions in [[Ukraine]], including the annexation of [[City of Sevastopol|Crimea]] and support for rebels in [[Donetsk|Donbass]], were primarily to prevent [[Ukraine]] from joining NATO and the [[Europe|European Union]], and that the [[United States]] should respect [[Russia]]'s sphere of influence.
+(00:57:40) [[Nicholas J. Fuentes]] argued that [[Vladimir Putin|Putin]]'s actions in [[Ukraine]], including the annexation of [[Crimea]] and support for rebels in [[Donetsk|Donbass]], were primarily to prevent [[Ukraine]] from joining NATO and the [[European Union]], and that the [[United States]] should respect [[Russia]]'s sphere of influence.
 
 ### AF 2018-12-11 0293
 (01:05:20) [[Nicholas J. Fuentes]] said he respected scholar [[John Mearsheimer]], author of *The [[Israel Lobby]]*, for his brave scholarship, though he did not agree with all his positions, such as being pro-NATO.
@@ -990,7 +990,7 @@
 (02:49:00) [[Donald Trump]]'s stated rationale for maintaining a troop presence in [[Syria]] included protecting the security interests of [[Turkey]], a NATO ally; supporting the rebuilding of [[Iraq]]; and safeguarding the security apparatus connected to [[Israel]].
 
 ### AF 2018-09-25 0247
-(08:55:00) Following the 2014 ousting of pro-[[Russian]] President [[Viktor Yanukovych]], [[Russia]] annexed [[City of Sevastopol|Crimea]] and fomented rebellion in eastern [[Ukraine]] to prevent the [[country]] from joining NATO and the [[Europe|European Union]], according to [[Nicholas J. Fuentes]].
+(08:55:00) Following the 2014 ousting of pro-[[Russian]] President [[Viktor Yanukovych]], [[Russia]] annexed [[Crimea]] and fomented rebellion in eastern [[Ukraine]] to prevent the [[country]] from joining NATO and the [[European Union]], according to [[Nicholas J. Fuentes]].
 
 ### AF 2018-09-11 0237
 (00:35:01) In 2011, NATO coalition airstrikes contributed to the overthrow of [[Muammar Gaddafi]] in [[Libya]].
@@ -1053,7 +1053,7 @@
 (33:19:16) Under Article 5 of NATO, the [[United States]] would be required to go to war with [[Russia]] if [[Russia]] attacked a member like [[Estonia]].
 
 ### AF 2018-07-11 0198
-(36:24:10) [[Donald Trump]]'s schedule after the NATO summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[City of London|London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in [[Helsinki]], [[Finland]].
+(36:24:10) [[Donald Trump]]'s schedule after the NATO summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in [[Helsinki]], [[Finland]].
 
 ### AF 2018-06-29 0191
 (01:02:52:61) [[Donald Trump]] could use the potential troop withdrawal from [[Germany]] as a bargaining chip at an upcoming NATO conference to pressure allies on defense spending and trade.
@@ -1090,3 +1090,30 @@
 
 ### AF 2017-10-18 0034
 (00:22:56) [[Paul Nehlen]] believed NATO partners should be held accountable and made to pay their share for defense, rather than the [[United States]] bearing the expense.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:36:23.950) A report indicates that [[Donald Trump]] is still seeking assistance from NATO countries to open the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:36:40.890) The idea has been floated that [[Donald Trump]] might redeploy [[United States]] troops in [[Europe]] from uncooperative NATO countries to those willing to assist in opening the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:37:02.230) The potential redeployment of [[United States]] troops is controversial amidst [[Russian Federation|Russia]]'s war with [[Ukraine]], as NATO countries rely on these troops for protection against [[Russian Federation|Russia]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:37:13.900) [[Donald Trump]] has threatened to penalize NATO countries that do not assist the [[United States]] with [[Iran]] by withdrawing [[United States]] troops from their territories.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:39:20.160) The ceasefire and negotiations are interpreted as a strategy by [[Donald Trump]] to escape his "own escalation trap," buying [[time]] to secure more support from NATO, Gulf, and Pacific allies and to deploy more military assets to the [[region]] for an eventual attempt to open the Strait.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:25:23) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] called on NATO to help, saying "we supported your war in [[Ukraine]], now it's your turn to help [[us]] in the strait."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(25:02:15) [[Donald Trump]] claimed that the NATO countries agreed to pay 5% of GDP for military defense.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(20:04:800) [[Nicholas J. Fuentes]] noted that troops from [[France]], [[Germany]], [[Sweden]], and [[Norway]] deployed to [[Country of Greenland|Greenland]] for a two-day mission to demonstrate NATO's ability to deploy into the Arctic.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:01:28) [[Nicholas J. Fuentes]] stated that he does not support withdrawing from NATO, saying he likes NATO.

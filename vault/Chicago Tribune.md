@@ -6,10 +6,10 @@
 
 
 ### AF 2020-08-10 0658
-(23:48:79) [[Nicholas J. Fuentes]] read a report from the Chicago Tribune stating that hundreds of people had swept through downtown [[City of Chicago|Chicago]], looting stores, confronting police, and exchanging gunfire, resulting in over 100 arrests and 13 injured officers.
+(23:48:79) [[Nicholas J. Fuentes]] read a report from the Chicago Tribune stating that hundreds of people had swept through downtown [[Chicago]], looting stores, confronting police, and exchanging gunfire, resulting in over 100 arrests and 13 injured officers.
 
 ### AF 2020-07-20 0644
-(01:29:28) The [[U.S. Department of Homeland Security|DHS]] planned to deploy approximately 150 agents to [[City of Chicago|Chicago]] to assist federal law enforcement and [[City of Chicago|Chicago]] police in fighting crime, according to the Chicago Tribune.
+(01:29:28) The [[U.S. Department of Homeland Security|DHS]] planned to deploy approximately 150 agents to [[Chicago]] to assist federal law enforcement and [[Chicago]] police in fighting crime, according to the Chicago Tribune.
 
 ### AF 2018-10-02 0252
 (00:26:38) [[J.B. Pritzker]], the [[Democratic Party|Democratic]] nominee for governor of [[State of Illinois|Illinois]], was reported by the Chicago Tribune to have made $300,000 from a tax evasion scheme and was projected to easily defeat incumbent [[Bruce Rauner]].

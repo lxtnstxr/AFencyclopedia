@@ -58,3 +58,6 @@
 
 ### AF 2018-08-06 0215
 (00:55:92) [[Alex Jones|InfoWars]] served as a platform that provided career mobility for right-wing figures like [[Mike Cernovich]], Roger Stone, and [[Candace Owens]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:32:27) [[Nicholas J. Fuentes]] argued that [[the left]] does not care about [[Jeffrey Epstein|Epstein]] or sexual abuse, citing that they got mad when Roger Stone said [[Bill Clinton]] is a rapist but now go on [[Piers Morgan]] to call [[Donald Trump|Trump]] a “pedo protector” because they do not like his mass deportations.

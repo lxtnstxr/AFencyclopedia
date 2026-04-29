@@ -57,7 +57,7 @@
 (02:25:28) [[Nicholas J. Fuentes]] praised Vince James as a machine whose mind spits out facts and lists, calling him a huge asset and noting his website does important work.
 
 ### AF 2020-11-25 0725
-(02:08:41) [[Nicholas J. Fuentes]] announced he would be in [[City of Phoenix|Phoenix]], [[Arizona]] at the state [[capitol]] on Saturday with figures including [[Steven Crowder|Steve Franzen]], Vince James, [[Jayden McNeil]], [[Josh Lacash]], and [[Timothy Gionet|Baked Alaska]] for a protest rally.
+(02:08:41) [[Nicholas J. Fuentes]] announced he would be in [[Phoenix]], [[Arizona]] at the state [[capitol]] on Saturday with figures including [[Steven Crowder|Steve Franzen]], Vince James, [[Jayden McNeil]], [[Josh Lacash]], and [[Timothy Gionet|Baked Alaska]] for a protest rally.
 
 ### AF 2020-11-24 0724
 (00:07:09) [[Nicholas J. Fuentes]] credited Vince James and [[Republican Party|Red Elephants]] for their reporting on election fraud and for being amplified by the [[Donald Trump|Trump]] campaign.

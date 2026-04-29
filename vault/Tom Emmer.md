@@ -6,7 +6,7 @@
 
 
 ### AF 2022-04-28 0986
-(00:55:40) On the leaked call, [[Mike Johnson|Kevin McCarthy]] told colleagues including [[Steve Scalise]], [[Liz Cheney]], and Tom Emmer that he would call [[Trump]] and tell him "it would be my recommendation you should resign."
+(00:55:40) On the leaked call, [[Kevin McCarthy]] told colleagues including [[Steve Scalise]], [[Liz Cheney]], and Tom Emmer that he would call [[Trump]] and tell him "it would be my recommendation you should resign."
 
 ### AF 2021-03-26 0781
 (00:48:56) [[Republican Party]] campaign chief Tom Emmer revealed the party's 2022 strategy to retake the [[United States House of Representatives]] by labeling [[Democratic Party|Democratic]] policies as socialist and recruiting more women and minority candidates.

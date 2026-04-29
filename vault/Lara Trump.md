@@ -2,7 +2,7 @@
 #person
 
 ### AF 2020-08-26 0669
-(26:53:66) [[Nicholas J. Fuentes]] questioned why Lara Trump was speaking at the [[Republican Party|RNC]], noting she was there as [[Donald Trump|the president's]] daughter-in-law.
+(26:53:66) [[Nicholas J. Fuentes]] questioned why Lara Trump was speaking at the [[Republican Party|RNC]], noting she was there as [[the president's]] daughter-in-law.
 
 (27:33:60) Lara Trump, married to [[Eric Trump]], recounted her journey from [[North Carolina]] to [[New York|New York City]] and her surprise at joining the [[Donald Trump|Trump]] family, whom she described as warm, caring, and hardworking.
 (28:57:90) Lara Trump stated that under [[Donald Trump]]'s leadership, women's unemployment hit its lowest rate since World War II, with women taking over 70% of all new jobs in 2019.

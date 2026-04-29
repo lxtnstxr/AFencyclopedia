@@ -18,7 +18,7 @@
 (03:28:35) Tim Heidecker's audience metrics were mocked for being so low that it was joked his audience doesn't actually watch his show.
 
 ### AF 2020-10-15 0702
-(03:29:01) [[Nicholas J. Fuentes]] criticized Tim Heidecker and others for feigning moral concern over the [[City of Charlottesville|Charlottesville rally]] while ignoring violence committed by [[Antifa]] and [[Black Lives Matter|BLM]].
+(03:29:01) [[Nicholas J. Fuentes]] criticized Tim Heidecker and others for feigning moral concern over the [[Charlottesville rally]] while ignoring violence committed by [[Antifa]] and [[Black Lives Matter|BLM]].
 
 ### AF 2020-10-15 0702
 (03:33:50) [[Nicholas J. Fuentes]] compared the vulgar insults he receives on [[Twitter]] to the type of humor practiced by Tim Heidecker and [[Vic Berger]].
@@ -33,7 +33,7 @@
 (00:33:16) Tim Heidecker and [[Vic Berger]]'s calls for corporate censorship of [[Timothy Gionet|Baked Alaska]] were made more interesting by the fact that [[Timothy Gionet|Baked Alaska]] was a direct competitor on [[Google|YouTube]], routinely pulling more viewers than Tim Heidecker's channel.
 
 ### AF 2020-10-13 0700
-(00:39:08) [[Nicholas J. Fuentes]] criticized Tim Heidecker, a comedian from [[Adult Swim]], for tattling to [[Google|YouTube]] about anti-Semitism and [[City of Charlottesville|Charlottesville]] instead of being funny, calling it a demoralizing state of affairs.
+(00:39:08) [[Nicholas J. Fuentes]] criticized Tim Heidecker, a comedian from [[Adult Swim]], for tattling to [[Google|YouTube]] about anti-Semitism and [[Charlottesville]] instead of being funny, calling it a demoralizing state of affairs.
 
 ### AF 2019-02-22 0337
 (12:29:78) [[Nicholas J. Fuentes]] speculated that left-wing figures Tim Heidecker and [[Vic Berger]] likely discovered his content through left-wing researcher [[Jared Holt]].

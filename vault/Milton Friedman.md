@@ -46,3 +46,6 @@
 
 ### AF 2017-10-03 0023
 (00:38:50) [[Nicholas J. Fuentes]] argued that political or materialist arguments, like those of Milton Friedman, cannot motivate people to rebuild civilization.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:55:30) [[Nicholas J. Fuentes]] listed his broadcast influences: [[Bill O'Reilly]], [[Greg Gutfeld]], [[John Stossel]], [[Samuel J. Hyde|Sam Hyde]], [[Donald Trump]], [[Alex Jones]], [[Gavin McInnes]], and Milton Friedman.

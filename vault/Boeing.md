@@ -27,7 +27,7 @@
 (27:50:58) [[Nicholas J. Fuentes]] cited Boeing's commercial jet failures as an example of the decline in [[United States|American]] manufacturing quality, alongside dysfunctional tech platforms like [[Google]] and [[Google|YouTube]].
 
 ### AF 2024-01-26 1283
-(00:38:07) [[Nicholas J. Fuentes]] characterized the support from figures like [[Nikki Haley]], [[Ted Cruz]], and [[Mike Johnson]] as performative, citing their backing by major donors like [[Ken Griffin]], [[Reid Hoffman]], [[Sheldon Adelson|Miriam Adelson]], and Boeing.
+(00:38:07) [[Nicholas J. Fuentes]] characterized the support from figures like [[Nikki Haley]], [[Ted Cruz]], and [[Mike Johnson]] as performative, citing their backing by major donors like [[Ken Griffin]], [[Reid Hoffman]], [[Miriam Adelson]], and Boeing.
 
 ### AF 2024-01-25 1282
 (01:59:00) As Governor of [[South Carolina]], [[Nikki Haley]] removed the Confederate battle flag from the state capitol grounds and signed right-to-work legislation benefiting Boeing, which has a major plant in the state.
@@ -54,7 +54,7 @@
 (00:20:55) [[Vivek Ramaswamy]] accused [[Nikki Haley]] of using her position at the [[United Nations]] to enrich herself, claiming her family was in debt before she joined the board of Boeing and became a multimillionaire.
 
 ### AF 2023-04-27 1154
-(02:03:00) [[Nicholas J. Fuentes]] stated that [[Nikki Haley]] took bribes from Boeing during her political career, contrasting her with [[Ron DeSantis]]'s actions against [[Disney|Disney]].
+(02:03:00) [[Nicholas J. Fuentes]] stated that [[Nikki Haley]] took bribes from Boeing during her political career, contrasting her with [[Ron DeSantis]]'s actions against [[Disney]].
 
 ### AF 2023-02-15 1122
 (20:42:530) After leaving the [[Trump administration]], [[Nikki Haley]] joined the board of directors of Boeing, earning over $300,000 per year while being in personal debt.

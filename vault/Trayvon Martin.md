@@ -40,3 +40,6 @@
 
 ### AF 2019-01-21 0314
 (01:28:00) [[Nicholas J. Fuentes]] characterized the backlash against the [[Covington Catholic High School]] students as a racially motivated attack by a "non-white coalition" and "[[Jews|Jewish]] media" against confident white youth, contrasting it with the defense of [[black]] youths like Trayvon Martin and [[Michael Brown]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:14:13) [[Nicholas J. Fuentes]] compared the shooting of [[Alex Jones|Alex]] Pretty to the cases of Trayvon Martin and [[Mike Brown]], stating that Pretty had a loaded gun and extra magazines.

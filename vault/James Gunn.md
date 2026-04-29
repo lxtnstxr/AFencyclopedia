@@ -36,10 +36,10 @@
 (00:15:39) [[Mike Cernovich]] exposed a series of offensive tweets by James Gunn from 2009-2010, leading James Gunn to delete approximately 10,000 tweets.
 
 ### AF 2018-07-30 0210
-(00:17:19) [[Disney|Disney]] fired James Gunn from directing "Guardians of the Galaxy 3," stating his tweets were inconsistent with the company's values.
+(00:17:19) [[Disney]] fired James Gunn from directing "Guardians of the Galaxy 3," stating his tweets were inconsistent with the company's values.
 
 ### AF 2018-07-30 0210
-(00:17:52) Actors [[Chris Pratt]], [[Bradley Cooper]], [[Zoe Saldana]], [[Vin Diesel]], and [[Dave Bautista]] signed an open letter urging [[Disney|Disney]] to rehire James Gunn.
+(00:17:52) Actors [[Chris Pratt]], [[Bradley Cooper]], [[Zoe Saldana]], [[Vin Diesel]], and [[Dave Bautista]] signed an open letter urging [[Disney]] to rehire James Gunn.
 
 ### AF 2018-07-30 0210
 (00:21:30) [[Nicholas J. Fuentes]] noted that James Gunn, [[Harvey Weinstein]], and [[Louis C.K.]] are [[Jews|Jewish]], while arguing that media narratives often incorrectly blame "white men" for societal problems.

@@ -32,7 +32,7 @@
 (00:48:57) During [[Donald Trump]]'s first term, illegal border crossings hit a 20-year high by May 2019, no significant tariffs were imposed on major trading partners, and the [[United States]] did not withdraw from [[Afghanistan]], [[Iraq]], or Syria.
 
 ### AF 2025-07-25 1539
-(00:56:52) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s long-term goal, accelerated by [[France]]'s recognition of [[Gaza Strip|Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of Syria, while defeating [[Hezbollah]], [[Iran]], and other enemies.
+(00:56:52) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s long-term goal, accelerated by [[France]]'s recognition of [[Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of Syria, while defeating [[Hezbollah]], [[Iran]], and other enemies.
 
 ### AF 2025-07-25 1539
 (01:22:23) [[Nicholas J. Fuentes]] asserted that [[Israel]]'s territorial ambitions since the [[October 7th Attack]] include the [[Gaza Strip]], the [[Gaza Strip|West Bank]], the [[Golan Heights]], southern [[Lebanon]], and southern Syria, alongside defeating [[Hezbollah]] and [[Iran]], all with [[U.S.]] support.
@@ -155,7 +155,7 @@
 (01:46:20) [[Iraq]] and Syria would become battlefields, with [[Shiite|Shiite militias]] attacking [[Israel]] and [[U.S.]] personnel.
 
 ### AF 2024-09-23 1394
-(01:46:28) [[Israel]] might invade [[Lebanon]] through Syria, a critical ally of the [[Government of Russia|Russian Federation]].
+(01:46:28) [[Israel]] might invade [[Lebanon]] through Syria, a critical ally of the [[Russian Federation]].
 
 ### AF 2024-09-23 1394
 (01:47:28) [[Israel]] has discussed plans to carve up [[Lebanon]], Syria, [[Iraq]], and [[Iran]], potentially creating a different [[Middle East]] in twenty years.
@@ -164,7 +164,7 @@
 (01:16:40) The pager explosions took place across [[Lebanon]] and into Syria, injuring close to 4,000 people and killing a dozen.
 
 ### AF 2024-09-17 1390
-(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and Syria resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], Syria, killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[Government of France|France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across Syria, [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[Donald Trump|the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Sheldon Adelson|Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Gaza Strip|Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[Donald Trump|the president]] of [[Israel]] after pro-[[Gaza Strip|Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
+(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and Syria resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], Syria, killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across Syria, [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[the president]] of [[Israel]] after pro-[[Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
 
 ### AF 2024-09-17 1390
 (01:51:41) [[Nicholas J. Fuentes]] accused [[Turkey]] of weaponizing migration by sending Syrians into [[Europe]].
@@ -221,7 +221,7 @@
 (01:17:09) [[Irving Kristol]] and many other [[Jews]] turned conservative after the 1973 war, realizing they needed to support the right-wing for its hawkish stance against the [[Soviet Union]], which backed Syria and [[Arab Republic of Egypt|Egypt]].
 
 ### AF 2024-07-10 1352
-(00:08:40) [[Nicholas J. Fuentes]] stated that the [[October 7th Attack]] by [[Hamas]] involved breaching the [[Israel]]-[[Gaza Strip]] border in dozens of places, killing and kidnapping civilians, and has since triggered conflicts in seven theaters: the [[Gaza Strip]], [[Gaza Strip|Palestine]], Syria, [[Iraq]], [[Iran]], [[Yemen]], and [[Lebanon]].
+(00:08:40) [[Nicholas J. Fuentes]] stated that the [[October 7th Attack]] by [[Hamas]] involved breaching the [[Israel]]-[[Gaza Strip]] border in dozens of places, killing and kidnapping civilians, and has since triggered conflicts in seven theaters: the [[Gaza Strip]], [[Palestine]], Syria, [[Iraq]], [[Iran]], [[Yemen]], and [[Lebanon]].
 
 ### AF 2024-07-10 1352
 (00:11:41) [[Nicholas J. Fuentes]] argued that a narrative constructed around the [[October 7th Attack]]—emphasizing its scope and brutality—has been used to justify [[Israel]]'s military campaign in the [[Gaza Strip]], a new [[North Atlantic Treaty Organization|NATO]] war in the [[Red Sea]] in [[Yemen]], renewed [[United States]] involvement in [[Iraq]] and Syria, potential war in [[Lebanon]], strikes against [[Iran]], and a rightward shift among [[Jewish]] donors in [[United States|American]] politics.
@@ -263,7 +263,7 @@
 (01:52:30) [[Nicholas J. Fuentes]] explained that Syria under [[Bashar al-Assad]] and his father [[Hafez al-Assad]] has been in a constant state of war with [[Israel]] since 1948, including the [[Golan]] takeover in 1967 and [[Israel]]'s attempts to overthrow [[Bashar al-Assad]] during the Syrian [[civil war]].
 
 ### AF 2024-04-18 1321
-(00:35:00) The [[Iran|Iranian]] strike on [[Israel]] on April 13th involved over 300 drones and missiles launched from [[Iran]], [[Yemen]], [[Iraq]], and Syria, with 94% intercepted by a coalition including the [[United States]], [[Government of France|France]], the [[United Kingdom]], [[Jim Jordan|Jordan]], and [[Israel]].
+(00:35:00) The [[Iran|Iranian]] strike on [[Israel]] on April 13th involved over 300 drones and missiles launched from [[Iran]], [[Yemen]], [[Iraq]], and Syria, with 94% intercepted by a coalition including the [[United States]], [[France]], the [[United Kingdom]], [[Jim Jordan|Jordan]], and [[Israel]].
 
 ### AF 2024-04-18 1321
 (00:43:00) [[Iran]] possesses a large arsenal of cheap drones and missiles and has supplied them to proxies including [[Hamas]] in the [[Gaza Strip]], the [[Houthis]] in [[Yemen]], [[Hezbollah]] in [[Lebanon]], and militias in [[Iraq]] and Syria.
@@ -677,7 +677,7 @@
 (00:34:01) [[Nicholas J. Fuentes]] outlined an escalation scenario where [[Hezbollah]] attacks [[Israel]], leading to [[Israel]] retaliating against Syria and [[Iran]], obligating the [[United States]] to defend [[Israel]], and potentially drawing in [[China]] and [[Russia]] on [[Iran]]'s side, resulting in [[World War III]].
 
 ### AF 2023-10-14 1235
-(00:37:46) [[Nicholas J. Fuentes]] reported that [[Vladimir Putin]] and [[China]] had issued statements in support of [[Gaza Strip|Palestine]], while the [[Iran|Iranian]] foreign minister was conducting diplomatic visits in [[Lebanon]], Syria, and [[Iraq]].
+(00:37:46) [[Nicholas J. Fuentes]] reported that [[Vladimir Putin]] and [[China]] had issued statements in support of [[Palestine]], while the [[Iran|Iranian]] foreign minister was conducting diplomatic visits in [[Lebanon]], Syria, and [[Iraq]].
 
 ### AF 2023-10-14 1235
 (00:50:43) [[Nicholas J. Fuentes]] suggested that [[Jewish]] influence in the [[State Department]] and [[U.S. Department of Defense|Pentagon]] explained [[United States|US]] military interventions in [[Iraq]], Syria, and [[Libya]], which benefited [[Israel]] by targeting its enemies.
@@ -713,7 +713,7 @@
 (24:21:21) Under [[Barack Obama]] and [[Donald Trump]], the [[United States]] attempted to depose [[Bashar al-Assad]] in Syria, a campaign thwarted by [[Russian]] intervention.
 
 ### AF 2023-09-14 1216
-(01:45:40) [[Nicholas J. Fuentes]] posited that [[Benjamin Netanyahu|Bibi]] and [[Labor Party|Likud]] hated [[Barack Obama]] and the [[Democratic Party]] because [[Barack Obama]] wanted a rapprochement with [[Iran]], to leave [[Iraq]], refused to intervene in Syria, and allowed the [[United Nations Security Council]] to condemn [[Israel|Israeli]] settlements.
+(01:45:40) [[Nicholas J. Fuentes]] posited that [[Benjamin Netanyahu|Bibi]] and [[Likud]] hated [[Barack Obama]] and the [[Democratic Party]] because [[Barack Obama]] wanted a rapprochement with [[Iran]], to leave [[Iraq]], refused to intervene in Syria, and allowed the [[United Nations Security Council]] to condemn [[Israel|Israeli]] settlements.
 
 ### AF 2023-09-14 1216
 (02:00:20) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] received about $100 million from the [[Sheldon Adelson|Adelson]] family in both election cycles and, in exchange, moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]] but did not give [[Israel]] a war in Syria or [[Iran]].
@@ -872,7 +872,7 @@
 (01:08:58) [[Nicholas J. Fuentes]] accused the [[United States]] of funding groups equivalent to [[al-Nusra Front|al-Qaeda]] and [[Islamic State of Iraq and Syria|ISIS]], including the [[Kurdistan|Kurds]], to fight the [[Bashar al-Assad|Assad]] regime in Syria.
 
 ### AF 2022-03-11 0956
-(01:12:28) [[Nicholas J. Fuentes]] contrasted the [[United States|U.S. government]]'s condemnation of alleged [[Russian]] civilian casualties in [[Ukraine]] with its silence on civilian casualties caused by the [[Israel Defense Forces|IDF]] in conflicts with Syria, [[Lebanon]], and [[Gaza Strip|Palestine]].
+(01:12:28) [[Nicholas J. Fuentes]] contrasted the [[United States|U.S. government]]'s condemnation of alleged [[Russian]] civilian casualties in [[Ukraine]] with its silence on civilian casualties caused by the [[Israel Defense Forces|IDF]] in conflicts with Syria, [[Lebanon]], and [[Palestine]].
 
 ### AF 2022-03-02 0951
 (01:18:18) [[Nicholas J. Fuentes]] dismissed the sudden public support for [[Ukraine]] as [[State Department]] propaganda, comparing it to past narratives about "moderate rebels" in Syria or "badass women" in [[Afghanistan]].
@@ -947,7 +947,7 @@
 (00:51:53) [[Nicholas J. Fuentes]] argued [[Israel]] supports regime change in Syria to counter [[Iran]]'s influence, including by supporting [[Islamic State of Iraq and Syria|ISIS]] to create a pretext for continued [[United States|American]] military presence in the [[region]].
 
 ### AF 2021-05-17 0812
-(01:05:15) According to the Axios report, [[Donald Trump]] aide [[John McEntee]], with [[Donald Trump|the president's]] blessing, told retired Army Colonel [[Douglas MacArthur|Douglas McGregor]] on November 9, 2020, that his job was to get [[United States|U.S]]. troops out of [[Afghanistan]], [[Iraq]], Syria, and [[African continent|Africa]]. (01:14:33)
+(01:05:15) According to the Axios report, [[Donald Trump]] aide [[John McEntee]], with [[the president's]] blessing, told retired Army Colonel [[Douglas MacArthur|Douglas McGregor]] on November 9, 2020, that his job was to get [[United States|U.S]]. troops out of [[Afghanistan]], [[Iraq]], Syria, and [[African continent|Africa]]. (01:14:33)
 
 ### AF 2021-04-28 0801
 (00:51:18) [[Joe Biden]] noted that [[al-Nusra Front|al-Qaeda]] and [[Islamic State of Iraq and Syria|ISIS]] had metastasized to places like [[Yemen]], Syria, and [[Somalia]].
@@ -965,7 +965,7 @@
 (00:48:53) [[Nicholas J. Fuentes]] reported that [[Israel]] began a series of provocations, including air strikes and missile attacks in Syria, [[Iran]], the [[Red Sea]], and the [[Persian Gulf]] in November and December 2020, aiming to scuttle potential [[United States|U.S]].-[[Iran]] diplomacy.
 
 ### AF 2021-04-07 0787
-(00:49:49) [[Nicholas J. Fuentes]] stated that on the day the [[Joe Biden|Biden administration]] sent a delegation to [[City of Vienna|Vienna]] to negotiate re-entering the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], [[Israel]] bombed an [[Iran|Iranian]] vessel in the [[Red Sea]] and conducted air strikes in Syria.
+(00:49:49) [[Nicholas J. Fuentes]] stated that on the day the [[Joe Biden|Biden administration]] sent a delegation to [[Vienna]] to negotiate re-entering the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], [[Israel]] bombed an [[Iran|Iranian]] vessel in the [[Red Sea]] and conducted air strikes in Syria.
 
 ### AF 2021-04-07 0787
 (00:53:00) [[Nicholas J. Fuentes]] asserted that [[Israel]] has wanted war with [[Iran]] for over 30 years, just as it previously wanted wars with [[Iraq]] and Syria, and wants the [[United States]] to fight that war for them to remove a threat to [[Israel|Israeli]] hegemony in the [[Middle East]].
@@ -1040,7 +1040,7 @@
 (22:22:70) [[Lindsey Graham]] went to the [[White House]] after [[Donald Trump]] announced he was pulling troops from Syria and convinced him it was a bad idea, according to [[Nicholas J. Fuentes]].
 
 ### AF 2020-06-11 0619
-(22:34:14) [[Lindsey Graham]] convinced [[Donald Trump]] that pulling troops from Syria was a bad idea shortly after [[Donald Trump|the president]] announced the withdrawal.
+(22:34:14) [[Lindsey Graham]] convinced [[Donald Trump]] that pulling troops from Syria was a bad idea shortly after [[the president]] announced the withdrawal.
 
 ### AF 2020-06-11 0619
 (22:39:48) [[Lindsey Graham]] convinced [[Donald Trump]] to reverse his decision to pull troops from Syria after the midterm elections.
@@ -1109,7 +1109,7 @@
 (00:47:28) [[Qasem Soleimani]] was widely regarded as the second most powerful figure in [[Iran]] and, as head of the [[Islamic Revolutionary Guard Corps Quds Force|Quds Force]], had bolstered [[Hezbollah]] in [[Lebanon]], expanded [[Iran]]'s military presence in [[Iraq]] and Syria, and orchestrated Syria's offensive in its [[civil war]].
 
 ### AF 2020-01-06 0519
-(01:25:46) [[Nicholas J. Fuentes]] noted that the [[United States]] informed [[Israel]] about the strike that killed [[Qasem Soleimani]] before notifying the [[United States Capitol|U.S. Congress]] or [[Europe|European]] allies, and that [[Israel]] subsequently stated it would not get involved in the conflict.(01:30:04) [[Iran]] has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and Syria.
+(01:25:46) [[Nicholas J. Fuentes]] noted that the [[United States]] informed [[Israel]] about the strike that killed [[Qasem Soleimani]] before notifying the [[U.S. Congress]] or [[Europe|European]] allies, and that [[Israel]] subsequently stated it would not get involved in the conflict.(01:30:04) [[Iran]] has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and Syria.
 
 ### AF 2020-01-06 0519
 (01:43:18) [[Nicholas J. Fuentes]] denied being a neoconservative, citing his opposition to war in [[Iraq]], Syria, and [[Iran]], and referencing a removed show about the [[Israel]] lobby, the [[Anti-Defamation League|ADL]], [[AIPAC]], and [[Jonathan Pollard]].
@@ -1253,7 +1253,7 @@
 (00:13:54) Tens of thousands of people fled their homes in northern Syria as [[Turkey]]'s offensive encircled the border towns of Ras al-Ain and Tal Abyad.
 
 ### AF 2019-10-10 0475
-(00:15:21) A group of 29 [[Republican Party|Republican]] members of the [[United States House of Representatives]], including [[Mike Johnson|Kevin McCarthy]] and [[Steve Scalise]], announced legislation to impose sanctions on [[Turkey]] in response to its assault on Kurdish forces in Syria.
+(00:15:21) A group of 29 [[Republican Party|Republican]] members of the [[United States House of Representatives]], including [[Kevin McCarthy]] and [[Steve Scalise]], announced legislation to impose sanctions on [[Turkey]] in response to its assault on Kurdish forces in Syria.
 
 ### AF 2019-10-10 0475
 (00:17:32) [[Benjamin Netanyahu|Bibi]], the Prime Minister of [[Israel]], expressed solidarity with the [[Kurdistan|Kurds]] in Syria amid the [[Turkey|Turkish]] offensive.
@@ -1346,7 +1346,7 @@
 (01:45:00) [[Nicholas J. Fuentes]] claimed that the [[United States]] provides material support and training to groups in Syria, including what he characterized as [[al-Nusra Front|al-Qaeda]] affiliates like the Free Syrian Army and [[al-Nusra Front]].
 
 ### AF 2019-08-01 0432
-(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steven Crowder|Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[City of Kabul|Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from Syria within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
+(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from Syria within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
 
 ### AF 2022-04-08 0974
 (02:01:660) [[Nicholas J. Fuentes]] interpreted the rhetoric about [[Russia]]'s potential chemical weapon use as a calculated strategy to establish a rhetorical "tripwire" for intervention, suggesting that evidence could be fabricated by either the [[United States]] or [[Ukraine]], as he believed occurred previously in Syria.
@@ -1481,7 +1481,7 @@
 (07:26:96) Following a visit to [[the White House]] by [[Lindsey Graham]], the timetable for withdrawing [[United States|U.S]]. troops from Syria was extended to four months, with discussions of establishing a permanent base there.
 
 ### AF 2019-01-31 0322
-(07:44:12) The [[United States Senate]] voted 68 to 23 to rebuke [[Donald Trump|President Trump]]'s proposed troop withdrawals from Syria and [[Afghanistan]], marking a break from [[Donald Trump|the president]] by [[Senate Republicans]].
+(07:44:12) The [[United States Senate]] voted 68 to 23 to rebuke [[Donald Trump|President Trump]]'s proposed troop withdrawals from Syria and [[Afghanistan]], marking a break from [[the president]] by [[Senate Republicans]].
 
 ### AF 2019-01-31 0322
 (09:21:30) [[Marco Rubio]] voted for the [[Senate]] resolution against troop withdrawals, arguing it undermined pillars of [[United States|U.S]]. foreign strategy by opposing a "precipitous withdrawal" from Syria and [[Afghanistan]].
@@ -1601,7 +1601,7 @@
 (00:27:25) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] had given an order to withdraw all 2,000 [[United States|U.S]]. combat troops from Syria very quickly.
 
 ### AF 2018-12-20 0300
-(00:27:34) [[Nicholas J. Fuentes]] connected the resignation of Defense Secretary [[James Mattis]] to [[Donald Trump]]'s decision to pull troops from Syria and [[Afghanistan]], citing [[James Mattis]]'s resignation letter which stated he wanted a defense secretary whose views aligned more closely with [[Donald Trump|the president's]].
+(00:27:34) [[Nicholas J. Fuentes]] connected the resignation of Defense Secretary [[James Mattis]] to [[Donald Trump]]'s decision to pull troops from Syria and [[Afghanistan]], citing [[James Mattis]]'s resignation letter which stated he wanted a defense secretary whose views aligned more closely with [[the president's]].
 
 ### AF 2018-12-20 0300
 (00:35:29) [[Nicholas J. Fuentes]] quoted a tweet from [[Donald Trump]] justifying the withdrawal from Syria, stating that the [[United States|U.S]]. had been campaigning on it for years and that it was [[time]] for others like [[Russia]], [[Iran]], and Syria to fight [[Islamic State of Iraq and Syria|ISIS]].
@@ -1685,7 +1685,7 @@
 (00:36:35) [[Bashar al-Assad]] was reportedly preparing to use chemical weapons in the [[Idlib]] province of Syria as his forces neared victory in the [[civil war]].
 
 ### AF 2018-09-11 0237
-(00:45:58) The 1996 "Clean Break" memo, authored for the [[Labor Party|Likud]] party in [[Israel]] by [[Douglas Feith]], [[David Wurmser]], and [[Richard Perle]], advocated for the removal of regimes in [[Iraq]], Syria, [[Iran]], and [[Libya]] to secure [[Israel]]'s borders.
+(00:45:58) The 1996 "Clean Break" memo, authored for the [[Likud]] party in [[Israel]] by [[Douglas Feith]], [[David Wurmser]], and [[Richard Perle]], advocated for the removal of regimes in [[Iraq]], Syria, [[Iran]], and [[Libya]] to secure [[Israel]]'s borders.
 
 ### AF 2018-09-11 0237
 (00:54:46) [[Russia]] maintains a naval base in [[Tartus]], Syria, which provides it with strategic access to the [[Mediterranean Sea]].
@@ -1724,7 +1724,7 @@
 (01:37:59) [[Donald Trump|President Trump]]'s stated conditions for [[Iran]] included complete, verifiable, and irreversible denuclearization; an end to its ballistic missile program; a halt to its funding of militant groups; and a curtailment of its regional influence in conflicts involving [[Saudi Arabia]], [[Israel]], and Syria.
 
 ### AF 2018-07-18 0203
-(00:13:40) Tensions between the [[United States]] and [[Russia]] escalated significantly after [[Vladimir Putin]]'s military incursions into [[Country of Georgia|Georgia]] in 2008 and [[City of Sevastopol|Crimea]] in 2014, followed by [[Russian]] involvement in Syria and an arms race over ballistic missile systems.
+(00:13:40) Tensions between the [[United States]] and [[Russia]] escalated significantly after [[Vladimir Putin]]'s military incursions into [[Country of Georgia|Georgia]] in 2008 and [[Crimea]] in 2014, followed by [[Russian]] involvement in Syria and an arms race over ballistic missile systems.
 
 ### AF 2018-07-18 0203
 (00:14:46) The presence of both [[United States|American]] and [[Russian]] troops in Syria created a high-risk environment where a single misunderstanding could potentially trigger a shooting war between the two nuclear powers.
@@ -1766,7 +1766,7 @@
 (00:07:30) [[Donald Trump]]'s foreign policy was criticized for not fully implementing an "[[United States|America]] First" approach, as the [[United States]] maintained or increased military involvement in [[Afghanistan]], Syria, [[Iraq]], [[Yemen]], [[Somalia]], [[Europe]], [[State of Japan|Japan]], and [[South Korea]].
 
 ### AF 2018-05-14 0163
-(00:27:59) [[Donald Trump]] stated his desire for a comprehensive peace in the [[Middle East]], connecting issues in [[Iran]], Syria, [[Yemen]], and the [[Israel]]-[[Gaza Strip|Palestine]] conflict.
+(00:27:59) [[Donald Trump]] stated his desire for a comprehensive peace in the [[Middle East]], connecting issues in [[Iran]], Syria, [[Yemen]], and the [[Israel]]-[[Palestine]] conflict.
 
 ### AF 2018-05-14 0163
 (00:28:19) During a [[state]] visit, [[Donald Trump]] told [[France|French]] President [[Emmanuel Macron|Macron]] that a revised [[Iran]] deal should address [[Iran|Iranian]] aggression, its missile program, and the civil wars in Syria and [[Yemen]].
@@ -1844,7 +1844,7 @@
 (00:04:48) [[Nicholas J. Fuentes]] spoke at an [[American Renaissance]] conference in [[Tennessee]], receiving a standing ovation for a speech criticizing baby boomers, which upset some older attendees. (00:05:02) [[Nicholas J. Fuentes]] described [[American Renaissance]] as the gold standard of dissident right conferences, praising its smooth operation and contrasting it with chaotic events like those involving [[Richard Spencer]] at [[Michigan State University]]. (00:06:06) [[Nicholas J. Fuentes]] announced the termination of his [[America First]] show's relationship with [[Maker Support]] due to the platform withholding funds and failing to communicate after its payment processor, [[Stripe]], placed an indefinite hold on all payouts. (00:08:30) The host of the [[Google|YouTube]] channel [[The Quartering]], [[who]] knew the [[Maker Support]] CEO personally, attempted to intervene in the payment dispute but received no answer. (00:10:14) [[Nicholas J. Fuentes]] had become the top creator on [[Maker Support]] with over 250 subscribers before the payment issues began. (00:12:23) A user named Dirt Kevin in [[Nicholas J. Fuentes]]'s [[Discord]] server made a controversial joke, leading a female college friend of [[Fuentes]] to complain and subsequently contact [[Richard Spencer]] and the [[National Policy Institute]] with accusations that [[Fuentes]] was condoning sexual assault. (00:15:16) [[Nicholas J. Fuentes]] listed several women, including [[Kassy Dillon|Cassie Dillon]], [[Emily Faulkner]], and [[Tara McCarthy]], as sources of career-damaging "subterfuge" against him and others in his movement. (00:16:02) [[Israel]] conducted a massive airstrike with bunker-busting bombs on military sites in Syria's [[Hama]] and [[Aleppo]] provinces, killing 11 [[Iran|Iranians]] and 15 Syrians and destroying approximately 200 missiles, which registered as a 2.6 magnitude earthquake. (00:17:48) [[Benjamin Netanyahu|Bibi]] presented a dossier in English titled "[[Iran]] Lied," claiming [[Israel Defense Forces|Mossad]] operatives stole over 100,000 files from a warehouse in [[Tehran]] in 2017, which he said provided conclusive evidence that [[Iran]] was pursuing a clandestine nuclear weapons program in violation of the 2015 deal. (00:19:19) [[Benjamin Netanyahu|Bibi]] had for months been delivering English-language addresses from his desk aimed at a Western audience, calling for the liberation of the [[Iran]]ian people from their regime. (00:22:48) The 1996 "Clean Break Memo," authored by [[Richard Perle]], [[Douglas Feith]], and [[David Wurmser]] for then-Prime Minister [[Benjamin Netanyahu|Bibi]], outlined a new [[Israel|Israeli]] strategy to "transcend" its regional problems by removing [[Iraq]]'s [[Ba'athist]] regime as a prelude to rolling back Syria and [[Iran]] to secure [[Israel]]'s northern border from [[Hezbollah]]. (00:27:33) [[Richard Perle]] and [[Douglas Feith]], authors of the Clean Break Memo, later served in the [[United States]] [[U.S. Department of Defense|Defense Department]] under the [[George W. Bush]] administration and helped establish the [[Office of Special Plans]]. (00:28:28) The [[Office of Special Plans]], according to *The Guardian*, served as an unfiltered conduit for intelligence from the office of [[Benjamin Netanyahu|Israeli Prime Minister]] [[Ariel Sharon]], bypassing [[Israel Defense Forces|Mossad]] to provide the [[George W. Bush|Bush administration]] with alarmist reports on [[Saddam Hussein]]'s [[Iraq]]. (00:30:47) [[Douglas Feith]] authorized [[Israel|Israeli]] visitors to the [[Office of Special Plans]] without requiring them to fill out standard security forms. (00:34:55) [[Israel]] possesses an estimated 200 nuclear warheads, developed through an undeclared program that allegedly used uranium stolen from the [[United States]] and [[Europe]], and has never signed the [[Nuclear Non-Proliferation Treaty]]. (00:35:44) The [[Stuxnet]] cyberweapon, reportedly developed by [[Israel]], successfully targeted [[Iran]]'s nuclear infrastructure because [[Israel]] had stolen the same [[Germany|German]] blueprints for the equipment that [[Iran]] acquired via [[Pakistan|Pakistani]] scientist [[A.Q. Khan]]. (00:37:19) [[Donald Trump]] faces a May 12 deadline to decide whether to reimpose sanctions on [[Iran]], a move urged by [[Israel]] but opposed by [[Europe|European]] leaders like [[Emmanuel Macron]] and [[Angela Merkel]] [[who]] recently visited to preserve the nuclear deal. (00:40:08) A full-scale invasion and occupation of [[Iran]] to dismantle its nuclear program would require an estimated 250,000 [[United States]] soldiers and result in a longer, bloodier conflict than the [[Iraq War]] due to [[Iran]]'s larger population, robust military, and mountainous terrain. (00:42:25) [[Iran]]'s political and economic goals of reintegration into the global economy make the pursuit of a nuclear weapon counterproductive, unlike [[North Korea]]'s ideology of *Juche*, which prioritizes national self-sufficiency. (00:43:50) Figures like [[Mike Cernovich]] and [[Lauren Southern]], [[who]] were vocal critics of war in Syria, faced a test of whether they would similarly oppose a war with [[Iran]] promoted by [[Benjamin Netanyahu|Bibi]]. (00:45:24) [[Nicholas J. Fuentes]] commented that the potential reunification of [[North Korea]] and [[South Korea]] would be a powerful testament to the unifying force of shared ethnicity and ethnic nationalism, which he contrasted with demographic trends in the [[United States]]. (00:53:12) At a rally in [[State of Michigan|Michigan]], [[Donald Trump]] voiced support for bringing in farm workers on H-2B visas, a position [[Nicholas J. Fuentes]] opposed as a departure from [[Donald Trump|Trump's]] campaign promises. (00:56:56) [[Nicholas J. Fuentes]] stated that [[Israel]] has killed more [[United States|Americans]] and planned more terrorist attacks on [[United States|U.S.]] soil than [[Iran]], citing incidents like the 1967 attack on the [[USS Liberty]] and the 1950s "Lavon Affair" bombings in [[Arab Republic of Egypt|Egypt]]. (00:58:28) [[Nicholas J. Fuentes]] criticized figures like [[Richard Spencer]] and [[Mike Cernovich|Mike Enoch]] for their persistently negative "[[black]]-pilled" commentary on [[Donald Trump]], arguing it ignored legal and political constraints while serving their desire to be the [[vanguard]] of the movement. (01:02:06) [[Nicholas J. Fuentes]] recommended researching the "1980s Plan for [[Israel]]" by [[Oded Yinon]] as a more extreme document than the Clean Break Memo regarding [[Israel]]'s regional ambitions. (01:03:14) For news analysis, [[Nicholas J. Fuentes]] recommended cross-referencing headlines from a wide range of sources including [[British Broadcasting Corporation|BBC]], [[Fox News]], [[Breitbart News|Breitbart]], [[Washington Post|The Washington Post]], [[The New York Times]], and [[Antiwar.com]].
 
 ### AF 2018-04-25 0152
-(51:08:49) [[Nicholas J. Fuentes]] noted destabilizing global events, including airplane crashes in [[City of Moscow|Moscow]], [[Tehran]], and [[City of Philadelphia|Philadelphia]], earthquakes, and tensions in [[Israel]], Syria, and [[Saudi Arabia]], as part of a broader transformative period.
+(51:08:49) [[Nicholas J. Fuentes]] noted destabilizing global events, including airplane crashes in [[Moscow]], [[Tehran]], and [[Philadelphia]], earthquakes, and tensions in [[Israel]], Syria, and [[Saudi Arabia]], as part of a broader transformative period.
 
 ### AF 2018-04-25 0152
 (54:41:41) [[Nicholas J. Fuentes]] suggested [[Donald Trump|Trump]] could not recognize the Armenian genocide due to potential upset with [[Turkey]], which was intervening in Syria, a [[region]] he linked to apocalyptic prophecy.
@@ -2090,7 +2090,7 @@
 (00:09:14) [[Donald Trump]] issued continuous, explicit warnings to [[Vladimir Putin]] and [[Bashar al-Assad]] about an impending strike following the chemical attack in Syria.
 
 ### AF 2018-04-11 0143
-(00:10:13) [[Donald Trump]] canceled a planned trip to [[Columbia|Colombia]] and [[Peru]] amid the Syria crisis.
+(00:10:13) [[Donald Trump]] canceled a planned trip to [[Colombia]] and [[Peru]] amid the Syria crisis.
 
 ### AF 2018-04-11 0143
 (00:10:38) [[Donald Trump]] tweeted a warning to [[Vladimir Putin]] about sending missiles to Syria in response to the chemical attack.
@@ -2219,7 +2219,7 @@
 (09:01:770) [[Donald Trump]]'s administration declared that [[Islamic State of Iraq and Syria|ISIS]] had been defeated and was winding down the [[U.S. Department of Defense|U.S. military]] presence in Syria.
 
 ### AF 2018-04-04 0138
-(14:28:230) [[Donald Trump]] announced the [[United States]] would maintain its military presence in Syria, a decision [[Nicholas J. Fuentes]] speculated was influenced by pressure from [[Saudi Arabia]], [[Israel]], and the [[United States Capitol|U.S. Congress]].
+(14:28:230) [[Donald Trump]] announced the [[United States]] would maintain its military presence in Syria, a decision [[Nicholas J. Fuentes]] speculated was influenced by pressure from [[Saudi Arabia]], [[Israel]], and the [[U.S. Congress]].
 
 ### AF 2018-04-04 0138
 (17:52:330) [[Nicholas J. Fuentes]] suggested that a [[United States|U.S]]. withdrawal from Syria would allow [[Russia]] to decide the fate of Syria and the broader [[Middle East]].
@@ -2384,7 +2384,7 @@
 (00:38:06) The violation of territorial integrity seen in Syria had also occurred in [[Iraq]], [[Libya]], [[Arab Republic of Egypt|Egypt]], and [[Iran]], where external powers like the [[United States]] interfered in domestic protests.
 
 ### AF 2018-02-12 0106
-(00:38:32) In the new global order, events in [[Yemen]] became the business of [[Washington D.C.|Washington, D.C.]], and events in Syria became the business of [[City of Moscow|Moscow]] and [[City of Beijing|Beijing]].
+(00:38:32) In the new global order, events in [[Yemen]] became the business of [[Washington D.C.|Washington, D.C.]], and events in Syria became the business of [[Moscow]] and [[Beijing]].
 
 ### AF 2018-02-12 0106
 (00:39:18) [[Nicholas J. Fuentes]] argued that the absence of clear international rules in a post-Westphalian world, with multiple powers operating in Syria, created a high risk of catastrophic conflict.
@@ -2438,7 +2438,7 @@
 (00:31:05) [[Turkey]] launched a military incursion into the Afrin [[region]] of Syria on January 22nd, targeting the Kurdish People's Protection Units (YPG), which [[Turkey]] considers linked to the terrorist [[Kurdistan]] Workers' Party (PKK).
 
 ### AF 2018-01-22 0091
-(00:36:42) [[Bashar al-Assad]] has been [[Donald Trump|the president]] of Syria since the year 2000, leading pro-government forces backed by [[Iran]], [[Russia]], and [[China]] during the Syrian [[Civil War]].
+(00:36:42) [[Bashar al-Assad]] has been [[the president]] of Syria since the year 2000, leading pro-government forces backed by [[Iran]], [[Russia]], and [[China]] during the Syrian [[Civil War]].
 
 ### AF 2018-01-22 0091
 (00:38:45) The Kurdish People's Protection Units (YPG), backed by the [[United States]], seized significant territory in northeastern Syria during the conflict against the Islamic [[State of Illinois|State]] ([[Islamic State of Iraq and Syria|ISIS]]), controlling approximately 60% of the Syria-[[Turkey]] border.
@@ -2583,3 +2583,153 @@
 
 ### AF 2017-09-14 0010
 (00:16:01) [[Nicholas J. Fuentes]] references an alleged chemical weapons attack in Syria that prompted the [[United States|U.S]]. strike, noting that figures like [[Nikki Haley]] and [[Rex Tillerson]] had previously stated [[United States|U.S]]. policy was not to remove [[Bashar al-Assad]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:02:20.650) The war with [[Iran]] started long before and was intensified by [[Donald Trump]] in 2018, continuing for seven years, similar to "forever wars" in [[Iraq]] (1990-present), [[State of Libya|Libya]] (2011-present), and Syria (2011-present).
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:02:21) [[Nicholas J. Fuentes]] presented the [[Iran]] war as a forever war that started in 2018 and is continuing, similar to the wars in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:02:50) [[Nicholas J. Fuentes]] characterized the conflict in [[Iran]] as a forever war that began in 2018, comparing it to wars in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:10:52) [[Nicholas J. Fuentes]] repeated his characterization of the conflicts in [[Iraq]], [[State of Libya|Libya]], Syria, and [[Iran]] as forever wars.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:02:50.540) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]] as a "forever war" that began in 2018, similar to wars in [[Iraq]] (1990), [[State of Libya|Libya]] (2011), and Syria (2011).
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:48:10.000) [[Nicholas J. Fuentes]] stated that [[Israel]] wants to annex the [[Gaza Strip|West Bank]] and occupy Southern [[Lebanon]] and Southern Syria.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:25:20) [[Nicholas J. Fuentes]] stated that there are a million Syrians in [[Germany]] because the [[United States]] blew up Syria and liberal politicians let the refugees in.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:02:26:890) [[Nicholas J. Fuentes]] stated that the war with [[Iran]] has been going on for seven years, since 2018, characterizing it as a "forever war" like those in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:33:47:320) [[Nicholas J. Fuentes]] cited the failures in [[Iraq]], [[Afghanistan]], Syria, and [[State of Libya|Libya]] as examples of why this war is a bad move.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:01:59:62) [[Nicholas J. Fuentes]] argued that the war with [[Iran]] started in 2018 when [[Donald Trump]] made it "hot," and has been ongoing for seven years, similar to forever wars in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:11:07:66) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]] as a forever war that began in 2018, similar to the wars in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:52:33) [[Nicholas J. Fuentes]] described historical regime change in the [[Middle East]] as killing the leader and replacing them with a new leader [[who]] brings in a new government, as done in [[Iraq]] with [[Saddam Hussein]] and in Syria.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:31) [[Nicholas J. Fuentes]] stated that [[Israel]] has had close security, military, and intelligence ties with the [[Kurdistan|Kurds]] in Syria, [[Iraq]], and [[Turkey]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:15:36) Under [[Joe Biden]], [[Israel]] launched an airstrike in Syria against a consulate building owned by [[Iran]], killing senior [[Iran|Iranian]] military personnel.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:42:54) [[Nicholas J. Fuentes]] stated that [[Israel]] wants regime change in [[Iraq]], Syria, [[State of Libya|Libya]], [[Arab Republic of Egypt|Egypt]], and [[Turkey]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:44:28) [[Nicholas J. Fuentes]] cited the 1996 Clean Break Report, which he said was written by the same people in the [[George W. Bush|Bush]] [[White House]], as calling for [[Israel]] to take out [[Iraq]], then Syria, then [[Iran]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:02:55) The war with [[Iran]] has been ongoing since 2018, a forever war similar to those in [[Iraq]] (1990), [[State of Libya|Libya]] (2011), and Syria (2011).
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:02:25:90) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]] as a "forever war" that began in 2018, similar to those in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:06:56:02) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] pointed out that the biblical land grant from God in Genesis gives [[Israel]] the right to everything from the [[Nile River]] in [[Arab Republic of Egypt|Egypt]] to the [[Euphrates River]] in Syria.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:25:53:64) [[Nicholas J. Fuentes]] argued that [[Arab Republic of Egypt|Egypt]] is mobilizing in the [[Sinai]] and [[Turkey]] is extending its arm into Syria because [[Israel]]'s expansionist ambitions are destabilizing the [[Middle East]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:10:05) [[Nicholas J. Fuentes]] cited [[Israel]]'s own leadership saying they want to open up a new front in [[Iran]] and control [[Iran]]'s airspace the way they do with Syria.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:10:45) [[Nicholas J. Fuentes]] argued that the reason [[Israel]] cannot do airstrikes in [[Iran]] like they do in Syria is because [[Iran]] has missiles and air defenses.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:52:24) [[Israel]] has defeated [[Hamas]], [[Hezbollah]], and [[Bashar al-Assad]], and removed the [[Iran|Revolutionary Guard]] from Syria.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:02:42) Forever wars exist in [[Iraq]], [[State of Libya|Libya]], Syria, and [[Iran]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:45:12) [[Israel]] bombed [[Iraq]]'s nuclear arsenal in 1981 and Syria's in 2007 because a nuclear arsenal would have protected those regimes from [[Israel]]'s desire to destroy them.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:43:50) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] was "the [[Jews|Jewish]] candidate" [[who]] gave [[Israel]] the [[Gaza Strip|West Bank]], [[Gaza Strip|Gaza]], [[Iran]], and Syria "on a silver platter."
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(01:00:33) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]] as a forever war that started in 2018 and has been going on for seven years, similar to [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:02:34:00) [[Nicholas J. Fuentes]] characterized the conflicts in [[Iraq]], [[State of Libya|Libya]], Syria, and [[Iran]] as "forever wars."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:47:00) [[Nicholas J. Fuentes]] characterized the conflicts in [[Iraq]], [[State of Libya|Libya]], Syria, and [[Iran]] as "forever wars."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:07:00) [[Nicholas J. Fuentes]] argued that the conflict with [[Iran]], which began in 2018, had been an active war for seven years as of the recording date, and categorized it alongside other "forever wars" in [[Iraq]] (1990–present), [[State of Libya|Libya]] (2011–present), and Syria (2011–present).
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] compared the alleged playbook for regime change in [[Iran]] to the one in Syria, involving the destruction of a nuclear hedge followed by funding ethnic separatists and using the [[United States|U.S]]. as an air force.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:02:35) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]] as a "forever war," similar to those in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:10:45) [[Nicholas J. Fuentes]] repeated the characterization of the conflict with [[Iran]] as a "forever war" similar to those in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:15:00.000) [[Nicholas J. Fuentes]] categorized the conflict with [[Iran]] as a "forever war" that started in 2018, drawing parallels to [[Iraq]] (1990), [[State of Libya|Libya]] (2011), and Syria (2011).
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:02:50) [[Nicholas J. Fuentes]] described the conflict with [[Iran]] as one of the "forever wars," similar to those in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:12:17) [[Nicholas J. Fuentes]] argued that [[Iran]] built a nuclear hedge in reaction to [[United States]] and [[Israel]] overthrowing regimes in [[Iraq]] and Syria.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:02:35:150) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]], which began in 2018, as a "forever war" similar to those in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:02:33) [[Nicholas J. Fuentes]] stated that forever wars are the nature of conflicts in [[Iraq]], [[State of Libya|Libya]], Syria, and [[Iran]], warning that people will fall for the same thing again if they do not pay attention to underlying forces.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:37:15) [[Nicholas J. Fuentes]] asked [[who]] is arming the [[Kurdistan|Kurds]] in [[Iran]] and Syria, answering that it is [[Israel]] and the [[Central Intelligence Agency|CIA]], and that the arms provided by Western intelligence are meant to topple the government through a “color revolution” or “Arab Spring” tactic.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:38:21) [[Nicholas J. Fuentes]] described a pattern of [[Central Intelligence Agency|CIA]] intervention where the agency arms dissenters, coordinates attacks, uses [[White House|Starlink]] for internet access, and uses Western media to amplify the narrative, as was done in Syria and [[State of Libya|Libya]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:49:40) [[Nicholas J. Fuentes]] argued that [[Israel]] wanted to divide Syria into an Alawite [[country]], a [[Sunni]] [[country]], a Kurdish [[country]], and a Druze [[country]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:56:50) [[Nicholas J. Fuentes]] described how [[Israel]] has systematically dismantled [[Iran]]'s proxy network since [[October 7th Attack|October 7th]], including confronting [[Hamas]] in [[Gaza Strip|Gaza]], compelling [[Hezbollah]] to surrender in [[Lebanon]], and collapsing the [[Bashar al-Assad|Assad]] regime in Syria.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:01:17) [[Donald Trump]] has a pattern of taking military action while [[China|Chinese]] delegations are present, such as bombing Syria when the [[China|Chinese]] were at [[Mar-a-Lago]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:02:18) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]] as a "forever war" that began in 2018, similar to those in [[Iraq]] (1990), [[State of Libya|Libya]] (2011), and Syria (2011).
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:05:05) [[Nicholas J. Fuentes]] criticized the [[Donald Trump|Trump]] administration's first year, noting 330,000 deportations (below promises), bombing of multiple countries ([[Somalia]], [[Nigeria]], [[Venezuela]], [[Iran]], Syria, [[Yemen]]), continued war in [[Ukraine]], and a failure to release unredacted [[Jeffrey Epstein|Epstein]] files.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:02:15) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]] as one of the "forever wars," comparing it to the wars in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:02:59) [[Nicholas J. Fuentes]] stated that the nature of "forever wars" applies to [[Iraq]] (1990–today), [[State of Libya|Libya]] (2011–today), Syria (2011–today), and [[Iran]] (2018–today).
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:02:36) [[Nicholas J. Fuentes]] characterized the conflict with [[Iran]] as a "forever war," comparable to the ongoing conflicts in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:10:48) [[Nicholas J. Fuentes]] characterized the [[Iran]] conflict as a "forever war," similar to those in [[Iraq]], [[State of Libya|Libya]], and Syria.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:02:28:53) [[Nicholas J. Fuentes]] described the conflict with [[Iran]] which started in 2018 as a "forever war" akin to those in [[Iraq]], [[State of Libya|Libya]], and Syria.

@@ -13,3 +13,9 @@
 
 ### AF 2022-05-05 0988
 (02:45:15) [[Nicholas J. Fuentes]] described himself as an "eccentric genius" with a unique, slender physique by choice, comparing his desired look to Timothée Chalamet and his role to the "brain" rather than the "brawn."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:15:33) [[Nicholas J. Fuentes]] identified [[Tom Holland]], Timothée Chalamet, [[Adam Driver]], and [[Paul McCartney]] (the actor cast to play him) as overrated or bad actors, while praising [[Ryan Gosling]], [[Tom Hardy]], [[Jake Gyllenhaal]], and [[Viggo Mortensen]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(04:07:12) [[Nicholas J. Fuentes]] stated that he has not seen the film *Marty Supreme* and wanted it to do poorly at the box office because Timothée Chalamet's marketing campaign was not "nonchalant."

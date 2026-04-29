@@ -33,7 +33,7 @@
 (01:02:40) The [[Atlantic Council]], where [[Jared Holt]] later worked as a fellow, is funded by a consortium including the [[United States|U.S]]. [[State Department]], the [[U.S. Department of Defense|U.S. military]], [[North Atlantic Treaty Organization|NATO]], foreign ministries of the [[United Kingdom]], [[Qatar]], and the [[United Arab Emirates]], as well as corporations like [[JPMorgan Chase & Co.|JP Morgan]], [[Pfizer]], Bank of America, and [[Microsoft Corporation|Microsoft]].
 
 ### AF 2022-09-03 1054
-(04:03:59) Bank of America launched an initiative to increase [[black]] and [[Hispanic]] home ownership by offering mortgages with no down payment and no closing costs in cities including [[City of Miami|Miami]], [[Dallas]], [[Los Angeles]], [[Detroit]], and [[Charlotte]].
+(04:03:59) Bank of America launched an initiative to increase [[black]] and [[Hispanic]] home ownership by offering mortgages with no down payment and no closing costs in cities including [[Miami]], [[Dallas]], [[Los Angeles]], [[Detroit]], and [[Charlotte]].
 
 ### AF 2022-09-03 1054
 (05:49:23) The Bank of America policy of offering zero-down mortgages mirrored the subprime mortgage practices that precipitated the 2006 housing bust, which involved loosened restrictions from [[Freddie Mac]] and [[Fannie Mae]].
@@ -42,7 +42,7 @@
 (22:27:88) Bank of America's "Community Affordable Loan Solution" mortgage program required no mortgage insurance and had no minimum credit score, instead using factors like timely rent and utility bill payments for eligibility.
 
 ### AF 2022-08-16 1048
-(00:00:00) [[Nicholas J. Fuentes]] stated he has been banned from Bank of America, [[U.S. Bank]], [[Chase Bank]], and the airline [[Delta]] due to his political views and being doxed, and is planning to move from [[City of Chicago|Chicago]] to [[State of Florida|Florida]].
+(00:00:00) [[Nicholas J. Fuentes]] stated he has been banned from Bank of America, [[U.S. Bank]], [[Chase Bank]], and the airline [[Delta]] due to his political views and being doxed, and is planning to move from [[Chicago]] to [[State of Florida|Florida]].
 
 ### AF 2022-08-12 1046
 (01:10:00) [[Nicholas J. Fuentes]] stated he is banned from banking services at Bank of America, [[U.S. Bank]], and [[Chase Bank]], as well as from airlines like [[Delta]] and [[American Airlines]], and from payment processors like [[Peter Thiel|PayPal]] and [[Stripe]].

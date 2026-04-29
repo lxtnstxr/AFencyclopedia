@@ -130,3 +130,6 @@
 
 ### AF 2018-01-09 0082
 (03:42:32) [[Nicholas J. Fuentes]] identified Susan Collins, [[Bob Corker]], [[Marco Rubio]], and [[Jeff Flake]] as four [[Republican Party|Republican]] senators [[who]] would never support significant border security or an immigration system overhaul leading to mass deportations.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:37:52) [[Nicholas J. Fuentes]] argued that [[John Thune]], Susan Collins, and [[Lisa Murkowski]] would be among the [[Republican Party|Republican]] senators to defect and convict [[Donald Trump]] if pressured by [[Israel]] and the billionaires, potentially leading to [[Donald Trump|Trump]]'s removal from office.

@@ -21,3 +21,6 @@
 
 ### AF 2022-03-18 0960
 (01:21:42) The [[United States]] Secret Service's National Threat Assessment Center (NTAC) studies behavioral threat assessment programs to identify potentially dangerous situations that do not meet a criminal threshold, a practice [[Nicholas J. Fuentes]] characterized as spying on innocent people.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:33:38) The gunman, [[who]] attempted to assassinate [[Donald Trump]], left a manifesto detailing his intentions to kill [[Donald Trump]] and his cabinet, and potentially Secret Service agents.

@@ -6,7 +6,7 @@
 
 
 ### AF 2017-11-01 0044
-(11:27:460) [[Mike Cernovich|Mike Enoch]] participated in a series of public demonstrations including [[City of Charlottesville|Charlottesville]] 3.0, a Gainesville event, and the [[White Lives Matter]] rally.
+(11:27:460) [[Mike Cernovich|Mike Enoch]] participated in a series of public demonstrations including [[Charlottesville]] 3.0, a Gainesville event, and the [[White Lives Matter]] rally.
 
 ### AF 2017-11-01 0044
 (20:27:780) At the Gainesville event, [[Mike Cernovich|Mike Enoch]] and [[Richard Spencer]] faced an unexpectedly large and hostile crowd of approximately 300 [[Antifa]] protesters, which affected their presentation.

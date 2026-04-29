@@ -12,7 +12,7 @@
 (01:22:07) [[Nicholas J. Fuentes]] argued that control over narrative and information constituted a fifth-generation warfare battleground, with institutions like the [[Atlantic Council]], [[Brookings Institution]], and Council on Foreign Relations deeply invested in social media's role in this conflict.
 
 ### AF 2022-04-05 0972
-(00:58:44) [[Nicholas J. Fuentes]] identified the beneficiaries of the war as the [[National Endowment for Democracy]], the [[United States|U.S.]] [[State Department]], the Council on Foreign Relations, the [[Atlantic Council]], the [[U.S. National Security Council|National Security Council]], the [[U.S. Department of Defense|Pentagon]], [[North Atlantic Treaty Organization|NATO]], and the [[Europe|European Union]].
+(00:58:44) [[Nicholas J. Fuentes]] identified the beneficiaries of the war as the [[National Endowment for Democracy]], the [[United States|U.S.]] [[State Department]], the Council on Foreign Relations, the [[Atlantic Council]], the [[U.S. National Security Council|National Security Council]], the [[U.S. Department of Defense|Pentagon]], [[North Atlantic Treaty Organization|NATO]], and the [[European Union]].
 
 ### AF 2022-03-21 0962
 (01:23:03:87) [[Nicholas J. Fuentes]] stated that the [[Atlantic Council]], [[Brookings Institution]], and Council on Foreign Relations, in concert with corporations like [[Raytheon]] and [[Lockheed Martin]] and the [[U.S. Department of Defense|Pentagon]], set the [[United States]] policy of pushing for [[Ukraine]] to join [[North Atlantic Treaty Organization|NATO]].

@@ -22,3 +22,9 @@
 
 ### AF 2019-11-19 0502
 (01:27:33) [[Nicholas J. Fuentes]] praised [[Dave Smith]] as a consistent [[Christianity|Christian]] conservative with great integrity, intelligence, and being one of the most well-read people he has talked to, while noting Michael Malice had been giving him the cold shoulder though he likes his content.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:29:30) [[Nicholas J. Fuentes]] declined to collaborate with Michael Malice, describing him as a "libertarian [[Jews|Jew]]" and a "snarky [[little]] guy."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:29:44) [[Nicholas J. Fuentes]] stated that after he and [[Kanye West]] appeared on [[Tim Pool]], Michael Malice went on and did a routine about "I'm a [[Jews|Jew]] and I'm on after [[Nicholas J. Fuentes|Nick]] and Kanye."

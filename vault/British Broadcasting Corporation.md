@@ -54,7 +54,7 @@
 (01:51:59) A whistleblower named Eli, who served as head of sales and marketing for the [[Andrew Tate]] [[organization]] for two years, told the BBC that the War Room was "all about you getting women that serve you in your life" and described the group as a cult.
 
 ### AF 2023-08-31 1207
-(01:55:75) The BBC identified the real leader of the [[Andrew Tate]] War Room as [[Miles Sonkin]] (alias Iggy Semmelweis), a former member of alleged cults from [[City of Chicago|Chicago]], [[Illinois]], who developed an interest in the far right in the 2000s.
+(01:55:75) The BBC identified the real leader of the [[Andrew Tate]] War Room as [[Miles Sonkin]] (alias Iggy Semmelweis), a former member of alleged cults from [[Chicago]], [[Illinois]], who developed an interest in the far right in the 2000s.
 
 ### AF 2023-06-09 1175
 (00:21:04) [[Nicholas J. Fuentes]] asserted it was common for right-wing e-celebrities from the mid-2010s to marry individuals who were likely federal agents, citing [[Richard Spencer]] marrying a woman from [[Country of Georgia|Georgia]], [[Peter Sweden]] being engaged to an MI6 agent, and [[Mike Cernovich]] marrying a woman from [[Iran]].

@@ -16,7 +16,7 @@
 (02:16:52) [[Nicholas J. Fuentes]] bumped into [[Ryan Girdusky]] at the [[January 6th Attack|January 6 rally]] and sarcastically remarked about [[Kelly Loeffler]] and David Perdue losing their runoffs.
 
 ### AF 2022-04-28 0986
-(01:03:41) Since 2021, [[Trump]] had been fighting for [[Mike Johnson|Kevin McCarthy]] and a [[Republican Party|Republican]] majority, endorsing candidates like [[Kelly Loeffler]] and David Perdue.
+(01:03:41) Since 2021, [[Trump]] had been fighting for [[Kevin McCarthy]] and a [[Republican Party|Republican]] majority, endorsing candidates like [[Kelly Loeffler]] and David Perdue.
 
 ### AF 2022-04-28 0986
 (01:06:07) [[Nicholas J. Fuentes]] pointed out that [[Republican Party|Republicans]] were complicit in delivering [[the White House]] to [[Joe Biden|Biden]] but then claimed it was essential to vote for [[Republican Party|Republicans]] like [[Kelly Loeffler]] and David Perdue to prevent [[Democratic Party|Democratic]] control of the [[Senate]].

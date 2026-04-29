@@ -19,3 +19,6 @@
 
 ### AF 2023-09-05 1210
 (00:02:41) [[Elon Musk]], in a reply to [[Ashley St Claire|Ashley St. Clair]] or Libs of TikTok, indicated he was planning a potential data dump of [[Anti-Defamation League|ADL]] communications the following week.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:34:37) Key [[Donald Trump|MAGA]] influencers, including [[Jack Posobiec]], Libs of TikTok, and Brylan Hollihand, posted a coordinated message on [[Twitter]] following the assassination attempt.

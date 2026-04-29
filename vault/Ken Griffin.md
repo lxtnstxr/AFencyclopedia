@@ -27,7 +27,7 @@
 (14:27:00) In January 2023, major financial backers like Ken Griffin and the estate of [[Sheldon Adelson]] shifted their support from [[Donald Trump]] to [[Ron DeSantis]].
 
 ### AF 2024-01-26 1283
-(00:38:07) [[Nicholas J. Fuentes]] characterized the support from figures like [[Nikki Haley]], [[Ted Cruz]], and [[Mike Johnson]] as performative, citing their backing by major donors like Ken Griffin, [[Reid Hoffman]], [[Sheldon Adelson|Miriam Adelson]], and [[Boeing]].
+(00:38:07) [[Nicholas J. Fuentes]] characterized the support from figures like [[Nikki Haley]], [[Ted Cruz]], and [[Mike Johnson]] as performative, citing their backing by major donors like Ken Griffin, [[Reid Hoffman]], [[Miriam Adelson]], and [[Boeing]].
 
 ### AF 2024-01-25 1282
 (01:55:00) Ken Griffin, the founder of [[Citadel LLC]], and other [[The Wall Street Journal|Wall Street]] [[Republican Party|Republican]] donors shifted their support from [[Donald Trump]] to [[Ron DeSantis]] in 2022, citing a desire for a candidate who would "not rock the boat" on cultural issues.
@@ -42,7 +42,7 @@
 (02:02:15) [[Nicholas J. Fuentes]] identified Ken Griffin as a major liberal [[The Wall Street Journal|Wall Street]] donor who reluctantly bankrolled [[Donald Trump]] but shifted his support to [[Ron DeSantis]] in 2022, preferring a candidate who would cut taxes and not rock the boat.
 
 ### AF 2023-08-25 1204
-(01:17:04) [[Nicholas J. Fuentes]] claimed that major donors like Ken Griffin and [[Sheldon Adelson|Miriam Adelson]], institutions like [[The Wall Street Journal|Wall Street]], and influencers like [[Elon Musk]] had backed [[Ron DeSantis]]'s failed primary challenge against [[Donald Trump]].
+(01:17:04) [[Nicholas J. Fuentes]] claimed that major donors like Ken Griffin and [[Miriam Adelson]], institutions like [[The Wall Street Journal|Wall Street]], and influencers like [[Elon Musk]] had backed [[Ron DeSantis]]'s failed primary challenge against [[Donald Trump]].
 
 ### AF 2023-07-27 1194
 (01:15:26) [[Ron DeSantis]] canceled a string of fundraisers in the Hamptons after a lack of interest, even from major [[Republican Party|Republican]] donors like Ken Griffin, and after discounting ticket prices by half.
@@ -54,7 +54,7 @@
 (01:20:25) [[Ron DeSantis]]'s coalition of support included the [[Peter Thiel|PayPal]] Mafia members [[Elon Musk]] and [[Peter Thiel]], [[The Wall Street Journal|Wall Street]] donor Ken Griffin, Zionist donor [[Sheldon Adelson|Mariam Adelson]], and media outlets like the [[The Daily Wire|Daily Wire]] and [[Fox News]].
 
 ### AF 2023-04-06 1143
-(00:50:50) [[Nicholas J. Fuentes]] reported that in the [[City of Chicago|Chicago]] mayoral runoff, [[Brandon Johnson]] defeated [[Paul Vallas]], who was supported by police, billionaires, [[Citadel]], Ken Griffin, [[Betsy DeVos]], and [[Trump]] donors.
+(00:50:50) [[Nicholas J. Fuentes]] reported that in the [[Chicago]] mayoral runoff, [[Brandon Johnson]] defeated [[Paul Vallas]], who was supported by police, billionaires, [[Citadel]], Ken Griffin, [[Betsy DeVos]], and [[Trump]] donors.
 
 ### AF 2023-02-09 1119
 (00:17:36) [[Nicholas J. Fuentes]] cited Ken Griffin as the [[The Wall Street Journal|Wall Street]] donor leading financial support behind [[Ron DeSantis]].
@@ -69,4 +69,7 @@
 (00:48:41) In an interview with Politico, Ken Griffin stated he flipped from [[Trump]] to [[Ron DeSantis|DeSantis]] because [[Trump]] was too divisive and targeted people based on race, though he liked [[Trump]]'s "rock star economy."
 
 ### AF 2022-11-11 1096
-(00:48:58) Ken Griffin expressed disapproval of [[Ron DeSantis|DeSantis]] sending illegal immigrants to Martha's Vineyard, passing the "Don't Say Gay" bill, and waging war with [[Disney|Disney]] and the cruise ship industry.
+(00:48:58) Ken Griffin expressed disapproval of [[Ron DeSantis|DeSantis]] sending illegal immigrants to Martha's Vineyard, passing the "Don't Say Gay" bill, and waging war with [[Disney]] and the cruise ship industry.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:45) [[Nicholas J. Fuentes]] identified [[The Wall Street Journal|Wall Street]] bankers [[Timothy Mellon|Tim Mellon]] and Ken Griffin as key components of the real 2024 coalition [[who]] wanted the corporate tax rate lowered.

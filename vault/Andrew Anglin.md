@@ -159,7 +159,7 @@
 (01:00:57) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] would be better served by firing establishment figures and appointing loyalists from his base, such as [[Sean Hannity]], [[Judge Deneen]], [[Bill Mitchell]], Andrew Anglin, [[Jared Taylor]], [[Michelle Malkin]], and himself, to government positions rather than [[Federalist Society]] nominees.
 
 ### AF 2021-01-08 0742
-(02:05:00) [[Nicholas J. Fuentes]] cited the prior deplatforming of Andrew Anglin's [[Daily Stormer]] by [[Cloudflare]] after the [[City of Charlottesville|Charlottesville rally]] and the targeting of [[8chan]] after the Christchurch shooting as precedents for the current crackdown.
+(02:05:00) [[Nicholas J. Fuentes]] cited the prior deplatforming of Andrew Anglin's [[Daily Stormer]] by [[Cloudflare]] after the [[Charlottesville rally]] and the targeting of [[8chan]] after the Christchurch shooting as precedents for the current crackdown.
 
 ### AF 2021-01-08 0742
 (02:05:00) [[Nicholas J. Fuentes]] claimed that early targets of deplatforming, such as Andrew Anglin, [[Person|Milo Yiannopoulos]], and [[Chuck Johnson]], were not defended by the conservative establishment, which allowed the censorship regime to expand.
@@ -180,7 +180,7 @@
 (21:02:360) Andrew Anglin argued that affirmative action for women serves as a "wealth transfer" from productive men to unproductive women, undermining the man's traditional role of provider in relationships, akin to how welfare substitutes for fathers.
 
 ### AF 2019-07-01 0418
-(02:32:00) [[Nicholas J. Fuentes]] argued that internet censorship campaigns against figures like Andrew Anglin of the [[Daily Stormer]] began concurrently with [[Antifa]]'s rise after the [[City of Charlottesville|Charlottesville]] rally.
+(02:32:00) [[Nicholas J. Fuentes]] argued that internet censorship campaigns against figures like Andrew Anglin of the [[Daily Stormer]] began concurrently with [[Antifa]]'s rise after the [[Charlottesville]] rally.
 
 ### AF 2019-06-11 0404
 (00:21:46) [[Nicholas J. Fuentes]] argued that social media companies began their censorship campaigns with figures like Andrew Anglin and [[Chuck Johnson]] before moving to mainstream conservatives like [[Steven Crowder]].
@@ -192,7 +192,7 @@
 (15:10:620) The list in [[Luke O'Brien]]'s [[The Huffington Post|Huffington Post]] article named over 60 individuals and groups, including [[Mike Cernovich|Mike Enoch]], Andrew Anglin, [[Richard Spencer]], [[Jason Kessler]], [[David Duke]], [[Patrick Casey]], [[Stefan Molyneux]], [[Kevin MacDonald]], [[Steven King|Steve King]], [[Faith Goldie]], [[Lana Lokteff]], [[Henrik Palmgren]], [[Scott Greer]], [[Lauren Southern]], [[Martin Sellner]], [[Brittany Pettibone]], [[Katie Hopkins]], [[Tara McCarthy]], [[Evan McLaren]], [[Lucian Wintrich]], [[Paul Ramsey]], [[Augustus Invictus]], [[Samuel J. Hyde|Sam Hyde]], [[Steve Sailer]], [[Peter Brimelow]], [[Peter Sweden]], [[John Gage]], [[Ethan Ralph]], [[Jim Goad]], [[Matt Forney]], [[Bryan Proctor]], [[Red Ice]], [[American Identity Movement]], [[American Renaissance]], [[VDARE.com|VDARE]], and [[Nicholas J. Fuentes]].
 
 ### AF 2018-11-02 0275
-(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[City of Charlottesville|Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], [[Milo Yiannopoulos]], [[Chuck Johnson]], and Andrew Anglin, and later included [[Gavin McInnes]].
+(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], [[Milo Yiannopoulos]], [[Chuck Johnson]], and Andrew Anglin, and later included [[Gavin McInnes]].
 
 ### AF 2018-03-22 0130
 (54:07:20) [[Nicholas J. Fuentes]] stated that figures like [[Timothy Gionet|Enoch]] and Andrew Anglin had "surrendered" the alt-right movement and were retreating from activism, which he characterized as a vindication of his past arguments about optics and strategy.
@@ -222,7 +222,7 @@
 (01:12:29) [[Nicholas J. Fuentes]] stated having Andrew Anglin on his show would get him labeled a [[Germany|Nazi]] and is not worth it.
 
 ### AF 2017-10-31 0043
-(01:21:59) [[Nicholas J. Fuentes]] acknowledged that an article by Andrew Anglin on optics after [[City of Charlottesville|Charlottesville]] was influential in shifting his focus from ideology to practical politics and the need for clear movement objectives.
+(01:21:59) [[Nicholas J. Fuentes]] acknowledged that an article by Andrew Anglin on optics after [[Charlottesville]] was influential in shifting his focus from ideology to practical politics and the need for clear movement objectives.
 
 ### AF 2017-09-04 0008
 (03:35:32) Andrew Anglin of the [[Daily Stormer]] reposted a meme mocking [[Heather Heyer]] on the social media platform [[Gab]].

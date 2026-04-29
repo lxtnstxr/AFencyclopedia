@@ -33,13 +33,13 @@
 (00:14:43) [[Nicholas J. Fuentes]] listed BlackRock, nuclear weapons, [[The Wall Street Journal|Wall Street]], [[Los Angeles|Hollywood]], and [[American Israel Public Affairs Committee|AIPAC]] as key nodes of power controlled by [[Jewish]] interests.
 
 ### AF 2024-02-21 1295
-(00:50:51) [[Nicholas J. Fuentes]] gave examples of key nodes being controlled, including [[Elon Musk]] prohibiting pro-[[Gaza Strip|Palestine]] phrases on [[Twitter]], [[Larry Fink]] of BlackRock blacklisting [[Israel]] protesters, and [[Joe Biden]] and [[Lloyd Austin]] saying nothing positive about [[Israel]].
+(00:50:51) [[Nicholas J. Fuentes]] gave examples of key nodes being controlled, including [[Elon Musk]] prohibiting pro-[[Palestine]] phrases on [[Twitter]], [[Larry Fink]] of BlackRock blacklisting [[Israel]] protesters, and [[Joe Biden]] and [[Lloyd Austin]] saying nothing positive about [[Israel]].
 
 ### AF 2024-02-15 1293
 (01:01:28) Key decision-makers controlling monetary policy and asset allocation are [[Ivy League]]-educated [[Jews]] like [[Janet Yellen]], [[Ben Bernanke]], [[Alan Greenspan]], and [[Larry Fink]] of BlackRock, according to [[Nicholas J. Fuentes]].
 
 ### AF 2024-01-18 1279
-(01:54:00) [[William Ackman|Bill Ackman]] circulated a blacklist of pro-[[Gaza Strip|Palestine]] [[Harvard University|Harvard]] students to other influential figures, including [[Larry Fink]] of BlackRock, to prevent them from being hired.
+(01:54:00) [[William Ackman|Bill Ackman]] circulated a blacklist of pro-[[Palestine]] [[Harvard University|Harvard]] students to other influential figures, including [[Larry Fink]] of BlackRock, to prevent them from being hired.
 
 ### AF 2023-12-07 1258
 (01:42:40) [[Vivek Ramaswamy]] stated that [[Reid Hoffman]], whom he called "[[George Soros]] Jr.," was funding lawsuits to keep [[Donald Trump]] off the ballot and was one of [[Nikki Haley]]'s largest supporters, and that [[Larry Fink]], the CEO of BlackRock, was also supporting her.
@@ -48,7 +48,7 @@
 (02:10:40) [[Ron DeSantis]] stated that in [[State of Florida|Florida]], he took $2 billion away from BlackRock due to its ESG policies and argued that [[Nikki Haley]] would cave to her donors on issues like ESG.
 
 ### AF 2023-12-05 1257
-(01:05:16) [[William Ackman|Bill Ackman]] claimed to have the support of [[Larry Fink]], the [[Jewish]] president of BlackRock, for his campaign against pro-[[Gaza Strip|Palestine]] students.
+(01:05:16) [[William Ackman|Bill Ackman]] claimed to have the support of [[Larry Fink]], the [[Jewish]] president of BlackRock, for his campaign against pro-[[Palestine]] students.
 
 ### AF 2023-12-05 1256
 (00:05:21) [[Nicholas J. Fuentes]] claimed [[William Ackman|Bill Ackman]] had the ear of [[|Larry Fink]], the head of BlackRock.
@@ -109,3 +109,18 @@
 
 ### AF 2021-07-29 0850
 (41:35:68) BlackRock reportedly controls approximately half of the [[stock]] market.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:34:52) [[Larry Fink]], a [[Jews|Jewish Zionist]], runs BlackRock, the largest asset manager in the world.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:27:34) [[Larry Fink]], the [[Jews|Jewish]] head of BlackRock, replaced [[World Economic Forum|Klaus Schwab]] as the head of the [[World Economic Forum]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:35:02) [[Nicholas J. Fuentes]] argued that [[William Ackman|Bill Ackman]] went to his friend [[Larry Fink]] at BlackRock to blacklist anybody that protested [[Israel]] in college.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:29:07) [[Nicholas J. Fuentes]] identified BlackRock, [[The Vanguard Group|Vanguard]], and [[JPMorgan Chase & Co.|JPMorgan Chase]] as the major asset managers and banks that own the companies hiring illegal labor.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:42:19) [[Dimon|Jamie Dimon]], CEO of [[JPMorgan Chase & Co.|JPMorgan Chase]], and [[Fink|Larry Fink]], CEO of BlackRock, have personal audiences with [[Donald Trump]] and oppose deporting 30 million illegal immigrants.

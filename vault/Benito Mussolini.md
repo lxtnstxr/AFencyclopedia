@@ -30,7 +30,7 @@
 (01:52:35) [[Nicholas J. Fuentes]], when asked to choose between [[Antonin Scalia]] and Benito Mussolini, replied "I think you know."
 
 ### AF 2019-06-03 0399
-(00:17:04) [[Sadiq Khan]] led large protests in [[City of London|London]] against [[Donald Trump|President Trump]]'s [[state]] visit, comparing him to [[Adolf Hitler]] and Benito Mussolini.
+(00:17:04) [[Sadiq Khan]] led large protests in [[London]] against [[Donald Trump|President Trump]]'s [[state]] visit, comparing him to [[Adolf Hitler]] and Benito Mussolini.
 
 ### AF 2018-10-31 0273
 (01:33:38) A caller named [[Jared Kushner|Jared]] argued that the "Woman Question" is more fundamental than the "[[Jews|Jewish]] Question," stating that the inclusion of women ("fashy goyettes") in nationalist movements sows discord and undermines male cohesion, citing Mussolini's March on [[Rome]] as an example of a successful male-only political action.

@@ -28,3 +28,6 @@
 
 ### AF 2019-05-15 0388
 (01:47:00) [[Nicholas J. Fuentes]] cited a report from the [[The Los Angeles Times|Los Angeles Times]] stating the [[U.S. Department of State|State Department]] ordered the evacuation of non-essential personnel from the [[United States Embassy in Jerusalem|U.S. Embassy]] in Baghdad and a consulate in [[Erbil]], [[Iraq]], due to threats from [[Iran]].
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] reported that the [[United States]] has moved all of its troops from Baghdad to [[Iraq|Iraqi]] [[Kurdistan]].

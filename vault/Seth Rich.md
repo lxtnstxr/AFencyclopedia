@@ -12,7 +12,7 @@
 (10:49:00) [[Nicholas J. Fuentes]] suggested that his criticism of Zionists could lead to him being targeted, referencing the deaths of Seth Rich and the [[Obama]]-era policy allowing drone strikes against [[United States|American]] citizens.
 
 ### AF 2018-11-14 0282
-(00:05:50) [[Jack Posobiec]] was connected to neo-Nazi brothers [[Jeffrey Clark]] and [[Edward Clark]], [[who]] honored [[Dylann Roof]] and attended the [[Unite the Right]] rally in [[City of Charlottesville|Charlottesville]], with photographs showing them filming [[Jack Posobiec|Posobiec]] for a project about Seth Rich.
+(00:05:50) [[Jack Posobiec]] was connected to neo-Nazi brothers [[Jeffrey Clark]] and [[Edward Clark]], [[who]] honored [[Dylann Roof]] and attended the [[Unite the Right]] rally in [[Charlottesville]], with photographs showing them filming [[Jack Posobiec|Posobiec]] for a project about Seth Rich.
 
 ### AF 2018-03-21 0129
 (00:08:00) [[Jack Burkman]], a lobbyist, offered a $130,000 bounty in 2017 for information leading to the arrest or resolution in the murder of Seth Rich, a [[Democratic Party|DNC]] staffer killed on July 10, 2016 in [[Washington D.C.|Washington]], D.C.

@@ -22,4 +22,4 @@
 (34:54:36) The collapse of the [[Soviet Union]] in 1991 led to the independence of [[Ukraine]], [[Belarus]], the Baltic states, and other former Soviet republics, dramatically reducing [[Russia]]'s size and population.
 
 ### AF 2022-03-08 0954
-(01:07:01:20) [[Nicholas J. Fuentes]] argued that [[Russia]]'s invasion was a limited military campaign with specific objectives to degrade [[Ukraine]]'s military, install a pro-[[Russian]] government, and secure [[City of Sevastopol|Crimea]] and [[Donetsk|Donbass]], not a prelude to invading [[Israel|Poland]] or the Baltic states.
+(01:07:01:20) [[Nicholas J. Fuentes]] argued that [[Russia]]'s invasion was a limited military campaign with specific objectives to degrade [[Ukraine]]'s military, install a pro-[[Russian]] government, and secure [[Crimea]] and [[Donetsk|Donbass]], not a prelude to invading [[Israel|Poland]] or the Baltic states.

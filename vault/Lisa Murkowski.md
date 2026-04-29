@@ -103,3 +103,9 @@
 
 ### AF 2018-06-28 0190
 (01:35:35) [[Republican Party|Republican]] senators [[Susan Collins]] and Lisa Murkowski were considered potential votes against a conservative [[Supreme Court of the United States|Supreme Court]] nominee due to their positions on abortion.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:37:52) [[Nicholas J. Fuentes]] argued that [[John Thune]], [[Susan Collins]], and Lisa Murkowski would be among the [[Republican Party|Republican]] senators to defect and convict [[Donald Trump]] if pressured by [[Israel]] and the billionaires, potentially leading to [[Donald Trump|Trump]]'s removal from office.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:39:33) [[Nicholas J. Fuentes]] reported that the top three [[House Democrats]] supported an effort to impeach [[Kristi Noem]], and that [[Republican Party|Republican]] Senators [[Thom Tillis]] and Lisa Murkowski were also critical.

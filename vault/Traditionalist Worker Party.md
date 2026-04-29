@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2021-12-14 0922
-(21:42:84) [[Nicholas J. Fuentes]] stated that a [[Jewish]] woman had sued [[Richard Spencer]], [[American Identity Movement|Identity Europa]], [[Matthew Heimbach]], and the Traditionalist Worker Party for damages related to the [[City of Charlottesville|Charlottesville]] rally.
+(21:42:84) [[Nicholas J. Fuentes]] stated that a [[Jewish]] woman had sued [[Richard Spencer]], [[American Identity Movement|Identity Europa]], [[Matthew Heimbach]], and the Traditionalist Worker Party for damages related to the [[Charlottesville]] rally.
 
 
 ### AF 2018-03-16 0126

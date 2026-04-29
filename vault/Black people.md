@@ -7,13 +7,13 @@
 (01:35:38) A hoax text message campaign targeted Black people, falsely telling them to "report to the plantation," which contributed to negative media narratives against [[Donald Trump]].
 
 ### AF 2020-09-16 0682
-(02:02:120) The same report from [[City of Minneapolis|Minneapolis]] argued that an 80% reduction in traffic stops was insufficient because Black people were still being stopped at a disproportionate rate compared to [[White people]].
+(02:02:120) The same report from [[Minneapolis]] argued that an 80% reduction in traffic stops was insufficient because Black people were still being stopped at a disproportionate rate compared to [[White people]].
 
 ### AF 2020-09-16 0682
 (43:21:160) [[Nicholas J. Fuentes]] referenced commentator [[Hasan Piker|Vaush]] as an example of a leftist [[who]] argues that crime among Black people is a symptom of systemic oppression, not individual malice.
 
 ### AF 2020-09-16 0682
-(46:43:400) Data showed that in [[City of Minneapolis|Minneapolis]], a [[city]] that is 64% [[White]] and 19% [[Black]], Black people were consistently pulled over more than [[White people]] year after year.
+(46:43:400) Data showed that in [[Minneapolis]], a [[city]] that is 64% [[White]] and 19% [[Black]], Black people were consistently pulled over more than [[White people]] year after year.
 
 ### AF 2020-09-16 0682
 (48:40:180) [[Nicholas J. Fuentes]] argued that the [[Black Lives Matter]] movement and liberals ultimately believed that laws should not apply to Black people, creating a racial caste system in [[United States|America]].

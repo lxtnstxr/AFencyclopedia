@@ -34,3 +34,36 @@
 
 ### AF 2023-05-12 1161
 (00:08:24) [[Nicholas J. Fuentes]] stated that [[Skydance Media]], founded by David Ellison, collaborated with [[Paramount Global|Paramount Pictures]] on films like *Top Gun: Maverick* and *Mission: Impossible*.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:21:40) David Ellison acquired [[Paramount Global|Paramount Pictures]] for his media company [[Skydance Media|Skydance]], which became [[Skydance Media|Skydance Paramount]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:08:24) David Ellison's studio [[Skydance Media|Skydance]] acquired [[Paramount Global|Paramount Pictures]], which includes [[Paramount Global|Paramount Plus]], [[CBS News]], and other properties, in 2025.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:08:31) The Ellison family is [[Jews|Jewish]], pro-[[Israel]], and [[Jews|Zionist]], and is making a bid to control the entire [[United States]] media apparatus.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:21:20) [[Nicholas J. Fuentes]] stated that the featured story is a "hostile takeover" of [[Warner Bros. Discovery|Warner Bros.]] by [[Skydance Media|Skydance Paramount]], otherwise [[known]] as David Ellison's media company, which he characterized as "[[Jews]] are buying the media again."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:24:56) [[Nicholas J. Fuentes]] reported that [[Bari Weiss]] was put in charge of [[CBS]] News as editor-in-chief by David Ellison.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:44:59) [[Nicholas J. Fuentes]] introduced [[Skydance Media|Skydance]] Productions, founded by David Ellison in 2010.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:45:14) [[Nicholas J. Fuentes]] identified David Ellison as the son of [[Oracle Corporation|Larry Ellison]], the founder of [[Oracle Corporation|Oracle]], describing [[Oracle Corporation|Oracle]] as a major [[big tech]] company providing data hosting for most major websites.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:03:01) [[Nicholas J. Fuentes]] quoted that [[Oracle Corporation|Larry Ellison]] is a donor, informal advisor, and friend of the [[president]], and that David Ellison made key hires at [[CBS]] to ensure the network is perceived as less adversarial to [[Donald Trump|Trump]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:08:15) [[Nicholas J. Fuentes]] stated, "By definition, [[Jews|Jewish]] media" is what the Ellisons would control, identifying [[Oracle Corporation|Larry Ellison]] and David Ellison as "ethnically [[Jews|Jewish]]" and "extremely pro-[[Israel]]."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:37:13:76) [[Nicholas J. Fuentes]] reported that David Ellison acquired [[Bari Weiss]]'s publication, [[Bari Weiss|The Free Press]], for over $100 million and then made her the editor-in-chief of [[CBS]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:05:41) David Ellison's company [[Skydance Media]] acquired [[Paramount Global]], and David Ellison's father [[Oracle Corporation|Larry Ellison]] owns [[TikTok Inc.|TikTok]].

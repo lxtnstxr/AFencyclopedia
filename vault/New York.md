@@ -72,7 +72,7 @@
 
 
 ### AF 2025-08-26 1557
-(01:12:20) The situation in the [[United States]] is compared to [[Europe]], with [[Afghanistan|Afghans]], [[Pakistan|Pakistanis]], and Muslims in the [[United Kingdom]]; Venezuelans and Salvadorians in New York, [[State of Texas|Texas]], or [[State of California|California]]; and [[India|Indians]] and [[China|Chinese]] in [[City of Seattle|Seattle]] and [[City of Portland|Portland]].
+(01:12:20) The situation in the [[United States]] is compared to [[Europe]], with [[Afghanistan|Afghans]], [[Pakistan|Pakistanis]], and Muslims in the [[United Kingdom]]; Venezuelans and Salvadorians in New York, [[State of Texas|Texas]], or [[State of California|California]]; and [[India|Indians]] and [[China|Chinese]] in [[Seattle]] and [[Portland]].
 
 
 ### AF 2025-08-25 1556
@@ -243,7 +243,7 @@
 (00:31:41) The group's activism extended beyond New York, involving private briefings with former [[Israeli Prime Minister]] [[Naftali Bennett]], war cabinet member [[Benny Gantz]], and [[Israeli Ambassador]] [[Michael Herzog]], and facilitating screenings of an [[Israel Defense Forces]]-compiled film about the [[October 7th Attack]] at [[Harvard University]].
 
 ### AF 2024-04-24 1325
-(07:12:88) [[Nicholas J. Fuentes]] announced the featured story for the evening would be the massive pro-[[Gaza Strip|Palestine]], anti-[[Israel]] protests paralyzing college campuses across the [[United States]], from [[State of California|California]] to New York.
+(07:12:88) [[Nicholas J. Fuentes]] announced the featured story for the evening would be the massive pro-[[Palestine]], anti-[[Israel]] protests paralyzing college campuses across the [[United States]], from [[State of California|California]] to New York.
 
 ### AF 2024-04-24 1325
 (43:16:11) [[Nicholas J. Fuentes]] stated that [[Mike Johnson]], [[Chuck Schumer]], [[Republican Party|Republican]] and [[Democratic Party|Democrat]] legislators, and the [[Democratic Party|Democrat]] mayor of New York City had all said police must be sent in to the protests.
@@ -252,7 +252,7 @@
 (01:28:26:17) [[Nicholas J. Fuentes]] argued that people gravitate towards dynamic cities like New York, [[Los Angeles]], and [[Miami]] because they are the last places with a vestige of true society, culture, and social life, unlike hollow suburban or declining urban areas.
 
 ### AF 2024-04-22 1323
-(00:00:34) Major pro-[[Gaza Strip|Palestine]] protests began at [[Columbia|Columbia University]] in New York and have since spread to [[New York University]], [[Yale]], [[MIT]], and campuses in [[State of Michigan|Michigan]], [[State of Ohio|Ohio]], and [[State of California|California]].
+(00:00:34) Major pro-[[Palestine]] protests began at [[Columbia|Columbia University]] in New York and have since spread to [[New York University]], [[Yale]], [[MIT]], and campuses in [[State of Michigan|Michigan]], [[State of Ohio|Ohio]], and [[State of California|California]].
 
 ### AF 2024-03-13 1305
 (00:28:07) [[Nicholas J. Fuentes]] cited New York City's jurisdiction where calling an [[Hispanic]] an "illegal alien" can enhance a crime to a hate crime or be a misdemeanor itself as an example of eroding free speech about groups.
@@ -285,7 +285,7 @@
 (00:05:54) [[Jared Kushner]] was a close personal friend of [[Benjamin Netanyahu|Bibi]], a supporter of [[Chabad|Chabad Lubavitch]] in New York, and hosted [[Benjamin Netanyahu|Bibi]] at his family's building at 666 Fifth Avenue.
 
 ### AF 2024-02-01 1287
-(00:19:31) [[Ilhan Omar]]'s explicit advocacy for [[Somalia]] was contrasted with the broader issue of immigrants forming segregated communities in cities like [[City of Minneapolis|Minneapolis]], [[Los Angeles]], [[City of Chicago|Chicago]], and New York City, which hinders assimilation into [[United States|American]] society.
+(00:19:31) [[Ilhan Omar]]'s explicit advocacy for [[Somalia]] was contrasted with the broader issue of immigrants forming segregated communities in cities like [[Minneapolis]], [[Los Angeles]], [[Chicago]], and New York City, which hinders assimilation into [[United States|American]] society.
 
 ### AF 2024-01-30 1285
 (12:12:40) [[Patriot Front]] conducted a rally in New York City.
@@ -294,7 +294,7 @@
 (00:45:49) [[Nicholas J. Fuentes]] argued that demographic trends from non-white immigration were turning states like [[State of California|California]], New York, [[Illinois]], [[Virginia]], [[Country of Georgia|Georgia]], and [[State of Florida|Florida]] permanently blue, threatening permanent [[Democratic Party|Democrat]] control at the federal level.
 
 ### AF 2024-01-25 1282
-(00:51:00) [[Greg Abbott]], the Governor of [[State of Texas|Texas]], deployed the [[Texas National Guard]] to install barbed wire along the [[Rio Grande]] and began busing illegal immigrants to cities like [[City of Chicago|Chicago]] and New York, including the suburb of [[Hinsdale]].
+(00:51:00) [[Greg Abbott]], the Governor of [[State of Texas|Texas]], deployed the [[Texas National Guard]] to install barbed wire along the [[Rio Grande]] and began busing illegal immigrants to cities like [[Chicago]] and New York, including the suburb of [[Hinsdale]].
 
 ### AF 2024-01-09 1275
 (00:30:23) A secret, illegal underground tunnel was discovered beneath the world headquarters of the [[Chabad]] movement at 770 Eastern Parkway in New York City.
@@ -318,7 +318,7 @@
 (00:39:38) [[Nicholas J. Fuentes]] argued that real power in [[United States|America]] is concentrated within a small elite of about 5,000-10,000 people in cities like New York City, [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], and [[San Francisco Bay Area|San Francisco]].
 
 ### AF 2023-10-23 1240
-(00:29:39) [[Nicholas J. Fuentes]] stated that [[Israel]] understands that mass protests in [[United States|American]] cities like [[City of Chicago|Chicago]], New York, and [[Los Angeles]] could pressure the [[United States]] government to reduce its support.
+(00:29:39) [[Nicholas J. Fuentes]] stated that [[Israel]] understands that mass protests in [[United States|American]] cities like [[Chicago]], New York, and [[Los Angeles]] could pressure the [[United States]] government to reduce its support.
 
 ### AF 2023-10-12 1233
 (30:21:12) [[Nicholas J. Fuentes]] listed [[Los Angeles]], [[Las Vegas]], and [[Miami]] as his favorite world-class cities, praising their aesthetics, amenities, and food, while expressing dislike for New York City's density and smell.
@@ -342,7 +342,7 @@
 (00:56:03) [[Nicholas J. Fuentes]] reported that [[Ryan Carson]] had lived in New York City for 13 years and organized campaigns for the [[NYPIRG|New York Public Interest Research Group]], focusing on waste policy.
 
 ### AF 2023-10-03 1228
-(00:03:43) [[Nicholas J. Fuentes]] argued that crime is a pervasive problem affecting residents of major cities like [[Los Angeles]], [[San Francisco Bay Area|San Francisco]], New York City, and [[City of Chicago|Chicago]].
+(00:03:43) [[Nicholas J. Fuentes]] argued that crime is a pervasive problem affecting residents of major cities like [[Los Angeles]], [[San Francisco Bay Area|San Francisco]], New York City, and [[Chicago]].
 
 ### AF 2023-10-03 1228
 (00:14:45) [[Nicholas J. Fuentes]] previously suggested on his show that an invasion of New York City by [[China]] to protect Asian nationals might reduce crime, a statement for which [[Josh Kruger]] criticized him.
@@ -354,10 +354,10 @@
 (00:36:00) The state of New York revoked the business license of [[Donald Trump|Trump]]'s company, [[Trump Organization|The Trump Organization]], ruling it had inflated assets to secure favorable loans and tax benefits.
 
 ### AF 2023-09-22 1222
-(00:25:48) Major [[United States|U.S]]. cities including New York City and [[City of Chicago|Chicago]] are struggling to [[house]] tens of thousands of migrants arriving from the border, with New York City sheltering approximately 60,000 people at a projected cost of $12 billion over three years.
+(00:25:48) Major [[United States|U.S]]. cities including New York City and [[Chicago]] are struggling to [[house]] tens of thousands of migrants arriving from the border, with New York City sheltering approximately 60,000 people at a projected cost of $12 billion over three years.
 
 ### AF 2023-09-15 1217
-(00:35:15) [[Nicholas J. Fuentes]] described historic white-majority [[United States|American]] cities like [[Detroit]], [[City of Chicago|Chicago]], and New York a century ago as part of a "great" and "aspirational" [[Europe|European]] empire that was a "great place for everybody."
+(00:35:15) [[Nicholas J. Fuentes]] described historic white-majority [[United States|American]] cities like [[Detroit]], [[Chicago]], and New York a century ago as part of a "great" and "aspirational" [[Europe|European]] empire that was a "great place for everybody."
 
 ### AF 2023-09-14 1216
 (01:57:20) [[Nicholas J. Fuentes]] stated that [[Donald Trump]]'s son-in-law [[Jared Kushner]] is best friends with [[Benjamin Netanyahu|Bibi]], who stays at his apartment in New York.
@@ -384,7 +384,7 @@
 (01:43:12) [[Gabe Hoffman]], a rich hedge fund manager from New York, was involved in a documentary about [[Nicholas J. Fuentes]] made during a November event.
 
 ### AF 2023-07-20 1189
-(02:10:01) [[Nicholas J. Fuentes]] countered [[Destiny]]'s claim that no COVID-19 vaccine mandates existed, citing mandates in New York City, [[Los Angeles]], and [[City of Chicago|Chicago]] for schools, employers, government workers, and medical workers.
+(02:10:01) [[Nicholas J. Fuentes]] countered [[Destiny]]'s claim that no COVID-19 vaccine mandates existed, citing mandates in New York City, [[Los Angeles]], and [[Chicago]] for schools, employers, government workers, and medical workers.
 
 ### AF 2023-07-05 1187
 (17:17:00) [[Nicholas J. Fuentes]] defined the "[[United States|America]] First" movement as advocating for [[United States|American government]] independence from foreign influence, including from foreign nations operating within [[United States|U.S]]. borders like [[Washington D.C.|D.C.]], New York, and [[Los Angeles]].
@@ -405,7 +405,7 @@
 (07:20:32) [[Donald Trump]] announced his 2016 presidential campaign with a speech in the lobby of [[Trump Tower]] in New York City, and his 2024 announcement at [[Mar-a-Lago]] in [[State of Florida|Florida]].
 
 ### AF 2023-05-23 1164
-(02:16:38) [[Nicholas J. Fuentes]] cited rampant crime in [[City of Chicago|Chicago]], [[Los Angeles]], [[San Francisco Bay Area|San Francisco]], New York City, and [[Washington D.C.]], where criminals operate with impunity due to policies that discourage police intervention.
+(02:16:38) [[Nicholas J. Fuentes]] cited rampant crime in [[Chicago]], [[Los Angeles]], [[San Francisco Bay Area|San Francisco]], New York City, and [[Washington D.C.]], where criminals operate with impunity due to policies that discourage police intervention.
 
 ### AF 2023-05-06 1157
 (01:23:58) A homeless man named [[Jim Jordan|Jordan]] Neely was killed on the New York City subway on Monday by a Marine veteran who placed him in a chokehold after Neely began screaming and threatening passengers.
@@ -480,10 +480,10 @@
 (01:14:58) Following the end of lockdowns and mandates, institutions including the [[Joe Biden|White House]], New York state, and major social media companies reversed their COVID-19 policies.
 
 ### AF 2022-10-20 1082
-(00:34:58) [[Nicholas J. Fuentes]] argued that the policy failures in liberal-run cities like [[San Francisco Bay Area|San Francisco]], [[Los Angeles]], [[City of Chicago|Chicago]], and New York—such as rampant homelessness, disease, and crime—were the direct result of progressive principles like sanctuary cities, gun control, and defunding the police.
+(00:34:58) [[Nicholas J. Fuentes]] argued that the policy failures in liberal-run cities like [[San Francisco Bay Area|San Francisco]], [[Los Angeles]], [[Chicago]], and New York—such as rampant homelessness, disease, and crime—were the direct result of progressive principles like sanctuary cities, gun control, and defunding the police.
 
 ### AF 2022-10-20 1082
-(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[City of Chicago|Chicago]], New York, [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[City of Miami|Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[City of Philadelphia|Philadelphia]], and [[City of Minneapolis|Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
+(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[Chicago]], New York, [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[Philadelphia]], and [[Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
 
 ### AF 2022-10-11 1076
 (00:05:23) The documentary *He Will Not Divide [[Us]]*, featuring [[Nicholas J. Fuentes]], premiered on Thursday, chronicling the 2017 art installation protest in New York City involving [[Shia LaBeouf]], [[Samuel J. Hyde|Sam Hyde]], and [[Brittany Venti]].
@@ -495,16 +495,16 @@
 (00:46:21) [[Eric Adams]], the mayor of New York City, declared a state of emergency over an influx of more than 17,000 migrants sent from the southern border since April, a situation he stated the [[city]] did not ask for and which is on track to cost $1 billion.
 
 ### AF 2022-10-08 1075
-(00:46:46) [[Republican Party|Republican]]-led states including [[State of Texas|Texas]], [[Arizona]], and [[State of Florida|Florida]] have been sending migrants to [[Democratic Party|Democratic]]-led areas like New York City and [[City of Chicago|Chicago]] to pressure the [[Joe Biden]] administration to reduce the number of migrants crossing the southern border.
+(00:46:46) [[Republican Party|Republican]]-led states including [[State of Texas|Texas]], [[Arizona]], and [[State of Florida|Florida]] have been sending migrants to [[Democratic Party|Democratic]]-led areas like New York City and [[Chicago]] to pressure the [[Joe Biden]] administration to reduce the number of migrants crossing the southern border.
 
 ### AF 2022-10-08 1075
-(00:49:58) The [[Democratic Party|Democrat]]-run [[city]] of [[El Paso]] offered voluntary bus rides to nearly 9,000 migrants bound for New York City and [[City of Chicago|Chicago]], more than double the number sent by [[State of Texas|Texas]] Governor [[Greg Abbott]], in an effort to alleviate strain on its own resources.
+(00:49:58) The [[Democratic Party|Democrat]]-run [[city]] of [[El Paso]] offered voluntary bus rides to nearly 9,000 migrants bound for New York City and [[Chicago]], more than double the number sent by [[State of Texas|Texas]] Governor [[Greg Abbott]], in an effort to alleviate strain on its own resources.
 
 ### AF 2022-10-08 1075
 (00:50:18) As part of his emergency declaration, [[Eric Adams]] issued an executive order allowing New York City to dedicate resources to support asylum seekers and expedite response efforts.
 
 ### AF 2022-10-08 1075
-(00:56:32) [[Nicholas J. Fuentes]] argued that migrants seeking free healthcare, education, welfare, and low-wage jobs would find them readily in [[City of Chicago|Chicago]] and New York City, meaning the busing strategy would not hurt [[Democratic Party|Democratic]] leaders like [[Eric Adams]], [[Lori Lightfoot]], or [[Joe Biden]].
+(00:56:32) [[Nicholas J. Fuentes]] argued that migrants seeking free healthcare, education, welfare, and low-wage jobs would find them readily in [[Chicago]] and New York City, meaning the busing strategy would not hurt [[Democratic Party|Democratic]] leaders like [[Eric Adams]], [[Lori Lightfoot]], or [[Joe Biden]].
 
 ### AF 2022-10-07 1074
 (01:19:51) [[Jared Kushner]], born to a wealthy real estate family in New York, inherited his company and fortune, was a lifelong [[Democratic Party|Democrat]] who voted for [[Barack Obama]] and donated to [[Hillary Clinton]] before supporting [[Mitt Romney]] in 2012.
@@ -528,16 +528,16 @@
 (01:59:47) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s three-floor, gold and marble apartment at the top of [[Trump Tower]] overlooking Central Park could reasonably be worth hundreds of millions, citing other high-value properties on "Billionaires' Row" in New York City.
 
 ### AF 2022-09-20 1063
-(58:06:69) [[Greg Abbott]], the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]], responded to the border crisis by using taxpayer money to bus hundreds of illegal immigrants to [[Democratic Party|Democrat]]-led cities like [[Washington D.C.|Washington, D.C.]], New York City, and [[City of Chicago|Chicago]].
+(58:06:69) [[Greg Abbott]], the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]], responded to the border crisis by using taxpayer money to bus hundreds of illegal immigrants to [[Democratic Party|Democrat]]-led cities like [[Washington D.C.|Washington, D.C.]], New York City, and [[Chicago]].
 
 ### AF 2022-09-13 1059
-(00:01:30) [[Greg Abbott]], the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]], initiated a policy of busing hundreds of illegal immigrants from the southern border to northern [[Democratic Party|Democrat]]-controlled cities, including [[Washington D.C.|Washington, D.C.]], New York City, and [[City of Chicago|Chicago]].
+(00:01:30) [[Greg Abbott]], the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]], initiated a policy of busing hundreds of illegal immigrants from the southern border to northern [[Democratic Party|Democrat]]-controlled cities, including [[Washington D.C.|Washington, D.C.]], New York City, and [[Chicago]].
 
 ### AF 2022-09-13 1059
 (00:54:11) New York City Mayor [[Eric Adams]] stated that creating a special credit card code for gun stores was "common sense," similar to codes for airlines or groceries.
 
 ### AF 2022-08-31 1052
-(00:04:50) [[Greg Abbott]], the Governor of [[State of Texas|Texas]], began busing migrants apprehended at the southern border to sanctuary cities including [[Washington D.C.|Washington, D.C.]], New York City, and [[City of Chicago|Chicago]].
+(00:04:50) [[Greg Abbott]], the Governor of [[State of Texas|Texas]], began busing migrants apprehended at the southern border to sanctuary cities including [[Washington D.C.|Washington, D.C.]], New York City, and [[Chicago]].
 
 ### AF 2022-08-16 1048
 (00:00:00) [[Nicholas J. Fuentes]] characterized the [[United States|U.S. government]] as a criminal entity thoroughly corrupted by money and foreign influence, representing a breakaway nation of cosmopolitan elites in cities like [[Washington D.C.|Washington, D.C.]], New York, [[L.A.]], and [[San Francisco Bay Area|San Francisco]].
@@ -564,7 +564,7 @@
 (00:01:20) [[Eric Adams]], the Mayor of New York City, and Police Commissioner [[Keechant Sewell]] held a press conference stating that the [[Supreme Court]]'s ruling did not immediately change New York's gun laws and that illegal carrying would still result in arrest.
 
 ### AF 2022-06-17 1015
-(00:46:04) [[Nicholas J. Fuentes]], living in the suburbs of [[City of Chicago|Chicago]], stated that whites are already a minority in the [[City of Chicago|Chicago]] metro area and in most major cities like [[Los Angeles]], New York, and increasingly in [[State of Texas|Texas]], [[State of Florida|Florida]], [[Arizona]], and [[State of New Mexico|New Mexico]].
+(00:46:04) [[Nicholas J. Fuentes]], living in the suburbs of [[Chicago]], stated that whites are already a minority in the [[Chicago]] metro area and in most major cities like [[Los Angeles]], New York, and increasingly in [[State of Texas|Texas]], [[State of Florida|Florida]], [[Arizona]], and [[State of New Mexico|New Mexico]].
 
 ### AF 2022-06-16 1014
 (01:00:08) [[Nicholas J. Fuentes]] referenced an incident where a white woman in New York's Central Park called the police on a [[black]] man, which was later deemed racist, contrasting it with stories of [[black]] violence against whites to argue for prudence.
@@ -594,13 +594,13 @@
 (18:29:34) [[Costin Alamariu|Bronze Age Pervert]] is an academic from [[Columbia|Columbia University]] mentored by a Straussian rabbi, published in the *[[Claremont Institute|Claremont Review of Books]]* funded by [[Paul Singer]], and linked with the "populist ink" crowd like [[Jack Murphy]] and [[Curtis Yarvin]] at [[Peter Thiel]]'s art hall parties in New York City.
 
 ### AF 2022-05-17 0995
-(00:12:04) [[Nicholas J. Fuentes]] announced that the feature story for his May 16, 2022, episode was the mass shooting in [[City of Buffalo|Buffalo]], New York.
+(00:12:04) [[Nicholas J. Fuentes]] announced that the feature story for his May 16, 2022, episode was the mass shooting in [[Buffalo]], New York.
 
 ### AF 2022-05-17 0995
-(00:23:09) [[Nicholas J. Fuentes]] cited examples from New York, [[Nashville]], and [[City of Phoenix|Phoenix]] where individuals wearing [[America First]] hats were the most visible counter-protesters at pro-abortion rallies.
+(00:23:09) [[Nicholas J. Fuentes]] cited examples from New York, [[Nashville]], and [[Phoenix]] where individuals wearing [[America First]] hats were the most visible counter-protesters at pro-abortion rallies.
 
 ### AF 2022-05-17 0995
-(00:29:28) The [[City of Buffalo|Buffalo]] supermarket shooter was identified as 18-year-old [[Payton Gendron]] of [[Conklin]], New York.
+(00:29:28) The [[Buffalo]] supermarket shooter was identified as 18-year-old [[Payton Gendron]] of [[Conklin]], New York.
 
 ### AF 2022-05-17 0995
 (01:19:44) [[Nicholas J. Fuentes]] argued that non-white immigrants cannot create or maintain the high quality of life found in white civilizations, leading to the decline of cities like [[Los Angeles]] and New York.
@@ -639,7 +639,7 @@
 (00:16:25) [[Nicholas J. Fuentes]] stated he felt the Holy Spirit working on him and the movement, citing a religious awakening since raising a crucifix at rallies in Staten Island and [[Manhattan]].
 
 ### AF 2022-03-24 0965
-(00:31:45) [[Nicholas J. Fuentes]] recalled predicting vaccine mandates a year before they were implemented, and expressed disbelief that he had to show proof of vaccination and ID to enter restaurants in [[City of Chicago|Chicago]] and New York.
+(00:31:45) [[Nicholas J. Fuentes]] recalled predicting vaccine mandates a year before they were implemented, and expressed disbelief that he had to show proof of vaccination and ID to enter restaurants in [[Chicago]] and New York.
 
 ### AF 2022-03-24 0965
 (00:32:25) [[Nicholas J. Fuentes]] described being denied entry to multiple restaurants in New York City during a rally because his group could not show proof of vaccination.
@@ -714,7 +714,7 @@
 (01:00:01) [[Nicholas J. Fuentes]] summarized the [[state]] of restrictions as of December 7, 2021, including federal and private company vaccine mandates, New York City's vaccine passport for five-year-olds, quarantine camps in [[Australia]], and proposed jail [[time]] for the unvaccinated in [[Austria]].
 
 ### AF 2021-12-06 0916
-(01:54:09) [[Nicholas J. Fuentes]] ranked [[City of Chicago|Chicago]] first for both smell and pizza quality, placed [[Dallas]] second for smell and third for pizza, and ranked New York last for smell and second for pizza, calling New York pizza a "sad joke."
+(01:54:09) [[Nicholas J. Fuentes]] ranked [[Chicago]] first for both smell and pizza quality, placed [[Dallas]] second for smell and third for pizza, and ranked New York last for smell and second for pizza, calling New York pizza a "sad joke."
 
 ### AF 2021-12-06 0916
 (01:57:59) During a trip to New York, [[Nicholas J. Fuentes]] and his supporters ate an expensive meal featuring Australian wagyu beef and lobster macaroni and cheese at a restaurant.
@@ -729,7 +729,7 @@
 (01:02:48) [[Nicholas J. Fuentes]] organized and led several anti-vaccine protests in New York City, including demonstrations outside [[Pfizer]] World Headquarters and Gracie Mansion, which drew hundreds of attendees and faced minimal counter-protest.
 
 ### AF 2021-11-24 0912
-(00:00:00) [[Nicholas J. Fuentes]] argued that the crime wave in cities like [[San Francisco Bay Area|San Francisco]], [[City of Chicago|Chicago]], [[Los Angeles]], and New York City was primarily conducted by [[black]] people, which he attributed to a lack of prosecution and a societal refusal to acknowledge racial patterns in crime.
+(00:00:00) [[Nicholas J. Fuentes]] argued that the crime wave in cities like [[San Francisco Bay Area|San Francisco]], [[Chicago]], [[Los Angeles]], and New York City was primarily conducted by [[black]] people, which he attributed to a lack of prosecution and a societal refusal to acknowledge racial patterns in crime.
 
 ### AF 2021-11-23 0911
 (00:12:23) [[Nicholas J. Fuentes]] organized and participated in several anti-vaccine mandate protests in New York City, including events outside Pfizer World Headquarters and Gracie Mansion, which were attended by hundreds of supporters with minimal counter-protest.
@@ -756,13 +756,13 @@
 (00:13:00) [[Nicholas J. Fuentes]] announced plans to travel to New York City the following week to conduct anti-vaccine mandate activism, culminating in a rally the weekend after.
 
 ### AF 2021-11-02 0905
-(00:08:45) [[Nicholas J. Fuentes]] connected the flight cancellations to vaccine mandate deadlines, citing similar walkouts or protests by the New York City fire department, the [[City of Chicago|Chicago]] police force, and [[Southwest Airlines]] employees.
+(00:08:45) [[Nicholas J. Fuentes]] connected the flight cancellations to vaccine mandate deadlines, citing similar walkouts or protests by the New York City fire department, the [[Chicago]] police force, and [[Southwest Airlines]] employees.
 
 ### AF 2021-11-02 0905
-(00:58:01) [[Nicholas J. Fuentes]] mentioned a judge in [[City of Chicago|Chicago]] had ruled that union police officers did not have to take the vaccine, and that firefighters and cops in New York City were walking off the job.
+(00:58:01) [[Nicholas J. Fuentes]] mentioned a judge in [[Chicago]] had ruled that union police officers did not have to take the vaccine, and that firefighters and cops in New York City were walking off the job.
 
 ### AF 2021-10-29 0903
-(00:48:48) New York City, under Mayor [[Bill de Blasio]], implemented a sweeping vaccine mandate for all municipal workers without a testing opt-out, similar to policies in [[San Francisco Bay Area|San Francisco]], [[Los Angeles]], [[City of Chicago|Chicago]], [[Washington D.C.|Washington]], and [[Massachusetts]].
+(00:48:48) New York City, under Mayor [[Bill de Blasio]], implemented a sweeping vaccine mandate for all municipal workers without a testing opt-out, similar to policies in [[San Francisco Bay Area|San Francisco]], [[Los Angeles]], [[Chicago]], [[Washington D.C.|Washington]], and [[Massachusetts]].
 
 ### AF 2021-10-29 0903
 (00:50:23) As of a Thursday morning deadline, one-third of New York City's fire and sanitation department workers and one-quarter of its police force had not proven vaccination, prompting [[city]] agencies to prepare contingency plans like mandated overtime.
@@ -792,10 +792,10 @@
 (07:25:42) [[Nicholas J. Fuentes]] announced plans to travel to New York City in early November to hold rallies and conduct activism.
 
 ### AF 2021-10-08 0890
-(03:17:30) [[Nicholas J. Fuentes]] held a rally in [[Springfield, Ohio (Note: "Springfield" is ambiguous. Given the context of other entities (Illinois), it likely refers to Springfield, Illinois, the state capital. However, "Springfield, Ohio" is in the canonical list. Since the source list provides no disambiguation, the most specific known canonical is used.)|Springfield]], [[Illinois]] the prior weekend and was preparing for another upcoming rally in New York.
+(03:17:30) [[Nicholas J. Fuentes]] held a rally in [[Springfield]], [[Illinois]] the prior weekend and was preparing for another upcoming rally in New York.
 
 ### AF 2021-10-08 0890
-(03:17:300) [[Nicholas J. Fuentes]] announced that his movement held a rally in [[Springfield, Ohio (Note: "Springfield" is ambiguous. Given the context of other entities (Illinois), it likely refers to Springfield, Illinois, the state capital. However, "Springfield, Ohio" is in the canonical list. Since the source list provides no disambiguation, the most specific known canonical is used.)|Springfield]], [[Illinois]] the previous weekend and was preparing for another rally in New York.
+(03:17:300) [[Nicholas J. Fuentes]] announced that his movement held a rally in [[Springfield]], [[Illinois]] the previous weekend and was preparing for another rally in New York.
 
 ### AF 2021-09-29 0887
 (58:38:20) New York City implemented a vaccine passport requirement for indoor venues, which [[Nicholas J. Fuentes]] cited as an example of how [[city]] governments and corporations could impose restrictions without federal constitutional protection.(01:18:14) [[Nicholas J. Fuentes]] acknowledged a message from Winston about a prior conversation on [[Ralph]]'s stream and expressed interest in a potential future debate with Sticks.
@@ -852,16 +852,16 @@
 (58:49:19) [[Nicholas J. Fuentes]] pointed out that [[State of Florida|Florida]], which had no mask mandate or lockdown, had COVID-19 infection and death rates comparable to states like New York that had strict mandates, contradicting official claims about the effectiveness of such measures.
 
 ### AF 2021-04-08 0788
-(00:19:10) [[Nicholas J. Fuentes]] asserted that the vast majority of urban gun violence in cities like New York City, [[City of Chicago|Chicago]], and [[Los Angeles]] is perpetrated by [[black]] and [[Hispanic]] individuals.
+(00:19:10) [[Nicholas J. Fuentes]] asserted that the vast majority of urban gun violence in cities like New York City, [[Chicago]], and [[Los Angeles]] is perpetrated by [[black]] and [[Hispanic]] individuals.
 
 ### AF 2021-03-25 0780
-(00:21:25) [[Nicholas J. Fuentes]] cited a surge in crime in major cities like [[City of Chicago|Chicago]], [[Los Angeles]], and New York City, with [[City of Chicago|Chicago]] on track for 1800 carjackings in 2021.
+(00:21:25) [[Nicholas J. Fuentes]] cited a surge in crime in major cities like [[Chicago]], [[Los Angeles]], and New York City, with [[Chicago]] on track for 1800 carjackings in 2021.
 
 ### AF 2021-03-19 0775
 (00:34:50) [[State of Florida|Florida]] had an unemployment rate of 4.8%, compared to 6.8% in [[State of Texas|Texas]], 8.8% in New York, and 9% in [[State of California|California]].
 
 ### AF 2021-02-16 0762
-(50:57:93) [[Nicholas J. Fuentes]] argued that the problem in [[United States|America]] is not state power itself, but that it is wielded by a transnational elite from cities like [[Los Angeles]], New York City, and [[City of Chicago|Chicago]] who hate the [[country]] and push policies like mass immigration, green energy, and COVID lockdowns that lower the quality of life.
+(50:57:93) [[Nicholas J. Fuentes]] argued that the problem in [[United States|America]] is not state power itself, but that it is wielded by a transnational elite from cities like [[Los Angeles]], New York City, and [[Chicago]] who hate the [[country]] and push policies like mass immigration, green energy, and COVID lockdowns that lower the quality of life.
 
 ### AF 2021-02-16 0762
 (01:09:35:27) [[Nicholas J. Fuentes]] noted that [[Donald Trump]] still faces potential indictments in New York and [[Country of Georgia|Georgia]], but expressed confidence he could beat them.
@@ -870,7 +870,7 @@
 (23:34:89) [[Nicholas J. Fuentes]] predicted that [[Donald Trump]] would face legal charges in New York and have his taxes scrutinized, with his reputation and legacy deliberately tarnished.
 
 ### AF 2021-01-07 0741
-(51:11:40) [[Nicholas J. Fuentes|Nicholas J. Fu(01:59:52) [[Nicholas J. Fuentes]] met and took pictures with [[United States|America]] First [[Catholic Church|Catholic]] mothers from New York City during the events in [[Washington D.C.|Washington, D.C.]].
+(51:11:40) [[Nicholas J. Fu(01:59:52) [[Nicholas J. Fuentes]] met and took pictures with [[United States|America]] First [[Catholic Church|Catholic]] mothers from New York City during the events in [[Washington D.C.|Washington, D.C.]].
 
 ### AF 2020-12-22 0738
 (00:07:07) [[Nicholas J. Fuentes]] claimed that a new, more contagious strain of the coronavirus was reported in the [[United Kingdom]] and New York City during the same week that the [[Pfizer]] and [[Moderna]] vaccines began distribution.
@@ -882,7 +882,7 @@
 (02:16:37) [[Nicholas J. Fuentes]] relayed testimony from a truck driver in [[State of Michigan|Michigan]] [[who]] said he drove hundreds of thousands of ballots from New York to [[Commonwealth of Pennsylvania|Pennsylvania]] on election day, after which the trailer went missing.
 
 ### AF 2020-11-02 0714
-(00:02:08) The 2020 election results were expected to be contested for days or weeks after November 3rd, with anticipated recounts, legal challenges, and widespread civil unrest in major cities like [[Washington D.C.|Washington, D.C.]], [[City of Chicago|Chicago]], New York City, and [[Los Angeles]].
+(00:02:08) The 2020 election results were expected to be contested for days or weeks after November 3rd, with anticipated recounts, legal challenges, and widespread civil unrest in major cities like [[Washington D.C.|Washington, D.C.]], [[Chicago]], New York City, and [[Los Angeles]].
 
 ### AF 2020-10-22 0707
 (00:28:49) [[Donald Trump]] criticized shutdowns in states like New York, [[State of California|California]], [[Commonwealth of Pennsylvania|Pennsylvania]], and [[North Carolina]], blaming [[Democratic Party|Democratic]] governors and arguing the cure cannot be worse than the problem.
@@ -897,7 +897,7 @@
 (28:33:57) [[Donald Trump]] argued people wanted their schools and restaurants open, and that cities like New York were "ghost towns" due to [[Democratic Party|Democrat]] policies, while taking credit for bringing back Big Ten football.
 
 ### AF 2020-09-16 0682
-(08:25:380) Following the [[City of Miami|Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in New York with [[Person|Milo Yiannopoulos]], traveled to [[City of Phoenix|Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
+(08:25:380) Following the [[Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in New York with [[Person|Milo Yiannopoulos]], traveled to [[Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
 
 ### AF 2020-09-16 0682
 (13:42:080) The [[Russia Today|USA Today]] survey's state-by-state breakdown ranked New York among the bottom ten states in [[United States Holocaust Memorial Museum|Holocaust]] knowledge.
@@ -906,7 +906,7 @@
 (13:52:460) The survey found that nearly 20% of Millennials and Gen Zers in New York incorrectly believed that [[Jews]] caused the [[United States Holocaust Memorial Museum|Holocaust]].
 
 ### AF 2020-09-02 0673
-(00:04:56) [[Nicholas J. Fuentes]] announced his show would cover the death of [[Daniel Prude]] in [[City of Rochester|Rochester]], New York, a case from March 2020 involving a man high on PCP [[who]] died after police placed a spit hood on him and restrained him on the ground.
+(00:04:56) [[Nicholas J. Fuentes]] announced his show would cover the death of [[Daniel Prude]] in [[Rochester]], New York, a case from March 2020 involving a man high on PCP [[who]] died after police placed a spit hood on him and restrained him on the ground.
 
 ### AF 2020-08-26 0669
 (27:33:60) [[Lara Trump]], married to [[Eric Trump]], recounted her journey from [[North Carolina]] to New York City and her surprise at joining the [[Donald Trump|Trump]] family, whom she described as warm, caring, and hardworking.
@@ -948,22 +948,22 @@
 (02:20:01) [[Nicholas J. Fuentes]] claimed that cities like [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[San Francisco Bay Area|San Francisco]], New York City, and [[Boston]] were "post-[[United States|American]]" and inhabited by a "transnational, post-national" elite disconnected from the rest of the [[country]].
 
 ### AF 2020-07-20 0644
-(01:27:52) [[Donald Trump|President Trump]] threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[City of Chicago|Chicago]], New York City, [[City of Philadelphia|Philadelphia]], [[City|Detroit]], [[Baltimore]], and [[Oakland]] to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[City of Portland|Portland]], [[Oregon]].
+(01:27:52) [[Donald Trump|President Trump]] threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[Chicago]], New York City, [[Philadelphia]], [[City|Detroit]], [[Baltimore]], and [[Oakland]] to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[Portland]], [[Oregon]].
 
 ### AF 2020-07-17 0643
-(02:09:28) [[Nicholas J. Fuentes]] ranked New York City as the greatest [[United States|American]] [[city]] due to its scale and status as the "center of the world," and [[City of Chicago|Chicago]] as second for its cleanliness, safety, skyline, and food.
+(02:09:28) [[Nicholas J. Fuentes]] ranked New York City as the greatest [[United States|American]] [[city]] due to its scale and status as the "center of the world," and [[Chicago]] as second for its cleanliness, safety, skyline, and food.
 
 ### AF 2020-07-16 0642
 (01:00:02.100) [[Nicholas J. Fuentes]] suggested that combined antibody and T-cell immunity might mean places like [[London]] or New York City were already at the 60% infection level required for herd immunity under old models.
 
 ### AF 2020-07-07 0635
-(01:23:56) A major crime wave occurred over the Fourth of July weekend in major cities including [[City of Chicago|Chicago]], New York City, [[Atlanta]], [[Baltimore]], and [[Los Angeles]].
+(01:23:56) A major crime wave occurred over the Fourth of July weekend in major cities including [[Chicago]], New York City, [[Atlanta]], [[Baltimore]], and [[Los Angeles]].
 
 ### AF 2020-06-18 0624
 (01:28:11) A viewer named Livin' [[City]] reported seeing people on [[Twitter]] praising a march for [[black]] trans sex workers in New York, which made them feel the [[Kanye West|West]] might be over.
 
 ### AF 2020-06-08 0616
-(22:06:45) [[Nicholas J. Fuentes]] reported that the [[George Floyd]] protests had escalated from initial unrest in [[City of Minneapolis|Minneapolis]] and [[City of St. Paul|St. Paul]] to violent riots, looting, and property destruction in virtually every major [[city]] in the [[United States]], including [[City of Chicago|Chicago]], New York City, and [[Los Angeles]].
+(22:06:45) [[Nicholas J. Fuentes]] reported that the [[George Floyd]] protests had escalated from initial unrest in [[Minneapolis]] and [[St. Paul]] to violent riots, looting, and property destruction in virtually every major [[city]] in the [[United States]], including [[Chicago]], New York City, and [[Los Angeles]].
 
 ### AF 2020-05-27 0614
 (00:09:30) [[Nicholas J. Fuentes]] noted that almost a year prior, figures like [[Laura Loomer]], [[Milo Yiannopoulos]], [[Paul Joseph Watson]], and [[Louis Farrakhan]] were banned from [[Facebook]] following the Christchurch shooting and new community guidelines.
@@ -1086,7 +1086,7 @@
 (52:29:08) [[Nicholas J. Fuentes]] reported that [[Andrew Cuomo]] announced a statewide stay-at-home order for New York's 19 million residents, effective Sunday night, with civil fines for non-compliance, allowing only essential work, solitary outdoor exercise, grocery shopping, and restaurant delivery.
 
 ### AF 2020-03-20 0569
-(56:30:26) [[Nicholas J. Fuentes]] pointed to videos of [[United States]] military Humvees being shipped to cities like [[Baltimore]], [[City of Chicago|Chicago]], and New York as evidence that the declaration of martial law and a mandatory lockdown, following the pattern seen in [[Italian Republic|Italy]] and [[France]], was a likely next step.
+(56:30:26) [[Nicholas J. Fuentes]] pointed to videos of [[United States]] military Humvees being shipped to cities like [[Baltimore]], [[Chicago]], and New York as evidence that the declaration of martial law and a mandatory lockdown, following the pattern seen in [[Italian Republic|Italy]] and [[France]], was a likely next step.
 
 ### AF 2020-03-19 0568
 (00:01:40) [[Nicholas J. Fuentes]] announced the main story for the show would be about the coronavirus pandemic and related economic stimulus proposals. (00:01:40) [[Senate]] [[Republican Party|Republicans]] unveiled a draft proposal to provide $1,200 cash payments to individuals earning under $75,000 and $2,400 to couples earning under $150,000, with amounts tapering for higher incomes and reduced payments for those with low taxable income. (00:03:06) The [[United States Senate]] passed the first phase of a coronavirus relief package, which included free coronavirus testing and paid sick leave. (00:04:18) [[Italian Republic|Italy]] surpassed [[China]] in official confirmed deaths from coronavirus, with [[Italian Republic|Italy]] reporting 41,000 cases compared to [[China]]'s 80,000. (00:05:07) [[Richard Burr]], a [[Senator]] from [[North Carolina]] and member of the [[Senate Intelligence Committee]], sold his [[stock]] holdings in late February while publicly stating the [[United States]] had the coronavirus under control. (00:06:57) [[Tulsi Gabbard]] dropped out of the [[Democratic presidential primary]] and endorsed [[Joe Biden]]. (00:07:37) [[Tulsi Gabbard]]'s presidential campaign was primarily focused on opposing foreign regime change wars. (00:08:38) [[Joe Biden]] voted for the [[Iraq War]] in 2003 and, as [[Vice President]] under [[Barack Obama]], supported the [[NATO intervention in Libya]] that deposed [[Muammar Gaddafi]] and backed funding for the [[Syria|Syrian]] opposition against [[Bashar al-Assad]]. (00:11:43) [[Nicholas J. Fuentes]] stated his opposition to regime change in [[Syria]], the wars in [[Iraq]] and [[Afghanistan]], war with [[Iran]], and expressed skepticism of alliances with [[Saudi Arabia]], [[Qatar]], and [[Israel]]. (00:12:27) [[Tulsi Gabbard]] was a member of the [[Council on Foreign Relations]]. (00:16:50) [[Tulsi Gabbard]] was a frequent guest on [[Tucker Carlson]]'s show. (00:20:09) [[Donald Trump]] opposed unnecessary regime change wars. (00:20:57) [[Donald Trump]] worked to reduce illegal immigration, build a wall, restrict asylum seekers, and reduce levels of legal immigration. (00:21:32) [[Donald Trump]] opposed [[China]] and free trade, worked to bring troops home from [[Syria]], and negotiated an end to the war in [[Afghanistan]]. (00:22:19) [[Donald Trump]] authorized three rounds of missile strikes on [[Syria]] in 2017 and 2018. (00:22:52) The [[Donald Trump]] administration abandoned the [[Barack Obama]] administration's goal of regime change in [[Syria]] and announced a near-total withdrawal of [[U.S. Department of Defense|U.S. forces]] from [[Syria]] in August 2019. (00:27:26) The number of confirmed coronavirus cases in the [[United States]] increased from approximately 9,000 to nearly 14,000 in 24 hours. (00:28:04) Global confirmed coronavirus cases reached 246,328, with [[China]] reporting 80,928, [[Italian Republic|Italy]] at 41,035, [[Iran]] at 18,407, [[Spain]] at 18,077, [[Germany]] at 15,320, the [[United States]] at nearly 14,000, [[France]] at 10,995, and [[South Korea]] at 8,565. (00:30:53) The [[United States]] conducted 22,000 coronavirus tests in a single day, a significant increase from an estimated maximum capacity of 15,000-20,000 tests per day the previous week. (00:32:23) Drive-through coronavirus testing centers were established in [[Washington state]] and New York. (00:32:50) [[South Korea]] conducted an average of 15,000 coronavirus tests per day, which helped control its outbreak. (00:39:09) The [[The New York Times|New York Times]] reported that [[Senate]] [[Republican Party|Republicans]] unveiled an economic rescue plan providing hundreds of billions in loans to corporations and small businesses, corporate tax cuts, and $1,200 checks for taxpayers earning up to $75,000, with amounts tapering to zero for those earning over $99,000. (00:40:45) [[Mitch McConnell]], the [[Senate Majority Leader]], introduced the economic relief proposal after private talks with [[Republican Party|Republicans]] in the [[White House]]. (00:41:49) The [[Republican Party|Republican]] relief proposal included an additional $500 per child for eligible individuals and couples. (00:45:07) The [[Republican Party|Republican]] relief plan proposed moving the income tax filing deadline from April 15 to July 15. (00:45:56) The [[Republican Party|Republican]] plan authorized over $200 billion in support for hard-hit industries, including $50 billion for commercial airlines and $8 billion for air cargo carriers. (00:55:09) [[ProPublica]] reported that [[Richard Burr]], as chair of the [[Senate Intelligence Committee]], sold between $600,000 and $1.72 million in stocks in 33 transactions a week before the market declined by 30%, after receiving daily coronavirus briefings. (00:56:44) [[National Public Radio|NPR]] obtained a recording from February 27 in which [[Richard Burr]] gave a dire preview of the coronavirus's economic impact to a VIP group at the [[Capitol Hill Club]], whose members paid up to $10,000 for access. (00:57:55) In a February 7 op-ed, [[Richard Burr]] assured the public the [[United States]] was better prepared than ever for public health threats like the coronavirus. (00:58:18) [[Richard Burr]] sold up to $150,000 in shares of [[Wyndham Hotels & Resorts]] and up to $100,000 in shares of [[Extended Stay America]], companies whose values later plummeted.
@@ -1104,7 +1104,7 @@
 (01:48:40) [[Nicholas J. Fuentes]] listed states that had ordered all restaurants and bars to close dine-in services, including [[State of Colorado|Colorado]], [[State of Connecticut|Connecticut]], [[State of Illinois|Illinois]], New York, and [[Washington D.C.|Washington]].
 
 ### AF 2020-03-16 0565
-(01:57:40) [[Nicholas J. Fuentes]] predicted that similar total lockdowns and curfews would soon be implemented in other major cities like [[City of Chicago|Chicago]], New York City, and [[Los Angeles]].
+(01:57:40) [[Nicholas J. Fuentes]] predicted that similar total lockdowns and curfews would soon be implemented in other major cities like [[Chicago]], New York City, and [[Los Angeles]].
 
 ### AF 2020-03-12 0563
 (00:33:29) [[Andrew Cuomo]], Governor of New York, banned public gatherings of more than 500 people and required venues with capacities under 500 to cut occupancy by half, leading to the shutdown of Broadway for at least a month.
@@ -1179,7 +1179,7 @@
 (01:01:58:32) [[Donald Trump]] cited a case in New York City, a sanctuary [[city]], where a criminal alien freed by local policies was later charged with the rape and murder of a 92-year-old woman.
 
 ### AF 2020-01-31 0537
-(00:09:01) [[Nicholas J. Fuentes]] recounted his previous speaking engagement at a [[City of Miami|Miami]] event in September, which he stated was organized by people affiliated with the Proud Boys and attended by [[Kathy Zhu]] and [[Jacob Wohl]].
+(00:09:01) [[Nicholas J. Fuentes]] recounted his previous speaking engagement at a [[Miami]] event in September, which he stated was organized by people affiliated with the Proud Boys and attended by [[Kathy Zhu]] and [[Jacob Wohl]].
 
 ### AF 2020-01-28 0534
 (00:02:55) A public elementary school in Brooklyn, the Maurice Sendak Community School, planned to host a Drag Queen Story Hour for first-grade students on February 24th to discuss gender fluidity.
@@ -1275,7 +1275,7 @@
 (00:15:14) [[Benjamin Netanyahu]] reportedly stayed at [[Jared Kushner]]'s penthouse in New York City during visits to the [[United States]] prior to [[Donald Trump]]'s election.
 
 ### AF 2019-06-20 0411
-(02:16:47) [[Nicholas J. Fuentes]] recounted being contacted by an [[NBCUniversal]] producer to appear on a panel defending white nationalism, focusing on events like the [[City of Charlottesville|Charlottesville]] rally and the Christchurch mosque shooting.
+(02:16:47) [[Nicholas J. Fuentes]] recounted being contacted by an [[NBCUniversal]] producer to appear on a panel defending white nationalism, focusing on events like the [[Charlottesville]] rally and the Christchurch mosque shooting.
 
 ### AF 2019-06-20 0411
 (02:32:43) [[Nicholas J. Fuentes]] listed several international terrorist attacks by [[Islam|Muslims]] that occurred in the weeks following the Christchurch mosque shooting, including incidents in the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], and [[Indonesia]].
@@ -1296,7 +1296,7 @@
 (01:32:02:880) A viewer asked why "all the new hip Brooklyn" residents were from the [[Midwest]], to which [[Nicholas J. Fuentes]] suggested it was because people from liberal suburbs dreamed of moving to big cities like New York City to live an "urbanite bug man lifestyle."
 
 ### AF 2019-05-27 0395
-(00:16:20) [[Nicholas J. Fuentes]] characterized the [[Michael Bloomberg|Bloomberg]] article's celebratory tone towards [[Tokyo]]'s increasing diversity as a "perverse and sick mentality" held by rootless cosmopolitans [[who]] want every [[city]] to resemble New York City or [[City of London|London]].
+(00:16:20) [[Nicholas J. Fuentes]] characterized the [[Michael Bloomberg|Bloomberg]] article's celebratory tone towards [[Tokyo]]'s increasing diversity as a "perverse and sick mentality" held by rootless cosmopolitans [[who]] want every [[city]] to resemble New York City or [[London]].
 
 ### AF 2019-05-24 0394
 (00:32:32) [[E. Michael Jones]] recounted an anecdote of a woman in New York City lamenting her empty life as a high-paid lawyer, contrasting it with his decision to marry at 21 and build a life, which he has maintained for 50 years.
@@ -1335,7 +1335,7 @@
 (19:48:12) A [[Republican Party|U.S. House of Representatives]] hearing on the Christchurch shooting included representatives from [[Google]], [[Facebook]], the [[Anti-Defamation League|ADL]], a civil rights [[organization]], and [[Candace Owens]].
 
 ### AF 2019-04-22 0371
-(01:39:21) The [[World Jewish Congress]], founded in [[Geneva]] in 1936, is an international federation of [[Jews|Jewish]] communities and organizations with headquarters in New York City and offices in [[Brussels]], [[City of Jerusalem|Jerusalem]], [[Paris]], [[City of Moscow|Moscow]], [[Buenos Aires]], and [[Geneva]].
+(01:39:21) The [[World Jewish Congress]], founded in [[Geneva]] in 1936, is an international federation of [[Jews|Jewish]] communities and organizations with headquarters in New York City and offices in [[Brussels]], [[Jerusalem]], [[Paris]], [[Moscow]], [[Buenos Aires]], and [[Geneva]].
 
 ### AF 2019-04-08 0362
 (00:26:38) [[Facebook]] and [[Instagram]] banned [[Faith Goldy]] and other groups as part of a new policy targeting "white nationalism," announced in the aftermath of the Christchurch shooting.
@@ -1365,13 +1365,13 @@
 (00:11:11) [[Nicholas J. Fuentes]] questioned what it meant for [[Donald Trump]] to be a conservative, given his socially liberal background from New York City and his administration's advancement of liberal policies despite failures on immigration.
 
 ### AF 2019-02-11 0329
-(02:10:20) [[Nicholas J. Fuentes]] expressed a pro-Union, anti-Confederate stance, stating his allegiance was with the industrial North and cities like [[City of Chicago|Chicago]], New York City, and [[Boston]].
+(02:10:20) [[Nicholas J. Fuentes]] expressed a pro-Union, anti-Confederate stance, stating his allegiance was with the industrial North and cities like [[Chicago]], New York City, and [[Boston]].
 
 ### AF 2019-01-31 0322
 (24:08:60) [[Andrew Cuomo]], Governor of New York, directed the One World Trade Center and other landmarks to be lit in pink to celebrate the passage of the [[state]]'s Reproductive Health Act.
 
 ### AF 2019-01-25 0318
-(00:21:40) [[Warner Bros. Discovery|CNN]] reported that the government shutdown caused flight delays at major airports in New York, [[State of New Jersey|New Jersey]], [[City of Philadelphia|Philadelphia]], [[City of Orlando|Orlando]], and [[Atlanta]] due to staffing shortages at air traffic control centers.
+(00:21:40) [[Warner Bros. Discovery|CNN]] reported that the government shutdown caused flight delays at major airports in New York, [[State of New Jersey|New Jersey]], [[Philadelphia]], [[Orlando]], and [[Atlanta]] due to staffing shortages at air traffic control centers.
 
 ### AF 2018-12-17 0297
 (02:34:40) A 10-year-old boy [[known]] as "Desmond is Amazing" performed in drag at a Brooklyn gay bar called [[Three Dollar Bill]], where adult men showered him with dollar bills.
@@ -1434,7 +1434,7 @@
 (00:21:12) [[Nicholas J. Fuentes]] identified the authors of the Media Matters article as [[Madeline Peltz]] and [[Talia Lavin]], noting the latter describes herself as a "fat [[Jews|Jew]]" in her [[Twitter]] bio.
 
 ### AF 2018-09-06 0234
-(00:22:56) [[Nicholas J. Fuentes]] corrected the Media Matters article, stating his split with [[Right Side Broadcasting Network|RSBN]] was mutual and occurred in August after the [[City of Charlottesville|Charlottesville]] rally, not in April after comments about [[Warner Bros. Discovery|CNN]].
+(00:22:56) [[Nicholas J. Fuentes]] corrected the Media Matters article, stating his split with [[Right Side Broadcasting Network|RSBN]] was mutual and occurred in August after the [[Charlottesville]] rally, not in April after comments about [[Warner Bros. Discovery|CNN]].
 
 ### AF 2018-09-06 0234
 (00:24:16) [[Nicholas J. Fuentes]] recounted that the Media Matters article quoted him calling [[Amy Schumer]] a "fat, ugly slob" and suggesting she should be a "literal punching bag," which he stated was a joke.
@@ -1518,7 +1518,7 @@
 (09:11:48) [[Eric Schneiderman]] had led the charge during the Me Too movement, filed charges against [[Harvey Weinstein]], and passed laws on strangulation and assault in New York State.
 
 ### AF 2018-05-07 0159
-(36:59:00) [[Nicholas J. Fuentes]] cited hypocrisy, noting that [[Milo Yiannopoulos]] canceled an interview with him for being "too controversial," and [[Gavin McInnes]] told his Proud Boys to disavow the [[City of Charlottesville|Charlottesville]] rally.
+(36:59:00) [[Nicholas J. Fuentes]] cited hypocrisy, noting that [[Milo Yiannopoulos]] canceled an interview with him for being "too controversial," and [[Gavin McInnes]] told his Proud Boys to disavow the [[Charlottesville]] rally.
 
 ### AF 2018-05-03 0157
 (00:06:33) [[Jared Holt]] graduated from the [[University of Central Arkansas]] and previously worked as a research associate tracking fringe media for Media Matters for America.
@@ -1536,7 +1536,7 @@
 (00:58:25) District courts in [[State of California|California]] and New York issued injunctions blocking [[Donald Trump]]'s executive order to rescind the [[Deferred Action for Childhood Arrivals|DACA]] program, forcing the government to continue accepting renewal applications.
 
 ### AF 2018-03-20 0128
-(00:13:40) [[Nicholas J. Fuentes]] claimed the [[Democratic Party]]'s legislative agenda focused on banning semi-automatic rifles rather than handguns, which are used in the vast majority of gun crimes in cities like [[City of Chicago|Chicago]], [[Los Angeles]], and New York City.
+(00:13:40) [[Nicholas J. Fuentes]] claimed the [[Democratic Party]]'s legislative agenda focused on banning semi-automatic rifles rather than handguns, which are used in the vast majority of gun crimes in cities like [[Chicago]], [[Los Angeles]], and New York City.
 
 ### AF 2018-03-05 0118
 (01:13:00) [[Nicholas J. Fuentes]] stated that the [[Deferred Action for Childhood Arrivals|DACA]] rescission was stalled as courts in [[San Francisco Bay Area|San Francisco]] and New York ruled against it, requiring the [[Donald Trump|Trump]] administration to appeal through the circuit courts before reaching the [[Supreme Court of the United States|Supreme Court]].
@@ -1560,7 +1560,7 @@
 (01:04:23) [[Destiny|Stephen Bonnell]] challenged [[Nicholas J. Fuentes]]'s original intent argument by noting [[John Jay]] also wanted to keep [[Catholics]] out of New York, questioning if that intention should also be respected.
 
 ### AF 2017-11-03 0046
-(01:04:00) [[Nicholas J. Fuentes]] announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[City of Chicago|Chicago]], [[Boston]], New York, and [[Los Angeles]], with the goal of protesting daily until [[Donald Trump]] and [[Mike Pence]] were removed from power.
+(01:04:00) [[Nicholas J. Fuentes]] announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[Chicago]], [[Boston]], New York, and [[Los Angeles]], with the goal of protesting daily until [[Donald Trump]] and [[Mike Pence]] were removed from power.
 
 ### AF 2017-10-03 0023
 (00:18:00) [[Nicholas J. Fuentes]] referenced the incident where [[Hillary Clinton]] collapsed on a 70-degree day in New York City, with official explanations shifting from humidity to pneumonia.
@@ -1570,3 +1570,69 @@
 
 ### AF 2017-08-28 0003
 (00:52:90) [[Nicholas J. Fuentes]] alleged that after he split from the [[The Daily Wire|Daily Wire]] crowd, [[Reagan Battalion]] provided a clip to Media Matters where he had stated "we should kill globalists," which he later claimed to regret.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:19:56.110) [[Donald Trump]] is described as loving [[Israel]] and being "practically a [[Jews|Jew]] himself" due to his background in New York real estate.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:58:10) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] consistently chooses the wrong people and makes the wrong decisions, and that his dream is to be beloved by New York City, [[The New York Times]], and [[Warner Bros. Discovery|CNN]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:52:45) [[Nicholas J. Fuentes]] reported that the [[Donald Trump|Trump administration]] had struck a deal with the [[state]] of New York to only deport illegal aliens with prior criminal records after they were arrested by police and booked.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:16:41.460) [[Nicholas J. Fuentes]] referenced an event in 2024 where [[Jared Kushner]] and [[Ben Shapiro]] took [[Donald Trump]] to the grave of the Lubavitcher Rebbe at the headquarters of [[Habad Lubavitch]] in Brooklyn, New York.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:16:23) [[Nicholas J. Fuentes]] identified Jake Lang as a [[Jews|Jewish]] activist [[who]] was inciting and harassing [[Islam|Muslims]] in New York City.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:16:57) [[Nicholas J. Fuentes]] described Jake Lang as a "disgusting revolting [[Jews|Jewish]] douchebag" from New York City [[who]] was driving around with a goat and taunting [[Islam|Muslims]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:17:41) [[Nicholas J. Fuentes]] reported that [[Islam|Muslim]] kids in New York City threw an improvised nail bomb at a demonstration by Jake Lang, which failed to detonate.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:13:31) [[Nicholas J. Fuentes]] then discussed the streamer "Clavicular," [[who]] was released from prison in [[Phoenix]] with charges dropped and flew to New York City for a Milady rave party.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:14:50) [[Nicholas J. Fuentes]] described the Milady rave party as a [[Peter Thiel]]-adjacent project in New York City, where people pretend to be fashion people and artists but are subsidized by [[Peter Thiel]] and his cronies, and are pro-[[JD Vance|Vance]] and pro-[[Donald Trump|Trump]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:16:52) [[Nicholas J. Fuentes]] remarked that "Clavicular" went into the "belly of the beast," the [[Peter Thiel]] art collective in New York City, and that the timing of his release from jail and his invitation to the party was suspicious.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:56:05.380) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s success in 2016 was because he was not a [[country]] music figure, but came from New York City, "[[Los Angeles|Hollywood]]," was "famous" and "a billionaire," and "looked like a celebrity."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:52:27:00) [[Nicholas J. Fuentes]] said another viral email from [[Jeffrey Epstein]] about "30 between six and seven at 9 a.m." for hot yoga was interpreted as evidence of trafficking 30 children, but actually referred to a yoga studio located on 30th Street between 6th and 7th Street in New York City.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:13:13:00) *[[Jacobin Magazine]]* looked at more than 1,000 documents from the latest trove and identified more than 60 instances between September 2010 and March 2019 in which [[Ehud Barak]] and [[Jeffrey Epstein]] arranged to meet face-to-face, including in New York City, [[State of Florida|Florida]], [[Boston]], [[Paris]], and [[Little St. James]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:43:10) [[Nicholas J. Fuentes]] stated that the future of the [[United States]] will look like [[Los Angeles]] and New York City, where it is impossible for a white [[person]] or a right-wing [[person]] to win an election.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:08:05) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democrats]] had rallied and organized an organized resistance to deportations, which was visible in [[Chicago]], [[Los Angeles]], New York, and [[Minneapolis]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:44:17) [[Nicholas J. Fuentes]] stated that ethnic enclaves in major cities will continue to grow "until there's nothing left," citing [[London]], [[Paris]], [[Berlin]], [[Rome]], [[Madrid]], New York, [[Chicago]], and [[Los Angeles]] as already lost.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(01:34:42.550) [[United States]] forces captured [[Nicolás Maduro]] and his wife Cilia Flores, transporting them to New York City and [[Guantánamo Bay]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:13:00) [[Sneeko|Sneako]] is a [[Islam|Muslim]] from New York and is not white.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:29:44) [[Nicholas J. Fuentes]] cited examples of demographic change, stating that [[Eric Adams|Zoran Mondani]] is the socialist mayor of New York, [[Vivek Ramaswamy]] will be the governor of [[State of Ohio|Ohio]], and [[Usha Vance]] will be the first lady.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:01:57) [[Nicholas J. Fuentes]] stated he contracted Influenza A in New York and had a fever of 103 degrees.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:03:57) [[Nicholas J. Fuentes]] complained that he went to New York but "didn't get invited at a stupid party" and got sick anyway.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:39:33) [[Nicholas J. Fuentes]] stated that power is concentrated in elite institutions like New York and [[Los Angeles]], giving more "bang for your buck."

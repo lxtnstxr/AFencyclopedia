@@ -30,7 +30,7 @@
 (22:47:00) [[Nicholas J. Fuentes]] analyzed the destruction of the Kakhovka hydroelectric dam in [[Ukraine]], citing a Russia Today report that [[Russia]] blamed [[Ukraine]] for a strike, while [[Ukraine]] blamed [[Russia]].
 
 ### AF 2023-03-10 1128
-(00:22:31) [[Nicholas J. Fuentes]] cited a Russia Today article stating that thousands of protesters in [[Country of Georgia|Georgia]] demanded the release of those arrested during riots over the foreign agents law, with demonstrators waving [[United States|American]], [[Europe|European Union]], [[Ukraine|Ukrainian]], and Georgian flags.
+(00:22:31) [[Nicholas J. Fuentes]] cited a Russia Today article stating that thousands of protesters in [[Country of Georgia|Georgia]] demanded the release of those arrested during riots over the foreign agents law, with demonstrators waving [[United States|American]], [[European Union]], [[Ukraine|Ukrainian]], and Georgian flags.
 
 ### AF 2023-01-26 1113
 (00:18:00) [[Nicholas J. Fuentes]] argued that censorship extends beyond cultural issues to geopolitical viewpoints, citing the banning of RT in [[United States|America]] and the suppression of skepticism toward COVID-19 vaccines.
@@ -72,7 +72,7 @@
 (00:09:45) [[Nicholas J. Fuentes]], while watching Russia Today, relayed a statement from [[Joe Biden|White House]] spokesperson [[Jen Psaki]] that the [[United States]] supports peace talks regarding [[Ukraine]].
 
 ### AF 2022-04-15 0978
-(00:13:10) [[Nicholas J. Fuentes]] appeared in a segment on Russia Today, where he characterized rhetoric from [[North Atlantic Treaty Organization|NATO]], the [[Europe|European Union]], and the [[United States]] towards [[Russia]] since the beginning of the conflict in [[Ukraine]] as "nothing more than Russophobia" and bigoted.
+(00:13:10) [[Nicholas J. Fuentes]] appeared in a segment on Russia Today, where he characterized rhetoric from [[North Atlantic Treaty Organization|NATO]], the [[European Union]], and the [[United States]] towards [[Russia]] since the beginning of the conflict in [[Ukraine]] as "nothing more than Russophobia" and bigoted.
 
 ### AF 2022-04-15 0978
 (00:15:30) [[Nicholas J. Fuentes]] joked that after receiving only a seven-second spot on Russia Today, he now supported [[Ukraine]].
@@ -108,7 +108,7 @@
 (00:34:41) [[Nicholas J. Fuentes]] read a report from USA Today detailing the $900 billion COVID-19 stimulus deal, which included $600 direct payments, a $300 federal unemployment boost, an extension of eviction moratoriums, and was combined with a $1.4 trillion omnibus spending bill.
 
 ### AF 2020-10-07 0697
-(00:04:46) The 2020 [[vice]] presidential debate between [[Mike Pence]] and [[Kamala Harris]] was held in [[City of Miami|Miami]] and moderated by [[Susan Page]] of USA Today.
+(00:04:46) The 2020 [[vice]] presidential debate between [[Mike Pence]] and [[Kamala Harris]] was held in [[Miami]] and moderated by [[Susan Page]] of USA Today.
 
 ### AF 2020-10-07 0697
 (00:43:30) [[Mike Pence]] stated the Green New Deal was on the [[Joe Biden|Biden-Harris]] campaign website and, according to USA Today, was essentially the same plan [[Kamala Harris]] co-sponsored with [[Alexandria Ocasio-Cortez]].
@@ -153,7 +153,7 @@
 (00:06:00) [[Fox News]], alongside [[Warner Bros. Discovery|CNN]], [[CBS News|CBS]], [[ABC News|ABC]], [[Associated Press|AP]], and USA Today, filed an amicus brief in support of [[Warner Bros. Discovery|CNN]]'s lawsuit against the [[White House]] over the revocation of [[Jim Acosta]]'s press pass.
 
 ### AF 2018-10-10 0258
-(00:07:00) [[Donald Trump]] authored an op-ed in USA Today titled "[[Democratic Party|Democrats]]’ ‘[[Health and Human Services|Medicare]] for All’ plan will demolish promises to seniors," in which he characterized the [[Democratic Party]] as a radical socialist party that seeks to model the [[United States]] economy after [[Venezuela]].
+(00:07:00) [[Donald Trump]] authored an op-ed in USA Today titled "[[Democratic Party|Democrats]]’ ‘[[Medicare]] for All’ plan will demolish promises to seniors," in which he characterized the [[Democratic Party]] as a radical socialist party that seeks to model the [[United States]] economy after [[Venezuela]].
 
 ### AF 2018-08-23 0225
 (00:29:28) [[Nicholas J. Fuentes]] cited a Russia Today report that the [[African National Congress]] parliamentary caucus deleted a tweet calling white people "murderers" and stating land and resources should be shared without consultation.

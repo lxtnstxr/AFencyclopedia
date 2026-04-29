@@ -32,7 +32,7 @@
 (34:27:00) Ari Emanuel claimed credit for helping to cancel actor [[Mel Gibson]] in 2006 following Gibson's anti-Semitic remarks, and stated he only allowed Gibson to work again after Gibson issued a slavish apology.
 
 ### AF 2022-10-25 1085
-(36:50:00) Ari Emanuel's older brother is [[Rahm Emanuel]], who served as [[Barack Obama]]'s [[Joe Biden|White House]] Chief of Staff and later as Mayor of [[City of Chicago|Chicago]].
+(36:50:00) Ari Emanuel's older brother is [[Rahm Emanuel]], who served as [[Barack Obama]]'s [[Joe Biden|White House]] Chief of Staff and later as Mayor of [[Chicago]].
 
 ### AF 2022-10-25 1085
 (37:12:00) Ari Emanuel's other older brother is [[Zeke Emanuel]], a health advisor who was a key architect of the [[Affordable Care Act]] (Obamacare) in the [[Obama administration]] and later served on [[Joe Biden]]'s COVID-19 advisory board.
@@ -59,7 +59,7 @@
 (30:05:40) Ari Emanuel is the CEO of [[Endeavor]], a holding company that controls [[William Morris Endeavor|WME]], one of the oldest and largest talent agencies in [[Los Angeles|Hollywood]], representing major celebrities.
 
 ### AF 2022-10-21 1083
-(31:05:40) Ari Emanuel is the brother of [[Rahm Emanuel]], who served as [[Barack Obama]]'s Chief of Staff and later as Mayor of [[City of Chicago|Chicago]].
+(31:05:40) Ari Emanuel is the brother of [[Rahm Emanuel]], who served as [[Barack Obama]]'s Chief of Staff and later as Mayor of [[Chicago]].
 
 ### AF 2022-10-21 1083
 (32:00:20) In his open letter, Ari Emanuel argued that [[Kanye West]]'s business partners, including [[Apple Inc.|Apple]], [[Spotify]], tour organizers, and [[Adidas]], should all stop working with him and that the parent company of [[Parler]] should refuse to sell to him.

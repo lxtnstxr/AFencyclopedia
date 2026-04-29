@@ -26,7 +26,7 @@
 (01:08:49) [[John Phelps]] noted that Hispanic [[Protestants]] supported [[Donald Trump]] at a higher rate than white [[Catholic Church|Catholics]], challenging [[Nicholas J. Fuentes]]'s critiques of [[Protestantism]].
 
 ### AF 2024-07-31 1364
-(45:24:75) During the [[Black Lives Matter]] riots, Hispanic neighborhoods in [[City of Chicago|Chicago]] remained peaceful because Hispanic residents patrolled the streets with guns.
+(45:24:75) During the [[Black Lives Matter]] riots, Hispanic neighborhoods in [[Chicago]] remained peaceful because Hispanic residents patrolled the streets with guns.
 
 ### AF 2024-07-31 1364
 (59:42:75) [[Susie Wiles]] stated that the [[Republican Party]] does not care if "Karens" leave the party because they are replacing them with [[black]] and Hispanic voters.
@@ -68,7 +68,7 @@
 (33:19:70) Since around 2010, [[Asian]] immigration to the [[United States]] has been overtaking Hispanic immigration in numbers.
 
 ### AF 2017-11-22 0056
-(00:11:17) [[Nicholas J. Fuentes]], referencing a conversation on Nationalist Review, argued that [[Steven Crowder|Steve Bannon]]'s strategy to win working-class Hispanic and [[black]] voters was a pragmatic necessity for the [[Republican Party]]'s electoral survival, not an act of capitulation.
+(00:11:17) [[Nicholas J. Fuentes]], referencing a conversation on Nationalist Review, argued that [[Steve Bannon]]'s strategy to win working-class Hispanic and [[black]] voters was a pragmatic necessity for the [[Republican Party]]'s electoral survival, not an act of capitulation.
 
 ### AF 2017-11-08 0049
 (01:50:33) [[Nicholas J. Fuentes]] claimed that Hispanics and [[blacks]] commit much more crime proportionally than white people, a point he later attempted to support with [[Federal Bureau of Investigation|FBI]] arrest data.

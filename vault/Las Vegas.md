@@ -39,3 +39,6 @@
 
 ### AF 2022-07-22 1035
 (00:12:20) [[Nicholas J. Fuentes]] listed recent travel to Las Vegas, [[Detroit]], [[State of Texas|Texas]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Nashville]], [[Dallas]], and [[Tampa]] since being removed from the No Fly List in May.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:18:42) [[Mark Levin]], speaking at a [[Republican Jewish Coalition]] summit in Las Vegas, stated that organized [[Jews|Jewry]] would be watching [[who]] associates with [[who]] and make their decisions for 2028.

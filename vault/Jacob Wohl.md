@@ -19,7 +19,7 @@
 (01:25:10) [[Nicholas J. Fuentes]] claimed that while men were leaving "cutesy" replies to [[Mara Corrigan]]'s tweets, she was "making out with and having sex with" Jacob Wohl, whom he described as a "hardcore [[Jews|Jewish Zionist]]" and "basically a [[Israel Defense Forces|Mossad]] operative."
 
 ### AF 2020-09-16 0682
-(07:50:340) On September 28th of the previous year, [[Nicholas J. Fuentes]] participated in the "[[City of Miami|Miami]] Uncensored" event where he debated Jacob Wohl and appeared alongside [[Timothy Gionet|Baked Alaska]] and [[Kathy Zhu]].
+(07:50:340) On September 28th of the previous year, [[Nicholas J. Fuentes]] participated in the "[[Miami]] Uncensored" event where he debated Jacob Wohl and appeared alongside [[Timothy Gionet|Baked Alaska]] and [[Kathy Zhu]].
 
 ### AF 2020-08-07 0657
 (01:05:86) [[Nicholas J. Fuentes]] conducted a two-hour pre-show stream discussing [[Merritt Corrigan]], a female administration official whose career ended after a romantic involvement with Jacob Wohl exposed her.
@@ -40,19 +40,19 @@
 (00:25:09) [[Nicholas J. Fuentes]] stated he was willing to engage in civil debate with figures like [[Laura Loomer]], Jacob Wohl, [[Charlie Kirk]], and [[Ben Shapiro]], but accused them of demanding submission to specific talking points on [[Israel]] and open borders.
 
 ### AF 2020-02-03 0538
-(02:45:08) A 6'5" supporter provided pizza for [[Nicholas J. Fuentes]] and others in [[City of Miami|Miami]] after a debate with Jacob Wohl, when they were starving with no food at an after-party.
+(02:45:08) A 6'5" supporter provided pizza for [[Nicholas J. Fuentes]] and others in [[Miami]] after a debate with Jacob Wohl, when they were starving with no food at an after-party.
 
 ### AF 2020-01-31 0537
-(00:09:01) [[Nicholas J. Fuentes]] recounted his previous speaking engagement at a [[City of Miami|Miami]] event in September, which he stated was organized by people affiliated with the [[Proud Boys]] and attended by [[Kathy Zhu]] and Jacob Wohl.
+(00:09:01) [[Nicholas J. Fuentes]] recounted his previous speaking engagement at a [[Miami]] event in September, which he stated was organized by people affiliated with the [[Proud Boys]] and attended by [[Kathy Zhu]] and Jacob Wohl.
 
 ### AF 2019-09-25 0469
-(01:31:58) [[Nicholas J. Fuentes]] announced he would be traveling to [[City of Miami|Miami]] for a debate event against Jacob Wohl scheduled for that Saturday.
+(01:31:58) [[Nicholas J. Fuentes]] announced he would be traveling to [[Miami]] for a debate event against Jacob Wohl scheduled for that Saturday.
 
 ### AF 2019-09-20 0466
-(00:10:00) [[Nicholas J. Fuentes]] announced that a scheduled debate event in [[City of Miami|Miami]] on September 28th, featuring himself, Jacob Wohl, [[Kathy Zhu]], [[Ali Alexander]], [[Timothy Gionet|Baked Alaska]], and [[Joe Biggs]], had been moved from a yacht to a conventional hall due to booking complications.
+(00:10:00) [[Nicholas J. Fuentes]] announced that a scheduled debate event in [[Miami]] on September 28th, featuring himself, Jacob Wohl, [[Kathy Zhu]], [[Ali Alexander]], [[Timothy Gionet|Baked Alaska]], and [[Joe Biggs]], had been moved from a yacht to a conventional hall due to booking complications.
 
 ### AF 2019-09-16 0462
-(00:46:30) [[Nicholas J. Fuentes]] promoted an upcoming debate event in [[City of Miami|Miami]] featuring himself debating Jacob Wohl, with an undercard debate between [[Cathy Zhu]] and a nationalist woman named Bernadette.
+(00:46:30) [[Nicholas J. Fuentes]] promoted an upcoming debate event in [[Miami]] featuring himself debating Jacob Wohl, with an undercard debate between [[Cathy Zhu]] and a nationalist woman named Bernadette.
 
 ### AF 2019-09-09 0457
 (01:09:19) [[Nicholas J. Fuentes]] mentioned having previously debated Jacob Wohl on his show.
@@ -61,7 +61,7 @@
 (01:09:19) [[Nicholas J. Fuentes]] stated that he had previously debated Jacob Wohl on his show.
 
 ### AF 2019-09-06 0456
-(00:11:36) [[Nicholas J. Fuentes]] confirmed he will debate Jacob Wohl on [[Donald Trump]]'s foreign policy, with a focus on [[Israel]], at the upcoming demandfreespeech.org event in [[City of Miami|Miami]].
+(00:11:36) [[Nicholas J. Fuentes]] confirmed he will debate Jacob Wohl on [[Donald Trump]]'s foreign policy, with a focus on [[Israel]], at the upcoming demandfreespeech.org event in [[Miami]].
 
 ### AF 2019-09-06 0456
 (00:11:48) [[Nicholas J. Fuentes]] listed [[Will Witt]] from [[Prager University]], Jacob Wohl, and [[Joe Biggs]] as confirmed attendees for the demandfreespeech.org event, with organizers also attempting to invite [[Gavin McInnes]] and other online personalities.
@@ -277,7 +277,7 @@
 (01:01:05) Jacob Wohl reiterated the tangible benefits of [[United States|U.S]]. aid to [[Israel]], including an $80 billion intelligence return, access to the port of [[Haifa]], use of airbases, and [[Israel]]'s role as a regional bulwark against "Islamofascism."
 
 ### AF 2018-01-15 0086
-(01:03:38) Jacob Wohl argued that the [[Palestinian]] population has increased ninefold over 40 years, contradicting claims of genocide, and challenged critics to compare the living conditions in [[Rishon LeZion|Tel Aviv]] favorably to cities like [[City of Riyadh|Riyadh]] or [[Islamabad]].
+(01:03:38) Jacob Wohl argued that the [[Palestinian]] population has increased ninefold over 40 years, contradicting claims of genocide, and challenged critics to compare the living conditions in [[Rishon LeZion|Tel Aviv]] favorably to cities like [[Riyadh]] or [[Islamabad]].
 
 ### AF 2018-01-11 0084
 (04:25:46) [[Nicholas J. Fuentes]] has a debate on [[Israel]] scheduled for Monday with Jacob Wohl.

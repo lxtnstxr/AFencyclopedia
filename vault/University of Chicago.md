@@ -2,11 +2,11 @@
 #organization
 
 ### AF 2024-09-24 1395
-(00:18:10) [[Nicholas J. Fuentes]] reported that [[Daniel Schmidt]] faced controversy at the University of Chicago for a post about [[black]] crime in [[City of Chicago|Chicago]] that was censored by [[Twitter]] and nearly got him expelled.
+(00:18:10) [[Nicholas J. Fuentes]] reported that [[Daniel Schmidt]] faced controversy at the University of Chicago for a post about [[black]] crime in [[Chicago]] that was censored by [[Twitter]] and nearly got him expelled.
 
 
 ### AF 2022-10-22 1084
-(02:10:57) [[Piers Morgan]] agreed that gun violence in [[City of Chicago|Chicago]] receives insufficient media attention, citing his son's experience at the University of Chicago, but rejected any suggestion of prior knowledge by [[Gap]] or [[Matthew McConaughey]].
+(02:10:57) [[Piers Morgan]] agreed that gun violence in [[Chicago]] receives insufficient media attention, citing his son's experience at the University of Chicago, but rejected any suggestion of prior knowledge by [[Gap]] or [[Matthew McConaughey]].
 
 ### AF 2022-03-15 0958
 (00:13:41) [[John Mearsheimer]] delivered a lecture at the University of Chicago in 2015 arguing that the [[Kanye West|West]] was responsible for the [[Ukraine|Ukrainian]] crisis that began in 2014.

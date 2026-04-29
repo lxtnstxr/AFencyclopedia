@@ -84,7 +84,7 @@
 (11:43:26) Erdogan stated that [[Turkey]] would attack [[Manbij]] even if [[United States]] forces were present.
 
 ### AF 2017-12-05 0064
-(01:19:52) [[Nicholas J. Fuentes]] listed international reactions against [[Donald Trump]]'s [[City of Jerusalem|Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] Recep Tayyip Erdoğan of [[Turkey]], [[who]] threatened to sever ties with [[Israel]].
+(01:19:52) [[Nicholas J. Fuentes]] listed international reactions against [[Donald Trump]]'s [[Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] Recep Tayyip Erdoğan of [[Turkey]], [[who]] threatened to sever ties with [[Israel]].
 
 ### AF 2017-12-04 0063
 (26:21:92) [[Michael Flynn]] had done lobbying work for shadowy [[Turkey|Turkish]] interests, and his business partner arranged a meeting between Flynn, the [[Turkey|Turkish]] foreign minister, and the energy minister, [[who]] was the son-in-law of Recep Tayyip Erdoğan.

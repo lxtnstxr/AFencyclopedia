@@ -25,7 +25,7 @@
 (00:11:07) [[Media Matters]] and Right Wing Watch increased pressure on [[Rumble Inc.|Rumble]] to ban [[Nicholas J. Fuentes]] following his appearance on the "Fresh and Fit" podcast, which reached a large audience.
 
 ### AF 2023-06-23 1179
-(00:08:29) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] had also given exclusive comments to the [[Daily Beast]], a left-wing publication he characterized as being on par with Right Wing Watch and akin to "[[City of Portland|Portland]], Antifa, leftists."
+(00:08:29) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] had also given exclusive comments to the [[Daily Beast]], a left-wing publication he characterized as being on par with Right Wing Watch and akin to "[[Portland]], Antifa, leftists."
 
 ### AF 2023-01-17 1109
 (00:59:00) [[Nicholas J. Fuentes]] used the career paths of [[Jared Holt]] and [[Kassy Dillon|Cassie Dillon]] as examples of how individuals are funneled from activist backgrounds into government-funded think tanks like Right Wing Watch, the [[Atlantic Council]], and [[Israel]]-connected groups to target political dissidents.

@@ -46,3 +46,6 @@
 
 ### AF 2019-01-10 0310
 (00:37:37) A report in the Daily Mail stated that in every [[United States|American]] [[state]], the white fertility rate was below the replacement level of 2.1, meaning the white population was shrinking.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:12:55) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] told the Daily Mail he estimated the war would last four weeks.

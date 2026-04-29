@@ -137,7 +137,7 @@
 ### AF 2025-10-30 1589
 (00:09:40) [[Nicholas J. Fuentes]] stated the conflict is about the [[United States]] relationship with [[Israel]], specifically [[Israel]]'s actions in the [[Gaza Strip]] and ambitions to drag the [[United States]] into a war with Iran.
 (00:10:31) [[Nicholas J. Fuentes]] attributed his rise in popularity over the past seven months to his vocal opposition to the war in [[Gaza Strip|Gaza]], war with Iran, and the influence of the [[American Israel Public Affairs Committee|AIPAC]] lobby, as well as discussing [[Jeffrey Epstein]], [[Bari Weiss]], [[Larry Ellison]], and [[Peter Thiel]].
-(00:25:54) [[Nicholas J. Fuentes]] stated he refused to vote for [[Donald Trump]] in the last election because [[Donald Trump]] was no longer putting [[United States|America]] first, citing his acceptance of $100 million from [[Sheldon Adelson|Miriam Adelson]], endorsement by [[Nikki Haley]] in [[Israel]], promise to bomb Iran, and plan to staple green cards to Indian diplomas.
+(00:25:54) [[Nicholas J. Fuentes]] stated he refused to vote for [[Donald Trump]] in the last election because [[Donald Trump]] was no longer putting [[United States|America]] first, citing his acceptance of $100 million from [[Miriam Adelson]], endorsement by [[Nikki Haley]] in [[Israel]], promise to bomb Iran, and plan to staple green cards to Indian diplomas.
 (00:26:48) [[Nicholas J. Fuentes]] claimed [[Donald Trump]] appointed [[Mike Walz]] as [[U.S. National Security Council|National Security Advisor]], who was fired three months later for being on the phone with [[Benjamin Netanyahu]] daily and trying to push the [[United States]] into a war with Iran.
 (00:27:16) [[Nicholas J. Fuentes]] stated that under [[Donald Trump]], the [[United States]] started a war in [[Yemen]] bombing the [[Houthis]], gave [[Israel]] $12 billion in foreign aid, bombed Iran, and buried the [[Jeffrey Epstein]] files.
 (00:28:51) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]], [[Candace Owens]], and himself became increasingly vocal about what they saw as a betrayal of [[United States|America]] First principles, including war with Iran, covering up [[Jeffrey Epstein]], and [[Benjamin Netanyahu|Netanyahu]]'s officials working inside the [[U.S. government]].
@@ -297,7 +297,7 @@
 (00:30:24) In the focus group clip, [[Charlie Kirk]] told students, "You're not anti-[[Israel]], you don't wish them harm, you're not... cheering on Iran," and later suggested a "new path" that rejects "[[Jews|Jew]] hate" but allows criticism of foreign aid to [[Israel]].
 
 ### AF 2025-07-25 1539
-(00:56:52) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s long-term goal, accelerated by [[France]]'s recognition of [[Gaza Strip|Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating [[Hezbollah]], Iran, and other enemies.
+(00:56:52) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s long-term goal, accelerated by [[France]]'s recognition of [[Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating [[Hezbollah]], Iran, and other enemies.
 
 ### AF 2025-07-25 1539
 (01:22:23) [[Nicholas J. Fuentes]] asserted that [[Israel]]'s territorial ambitions since the [[October 7th Attack]] include the [[Gaza Strip]], the [[Gaza Strip|West Bank]], the [[Golan Heights]], southern [[Lebanon]], and southern [[Syria]], alongside defeating [[Hezbollah]] and Iran, all with [[U.S.]] support.
@@ -726,7 +726,7 @@
 (02:30:11) Under [[Donald Trump]]'s policies, Iran became "broke" and lacked funding for groups like [[Hezbollah]] and [[Hamas]], a result of [[United States]] restrictions on countries purchasing Iranian oil.
 
 ### AF 2024-10-24 1412
-(03:00:58) [[Nicholas J. Fuentes]] believed that [[Donald Trump]] would inherit problems such as a potential war with Iran, a future recession, and a defeat against the [[Government of Russia|Russian Federation]].
+(03:00:58) [[Nicholas J. Fuentes]] believed that [[Donald Trump]] would inherit problems such as a potential war with Iran, a future recession, and a defeat against the [[Russian Federation]].
 
 ### AF 2024-10-24 1412
 (15:16:40) [[Nicholas J. Fuentes]] believed that a "war with Iran" would occur.
@@ -861,7 +861,7 @@
 (49:25:87) Iran is a large country with a population of 100 million people.
 
 ### AF 2024-10-22 1410
-(49:40:11) Iran's population exceeds that of [[Germany]], the [[United Kingdom]], and [[Government of France|France]].
+(49:40:11) Iran's population exceeds that of [[Germany]], the [[United Kingdom]], and [[France]].
 
 ### AF 2024-10-22 1410
 (49:49:31) Iran is a large, mountainous country with a substantial middle class and one of the world's largest standing armies.
@@ -876,7 +876,7 @@
 (50:14:07) A confrontation with Iran would be more severe than previous wars, unlike [[Afghanistan]] which does not have a large population.
 
 ### AF 2024-10-22 1410
-(50:41:57) Invading Iran would be comparable to invading countries like [[Turkey]], [[Arab Republic of Egypt|Egypt]], [[Government of France|France]], or [[Brazil]].
+(50:41:57) Invading Iran would be comparable to invading countries like [[Turkey]], [[Arab Republic of Egypt|Egypt]], [[France]], or [[Brazil]].
 
 ### AF 2024-10-22 1410
 (50:54:83) [[Israel]] is fighting Iran's proxies, and [[Israel|Israeli government]] ministers have openly expressed their desire for a direct confrontation with Iran that leads to regime change.
@@ -999,7 +999,7 @@
 (00:30:11) [[Donald Trump]] claimed the [[October 7th attack]] on [[Israel]] would not have happened under his administration because Iran was "broke" due to his maximum pressure policy, which included threatening [[China]] with sanctions if it bought Iranian oil.
 
 ### AF 2024-10-24 1412
-(00:54:20) [[Nicholas J. Fuentes]] argued that a potential second [[Donald Trump]] administration would be barely better than a [[Kamala Harris]] administration, inheriting problems like a potential war with Iran, a future recession, and defeat against the [[Government of Russia|Russian Federation]].
+(00:54:20) [[Nicholas J. Fuentes]] argued that a potential second [[Donald Trump]] administration would be barely better than a [[Kamala Harris]] administration, inheriting problems like a potential war with Iran, a future recession, and defeat against the [[Russian Federation]].
 
 ### AF 2024-10-24 1412
 (14:35:56) [[Nicholas J. Fuentes]] criticized both [[Kamala Harris]]'s proposal to tax unrealized capital gains and [[Donald Trump]]'s platform supporting marijuana legalization, stapling green cards to diplomas, and a potential war with Iran.
@@ -1617,7 +1617,7 @@
 (24:25:75) [[Nicholas J. Fuentes]] reported that [[United States|U.S]]. intelligence said Iran was trying to kill [[Donald Trump]] in July, a claim repeated by [[Benjamin Netanyahu]] in his address to [[U.S. Congress|Congress]] and by [[Donald Trump]] at the [[Republican Party|RNC]].
 
 ### AF 2024-09-27 1396
-(24:48:99) [[Nicholas J. Fuentes]] stated there was intelligence about Iran's attempt to hack the [[Republican Party|RNC]] and another Iranian plot to kill [[Donald Trump|the president]].
+(24:48:99) [[Nicholas J. Fuentes]] stated there was intelligence about Iran's attempt to hack the [[Republican Party|RNC]] and another Iranian plot to kill [[the president]].
 
 ### AF 2024-09-27 1396
 (26:01:07) [[Donald Trump]] posted two days prior, addressing threats from Iran and stating "the entire military is watching and waiting."
@@ -1701,7 +1701,7 @@
 (01:46:37) Iran would become a battlefield as the [[United States]] positions warships to deter its involvement, with the possibility of a preemptive strike.
 
 ### AF 2024-09-23 1394
-(01:47:01) The [[Government of Russia|Russian Federation]] is enhancing cooperation with Iran through a bilateral treaty and supplying missile defense systems.
+(01:47:01) The [[Russian Federation]] is enhancing cooperation with Iran through a bilateral treaty and supplying missile defense systems.
 
 ### AF 2024-09-23 1394
 (01:47:28) [[Israel]] has discussed plans to carve up [[Lebanon]], [[Syria]], [[Iraq]], and Iran, potentially creating a different [[Middle East]] in twenty years.
@@ -1731,10 +1731,10 @@
 (43:07:48) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] is in the pocket of [[Israel]] and will give a war with Iran, which is who "the [[Jews]] want."
 
 ### AF 2024-09-18 1391
-(44:44:08) [[Nicholas J. Fuentes]] referenced a $100 million donation from [[Sheldon Adelson|Miriam Adelson]] to [[Donald Trump]] with the intention of annexing the [[Gaza Strip|West Bank]], questioning how that would be possible with Iran in the way.
+(44:44:08) [[Nicholas J. Fuentes]] referenced a $100 million donation from [[Miriam Adelson]] to [[Donald Trump]] with the intention of annexing the [[Gaza Strip|West Bank]], questioning how that would be possible with Iran in the way.
 
 ### AF 2024-09-17 1390
-(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the Iranian ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the Iranian consulate in [[Damascus]], [[Syria]], killing seven Iranian generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], Iran, on the inauguration day of Iran's new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous Iranian president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated Iran is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of Iran and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and Iran into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the Iranian consulate, Iran retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[Government of France|France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], Iran prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views Iran as the only threat to its regional hegemony, as Iran influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating Iran, enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and Iran in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and Iran by playing them off each other, reintegrating Iran diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between Iran and [[Saudi Arabia]], and Iran is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[Donald Trump|the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Sheldon Adelson|Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Gaza Strip|Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[Donald Trump|the president]] of [[Israel]] after pro-[[Gaza Strip|Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with Iran, he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with Iran and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
+(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the Iranian ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the Iranian consulate in [[Damascus]], [[Syria]], killing seven Iranian generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], Iran, on the inauguration day of Iran's new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous Iranian president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated Iran is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of Iran and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and Iran into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the Iranian consulate, Iran retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], Iran prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views Iran as the only threat to its regional hegemony, as Iran influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating Iran, enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and Iran in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and Iran by playing them off each other, reintegrating Iran diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between Iran and [[Saudi Arabia]], and Iran is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[the president]] of [[Israel]] after pro-[[Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with Iran, he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with Iran and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
 
 ### AF 2024-09-17 1390
 (01:51:22) [[Nicholas J. Fuentes]] claimed that [[Muslims]] do not look out for their own people, and that countries like [[Arab Republic of Egypt|Egypt]], [[Saudi Arabia]], Iran, and [[Turkey]] do not care about white self-determination.
@@ -1776,7 +1776,7 @@
 (01:22:48) After the first assassination attempt, [[Donald Trump]] posted on Truth Social that if Iran killed him, he would "wipe them off the map."
 
 ### AF 2024-09-12 1387
-(01:02:57) [[Israel]]'s ongoing war in the [[Gaza Strip]] involved a debate within [[Israel]] about concluding a hostage deal or expanding the conflict into [[Lebanon]], Iran, and [[Gaza Strip|Palestine]].
+(01:02:57) [[Israel]]'s ongoing war in the [[Gaza Strip]] involved a debate within [[Israel]] about concluding a hostage deal or expanding the conflict into [[Lebanon]], Iran, and [[Palestine]].
 
 ### AF 2024-09-12 1387
 (01:29:22) [[Republican Party|Republicans]] abandoned border security demands on the same day Iran retaliated against [[Israel]] for an April 1st [[United States Embassy in Jerusalem|embassy]] bombing in [[Syria]], fast-tracking [[Israel|Israeli]] aid.
@@ -1794,7 +1794,7 @@
 (00:50:55) The purpose of [[Nicholas J. Fuentes]]'s campaign in [[State of Michigan|Michigan]] was to highlight every statement [[Donald Trump]] had made in favor of expanded legal immigration and war with Iran to conservative voters.
 
 ### AF 2024-09-09 1385
-(00:57:01) [[Donald Trump]], after receiving a planned $100 million donation from [[Sheldon Adelson|Miriam Adelson]], was threatening a war with Iran.
+(00:57:01) [[Donald Trump]], after receiving a planned $100 million donation from [[Miriam Adelson]], was threatening a war with Iran.
 
 ### AF 2024-09-09 1385
 (01:12:33) [[JD Vance]], while in the running for the Vice Presidential slot, said "we must support [[Israel]]," and in his first interview after being selected, said "we're going to bomb Iran and we're going to punch him hard."
@@ -1974,7 +1974,7 @@
 (30:32:02) [[Israel]] assassinated the political leader of [[Hamas]], [[Ismail Haniyeh]], in [[Tehran]], Iran, during the inauguration of Iran's new president.
 
 ### AF 2024-08-02 1366
-(32:03:74) In April, Iran retaliated for the consulate bombing by launching over 300 drones and ballistic missiles at [[Israel]], almost all of which were intercepted by the [[United States]], [[Government of France|France]], [[Jim Jordan|Jordan]], and the [[United Kingdom]].
+(32:03:74) In April, Iran retaliated for the consulate bombing by launching over 300 drones and ballistic missiles at [[Israel]], almost all of which were intercepted by the [[United States]], [[France]], [[Jim Jordan|Jordan]], and the [[United Kingdom]].
 
 ### AF 2024-08-02 1366
 (33:43:44) [[U.S. Department of Defense]] Secretary [[Lloyd Austin]] ordered additional combat aircraft, missile cruisers, and potentially more land-based ballistic missile defense systems to the [[Middle East]] in response to threats from Iran and its proxies.
@@ -2070,7 +2070,7 @@
 (01:51:10) The IRGC confirmed that [[Hamas]] leader [[Ismail Haniyeh]] was assassinated in [[Tehran]], with no immediate claim of responsibility for the killing.
 
 ### AF 2024-07-29 1362
-(01:35:40) Following the rocket attack, the [[United States]], [[Government of France|France]], the government of [[Lebanon]], and Iran pleaded with [[Israel]] not to retaliate in a way that would spark a major regional war.
+(01:35:40) Following the rocket attack, the [[United States]], [[France]], the government of [[Lebanon]], and Iran pleaded with [[Israel]] not to retaliate in a way that would spark a major regional war.
 
 ### AF 2024-07-29 1362
 (01:46:50) [[Benjamin Netanyahu|Netanyahu]] views Iran's expansion of influence through proxies like [[Hezbollah]], the [[Houthis]], and [[Shiite|Shiite militias]] as an existential threat to [[Israel]].
@@ -2199,7 +2199,7 @@
 (00:07:40) [[Nicholas J. Fuentes]] predicted the new [[Republican Party]] platform would advocate for mass legal immigration, bombing Iran, and support for [[Israel]].
 
 ### AF 2024-07-10 1352
-(00:08:40) [[Nicholas J. Fuentes]] stated that the [[October 7th Attack]] by [[Hamas]] involved breaching the [[Israel]]-[[Gaza Strip]] border in dozens of places, killing and kidnapping civilians, and has since triggered conflicts in seven theaters: the [[Gaza Strip]], [[Gaza Strip|Palestine]], [[Syria]], [[Iraq]], Iran, [[Yemen]], and [[Lebanon]].
+(00:08:40) [[Nicholas J. Fuentes]] stated that the [[October 7th Attack]] by [[Hamas]] involved breaching the [[Israel]]-[[Gaza Strip]] border in dozens of places, killing and kidnapping civilians, and has since triggered conflicts in seven theaters: the [[Gaza Strip]], [[Palestine]], [[Syria]], [[Iraq]], Iran, [[Yemen]], and [[Lebanon]].
 
 ### AF 2024-07-10 1352
 (00:11:41) [[Nicholas J. Fuentes]] argued that a narrative constructed around the [[October 7th Attack]]—emphasizing its scope and brutality—has been used to justify [[Israel]]'s military campaign in the [[Gaza Strip]], a new [[North Atlantic Treaty Organization|NATO]] war in the [[Red Sea]] in [[Yemen]], renewed [[United States]] involvement in [[Iraq]] and [[Syria]], potential war in [[Lebanon]], strikes against Iran, and a rightward shift among [[Jewish]] donors in [[United States|American]] politics.
@@ -2226,7 +2226,7 @@
 (01:29:24) [[Nicholas J. Fuentes]] argued that the [[United States]] should form alliances with [[Russia]], [[Syria]], Iran, [[Turkey]], and other [[Middle East|Middle Eastern]] nations to secure critical mineral resources and project global power.
 
 ### AF 2024-07-05 1349
-(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Sheldon Adelson|Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and Iran.
+(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and Iran.
 
 ### AF 2024-07-03 1348
 (00:51:40) Iran warned that a full-scale [[Israel]]i assault on [[Lebanon]] would lead to a regional war, though it was unclear if Iran would intervene directly.
@@ -2253,13 +2253,13 @@
 (00:37:10) [[Nicholas J. Fuentes]] stated that [[Jordan Peterson]] and [[Ben Shapiro]], who are best friends with [[Benjamin Netanyahu]], have been clear that [[Israel]]'s desired sequence is [[Gaza Strip|Gaza]], then [[Hezbollah]], then Iran.
 
 ### AF 2024-06-18 1343
-(00:40:53) [[Nicholas J. Fuentes]] stated that in [[Donald Trump]]'s first term, [[Sheldon Adelson|Miriam Adelson]] secured the move of the [[United States Embassy in Jerusalem]], sovereignty over Jerusalem and the [[Golan Heights]], the designation of the IRGC as a terrorist group, and the tearing up of the [[Joint Comprehensive Plan of Action]].
+(00:40:53) [[Nicholas J. Fuentes]] stated that in [[Donald Trump]]'s first term, [[Miriam Adelson]] secured the move of the [[United States Embassy in Jerusalem]], sovereignty over Jerusalem and the [[Golan Heights]], the designation of the IRGC as a terrorist group, and the tearing up of the [[Joint Comprehensive Plan of Action]].
 
 ### AF 2024-06-18 1343
 (00:42:42) [[Nicholas J. Fuentes]] listed the deepening [[United States]] involvement due to [[Israel]]'s campaign in [[Gaza Strip|Gaza]], including attacking the [[Houthis]] in [[Yemen]], shooting down Iranian missiles, deploying aircraft carriers, and negotiating with [[Arab Republic of Egypt|Egypt]], [[Lebanon]], Iran, and [[Saudi Arabia]] on [[Israel]]'s behalf.
 
 ### AF 2024-06-18 1343
-(01:11:06) [[Nicholas J. Fuentes]] stated that all the necessary support systems exist to push for a war with Iran—including [[The Daily Wire]], [[American Israel Public Affairs Committee|AIPAC]], a [[Republican Party]] majority, [[Donald Trump]], [[Sheldon Adelson|Miriam Adelson]], and think tanks—but not for mass deportation.
+(01:11:06) [[Nicholas J. Fuentes]] stated that all the necessary support systems exist to push for a war with Iran—including [[The Daily Wire]], [[American Israel Public Affairs Committee|AIPAC]], a [[Republican Party]] majority, [[Donald Trump]], [[Miriam Adelson]], and think tanks—but not for mass deportation.
 
 ### AF 2024-06-06 1340
 (00:35:48) [[Nicholas J. Fuentes]] argued that [[Israel]] wants [[United States|America]] to provide the bombs and tools needed for [[Israel]] to bomb Iran on its own.
@@ -2355,7 +2355,7 @@
 (01:00:40) [[Nicholas J. Fuentes]] argued that the primary [[United States|U.S]]. objectives should be to avoid accepting [[Palestinian]] refugees and to avoid a war with Iran, both of which require restraining [[Israel]]'s actions in [[Gaza Strip|Gaza]].
 
 ### AF 2024-05-02 1327
-(01:01:20) [[Nicholas J. Fuentes]] contended that left-wing pro-[[Gaza Strip|Palestine]] protesters, despite ideological differences, are the only ones actively opposing policies that could lead to war with Iran and an influx of refugees, making them de facto allies of the [[United States|America]] First position.
+(01:01:20) [[Nicholas J. Fuentes]] contended that left-wing pro-[[Palestine]] protesters, despite ideological differences, are the only ones actively opposing policies that could lead to war with Iran and an influx of refugees, making them de facto allies of the [[United States|America]] First position.
 
 ### AF 2024-05-02 1327
 (01:11:40) [[Nicholas J. Fuentes]] argued that the law, combined with proposed "anti-Semitism monitors" on campuses, constitutes a full-spectrum attack by Zionist groups to silence criticism of [[Israel]] ahead of a planned [[Israel|Israeli]] invasion of [[Rafah]] and potential war with [[Hezbollah]] and Iran.
@@ -2412,7 +2412,7 @@
 (00:30:00) [[Israel]] launched a retaliatory airstrike against Iran, targeting the city of [[Isfahan]], which hosts an Iranian nuclear facility, according to [[Israel|Israeli]] intelligence officials and [[Washington Post]].
 
 ### AF 2024-04-18 1321
-(00:35:00) The Iranian strike on [[Israel]] on April 13th involved over 300 drones and missiles launched from Iran, [[Yemen]], [[Iraq]], and [[Syria]], with 94% intercepted by a coalition including the [[United States]], [[Government of France|France]], the [[United Kingdom]], [[Jim Jordan|Jordan]], and [[Israel]].
+(00:35:00) The Iranian strike on [[Israel]] on April 13th involved over 300 drones and missiles launched from Iran, [[Yemen]], [[Iraq]], and [[Syria]], with 94% intercepted by a coalition including the [[United States]], [[France]], the [[United Kingdom]], [[Jim Jordan|Jordan]], and [[Israel]].
 
 ### AF 2024-04-18 1321
 (00:38:00) [[Israel]]'s retaliatory strike on Iran on April 18th was a minimal drone attack on a military air base near [[Isfahan]], which Iran claimed was intercepted and caused no major damage or casualties.
@@ -2475,7 +2475,7 @@
 (21:01:34) [[Nicholas J. Fuentes]] articulated that the "[[United States|America]] First" agenda aims to install [[United States|Americans]] in leadership positions, even if they are leftists or social [[democrats]], over right-wing [[Jews|Zionist Jews]] who promote military actions against countries like [[Syria]] and Iran.
 
 ### AF 2024-04-16 1320
-(23:36:57) [[Ron DeSantis]] received support from [[Sheldon Adelson|Miriam Adelson]] during the [[2024 Republican presidential primary]] and advocated for military action against Iran and unwavering support for [[Israel]].
+(23:36:57) [[Ron DeSantis]] received support from [[Miriam Adelson]] during the [[2024 Republican presidential primary]] and advocated for military action against Iran and unwavering support for [[Israel]].
 
 ### AF 2024-04-16 1320
 (44:50:44) [[Nicholas J. Fuentes]] dismissed the argument that the [[United States]] simultaneously funds both Iran and [[Israel]].
@@ -2544,7 +2544,7 @@
 (00:02:26) Iran stated that the attacks targeted the airstrips from which earlier attacks against the Iranian [[United States Embassy in Jerusalem|embassy]] in [[Syria]] originated.
 
 ### AF 2024-04-15 1319
-(00:02:39) The [[United States]], the [[United Kingdom]], [[Government of France|France]], and [[Jim Jordan|Jordan]] shot down nearly all of the missiles and drones launched by Iran and its proxies.
+(00:02:39) The [[United States]], the [[United Kingdom]], [[France]], and [[Jim Jordan|Jordan]] shot down nearly all of the missiles and drones launched by Iran and its proxies.
 
 ### AF 2024-04-15 1319
 (00:03:22) This strike marked the first [[time]] Iran directly attacked [[Israel]].
@@ -2748,7 +2748,7 @@
 (47:10:450) [[Israel]]'s strategic objective since [[October 7th Attack|October 7th]] was to eliminate [[Hamas]], [[Hezbollah]], and Iran, specifically targeting Iran's nuclear sites and [[Hezbollah]], to achieve unprecedented regional dominance.
 
 ### AF 2024-04-12 1318
-(47:22:500) [[Nicholas J. Fuentes]] believed that successful elimination of [[Hamas]], [[Hezbollah]], and Iran would place [[Israel]] in an unprecedented and uniquely secure position in the [[Gaza Strip|Palestine]] [[region]], surpassing any achieved over the previous century.
+(47:22:500) [[Nicholas J. Fuentes]] believed that successful elimination of [[Hamas]], [[Hezbollah]], and Iran would place [[Israel]] in an unprecedented and uniquely secure position in the [[Palestine]] [[region]], surpassing any achieved over the previous century.
 
 ### AF 2024-04-12 1318
 (49:04:560) [[Nicholas J. Fuentes]] believed that by destroying Iran's nuclear facilities, [[Israel]] aimed to eliminate its main challenge to regional hegemony, as other regional powers like [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[Jim Jordan|Jordan]], and [[Iraq]] were clients of the [[United States]], while [[Syria]] and [[Lebanon]] were destabilized by war.
@@ -2982,7 +2982,7 @@
 (03:51:16) The [[United States]] gives [[Israel]] $80 billion and goes to war against Iran.
 
 ### AF 2025-12-05 1608
-(00:59:53) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[Government of France|France]], the [[United Kingdom]], the [[United States]], and the [[Europe|European Union]] to restrict Iran's uranium enrichment.
+(00:59:53) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict Iran's uranium enrichment.
 
 ### AF 2025-12-05 1608
 (01:01:27) In 2018, [[Donald Trump]] declared Iran's Islamic Revolutionary Guard Corps (IRGC) a terrorist group, greenlighting sanctions and attacks, initiating a shadow war with Iran.
@@ -2991,7 +2991,7 @@
 (01:01:49) The shadow war with Iran culminated in January 2020 with the [[United States|U.S]]. assassination of [[Qasem Soleimani]], the architect of the Axis of Resistance involving [[Hamas]], [[Hezbollah]], and the [[Houthis]].
 
 ### AF 2025-12-05 1608
-(02:08:10) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[Government of France|France]], the [[United Kingdom]], the [[United States]], and the [[Europe|European Union]] to restrict Iran's uranium enrichment.
+(02:08:10) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict Iran's uranium enrichment.
 
 ### AF 2025-12-05 1608
 (02:09:45) In 2018, [[Donald Trump]] declared Iran's Islamic Revolutionary Guard Corps (IRGC) a terrorist group, greenlighting sanctions and attacks, initiating a shadow war with Iran.
@@ -3000,7 +3000,7 @@
 (02:10:07) The shadow war with Iran culminated in January 2020 with the [[United States|U.S]]. assassination of [[Qasem Soleimani]], the architect of the Axis of Resistance involving [[Hamas]], [[Hezbollah]], and the [[Houthis]].
 
 ### AF 2025-12-05 1608
-(03:16:28) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[Government of France|France]], the [[United Kingdom]], the [[United States]], and the [[Europe|European Union]] to restrict Iran's uranium enrichment.
+(03:16:28) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian Nuclear Deal, bringing together [[China]], [[Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict Iran's uranium enrichment.
 
 ### AF 2025-12-05 1608
 (03:18:02) In 2018, [[Donald Trump]] declared Iran's Islamic Revolutionary Guard Corps (IRGC) a terrorist group, greenlighting sanctions and attacks, initiating a shadow war with Iran.
@@ -3333,7 +3333,7 @@
 (00:10:21) [[Nicholas J. Fuentes]] asserted that [[Israel]] controls [[the United States]] political establishment and uses Western power to accomplish its strategic goals, primarily a confrontation with Iran.
 
 ### AF 2024-01-06 1274
-(00:14:41) [[Nicholas J. Fuentes]] stated his primary political position is "[[United States|America]] First," prioritizing [[United States|American]] liberation from the [[American Israel Public Affairs Committee|Israel lobby]] and avoiding war with Iran over support for [[Israel]] or [[Gaza Strip|Palestine]].
+(00:14:41) [[Nicholas J. Fuentes]] stated his primary political position is "[[United States|America]] First," prioritizing [[United States|American]] liberation from the [[American Israel Public Affairs Committee|Israel lobby]] and avoiding war with Iran over support for [[Israel]] or [[Palestine]].
 
 ### AF 2024-01-06 1274
 (02:01:20) A viewer named David Hall suggested Iran cut a backroom deal with the [[United States]] for peace and market access in exchange for sacrificing its proxies.
@@ -3741,7 +3741,7 @@
 (00:54:24) [[Nicholas J. Fuentes]] outlined the tripwire scenario: [[Israel]] bombs [[Gaza Strip|Gaza]], triggering [[Hezbollah]] to attack [[Israel]], leading [[Israel]] to attack Iran, prompting Iran to attack [[Israel]], and finally causing the [[United States]] to intervene.
 
 ### AF 2023-10-23 1240
-(00:58:34) [[Nicholas J. Fuentes]] argued the [[United States]] interest is for [[Gaza Strip|Palestine]] to achieve a victory, as that would prevent a refugee crisis and a wider war with Iran.
+(00:58:34) [[Nicholas J. Fuentes]] argued the [[United States]] interest is for [[Palestine]] to achieve a victory, as that would prevent a refugee crisis and a wider war with Iran.
 
 ### AF 2023-10-20 1239
 (00:38:53) [[Nicholas J. Fuentes]] asserted that within the entire conservative political movement, only [[Matt Gaetz]], [[Donald Trump]], [[Vivek Ramaswamy]], and [[Tucker Carlson]] had said anything about the risk of going to war with [[Russia]], [[China]], and Iran over [[Israel]].
@@ -3783,7 +3783,7 @@
 (01:00:39) The 1996 "Clean Break" memo, authored by neoconservatives for the [[Israel|Israeli government]], advocated for the removal of [[Saddam Hussein]] in [[Iraq]], the degradation of [[Syria]], and regime change in Iran to secure [[Israel]]'s northern border from [[Hezbollah]].
 
 ### AF 2023-10-18 1237
-(01:03:12) [[Nicholas J. Fuentes]] argued that [[Benjamin Netanyahu]] and the [[Labor Party|Likud]] party's motivation was to destroy Iran, and that [[Benjamin Netanyahu|Netanyahu]] had a personal interest in prolonging the crisis to avoid removal from power and imprisonment on corruption charges.
+(01:03:12) [[Nicholas J. Fuentes]] argued that [[Benjamin Netanyahu]] and the [[Likud]] party's motivation was to destroy Iran, and that [[Benjamin Netanyahu|Netanyahu]] had a personal interest in prolonging the crisis to avoid removal from power and imprisonment on corruption charges.
 
 ### AF 2023-10-18 1237
 (01:06:28) [[Nicholas J. Fuentes]] suggested that by bombing the hospital, [[Israel]] aimed to incite [[Hezbollah]] to attack, providing a pretext for [[Israel]] to strike Iran and [[Syria]], thereby drawing the [[United States]] into a regime-change war with Iran.
@@ -3837,7 +3837,7 @@
 (00:34:01) [[Nicholas J. Fuentes]] outlined an escalation scenario where [[Hezbollah]] attacks [[Israel]], leading to [[Israel]] retaliating against [[Syria]] and Iran, obligating the [[United States]] to defend [[Israel]], and potentially drawing in [[China]] and [[Russia]] on Iran's side, resulting in [[World War III]].
 
 ### AF 2023-10-14 1235
-(00:37:46) [[Nicholas J. Fuentes]] reported that [[Vladimir Putin]] and [[China]] had issued statements in support of [[Gaza Strip|Palestine]], while the Iranian foreign minister was conducting diplomatic visits in [[Lebanon]], [[Syria]], and [[Iraq]].
+(00:37:46) [[Nicholas J. Fuentes]] reported that [[Vladimir Putin]] and [[China]] had issued statements in support of [[Palestine]], while the Iranian foreign minister was conducting diplomatic visits in [[Lebanon]], [[Syria]], and [[Iraq]].
 
 ### AF 2023-10-14 1235
 (00:53:28) [[Nicholas J. Fuentes]] argued that current [[United States|American]] [[Jewish]] hostility towards [[Russia]] stems from historical grievances, including Soviet support for [[Arab Republic of Egypt|Egypt]] in the 1967 and 1973 wars against [[Israel]] and current [[Russian]] support for Iran and [[Syria]].
@@ -3909,7 +3909,7 @@
 (01:13:39) [[Nicholas J. Fuentes]] compared the unfolding crisis to [[September 11 attacks|9/11]], a shocking event that could escalate into a ground war in a major [[Middle East|Middle Eastern]] [[country]] like Iran, which [[Israel]] has long desired.
 
 ### AF 2023-10-10 1231
-(01:17:56) [[Nicholas J. Fuentes]] stated he was not pro-[[Israel]] or pro-[[Gaza Strip|Palestine]] but "pro-[[United States|America]]," and the biggest [[United States|American]] concern was avoiding a war with Iran, as [[Israel]] is a belligerent state trying to ignite such a war.
+(01:17:56) [[Nicholas J. Fuentes]] stated he was not pro-[[Israel]] or pro-[[Palestine]] but "pro-[[United States|America]]," and the biggest [[United States|American]] concern was avoiding a war with Iran, as [[Israel]] is a belligerent state trying to ignite such a war.
 
 ### AF 2023-10-10 1231
 (01:20:07) [[Nicholas J. Fuentes]] argued the [[United States|American]] interest is to avoid war with Iran and maintain regional stability, which means restraining [[Israel]]'s counteroffensive, preventing escalation, keeping [[Hezbollah]] and Iran out, and getting the [[region]] back on track to normalization and integrating Iran.
@@ -3918,7 +3918,7 @@
 (01:22:43) [[Nicholas J. Fuentes]] stated the only reason Iran pursues a nuclear arsenal is to counter [[Israel]]'s nuclear capability, and a solution requires Iran having a nuclear energy program with sanctions relief and [[Israel]] integrated into the [[region]].
 
 ### AF 2023-10-10 1231
-(01:56:01) [[Nicholas J. Fuentes]] expressed love for a wide array of entities and individuals, including [[black]] people, [[Jews|Jewish people]], [[Israel]], Iran, [[Gaza Strip|Palestine]], [[Palestinian]] Islamic Jihad, [[Mexico]], white people, [[Adolf Hitler|Hitler]], [[Charlie Kirk]], and [[Joe Biden]].
+(01:56:01) [[Nicholas J. Fuentes]] expressed love for a wide array of entities and individuals, including [[black]] people, [[Jews|Jewish people]], [[Israel]], Iran, [[Palestine]], [[Palestinian]] Islamic Jihad, [[Mexico]], white people, [[Adolf Hitler|Hitler]], [[Charlie Kirk]], and [[Joe Biden]].
 
 ### AF 2023-10-10 1231
 (02:44:45) [[Nicholas J. Fuentes]] predicted the [[Israel]]-[[Hamas]] conflict would pressure both [[Joe Biden]] and [[Donald Trump]] to adopt more hawkish positions towards Iran during the [[U.S. election]], with [[Donald Trump|Trump]] criticizing [[Joe Biden|Biden]] for weakness and [[Joe Biden|Biden]] trying to reassure [[Jewish]] voters.
@@ -3936,7 +3936,7 @@
 (01:38:20) When [[Benjamin Netanyahu|Bibi]] wanted pension funds to divest from businesses tied to Iran, [[Mitt Romney]] counseled him on which [[United States|American]] officials to meet with.
 
 ### AF 2023-09-14 1216
-(01:45:40) [[Nicholas J. Fuentes]] posited that [[Benjamin Netanyahu|Bibi]] and [[Labor Party|Likud]] hated [[Barack Obama]] and the [[Democratic Party]] because [[Barack Obama]] wanted a rapprochement with Iran, to leave [[Iraq]], refused to intervene in [[Syria]], and allowed the [[United Nations Security Council]] to condemn [[Israel|Israeli]] settlements.
+(01:45:40) [[Nicholas J. Fuentes]] posited that [[Benjamin Netanyahu|Bibi]] and [[Likud]] hated [[Barack Obama]] and the [[Democratic Party]] because [[Barack Obama]] wanted a rapprochement with Iran, to leave [[Iraq]], refused to intervene in [[Syria]], and allowed the [[United Nations Security Council]] to condemn [[Israel|Israeli]] settlements.
 
 ### AF 2023-09-14 1216
 (02:00:20) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] received about $100 million from the [[Sheldon Adelson|Adelson]] family in both election cycles and, in exchange, moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]] but did not give [[Israel]] a war in [[Syria]] or Iran.
@@ -3966,7 +3966,7 @@
 (55:14:71) [[Russia]] formed an alliance with Iran and [[China]], which [[Nicholas J. Fuentes]] described as a nightmare coalition for the [[United States]]' geostrategic posture, referencing the "World Island" theory. (55:28:97)
 
 ### AF 2023-07-22 1190
-(56:25:77) [[Saudi Arabia]] brokered a deal with Iran through [[China]], and [[Arab Republic of Egypt|Egypt]], [[Government of France|France]], and [[African continent|Africa]] engaged with [[China]], signaling a shift away from [[United States]] influence according to [[Nicholas J. Fuentes]]. (59:00:93)
+(56:25:77) [[Saudi Arabia]] brokered a deal with Iran through [[China]], and [[Arab Republic of Egypt|Egypt]], [[France]], and [[African continent|Africa]] engaged with [[China]], signaling a shift away from [[United States]] influence according to [[Nicholas J. Fuentes]]. (59:00:93)
 
 ### AF 2023-07-20 1189
 (30:25:78) [[Destiny]] claimed [[Israel]] helps the [[United States]] fight the Iranian Revolutionary Guard in [[Iraq]], which [[Nicholas J. Fuentes]] challenged by asking why the [[United States]] is in [[Iraq]] in the first place.
@@ -4002,10 +4002,10 @@
 (00:48:01) [[Nicholas J. Fuentes]] reported that a Western official told [[Thomson Reuters|Reuters]] one reason for seeking a deal with [[Tehran]] was to prevent an [[Israel|Israeli]] attack on Iran.
 
 ### AF 2023-06-29 1183
-(00:49:46) [[Nicholas J. Fuentes]] claimed that pro-war hawks in the [[United States Capitol|U.S. Congress]], particularly [[Republican Party|Republicans]], opposed any deal with Iran due to the influence of donors like [[Sheldon Adelson]], who gave $500 million to the [[Republican Party]] to make it a stalwart defender of [[Israel]].
+(00:49:46) [[Nicholas J. Fuentes]] claimed that pro-war hawks in the [[U.S. Congress]], particularly [[Republican Party|Republicans]], opposed any deal with Iran due to the influence of donors like [[Sheldon Adelson]], who gave $500 million to the [[Republican Party]] to make it a stalwart defender of [[Israel]].
 
 ### AF 2023-06-29 1183
-(00:54:48) [[Nicholas J. Fuentes]] argued that [[Israel|Israeli]] money in the [[United States Capitol|U.S. Congress]], by preventing a deal with Iran, has put the [[United States]] on a path toward war with Iran.
+(00:54:48) [[Nicholas J. Fuentes]] argued that [[Israel|Israeli]] money in the [[U.S. Congress]], by preventing a deal with Iran, has put the [[United States]] on a path toward war with Iran.
 
 ### AF 2023-06-29 1183
 (00:55:52) [[Nicholas J. Fuentes]] stated that [[Israel]] is sabotaging the peace process and constantly threatening to attack Iran, which could drag the [[United States]] into a war.
@@ -4038,7 +4038,7 @@
 (00:11:53) [[Donald Trump|Trump]] identified a "new axis of evil" consisting of [[China]] aligned with [[Russia]] and Iran, citing a [[China|Chinese]] spy balloon, a war game simulation, and a fighter jet confrontation with no consequences.
 
 ### AF 2023-05-26 1167
-(12:15:64) [[Nicholas J. Fuentes]] observed that historically, countries like [[Spain]], [[Government of France|France]], [[United Kingdom|England]], [[Russia]], Iran, [[Arab Republic of Egypt|Egypt]], and [[Nicaragua]] with significant [[Jewish]] minorities eventually turned against them for similar reasons.
+(12:15:64) [[Nicholas J. Fuentes]] observed that historically, countries like [[Spain]], [[France]], [[United Kingdom|England]], [[Russia]], Iran, [[Arab Republic of Egypt|Egypt]], and [[Nicaragua]] with significant [[Jewish]] minorities eventually turned against them for similar reasons.
 
 ### AF 2023-05-26 1167
 (12:43:16) [[Nicholas J. Fuentes]] listed [[Henry Ford]], [[David Duke]], the [[Ayatollah Ali Khamenei|Ayatollah]] of Iran, [[Osama bin Laden]], [[Martin Luther King Jr.|King]] Edward in the 13th century, and [[Fyodor Dostoevsky]] as figures who gave similar reasons for anti-[[Jewish]] sentiment.
@@ -4053,7 +4053,7 @@
 (00:40:48) [[Donald Trump]] claimed that [[Russia]] was teaming up with [[China]], that Iran was days away from obtaining a nuclear bomb, and that the [[Russian]] invasion of [[Ukraine]] would never have happened if he were still president.
 
 ### AF 2023-04-12 1146
-(48:29:64) [[China]] brokered a peace deal to normalize relations between [[Saudi Arabia]] and Iran and has begun conducting trade in [[China|Chinese]] Yuan with nations including [[Saudi Arabia]], [[Brazil]], and [[Government of France|France]].
+(48:29:64) [[China]] brokered a peace deal to normalize relations between [[Saudi Arabia]] and Iran and has begun conducting trade in [[China|Chinese]] Yuan with nations including [[Saudi Arabia]], [[Brazil]], and [[France]].
 
 ### AF 2023-04-07 1144
 (00:35:45) [[Russia]] and [[China]] provided support that prevented Iran from collapsing under the weight of punitive sanctions from the [[United States]].
@@ -4206,7 +4206,7 @@
 (00:20:53) Regional powers involved in the [[Syria|Syrian]] [[civil war]] included [[Turkey]], Iran, [[Saudi Arabia]], and [[Israel]].
 
 ### AF 2022-04-27 0985
-(01:49:48) [[Nicholas J. Fuentes]] stated that countries like [[China]], Iran, and [[North Korea]] ban [[United States|American]] social media, and that [[Germany]] and [[Government of France|France]] might similarly ban [[Twitter]] under the new [[Europe|European Union]] law if it does not comply with their narrative.
+(01:49:48) [[Nicholas J. Fuentes]] stated that countries like [[China]], Iran, and [[North Korea]] ban [[United States|American]] social media, and that [[Germany]] and [[France]] might similarly ban [[Twitter]] under the new [[European Union]] law if it does not comply with their narrative.
 
 ### AF 2022-04-25 0983
 (00:58:51) [[Nicholas J. Fuentes]] stated that a [[Russian]] victory in [[Ukraine]] would be bad news for [[Bashar al-Assad|Assad]]'s [[Syria]], [[North Korea]], Iran, and [[China]] regarding war crimes prosecutions.
@@ -4215,7 +4215,7 @@
 (00:48:35) [[Russia]]'s demonstrated willingness to defy the [[United States]] over [[Ukraine]] sent a strategic message to Iran, [[China]], [[Syria]], and [[Venezuela]] about a shifting global power dynamic.
 
 ### AF 2022-03-31 0970
-(01:13:28) [[Nicholas J. Fuentes]] stated that the [[United States]] faces influence operations not only from [[China]], [[Russia]], and Iran, but also from [[North Atlantic Treaty Organization|NATO]], the [[Europe|European Union]], [[Israel]], [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and [[India]].
+(01:13:28) [[Nicholas J. Fuentes]] stated that the [[United States]] faces influence operations not only from [[China]], [[Russia]], and Iran, but also from [[North Atlantic Treaty Organization|NATO]], the [[European Union]], [[Israel]], [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and [[India]].
 
 ### AF 2022-03-31 0970
 (01:31:57) [[Nicholas J. Fuentes]] stated that [[Israel]]'s outstanding adversaries in the [[Middle East]] are [[Lebanon]], [[Syria]], and Iran, with [[Syria]] perceived as a forward base for Iran.
@@ -4242,7 +4242,7 @@
 (01:00:00) [[Nicholas J. Fuentes]] suggested [[Donald Trump]]'s actions in [[Venezuela]] were intended to signal to Iran, illustrating how the [[United States|American]] foreign policy apparatus uses such maneuvers to communicate.
 
 ### AF 2022-03-21 0962
-(44:28:13) [[Destiny|Destiny]] argued the [[United States]] withdrew from the ABM Treaty because [[China]] was not a signatory and was developing its own ABM system, and to counter nuclear threats from Iran, [[North Korea]], and [[Iraq]].
+(44:28:13) [[Destiny]] argued the [[United States]] withdrew from the ABM Treaty because [[China]] was not a signatory and was developing its own ABM system, and to counter nuclear threats from Iran, [[North Korea]], and [[Iraq]].
 
 ### AF 2022-03-21 0962
 (45:18:49) [[Nicholas J. Fuentes]] countered that the ABM systems deployed by the [[United States]] in [[Alaska]], [[Europe|Eastern Europe]], and the [[Arctic Ocean]] could not discriminate between Iranian and [[Russia]]n missiles, thus destabilizing the nuclear balance regardless of intent.
@@ -4428,7 +4428,7 @@
 (01:09:29) [[Nicholas J. Fuentes]] told liberals that the societal decay, potential wars with [[Russia]] and Iran, higher gas prices, and increased crime were the consequences of voting for [[Joe Biden]] and rejecting(01:42:44) The content creator [[known]] as Thought Slime produced a video about [[Nicholas J. Fuentes]] that [[Nicholas J. Fuentes]] characterized as taking clips out of context to falsely portray him as advocating violent revolution.
 
 ### AF 2021-04-07 0787
-(00:00:00) [[Nicholas J. Fuentes]] announced the main story for the evening would be a strike by [[Israel]] against an Iranian vessel, coinciding with [[Joe Biden]]'s administration holding talks in [[City of Vienna|Vienna]] with Iran about re-entering the [[Joint Comprehensive Plan of Action|JCPOA]] nuclear deal.
+(00:00:00) [[Nicholas J. Fuentes]] announced the main story for the evening would be a strike by [[Israel]] against an Iranian vessel, coinciding with [[Joe Biden]]'s administration holding talks in [[Vienna]] with Iran about re-entering the [[Joint Comprehensive Plan of Action|JCPOA]] nuclear deal.
 
 ### AF 2021-04-07 0787
 (00:01:32) [[Nicholas J. Fuentes]] stated that [[Israel]] was on [[the verge]] of war with Iran, [[Ukraine]] was on [[the verge]] of war with [[Russia]], the [[United States]] was on [[the verge]] of war with [[China]], and [[Arab Republic of Egypt|Egypt]] was on [[the verge]] of war with both [[Republic of the Sudan|Sudan]] and [[Ethiopia]].
@@ -4542,7 +4542,7 @@
 (01:20:25) [[Nicholas J. Fuentes]] recalled that under the [[Barack Obama administration|Obama administration]], [[U.S. Department of State|Secretary of State]] [[Hillary Clinton]] launched a "reset" with [[Russia]], [[John Kerry]] negotiated the [[Joint Comprehensive Plan of Action|JCPOA]] with Iran, and the administration pursued a "pivot to Asia," policies now criticized by the same neoconservatives [[who]] have become never-Trumpers.
 
 ### AF 2020-10-15 0702
-(02:18:30) Policy actions taken for [[Israel]] under [[Donald Trump]] included recognizing [[City of Jerusalem|Jerusalem]] as the capital, moving the [[United States Embassy in Jerusalem|embassy]], recognizing [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], designating the IRGC as a terrorist group, allowing settlement expansion, greenlighting foreign aid, and passing anti-[[BDS]] laws.
+(02:18:30) Policy actions taken for [[Israel]] under [[Donald Trump]] included recognizing [[Jerusalem]] as the capital, moving the [[United States Embassy in Jerusalem|embassy]], recognizing [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], designating the IRGC as a terrorist group, allowing settlement expansion, greenlighting foreign aid, and passing anti-[[BDS]] laws.
 
 ### AF 2020-10-08 0698
 (46:13:52) [[Nicholas J. Fuentes]] suggested [[Donald Trump]] might be using his refusal to participate in a virtual debate as a negotiating tactic, similar to his brinksmanship with [[North Korea]] and Iran.
@@ -4566,19 +4566,19 @@
 (01:07:45:97) [[Mike Pence]] stated he was present when [[Donald Trump]] gave the order to take out Iran's top general, [[Qasem Soleimani]], [[who]] would never harm another [[United States|American]].
 
 ### AF 2020-08-24 0668
-(00:23:58) [[Jim Jordan]] listed policy achievements under [[Donald Trump]], including tax cuts, reduced regulations, economic growth, the lowest unemployment in 50 years, withdrawal from the Iran nuclear deal, moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], securing the release of hostages from [[North Korea]], and negotiating the USMCA trade agreement.
+(00:23:58) [[Jim Jordan]] listed policy achievements under [[Donald Trump]], including tax cuts, reduced regulations, economic growth, the lowest unemployment in 50 years, withdrawal from the Iran nuclear deal, moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], securing the release of hostages from [[North Korea]], and negotiating the USMCA trade agreement.
 
 ### AF 2020-08-24 0668
 (01:50:10) [[Nicholas J. Fuentes]] reacted as former hostage [[Michael White]], held in Iran, thanked [[Donald Trump]] for securing his release and called Iran "an oppressive, extortionist terrorist regime."
 
 ### AF 2020-08-24 0668
-(02:02:31) [[Nikki Haley]] contrasted the foreign policy of the [[Donald Trump]] administration with that of the [[Obama]]-[[Joe Biden|Biden]] administration, stating [[Donald Trump|Trump]] stood up to enemies, imposed sanctions on [[North Korea]], ripped up the Iran nuclear deal, and moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]].
+(02:02:31) [[Nikki Haley]] contrasted the foreign policy of the [[Donald Trump]] administration with that of the [[Obama]]-[[Joe Biden|Biden]] administration, stating [[Donald Trump|Trump]] stood up to enemies, imposed sanctions on [[North Korea]], ripped up the Iran nuclear deal, and moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]].
 
 ### AF 2020-08-24 0668
 (02:03:37) [[Nikki Haley]] claimed [[Joe Biden]] was "good for Iran and [[Islamic State of Iraq and Syria|ISIS]], great for communist [[China]]," while [[Donald Trump]] was tough on [[China]], defeated [[Islamic State of Iraq and Syria|ISIS]], and told the world what it needed to hear.
 
 ### AF 2020-08-24 0668
-(02:01:25) [[Nicholas J. Fuentes]] acknowledged [[Donald Trump]]'s pro-[[Israel]] actions, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], designating the IRGC as a terrorist [[organization]], recognizing [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and overlooking settlement expansion and spying incidents.
+(02:01:25) [[Nicholas J. Fuentes]] acknowledged [[Donald Trump]]'s pro-[[Israel]] actions, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], designating the IRGC as a terrorist [[organization]], recognizing [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and overlooking settlement expansion and spying incidents.
 
 ### AF 2020-08-07 0657
 (00:27:48) A new report from the [[United States]] intelligence community alleged that [[Russia]], [[China]], and Iran interfered in the 2020 presidential election, with [[Russia]] helping [[Donald Trump|Trump]] while [[China]] and Iran aided [[Joe Biden]].
@@ -4605,7 +4605,7 @@
 (00:58:57) [[Nicholas J. Fuentes]] argued that the tolerant treatment of racial and religious minorities is unique to white-majority countries, and expressed skepticism that white people would receive similar treatment as minorities in a future non-white-majority [[United States]], citing historical examples from [[Rwanda]], [[Saudi Arabia]], Iran, and [[South Africa|South America]].
 
 ### AF 2020-05-04 0597
-(02:04:29) [[Nicholas J. Fuentes]] said he especially enjoyed representing [[Middle East|Middle Eastern]] countries like Iran, [[Saudi Arabia]], [[Iraq]], [[Gaza Strip|Palestine]], and [[Arab Republic of Egypt|Egypt]] in [[United Nations|Model UN]] committees dealing with regional conflict.
+(02:04:29) [[Nicholas J. Fuentes]] said he especially enjoyed representing [[Middle East|Middle Eastern]] countries like Iran, [[Saudi Arabia]], [[Iraq]], [[Palestine]], and [[Arab Republic of Egypt|Egypt]] in [[United Nations|Model UN]] committees dealing with regional conflict.
 
 ### AF 2020-04-22 0591
 (00:02:04) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] tweeted a threat to shoot down any Iranian gunboats harassing [[United States|American]] ships in the [[Persian Gulf]] or international waters.
@@ -4869,7 +4869,7 @@
 (00:30:04) [[Nicholas J. Fuentes]] claimed [[Donald Trump|Trump]] was up against the [[U.S. Department of Defense|Pentagon]], the [[U.S. Department of Defense|DOD]], the military-industrial complex, the [[Israel lobby]], and donor [[Sheldon Adelson]], [[who]] had previously said the [[United States]] should nuke Iran.
 
 ### AF 2020-01-07 0520
-(00:31:04) [[Nicholas J. Fuentes]] noted that [[Donald Trump|Trump]]'s administration had named the IRGC a terrorist group, recognized [[Israel]]i sovereignty over the [[Israel|Golan Heights]], and moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], delivering on priorities for Zionist donors.
+(00:31:04) [[Nicholas J. Fuentes]] noted that [[Donald Trump|Trump]]'s administration had named the IRGC a terrorist group, recognized [[Israel]]i sovereignty over the [[Israel|Golan Heights]], and moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], delivering on priorities for Zionist donors.
 
 ### AF 2020-01-07 0520
 (00:32:07) [[Nicholas J. Fuentes]] stated that if [[Donald Trump|Trump]] went to war with Iran or pursued regime change in [[Syria]], it would be a "bridge too far" and he would not vote for him.
@@ -4893,7 +4893,7 @@
 (00:15:07) In Iran, the conventional military answers to President [[Hassan Rouhani]], while the Islamic Revolutionary Guard Corps operates as a paramilitary [[vanguard]] of the revolution and answers to Supreme Leader [[Ayatollah Ali Khamenei|Ali Khamenei]].
 
 ### AF 2020-01-06 0519
-(00:18:51) In July 2015, [[Barack Obama]] concluded the [[Joint Comprehensive Plan of Action]], an agreement with Iran, [[China]], [[France]], [[Germany]], [[Russia]], the [[United Kingdom]], the [[United States]], and the [[Europe|European Union]] that limited Iran's nuclear activities in exchange for reduced sanctions.
+(00:18:51) In July 2015, [[Barack Obama]] concluded the [[Joint Comprehensive Plan of Action]], an agreement with Iran, [[China]], [[France]], [[Germany]], [[Russia]], the [[United Kingdom]], the [[United States]], and the [[European Union]] that limited Iran's nuclear activities in exchange for reduced sanctions.
 
 ### AF 2020-01-06 0519
 (00:21:51) [[Donald Trump]] argued that the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] was insufficient to prevent a nuclear breakout, lacked adequate inspection and enforcement mechanisms, failed to address Iran's ballistic missile program, and did nothing to constrain Iran's destabilizing regional activities.
@@ -4935,7 +4935,7 @@
 (01:01:26) [[Donald Trump]] tweeted a warning that the [[United States]] had targeted 52 Iranian sites, representing the 52 [[United States|American]] hostages taken by Iran in 1979, and that these would be hit "very fast and very hard" if Iran struck any [[United States|Americans]] or [[United States|American]] assets.
 
 ### AF 2020-01-06 0519
-(01:25:46) [[Nicholas J. Fuentes]] noted that the [[United States]] informed [[Israel]] about the strike that killed [[Qasem Soleimani]] before notifying the [[United States Capitol|U.S. Congress]] or [[Europe|European]] allies, and that [[Israel]] subsequently stated it would not get involved in the conflict.(01:30:04) Iran has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and [[Syria]].
+(01:25:46) [[Nicholas J. Fuentes]] noted that the [[United States]] informed [[Israel]] about the strike that killed [[Qasem Soleimani]] before notifying the [[U.S. Congress]] or [[Europe|European]] allies, and that [[Israel]] subsequently stated it would not get involved in the conflict.(01:30:04) Iran has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and [[Syria]].
 
 ### AF 2020-01-06 0519
 (01:35:05) [[Donald Trump|Trump]] possesses the legal authority as Commander-in-Chief to order military strikes, such as the one against Iran, though the action was considered a strategic mistake by some critics.
@@ -4980,7 +4980,7 @@
 (58:38:48) [[Nicholas J. Fuentes]] countered criticisms about confronting [[Ben Shapiro]] in front of his family by noting that [[Nikki Haley]] and [[Ben Shapiro|Shapiro]] himself advocate for policies like war with Iran and [[Syria]] that result in the deaths of families and children.
 
 ### AF 2019-12-18 0516
-(02:10:29) [[Nicholas J. Fuentes]] listed the countries he represented in [[United Nations|Model UN]], including [[Peru]], the [[United States]], [[France]], the [[United Kingdom]], [[Denmark]], [[Iraq]], Iran, [[Gaza Strip|Palestine]], [[Saudi Arabia]], [[China]], [[Russia]], and [[South Korea]].
+(02:10:29) [[Nicholas J. Fuentes]] listed the countries he represented in [[United Nations|Model UN]], including [[Peru]], the [[United States]], [[France]], the [[United Kingdom]], [[Denmark]], [[Iraq]], Iran, [[Palestine]], [[Saudi Arabia]], [[China]], [[Russia]], and [[South Korea]].
 
 ### AF 2019-12-11 0511
 (47:51:420) Despite talk of troop withdrawals, the [[United States|U.S]]. sent additional troops to [[Saudi Arabia]] to counter Iran.
@@ -5187,7 +5187,7 @@
 (01:15:30) [[Nicholas J. Fuentes]] speculated that the attack on the [[Saudi Arabia|Saudi]] oil field, occurring the weekend before the [[Israel|Israeli]] election, may have been intended to benefit [[Benjamin Netanyahu|Bibi]] by drawing the [[United States]] into conflict with Iran.
 
 ### AF 2019-09-13 0461
-(15:25:84) The [[Donald Trump|Trump]] administration recognized [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], and issued unprecedented sanctions against Iran's IRGC without punishing [[Israel]] for expanding settlements.
+(15:25:84) The [[Donald Trump|Trump]] administration recognized [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], and issued unprecedented sanctions against Iran's IRGC without punishing [[Israel]] for expanding settlements.
 
 ### AF 2019-09-10 0458
 (00:30:00) The [[Donald Trump|Trump administration]] was executing a "maximum pressure" campaign against Iran using diplomatic and economic sanctions, while simultaneously pursuing direct talks.
@@ -5211,7 +5211,7 @@
 (18:47:00) [[Nicholas J. Fuentes]] drew a parallel between the attribution of the El Paso manifesto and the [[United States]] government's attribution of attacks on Norwegian and [[State of Japan|Japanese]] vessels in the Strait of Hormuz to Iran without publicly presenting definitive evidence.
 
 ### AF 2019-08-01 0432
-(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steven Crowder|Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and Iran. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with Iran was criticized for allowing Iran to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[City of Kabul|Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
+(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and Iran. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with Iran was criticized for allowing Iran to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
 
 ### AF 2019-07-30 0430
 (00:19:40) [[Nicholas J. Fuentes]] reported that during the foreign policy segment, [[John Hickenlooper]] argued for staying in [[Afghanistan]] to avoid creating a power vacuum, while [[Elizabeth Warren]] stated [[Donald Trump]] had not been hard enough on Iran regarding nuclear proliferation.
@@ -5301,7 +5301,7 @@
 (06:38:25) [[Nicholas J. Fuentes]] concluded that the primary drivers for war with Iran were war profiteering by defense contractors and the strategic interests of the [[Israel]] lobby.
 
 ### AF 2019-06-20 0411
-(07:11:35) [[Nicholas J. Fuentes]] expressed hope that [[Donald Trump]] would resist calls for war with Iran, citing [[Donald Trump|the president's]] downplaying of the tanker and drone incidents as evidence of his restraint.
+(07:11:35) [[Nicholas J. Fuentes]] expressed hope that [[Donald Trump]] would resist calls for war with Iran, citing [[the president's]] downplaying of the tanker and drone incidents as evidence of his restraint.
 
 ### AF 2019-06-18 0409
 (01:07:49) [[Donald Trump]] cited his withdrawal from the "disastrous" [[Joint Comprehensive Plan of Action|Iran nuclear deal]] and the imposition of the toughest ever sanctions on Iran, which he called the world's number one [[state]] sponsor of terrorism.
@@ -5385,7 +5385,7 @@
 (08:48:00) An individual [[Nicholas J. Fuentes]] met at [[Conservative Political Action Conference|CPAC]] in [[Washington D.C.|Washington, D.C.]] reprimanded him for using the term "Ziocons" and later tweeted an accusation that [[Fuentes]] was being funded by Iranian front groups.
 
 ### AF 2019-06-13 0406
-(09:37:00) The individual [[who]] accused [[Nicholas J. Fuentes]] of being an Iranian proxy was reportedly born in [[City of Jerusalem|Jerusalem]] and is an [[Israel|Israeli]] Zionist.
+(09:37:00) The individual [[who]] accused [[Nicholas J. Fuentes]] of being an Iranian proxy was reportedly born in [[Jerusalem]] and is an [[Israel|Israeli]] Zionist.
 
 ### AF 2019-06-13 0406
 (15:17:00) [[Michael Pompeo|Mike Pompeo]] issued a statement blaming Iran for the tanker attacks, calling them an "unacceptable campaign of escalating tension."
@@ -5571,10 +5571,10 @@
 (14:24:90) [[Nicholas J. Fuentes]] noted that the [[Donald Trump|Trump]] administration withdrew from the Iran nuclear deal.
 
 ### AF 2019-03-14 0347
-(24:32:30) [[Nicholas J. Fuentes]] listed policy victories for other groups during [[Donald Trump]]'s term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as [[Israel]]'s capital, withdrawing from the Iran nuclear deal, cutting aid to [[Gaza Strip|Palestine]], and changing language on the [[Israel|Golan Heights]].
+(24:32:30) [[Nicholas J. Fuentes]] listed policy victories for other groups during [[Donald Trump]]'s term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as [[Israel]]'s capital, withdrawing from the Iran nuclear deal, cutting aid to [[Palestine]], and changing language on the [[Israel|Golan Heights]].
 
 ### AF 2019-03-08 0343
-(01:01:50) [[Nicholas J. Fuentes]] listed [[Donald Trump]]'s pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as the capital, ripping up the Iran nuclear deal, and cutting all aid to the [[Palestinian Authority]].
+(01:01:50) [[Nicholas J. Fuentes]] listed [[Donald Trump]]'s pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as the capital, ripping up the Iran nuclear deal, and cutting all aid to the [[Palestinian Authority]].
 
 ### AF 2019-03-05 0341
 (01:06:21) [[Donald Trump]] wrote to members of [[Congress]] agreeing to keep a [[U.S. Department of Defense|U.S. military]] presence in [[Syria]] to prevent the return of [[Islamic State of Iraq and Syria|ISIS]], prevent Iran from being emboldened, and consolidate gains for [[United States|American]] interests.
@@ -5595,13 +5595,13 @@
 (01:14:51) [[Nicholas J. Fuentes]] explained the [[United States]] invasions of [[Afghanistan]] and [[Iraq]] as part of a strategy to position [[United States|American]] military forces on the eastern and western borders of Iran, questioning the official justifications for the wars.
 
 ### AF 2019-02-11 0329
-(01:35:40) In 2015, [[Benjamin Netanyahu|Bibi Netanyahu]] addressed a joint session of the [[United States Capitol|U.S. Congress]], receiving 27 standing ovations during a 39-minute speech on Iran's nuclear program.
+(01:35:40) In 2015, [[Benjamin Netanyahu|Bibi Netanyahu]] addressed a joint session of the [[U.S. Congress]], receiving 27 standing ovations during a 39-minute speech on Iran's nuclear program.
 
 ### AF 2019-02-06 0326
-(22:22:84) [[Ben Shapiro]] advocates for foreign policy that puts [[Israel]] first, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]] and potential war with Iran.
+(22:22:84) [[Ben Shapiro]] advocates for foreign policy that puts [[Israel]] first, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]] and potential war with Iran.
 
 ### AF 2019-02-05 0325
-(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that [[Nicholas J. Fuentes]] characterized as a major disappointment and a strategic failure. (00:59:82) The address, which [[Nicholas J. Fuentes]] analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject [[Nicholas J. Fuentes]] identified as [[Donald Trump|the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on [[Tucker Carlson]]'s program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to [[Nicholas J. Fuentes]]. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but [[Nicholas J. Fuentes]] noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for [[Israel]]. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which [[Nicholas J. Fuentes]] interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the Iran nuclear deal and framed Iran's threats against [[Israel]] alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which [[Nicholas J. Fuentes]] characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) [[Nicholas J. Fuentes]] suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not [[Stephen Miller]], given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Israel]]. (58:38:24) [[Nicholas J. Fuentes]] speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
+(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that [[Nicholas J. Fuentes]] characterized as a major disappointment and a strategic failure. (00:59:82) The address, which [[Nicholas J. Fuentes]] analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject [[Nicholas J. Fuentes]] identified as [[the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on [[Tucker Carlson]]'s program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to [[Nicholas J. Fuentes]]. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but [[Nicholas J. Fuentes]] noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for [[Israel]]. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which [[Nicholas J. Fuentes]] interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the Iran nuclear deal and framed Iran's threats against [[Israel]] alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which [[Nicholas J. Fuentes]] characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) [[Nicholas J. Fuentes]] suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not [[Stephen Miller]], given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Israel]]. (58:38:24) [[Nicholas J. Fuentes]] speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
 
 ### AF 2019-02-04 0324
 (00:22:40) [[Nicholas J. Fuentes]] quoted [[Donald Trump]] stating that [[United States|U.S]]. intelligence was wrong about [[weapons of mass destruction]] in [[Iraq]] when questioned about trusting intelligence on Iran.
@@ -5715,7 +5715,7 @@
 (03:20:00) [[Donald Trump]] declared that the [[United States]] could not allow Iran, which he labeled the world's leading sponsor of terrorism and a regime that chants "death to [[United States|America]]" and threatens [[Israel]] with annihilation, to obtain nuclear weapons.
 
 ### AF 2018-09-25 0247
-(03:46:00) [[Nicholas J. Fuentes]] argued that Iran's support for groups like [[Hamas]], [[Hezbollah]], and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Gaza Strip|Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
+(03:46:00) [[Nicholas J. Fuentes]] argued that Iran's support for groups like [[Hamas]], [[Hezbollah]], and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
 
 ### AF 2018-09-25 0247
 (04:29:00) [[Donald Trump]] called on all nations to isolate the regime in Iran and to support the Iranian people in their struggle, rhetoric that some analysts interpreted as a potential prelude to calls for regime change.
@@ -5745,7 +5745,7 @@
 (04:53:00) [[Israel]] conducted an airstrike in [[Syria]] targeting equipment it claimed was destined for [[Hezbollah]] in [[Lebanon]] on behalf of Iran, an action that led to the accidental downing of the [[Russian]] aircraft by [[Syria|Syrian]] air defenses.
 
 ### AF 2018-09-11 0237
-(00:45:58) The 1996 "Clean Break" memo, authored for the [[Labor Party|Likud]] party in [[Israel]] by [[Douglas Feith]], [[David Wurmser]], and [[Richard Perle]], advocated for the removal of regimes in [[Iraq]], [[Syria]], Iran, and [[Libya]] to secure [[Israel]]'s borders.
+(00:45:58) The 1996 "Clean Break" memo, authored for the [[Likud]] party in [[Israel]] by [[Douglas Feith]], [[David Wurmser]], and [[Richard Perle]], advocated for the removal of regimes in [[Iraq]], [[Syria]], Iran, and [[Libya]] to secure [[Israel]]'s borders.
 
 ### AF 2018-09-05 0233
 (01:06:18) [[Nicholas J. Fuentes]] stated that a full-scale [[United States|U.S]]. invasion of [[Syria]] to topple [[Bashar al-Assad]] was improbable due to the logistical challenges posed by [[Russia]]n warships, [[Turkey]], and Iranian forces in the [[region]].
@@ -5823,10 +5823,10 @@
 (00:36:45) [[Donald Trump|Trump]] withdrew the [[United States]] from the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|Iran nuclear deal]]) and re-imposed sanctions on Iran.
 
 ### AF 2018-05-31 0175
-(00:34:29) [[Nicholas J. Fuentes]] asserted that tariffs provide diplomatic leverage, citing how [[Donald Trump]] used trade pressure on [[China]] to gain cooperation on [[North Korea]] and could use it on the [[Europe|European Union]] regarding Iran.
+(00:34:29) [[Nicholas J. Fuentes]] asserted that tariffs provide diplomatic leverage, citing how [[Donald Trump]] used trade pressure on [[China]] to gain cooperation on [[North Korea]] and could use it on the [[European Union]] regarding Iran.
 
 ### AF 2018-05-31 0175
-(00:35:53) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] uses tariffs comprehensively, linking trade concessions to diplomatic goals, such as easing tariffs if the [[Europe|European Union]] cooperates on Iran sanctions.
+(00:35:53) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] uses tariffs comprehensively, linking trade concessions to diplomatic goals, such as easing tariffs if the [[European Union]] cooperates on Iran sanctions.
 
 ### AF 2018-05-25 0171
 (00:23:52) [[John Bolton]] advocates for regime change in both [[North Korea]] and Iran and has been vocal about this desire.
@@ -5871,7 +5871,7 @@
 (00:15:30) [[Donald Trump]]'s administration employed a strategy of dual containment against Iran and [[North Korea]], using interconnected economic and diplomatic pressure across multiple geopolitical theaters to gain leverage.
 
 ### AF 2018-05-14 0163
-(00:27:59) [[Donald Trump]] stated his desire for a comprehensive peace in the [[Middle East]], connecting issues in Iran, [[Syria]], [[Yemen]], and the [[Israel]]-[[Gaza Strip|Palestine]] conflict.
+(00:27:59) [[Donald Trump]] stated his desire for a comprehensive peace in the [[Middle East]], connecting issues in Iran, [[Syria]], [[Yemen]], and the [[Israel]]-[[Palestine]] conflict.
 
 ### AF 2018-05-14 0163
 (00:28:19) During a [[state]] visit, [[Donald Trump]] told [[France|French]] President [[Emmanuel Macron|Macron]] that a revised Iran deal should address Iranian aggression, its missile program, and the civil wars in [[Syria]] and [[Yemen]].
@@ -6030,7 +6030,7 @@
 (00:31:09) [[Nicholas J. Fuentes]] noted that [[North Korea]]'s isolation, with [[China]] as its sole major lifeline, made it susceptible to pressure, unlike Iran, which has economic ties to [[Europe]], [[China]], and [[Russia]].
 
 ### AF 2018-05-08 0160
-(00:32:57) [[Nicholas J. Fuentes]] argued that adversaries of Iran, namely [[Israel]] under the [[Labor Party|Likud]] party and [[Saudi Arabia]] under [[Mohammed bin Salman]], would actively work to sabotage any diplomatic process or deal.
+(00:32:57) [[Nicholas J. Fuentes]] argued that adversaries of Iran, namely [[Israel]] under the [[Likud]] party and [[Saudi Arabia]] under [[Mohammed bin Salman]], would actively work to sabotage any diplomatic process or deal.
 
 ### AF 2018-05-08 0160
 (00:34:38) [[Nicholas J. Fuentes]] listed [[AIPAC]], neoconservatives in the [[U.S. Department of State|State Department]], commentators like [[Bret Stephens]] and [[Charles Krauthammer]], and media figures like [[Ben Shapiro]] as actors pushing for war with Iran.
@@ -6240,7 +6240,7 @@
 (30:49:34) During a 2016 [[State of South Carolina|South Carolina]] primary debate, [[Donald Trump]] argued the [[United States|U.S]]. could not fight two wars at once, stating the priority should be defeating [[Islamic State of Iraq and Syria|ISIS]] before confronting [[Syria]] or Iran.
 
 ### AF 2018-03-21 0129
-(00:25:20) [[John McCain]] advocated for [[U.S. Department of Defense|U.S. military]] intervention in numerous countries including Iran, [[Iraq]], [[Yemen]], [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[North Korea]], [[China]], [[Russia]], [[Venezuela]], and [[Columbia|Colombia]].
+(00:25:20) [[John McCain]] advocated for [[U.S. Department of Defense|U.S. military]] intervention in numerous countries including Iran, [[Iraq]], [[Yemen]], [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[North Korea]], [[China]], [[Russia]], [[Venezuela]], and [[Colombia]].
 
 ### AF 2018-03-20 0128
 (00:42:40) [[Nicholas J. Fuentes]] categorized every major [[country]] in the [[Middle East]] into three groups regarding [[Israel]]: those at peace and receiving [[United States]] aid (e.g., [[Arab Republic of Egypt|Egypt]], [[Jim Jordan|Jordan]], [[Saudi Arabia]]), those destroyed by [[United States]] wars (e.g., [[Libya]], [[Somalia]], [[Iraq]]), and those in the crosshairs for future wars (e.g., [[Syria]], Iran).
@@ -6318,7 +6318,7 @@
 (36:03:28) [[Donald Trump]] stated he "stood with the protesters of Iran," a gesture seen as increasing pressure on Iran during renegotiations of the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
 
 ### AF 2018-01-22 0091
-(00:36:42) [[Bashar al-Assad]] has been [[Donald Trump|the president]] of [[Syria]] since the year 2000, leading pro-government forces backed by Iran, [[Russia]], and [[China]] during the [[Syria|Syrian]] [[Civil War]].
+(00:36:42) [[Bashar al-Assad]] has been [[the president]] of [[Syria]] since the year 2000, leading pro-government forces backed by Iran, [[Russia]], and [[China]] during the [[Syria|Syrian]] [[Civil War]].
 
 ### AF 2018-01-19 0090
 (16:37:67) [[Nicholas J. Fuentes]] explained that the [[Kurdistan|Kurds]] are the largest ethnic group without a [[state]], residing in [[Syria]], [[Turkey]], [[Iraq]], and Iran, and have historically faced oppression in those countries.
@@ -6402,7 +6402,7 @@
 (00:17:40) [[Saudi Arabia]] also declared that Iran-backed [[Hezbollah]] in [[Lebanon]] was at war with [[Saudi Arabia]].
 
 ### AF 2018-01-01 0076
-(00:20:30) [[Donald Trump]]'s administration recognized [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]], a move seen as less critical of [[Israel]] and less supportive of Iran compared to the prior [[Obama]] administration.
+(00:20:30) [[Donald Trump]]'s administration recognized [[Jerusalem]] as the capital of [[Israel]], a move seen as less critical of [[Israel]] and less supportive of Iran compared to the prior [[Obama]] administration.
 
 ### AF 2018-01-01 0076
 (00:34:30) [[Donald Trump]] refused to certify Iran's compliance with the international nuclear deal, citing violations of the agreement's spirit.
@@ -6441,7 +6441,7 @@
 (21:45:24) [[Hezbollah]] in [[Lebanon]] declared war on [[Saudi Arabia]], and Iran was building a permanent military base [[south]] of [[Damascus]] in [[Syria]].
 
 ### AF 2017-11-10 0051
-(24:09:80) Iran's allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], [[Hamas]] and [[Palestinian Islamic Jihad]] in [[Gaza Strip|Palestine]], and the [[state]] of [[Qatar]].
+(24:09:80) Iran's allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], [[Hamas]] and [[Palestinian Islamic Jihad]] in [[Palestine]], and the [[state]] of [[Qatar]].
 
 ### AF 2017-11-10 0051
 (26:21:58) The central contest in the [[Middle East]] was between [[Saudi Arabia]] and Iran for regional influence.
@@ -6456,7 +6456,7 @@
 (12:52:00) In July, [[Saudi Arabia]] led a boycott of [[Qatar]] after [[Qatar|Qatari]] news media reported the Emir praising Iran as a great Islamic power and calling [[Hamas]] a good ally.
 
 ### AF 2017-11-09 0050
-(14:31:00) [[Houthis|Houthi]] rebels in [[Yemen]], sponsored by Iran, fired a missile at [[City of Riyadh|Riyadh]]'s International Airport, which [[Saudi Arabia]] intercepted and declared an act of war by Iran.
+(14:31:00) [[Houthis|Houthi]] rebels in [[Yemen]], sponsored by Iran, fired a missile at [[Riyadh]]'s International Airport, which [[Saudi Arabia]] intercepted and declared an act of war by Iran.
 
 ### AF 2017-11-09 0050
 (16:07:00) The Prime Minister of [[Lebanon]] resigned, citing Iranian influence and the power of [[Hezbollah]], and subsequently traveled to [[Saudi Arabia]].
@@ -6525,7 +6525,7 @@
 (00:44:42) [[Nicholas J. Fuentes]] cited an [[Israeli defense minister]] and chief intelligence officer [[who]] stated [[Israel]] would prefer [[Islamic State of Iraq and Syria|ISIS]] to Iran in [[Syria]], showing [[Israel]] does not help fight the principal actor of terrorism against the [[Kanye West|West]].
 
 ### AF 2017-10-11 0029
-(00:45:01) [[Nicholas J. Fuentes]] noted that Iran has sponsored no terror attacks against the [[United States]] since the Islamic Revolution, whereas [[Islamic State of Iraq and Syria|ISIS]] has sponsored attacks in San Bernardino and [[City of Orlando|Orlando]].
+(00:45:01) [[Nicholas J. Fuentes]] noted that Iran has sponsored no terror attacks against the [[United States]] since the Islamic Revolution, whereas [[Islamic State of Iraq and Syria|ISIS]] has sponsored attacks in San Bernardino and [[Orlando]].
 
 ### AF 2017-10-11 0029
 (00:47:55) [[Nicholas J. Fuentes]] stated that Iran is the only significant threat to [[Israel]], but would have to invade through [[Iraq]] and could not ally with Arab rivals like [[Saudi Arabia]] and [[Arab Republic of Egypt|Egypt]] due to [[Shiite|Shia]]-[[Sunni]] and Persian-Arab divisions.
@@ -6568,3 +6568,4029 @@
 
 ### AF 2021-05-26 0817
 (22:28:580) [[Nicholas J. Fuentes]] considers the influence of countries like [[China]], [[Russia]], and Iran, which oppose the [[United States|American]] world order, to be a positive development as it challenges [[United States|American]] hegemony.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(00:43:16) People previously regarded a war in Iran for regime change as unimaginable, but now consider it inevitable.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:30:22) [[Nicholas J. Fuentes]] returned to his show after a two-week absence, noting that a war in Iran was ongoing during his [[time]] away, but he felt there was a lack of overall significant news.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:35:55) [[Nicholas J. Fuentes]] questioned the political outcomes for the [[Donald Trump]] movement over the past decade, including multiple assassination attempts and political persecution, which he felt resulted primarily in "a war with Iran, a corporate tax cut, weed legalization, and a [[White House]] ballroom."
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:37:35) [[Nicholas J. Fuentes]] questioned the value of the sacrifices and bloodshed within the [[Donald Trump|MAGA]] movement over the past ten years, if the results were merely "a war with Iran, a corporate tax cut, weed legalization, and a [[White House]] ballroom."
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:37:52) [[Nicholas J. Fuentes]] contended that reliance on [[Donald Trump]] as a "fearless leader" led to outcomes such as a war with Iran, corporate tax cuts, weed legalization, and a [[White House]] ballroom.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:39:01) [[Nicholas J. Fuentes]] criticized the [[Donald Trump]] administration for offering a [[White House]] ballroom and a war with Iran as a "consolation" for ongoing political struggles.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:15.760) The [[United States]], under [[Barack Obama]], collaborated with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], and the [[United Kingdom]], along with the [[European Union]], to implement a nuclear deal that restricted Iran's uranium enrichment.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:27.770) In 2018, [[Donald Trump]] designated the IRGC (Revolutionary Guard), which functions as the military of Iran, as a terrorist group, thereby authorizing sanctions and attacks against it.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:40.960) The [[United States]] is engaged in a shadow war with Iran.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:44.800) The shadow war between the [[United States]] and Iran escalated to the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:02:08.280) [[Donald Trump]]'s election strategy involved applying "maximum pressure" on Iran and initiating an escalation by withdrawing from the nuclear deal, designating the IRGC as terrorists, and assassinating its leader, [[Qasem Soleimani]], while imposing sanctions on the Iranian regime.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:02:20.650) The war with Iran started long before and was intensified by [[Donald Trump]] in 2018, continuing for seven years, similar to "forever wars" in [[Iraq]] (1990-present), [[State of Libya|Libya]] (2011-present), and [[Syria]] (2011-present).
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:31:50.700) [[Nicholas J. Fuentes]] announced that "[[America First]]" would be discussing the ongoing war in Iran and an "uneasy ceasefire" that was proclaimed on Tuesday.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:11.180) [[Donald Trump]] proclaimed a two-week ceasefire with Iran on Tuesday, stating that it included a two-week truce.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:21.600) The conditions of the truce, as announced by [[Donald Trump]], required Iran to open the Strait to commercial shipping, while the [[United States]] and Iran would meet in [[Pakistan]] to negotiate a comprehensive peace deal.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:41.040) Immediately after [[Donald Trump]]'s announcement, Iran stated that the ceasefire was more extensive than described, claiming it also covered hostilities between [[Israel]] and [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:34:04.840) Iran and [[Pakistan]] stated they would not uphold a deal to open the Strait unless [[Israel]] ceased its attacks on [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:34:52.700) A negotiation meeting between the [[United States]] and Iran was scheduled for Saturday in [[Pakistan]], with the [[United States]] delegation already present and prepared to meet.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:35:00.460) Iran asserted there would be no ceasefire or negotiation on Saturday as long as the war in [[Lebanon]] continued.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:35:58.830) [[Nicholas J. Fuentes]] learned that [[Donald Trump]] did not consent to Iran charging a toll for commercial shipping through the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:36:44.220) [[JD Vance|J.D. Vance]], [[Steve Wittkoff|Steve Wittkopf]], and [[Jared Kushner]] are in Iran to meet with the parliamentary speaker and foreign minister of Iran for negotiations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:36:56.360) All indications suggest that negotiations between the [[United States]] delegation and Iran will not proceed as long as the war in [[Lebanon]] is ongoing.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:51:24.610) [[Donald Trump]] defined [[Donald Trump|MAGA]] as "winning and strength and not allowing Iran to have nuclear weapons."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:02:29.960) [[Megyn Kelly|Megan Kelly]] stated she would continue to vote for [[Republican Party|Republicans]] in the midterms, even if [[Donald Trump]] were to initiate a nuclear attack on Iran.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:05:59.420) [[Donald Trump]] is damaging the [[Donald Trump|MAGA]] movement by using [[Cozy.tv|Truth Social]] to declare that supporters of [[Mark Levin]] or his war in Iran are not [[Donald Trump|MAGA]], and that [[Tucker Carlson]], [[Megyn Kelly|Megan Kelly]], [[Alex Jones]], [[Candace Owens]], and [[Marjorie Taylor Greene]] are "idiots."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:07:04.080) A genuine "[[America First]]" [[president]] would not promote figures like [[Mark Levin]] and [[Lindsey Graham]], prosecute a war in Iran, or denigrate "[[America First]]" commentators and a former congresswoman.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:08:55.980) [[Israel]]'s "[[October 7th Attack|October 7th]] rolling campaign," described as a "genocide in [[Gaza Strip|Gaza]]," has drawn the [[United States]] into a war with Iran.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:09:31.690) [[Donald Trump]] dictates that the "law of the land" includes supporting [[Mark Levin]], [[Lindsey Graham]], a war with Iran, and withholding the [[Jeffrey Epstein|Epstein]] files, along with pursuing "criminal illegals" but opposing mass deportations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:10:08.290) [[Nicholas J. Fuentes]] believed in 2024 that it would have been better if [[Donald Trump]] lost the election, predicting that his victory would lead to complacency, a war in Iran, no mass deportations, and a deradicalization of his base.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:13:03.940) [[Donald Trump]], [[who]] advocated for "Golden Age, [[America First]], No New Wars, Mass Deportations," published a 500-word criticism of [[Megyn Kelly]], [[Candace Owens]], [[Tucker Carlson]], [[Marjorie Taylor Greene]], and [[Alex Jones]] because they opposed a war with Iran.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:10.630) [[Donald Trump]] is explicitly removing his former supporters from the [[Donald Trump|MAGA]] movement by name for opposing the war in Iran, while promoting figures like [[Mark Levin]], [[Laura Loomer]], and [[Lindsey Graham]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:39.040) As of 2026, [[Donald Trump]]'s [[Donald Trump|MAGA]] movement advocates for war with Iran, opposing the release of the [[Jeffrey Epstein|Epstein]] files, and supports figures like [[Mark Levin]], [[Laura Loomer]], and [[Lindsey Graham]] over [[Tucker Carlson]], [[Candace Owens]], [[Megyn Kelly]], and [[Alex Jones]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:19:31.430) [[Nicholas J. Fuentes]] describes the current "Trumpism" as representing "corporate tax cuts" and "war with Iran."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:21:21.620) The initial ceasefire deal, as announced by [[Donald Trump]] on Tuesday night, was intended to prevent an "apocalyptic annihilation attack" on Iran that he had threatened for the past week.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:22:21.120) On Tuesday night, there was uncertainty about whether the ceasefire deal was accurately represented, despite the [[White House]] indicating a two-week pause in fighting, Iran opening the Strait, and negotiations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:23:56.340) Approximately an hour and a half after the initial announcement, [[Pakistan]] and Iran, [[who]] brokered and were party to the deal, presented a "very different version" of the ceasefire.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:24:13.600) [[Pakistan]] and Iran claimed the [[United States]] agreed to a 10-point plan, including Iran's right to enrich uranium, the lifting of all primary and secondary sanctions, the removal of 40,000 [[United States]] troops from the [[region]], and an extension of the ceasefire to [[Israel]]'s war with [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:24:43.610) There were two conflicting versions of the ceasefire deal: the [[United States]]' version which focused on a pause in fighting and opening the Strait, and Iran and [[Pakistan]]'s version which claimed a complete [[United States]] surrender to all Iranian demands, including a regional ceasefire and nuclear rights.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:26:04.900) Iran expressed anger and stated that if the terms they outlined were not agreed upon, then no deal existed.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:26:11.210) Yesterday, Iran reportedly closed the Strait of Hormuz in response to disagreements over the ceasefire terms, particularly concerning the war in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:27:41.620) [[Israel]] firmly declared that it did not agree to a ceasefire in [[Lebanon]] and, yesterday, carried out the deadliest attack in [[Lebanon]] since the war with Iran restarted last month, resulting in approximately 300 deaths.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:28:22.900) Iran's parliamentary speaker, acting as head of government, stated last night that the blatant violation of the ceasefire by [[Israel]] in [[Lebanon]] meant there was no basis for a ceasefire or negotiations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:28:50.870) Iran's government stated last night that as long as [[Israel]] continued fighting in [[Lebanon]], they would consider the deal breached, close the Strait of Hormuz, and cease negotiations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:29:15.180) Despite Iran stating the ceasefire was over and negotiations were off, the [[United States]] maintained that the deal was in place and negotiations were on.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:29:27.260) Iran indicated they might attend talks and allow shipping to resume in the Strait, but only if fighting in [[Lebanon]] ceased.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:29:55.300) Today, [[Donald Trump]] expressed dissatisfaction on [[Cozy.tv|Truth Social]] that Iran was not sufficiently allowing shipping through the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:30:18.340) Today, [[Donald Trump]] expressed disagreement with Iran charging a toll of $1 per barrel of oil for ships passing through the Strait, despite seeming to support it a couple of days prior.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:17.890) Iran's parliamentary speaker stated today that if [[Israel]] does not halt its actions in [[Lebanon]], then no deal exists and no meeting will occur.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:34.920) The [[United States]] delegation, including [[JD Vance|J.D. Vance]], [[Steve Wittkoff|Steve Wittkopf]], and [[Jared Kushner]], is in [[Pakistan]] awaiting a scheduled meeting with representatives from Iran on Saturday, but Iran has not confirmed attendance and demands [[Israel]] commit to not attacking [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:32:25.810) The primary issue at the start of the war with Iran last year and its resumption this year was Iran's nuclear program.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:32:43.630) As the war progressed, Iran gaining control of the Strait became the central point of contention.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:32:57.550) For the past two to three weeks, the focus of negotiations has shifted from Iran's nuclear program to whether Iran would allow the [[United States]] to access its oil.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:33:34.660) The question of whether the [[United States]] and Iran will meet on Saturday is now dependent on the [[United States]]' ability to compel [[Israel]] to halt its war against [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:34:13.820) The [[United States]] has now become an "unwitting negotiator" on behalf of Iran, trying to convince [[Israel]] to cease attacks on [[Hezbollah]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:34:44.670) Iran has effectively linked the opening of the Strait of Hormuz to the [[United States]]' ability to compel [[Israel]] to stop its military operations, thereby turning "the whole world against [[Israel]], including the [[United States]]."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:01.340) Iran informed the [[United States]] that it would uphold its end of the ceasefire agreement to open the Strait only if the [[United States]] pressured [[Israel]] to stop its operations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:53.090) Many countries, including those in [[Europe]], [[Asia]], and [[Islam|Muslim]] nations, are pressuring [[Israel]] to halt its bombing in [[Lebanon]] so that Iran will allow oil to flow through the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:36:35.870) [[Donald Trump]] stated that the [[United States]] would acquire oil regardless of Iran's consent.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:37:13.900) [[Donald Trump]] has threatened to penalize [[North Atlantic Treaty Organization|NATO]] countries that do not assist the [[United States]] with Iran by withdrawing [[United States]] troops from their territories.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:37:38.000) [[Nicholas J. Fuentes]] believes that the ceasefire with Iran and the negotiations are "fake" and will not result in a deal because Iran has no reason to make concessions and the [[United States]] will not leave them alone otherwise.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:40:01.580) [[JD Vance|J.D. Vance]] is expected to attempt to broker a deal on Saturday to end the war in Iran, but [[Nicholas J. Fuentes]] believes this is unlikely to happen.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:40:20.720) [[Nicholas J. Fuentes]] questions whether Iran will surrender its nuclear enrichment program or control of the Strait, and whether the [[United States]] will withdraw without achieving these goals, especially if Iran does not attend the negotiations without an end to the war in [[Lebanon]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:09:11) A deadline for an ultimatum required Iran to open the [[Strait of Hormuz]] by eight o'clock Eastern [[time]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:09:20) [[Donald Trump]] threatened to annihilate Iran and its civilization if it failed to open the [[Strait of Hormuz]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:09:42) The ceasefire was facilitated by the diplomatic efforts of [[Pakistan]] and [[China]], which lobbied Iran to accept an agreement.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:10:11) Divergent interpretations of the agreement emerged, with [[Washington D.C.|Washington, D.C.]] and [[Israel]] holding a different understanding than [[Pakistan]] and Iran.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:10:33) [[Washington D.C.|Washington, D.C.]] interpreted the agreement as a two-week cessation of bombing Iran, in exchange for Iran halting attacks on shipping and effectively opening the [[Strait of Hormuz]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:10:45) According to the [[United States]]' understanding of the deal, Iran would control the [[Strait of Hormuz]] and levy a $2 million toll per vessel, payable in cryptocurrency or [[China|Chinese]] yuan.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:17) [[Pakistan]] and Iran believed the agreement included a ceasefire in [[Lebanon]] between [[Israel]] and [[Hezbollah]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:45) Since the military operation against Iran began, [[Israel]] has resumed its campaign in [[Lebanon]], leading to the displacement of millions and evacuation orders for the southern 25% of the [[country]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:58) [[Pakistan]] and Iran asserted that the agreement to open the [[Strait of Hormuz]] was contingent upon [[Israel]] ceasing its bombing of [[Lebanon]] and its conflict with [[Hezbollah]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:12:20) [[Israel]] launched severe attacks against [[Hezbollah]], causing nearly 100 fatalities and almost 1,000 injuries, which Iran cited as a violation of the ceasefire agreement.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:12:36) Following [[Israel]]'s actions, Iran declared the ceasefire deal void and officially reclosed the [[Strait of Hormuz]], as reported by Iranian media.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:12:48) [[United States]] media failed to report on Iran's reclosure of the [[Strait of Hormuz]] or the breakdown of the ceasefire agreement.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:13:10) The head of Iran's legislature declared that negotiations and a ceasefire were unviable due to perceived violations of the agreement by the [[United States]] and [[Israel]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:13:38) A bilateral meeting between Iran and the [[United States]] is scheduled for Friday in [[Islamabad]], [[Pakistan]], assuming the ceasefire remains in effect.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:14:00) [[JD Vance]], in his capacity as [[Vice Media|Vice]] [[White House|President]], is slated to lead the [[United States]] delegation at the highest-level meeting with Iranian officials in 50 years, to be held in [[Pakistan]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:15:08) [[JD Vance]] and his team lobbied for him to serve as the lead negotiator to claim credit for ending the Iran war, a strategy intended to bolster his standing in future presidential debates.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:17:21) [[Nicholas J. Fuentes]] provided a 30-minute bonus show via voice message to subscribers of the $100 per month club, offering detailed analysis of the situation in Iran.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:19:02) The [[United States]] is engaged in a second war with Iran, following a previous conflict last year that was downplayed as insignificant.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:19:37) The [[United States]] suffered a defeat in the 40-day war with Iran.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:19:42) The war against Iran was a "war of choice and aggression" that contradicted [[Donald Trump]]'s campaign promise of "no new wars."
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:19:57) The war with Iran failed to achieve regime change or halt missile launches, and instead resulted in Iran gaining control of the [[Strait of Hormuz]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:20:09) Iran now controls and profits from the [[Strait of Hormuz]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:21:18) The war involved 15,000 bombings of Iran and the assassination of its leader, leading to Iran expanding its territory and maintaining oil prices at $100 per barrel.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:21:34) Iran now controls 20% of the world's energy supply, an increase from 4% prior to the war, attributed to its control of the [[Strait of Hormuz]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:21:41) The Iranian Islamic regime remained intact, emerging stronger and more extreme after the conflict.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:24:33) [[JD Vance]] was present during the decision-making process for the [[United States]] to engage in war with Iran.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:26:03) Individuals such as [[Sneeko|Sneako]], [[Tucker Carlson]], and [[Candace Owens]] are belatedly acknowledging [[Donald Trump]] as "the problem," particularly after the [[United States]] entered into war with Iran.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:27:00) [[Nicholas J. Fuentes]] asserted that individuals [[who]] supported [[Donald Trump]] in 2024 but are now criticizing the war in Iran lack credibility for future political endorsements.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:29:14) [[Megyn Kelly]] publicly declared her intention to "vote [[Republican Party|Republican]] every [[time]]," even if [[Donald Trump]] were to use nuclear weapons against Iran.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:30:25) [[JD Vance]], present in the [[White House]] while [[Donald Trump]] was at Mar-a-Lago, advocated for aggressive attacks on Iran without any internal cabinet dissent.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:31:04) The war with Iran was initiated due to pressure from [[Israel]], necessitating a $200 billion expenditure to replenish [[United States]] missiles and leading to an energy crisis and economic downturn.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:31:48) [[Benjamin Netanyahu|Netanyahu]] allegedly paid [[Donald Trump]] $100 million in exchange for promises of regime change in Iran and the annexation of the [[Gaza Strip|West Bank]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:35:12) [[Nicholas J. Fuentes]] asserted that if the administration fails to implement mass deportations and escalates the war in Iran, the [[Democratic Party|Democrats]] should intervene to shut it down.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:35:44) The [[United States]] deployed a greater number of troops to central Iran than to domestic locations like [[Springfield, Ohio]] or [[Minneapolis|Minneapolis, Minnesota]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:36:04) The administration forfeited its right to govern by failing on immigration policies and capitulating to [[Israel]] by initiating a war with Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:07:55) The conflict in Iran reached its 39th day, and a potential end was in sight.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:08:25) The [[president]] of the [[United States]] announced that the [[United States]] secured a temporary two-week ceasefire agreement with Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:08:41) [[Donald Trump]] had set an ultimatum for Iran, with a deadline to strike its power plants and bridges.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:08:47) The deadline for [[Donald Trump]]'s threatened strikes on Iran's infrastructure was 8 PM Eastern [[time]], with the ceasefire announcement coming approximately 90 minutes beforehand.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:09:49) The evolving details regarding the fate of Iran and global affairs were being disseminated through [[Donald Trump]]'s [[Cozy.tv|Truth Social]] posts.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:10:02) The language in [[Donald Trump]]'s [[Cozy.tv|Truth Social]] announcement of the ceasefire suggested uncertainty regarding Iran's compliance.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:10:08) [[Donald Trump]] stated that a two-week ceasefire would only be in effect if Iran agreed to and immediately opened the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:10:21) The wording of the ceasefire announcement indicated that the [[United States]] was unsure if Iran had actually agreed to the terms at the [[time]] of the announcement.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:10:27) The [[United States]] lacked certainty about whether Iran had agreed to the ceasefire terms or would actually implement them.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:10:36) The Islamic Republic of Iran issued a statement shortly after the ceasefire announcement, claiming a two-week ceasefire and asserting that the [[United States]] agreed to its 10-point proposal.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:11:06) Iran's 10-point plan for the ceasefire was characterized as being nearly maximalist in its demands.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:11:13) Iran claimed that the [[United States]] agreed to a 10-point plan which included the dismantling of all [[United States]] military bases in the [[Middle East]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:11:25) Iran's 10-point plan for the ceasefire included a demand to control the [[Strait of Hormuz]] in perpetuity.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:11:29) Iran's 10-point plan proposed charging a toll for all shipping through the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:11:32) Future shipping through the [[Strait of Hormuz]] would be subject to Iranian jurisdiction and require a fee payment.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:11:41) A proposed $2 million fee for crossing the [[Strait of Hormuz]] would be split between [[Oman]] and Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:11:48) Iran asserted that [[Washington D.C.|Washington]] had agreed to a 10-point plan that included the $2 million toll for passage through the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:11:55) [[Washington D.C.|Washington]] denied agreeing to the specific terms claimed by Iran in its 10-point plan.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:00) [[Israel]] stated that it did not agree to certain terms within Iran's 10-point proposal, specifically that it could not bomb [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:21) Significant disagreement existed among Iran, [[Washington D.C.|Washington]], and [[Israel]] regarding the actual terms of the ceasefire agreement, mere hours after its announcement.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:49) The main military objectives of the [[United States]] in the war against Iran were to stop Iran from enriching uranium, secure its highly enriched uranium, restrict its ballistic missile program, curb its support for regional proxies, and achieve regime change.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:01) At the outset of the conflict, the [[United States]] aimed to prevent Iran from enriching uranium and to obtain its existing highly enriched uranium.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:12) The [[United States]] sought restrictions on Iran's ballistic missile program, its support for regional proxies, and an eventual regime change.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:15) The [[United States]] sought restrictions on Iran's ballistic missile program, its support for regional proxies, and an eventual regime change.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:21) These five objectives represented the primary goals of the [[United States]] in its conflict with Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:35) The issue of reopening the [[Strait of Hormuz]] emerged only after the [[United States]] initiated bombings in Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:40) Iran asserted control over the [[Strait of Hormuz]] by attacking shipping with drones and missiles.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:47) The conflict's six objectives included demands for Iran to cease uranium enrichment, surrender enriched uranium, restrict missile programs, end proxy support, undergo regime change, and allow free passage in the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:50) None of the stated military objectives in the conflict with Iran had been achieved.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:13:57) Iran did not agree to cease uranium enrichment.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:00) Iran did not agree to surrender its highly enriched uranium.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:03) Iran did not agree to restrictions on its missile programs or support for proxies.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:07) The Iranian regime remained in power.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:09) While the [[Strait of Hormuz]] was being opened, Iran had effectively taken control of it.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:14) Iran effectively annexed the [[Strait of Hormuz]] and was profiting from its control.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:18) Iran retained the theoretical capability to disrupt passage through the [[Strait of Hormuz]] in the future.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:25) A two-week period was designated to negotiate a broader deal with Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:38) Iran indicated that it had achieved all its desired outcomes from the ceasefire agreement.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:14:44) The [[United States]] expected to gain concessions from Iran within two weeks, despite lacking military leverage or plans for further military action.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:15:37) [[Saudi Arabia]], [[Qatar]], [[Kuwait]], the [[United Arab Emirates]], and [[Bahrain]] desired a decisive confrontation and the ultimate end of the Iranian regime.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:05) If the ceasefire extended beyond two weeks, it was anticipated that claims of Iran rebuilding its military capabilities would emerge.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:11) Concerns would arise that Iran was actively rebuilding its military, not just its infrastructure, if the ceasefire extended.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:16) Iran was expected to rebuild its missile arsenal during the ceasefire.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:18) Iran was expected to construct more drones during the ceasefire.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:20) As long as Iran maintained control of the [[Strait of Hormuz]], its leverage would increase.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:21) As long as Iran maintained control of the [[Strait of Hormuz]], its leverage would increase.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:25) Iran's leverage would grow, even without continued bombardment from the [[United States]] and [[Israel]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:19:29) The conflict with Iran was halfway through its sixth week.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:15) [[Donald Trump]] threatened to escalate fighting to [[target]] all of Iran's civilian infrastructure if Iran did not open the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:26) [[Donald Trump]]'s threatened escalation against Iran would [[target]] electrical infrastructure, power grids, power plants, transportation infrastructure, bridges, and potentially civilian airports, rather than just the oil and energy sector.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:40) [[Donald Trump]] threatened the annihilation of Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:54) On Sunday, [[Donald Trump]] warned that if Iran did not capitulate, its civilization would be destroyed.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:02) [[Donald Trump]]'s remark about destroying Iran's civilization drew significant criticism.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:05) [[Nicholas J. Fuentes]] criticized [[Donald Trump]]'s statement threatening to destroy Iran's civilization.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:47) [[Donald Trump]] allowed [[time]] for diplomatic efforts by intermediaries to potentially reach a resolution with Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:18) [[Nicholas J. Fuentes]] stated that if [[Donald Trump]] proceeded with his threat, Iran would be devastated, having already been bombed numerous times.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:22) Iran had already been bombed over 13,000 times.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:33) The reported bombing count for Iran was from the previous week.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:35) Iran had already endured over 10,000 bombings.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:40) The bombings had targeted a wide range of sites within Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:42) If [[Donald Trump]] had followed through with a "civilization-killing strike," the consequences for Iran would have been catastrophic.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:50) A catastrophic strike on Iran by [[Donald Trump]] would likely have led to Iran retaliating against [[Persian Gulf]] countries, particularly [[Saudi Arabia]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:23:01) A large-scale attack on Iran, potentially including its energy infrastructure, would severely restrict global oil supply and prevent any successor regime from stabilizing the [[country]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:23:07) A massive attack on Iran's infrastructure could lead to its collapse into a failed [[state]], impacting its population of nearly 100 million people.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:23:27) Iran was expected to deliver a crushing blow to [[Persian Gulf]] countries such as [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and [[Bahrain]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:24:03) The [[president]] reported that a ceasefire agreement was reached with Iran after discussions with the [[Pakistan]]i prime minister and other government officials.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:24:09) Iran and the [[United States]] reached a two-week ceasefire agreement.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:24:37) The truce was distinct because it involved a ceasefire and an agreement by Iran not to attack shipping or military bases.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:24:42) The [[United States]] committed not to bomb Iran, and Iran pledged not to bomb shipping in the [[Strait of Hormuz]], Gulf countries, [[Israel]], or [[United States]] bases.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:26) [[Donald Trump]] announced a two-week period during which the [[United States]] would not attack Iran, provided Iran opened the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:34) [[Donald Trump]] indicated on [[Cozy.tv|Truth Social]] that the [[United States]] was effectively ceding control of the [[Strait of Hormuz]] to Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:45) Iran was opening the [[Strait of Hormuz]] while retaining control over it.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:51) The agreement would not restore the pre-war status quo, as [[Donald Trump]] and Iran agreed that Iran would control the [[Strait of Hormuz]] and facilitate safe transit in exchange for the [[United States]] refraining from bombing.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:59) Iran would not bomb shipping in the [[Strait of Hormuz]] and would facilitate safe transit if the [[United States]] refrained from bombing Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:26:06) Iran would facilitate the safe passage of tankers and cargo ships through the [[Strait of Hormuz]] without attacks.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:26:15) The safe passage through the [[Strait of Hormuz]] was being overseen by the Islamic Revolutionary Guard Corps and its [[U.S. Department of Defense|Navy]], with a toll being charged.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:26:25) Iran was opening the [[Strait of Hormuz]] but maintained control over shipping.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:26:30) Iran was profiting by charging fees for passage through the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:26:34) Iran was dictating the volume of ship traffic through the [[Strait of Hormuz]] daily.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:26:43) Each tanker passing through the [[Strait of Hormuz]] would now pay a $2 million fee, with the revenue split between Iran and [[Oman]], and Iran would use its share for national reconstruction.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:27:00) [[Donald Trump]] apparently consented to Iran's control of the [[Strait of Hormuz]] and its revenue generation.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:27:03) A two-week plan deferred military action to a later date, anticipating meetings with Iran in [[Pakistan]] to negotiate a long-term deal.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:27:16) Iran was granted control over the [[Strait of Hormuz]] during the ceasefire.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:27:19) Iran would profit from its control of the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:27:23) Iran planned to reinvest the revenue from the [[Strait of Hormuz]] into national reconstruction.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:28:05) The [[United States]] sought to end Iran's nuclear program, secure its highly enriched uranium stockpile, and impose restrictions on its ballistic missiles and proxy support.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:28:19) The sixth objective of the war became to regain control or at least open the [[Strait of Hormuz]] after Iran seized it.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:28:36) The conflict did not result in regime change in Iran, nor did it eliminate Iran's capacity to build and launch drones and missiles, thus preserving its conventional strategic capability.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:28:49) The [[United States]] did not restrict Iran's ability to enrich uranium, nor did it seize Iran's stockpile of enriched uranium or prevent further enrichment.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:29:04) The Islamic Revolutionary Guard Corps was not significantly degraded or destroyed, and the Iranian regime remained intact.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:29:10) The war's sole achievement was inflicting a significant blow to Iran's [[navy]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:29:19) A significant portion of Iran's missile launch platforms were damaged, and its missile stockpile was reduced.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:29:25) Iran's missile stockpile was estimated to be less than 50% of its pre-war levels.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:29:31) Neither Iran's missile stockpile nor its [[U.S. Department of Defense|Navy]] were annihilated.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:29:36) Iran maintained a substantial [[navy]] comprising fast and maneuverable speed boats, approximately 50 tiny submarines, and mind-laying vessels.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:29:46) Iran still operated approximately 50 tiny submarines used for closing the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:29:51) Iran continued to possess its mine-laying vessels.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(02:59:54) The Islamic Revolutionary Guard Corps maintained a small, nimble, and mobile [[U.S. Department of Defense|Navy]] capable of closing the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:30:04) The war resulted primarily in the destruction of Iran's larger ships, with other naval assets remaining.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:30:25) The [[Strait of Hormuz]] was now considered Iranian territory.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:30:27) Iran claimed, seized, and was profiting from the waterway of the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:30:34) Iran was charging a toll for passage through the [[Strait of Hormuz]], which it considered its territory.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:30:38) The new status quo following the ceasefire further empowered Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:30:42) After 39 days of war, during which the [[United States]] aimed to diminish Iran's capabilities, Iran emerged with increased power.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:30:53) Iran experienced quantitative losses in command, control, communications, and equipment.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:30:58) The [[United States]] inflicted a significant blow to Iran's military and conventional forces, causing losses of equipment and command capabilities.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:31:06) While Iran's armed forces were quantitatively degraded, their fundamental capabilities remained unchanged.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:31:13) Iran's underground drone and missile production facilities remained fully operational and were expected to continue manufacturing during the two-week ceasefire.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:31:19) Iran maintained stockpiles of drones and missiles, along with hidden and dispersed launch platforms throughout the [[country]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:31:28) The Islamic Revolutionary Guard Corps remained in power with a decentralized chain of command.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:31:35) Iran formally and officially gained conceded control of the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:32:08) [[Nicholas J. Fuentes]] saw no agreement that Iran would accept that could satisfy the [[United States]]' conditions.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:32:42) [[Donald Trump]] was expected to attempt a ground operation on Iranian islands and the mainland.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:33:02) A significant victory might allow the [[United States]] to avoid accepting all of Iran's terms.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:33:31) The "victory" that allowed for a face-saving retreat was simply the [[United States]]' decision not to use nuclear weapons against Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:33:41) Instead of achieving tangible military objectives, the [[United States]]' "victory" was its decision to spare Iran from destruction and accept its terms.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:34:06) The [[United States]] accepted all of Iran's terms, including granting control of the [[Strait of Hormuz]], and claimed victory by not destroying Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:34:21) The [[The New York Times|New York Times]] reported that the [[United States]] and Iran reached an "11th hour ceasefire deal" after [[Donald Trump]] threatened to destroy Iran's civilization.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:34:38) [[Donald Trump]] announced the ceasefire on social media after [[Pakistan]], acting as a mediator, urged him to retract his 8 PM deadline for Iran to comply with his demands.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:34:51) [[Pakistan]] proposed a two-week ceasefire during which Iran would allow unimpeded passage for oil, gas, and other vessels through the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:02) A [[United States]] official confirmed the cessation of military strikes against Iran, and Iran's Foreign Minister [[Abbas Raji]] stated that Iran would halt its defensive operations for two weeks.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:17) Iran's Foreign Minister [[Abbas Raji]] announced that safe passage through the [[Strait of Hormuz]] would be possible for two weeks if coordinated with Iran's military.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:23) [[Israel]] supported [[Donald Trump]]'s decision to halt attacks on Iran for two weeks.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:43) The ceasefire provided both sides with [[time]] to negotiate a long-term resolution to the war, which had started in [[February]] with extensive military assaults on Iran by the [[United States]] and [[Israel]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:55) Iran accepted [[Pakistan]]'s ceasefire proposal following intense diplomatic engagement by [[Pakistan]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:06) Iran's [[U.S. National Security Council|National Security Council]] officially confirmed the agreement, portraying it as a victory wherein the [[United States]] accepted Iran's terms.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:10) Iran's [[U.S. National Security Council|National Security Council]] confirmed the agreement, asserting that the [[United States]] had accepted Iran's terms.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:34) [[Nicholas J. Fuentes]] stated that the general sentiment was relief that the situation did not escalate to genocide or nuclear war in Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:37:24) The strategy of bluffing to destroy Iran was predicated on the understanding that the [[United States]] could not escalate against Iran without unacceptable consequences.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:37:36) Bombing Iran's energy or civilian infrastructure would lead to Iran retaliating against the Gulf countries.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:37:40) Retaliation from Iran against the Gulf countries was intolerable to the [[United States]] due to its detrimental effects on the global economy.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:37:49) It was not rational for [[Washington D.C.|Washington]] to escalate against Iran, as it would have detrimental effects on the global economy.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:37:57) The [[United States]] lacked a rational path for escalation against Iran.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:38:02) Iran possessed escalation dominance because the [[United States]] could not rationally escalate.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:38:07) The [[United States]] lacked a decisive "checkmate move" against Iran, preventing it from gaining leverage.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:38:17) Iran believed it held all the leverage and was winning, with the [[United States]] unable to respond effectively.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:38:27) The [[United States]] could not topple the Iranian regime.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:38:30) The [[United States]] could not prevent Iran from deploying drones, missiles, or mines.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:38:35) Any action taken against Iran would still result in its regime's survival and the closure of the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:40:51) [[Donald Trump]]'s strategy was to convince Iran that he was willing to undertake irrational actions.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:00) [[Donald Trump]] employed brinksmanship and the "madman theory" by threatening to bomb all of Iran's infrastructure.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:08) Iran likely believed [[Donald Trump]] was bluffing about bombing its infrastructure, considering the unacceptable losses that such an action would entail.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:16) [[Donald Trump]] had to convince Iran of his willingness to act irrationally, at least to sow doubt among their leadership.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:27) [[Donald Trump]] needed to sow seeds of doubt within Iran's leadership regarding his rationality.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:44) [[Donald Trump]] might genuinely believe himself to be the [[Antichrist]] or the Messiah, leading him to potentially destroy Iran regardless of global consequences.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:53) Planting a seed of doubt was enough to make Iran consider the risks.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:56) Iran would likely concede to avoid the destruction of its economic infrastructure, considering the potential for mutually assured destruction.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:42:04) The [[United States]] possessed the capability to bomb Iran "to the [[Stone Age]]."
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:42:08) Bombing Iran's economic infrastructure would have rendered the [[country]] unsustainable, even if the Islamic Revolutionary Guard Corps survived.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:42:26) Iran's regime might survive a devastating attack, but not for an extended period.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:42:31) Iran understood that while it could damage [[Saudi Arabia]] and the [[United States]]' economy, it would also face severe consequences itself.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:42:39) The conflict would likely lead to Iran's eventual downfall over a long enough timeline.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:46:15) [[Donald Trump]]'s 10-day deadline for Iran to open the Strait of Hormuz expired on Monday, April 6th, but was extended.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:46:44) [[Donald Trump]] issued an ultimatum two weeks prior, giving Iran 48 hours to open the Strait of Hormuz or face bombing of its energy and electrical grids.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:47:52) On Easter Sunday, [[Donald Trump]] effectively extended the deadline for Iran by another 36 hours.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:48:05) [[Donald Trump]] threatened to bomb all of Iran's civilian infrastructure, including bridges and economic targets, if Iran does not open the Strait of Hormuz.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:48:41) Iran rejected the latest peace proposal from [[Washington D.C.|Washington]], mediated by [[Pakistan]], [[Turkey]], [[Saudi Arabia]], and [[Arab Republic of Egypt|Egypt]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:49:23) Iran rejected the two-point peace plan as of April 6th, and countered with a 10-point plan of "maximalist demands."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:49:50) Iran warned that if the [[United States]] attacks Iran, it would "plunge the whole [[region]] into darkness."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:50:49) [[Donald Trump]] reportedly mobilized an "air armada" with the [[U.S. Department of Defense|Pentagon]] and the [[Central Intelligence Agency|CIA]] to rescue two F-15 pilots stranded in Iran.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:52:15) [[Nicholas J. Fuentes]] speculated that the "stranded pilot thing" was a cover story for a failed [[United States]] attempt to acquire highly enriched uranium from Iran.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:55:00) [[Donald Trump]] posted on True Social on Easter Sunday, stating, "Tuesday will be power plant day and bridge day all wrapped up in one in Iran... open the fucking straight you crazy bastard... praise be to Allah."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:55:36) [[Nicholas J. Fuentes]] described [[Donald Trump]]'s Easter Sunday post as "disturbing" and "sickening," citing its profanity, threats against Iran, and mockery of God on a holy day.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:22:36) [[Donald Trump]]'s True Social post on Easter Sunday used profanity, threatened to bomb Iranian infrastructure, and included "praise be to Allah," which [[Nicholas J. Fuentes]] considered indicative of [[Donald Trump]]'s "evil" and "wicked" character.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:43:03) [[Nicholas J. Fuentes]] emphasized the importance of rejecting "not good enough" policies, such as those from [[Miriam Adelson]] and [[Marco Rubio]], war with Iran, and stapling green cards to diplomas, prioritizing the long-term vision of 2036 or 2040.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:49:59) The Strait of Hormuz remains closed, and the [[United States]] is in a stalemate in the conflict with Iran, unable to open it by force and lacking an off-ramp.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:52:43) [[Nicholas J. Fuentes]] noted that the [[Donald Trump]] administration strategically lies to avoid telegraphing its military moves to Iran and its allies, and to recruit military and economic support.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:54:10) [[Nicholas J. Fuentes]] described feeling "fatigue" and a lack of clarity regarding the war with Iran due to the "compounding" lies from the administration and media.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:56:03) The official [[United States]] government narrative, as conveyed on True Social, maintains that the deadline for Iran's total destruction is continuously pushed back due to an ongoing "peace process."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:58:18) [[Donald Trump]] claimed two weeks prior that Iran was "begging" the [[United States]] for a deal, including nuclear concessions, and that a "peace process" was underway.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:00:02) [[Nicholas J. Fuentes]] countered the official narrative, asserting that "none of this is true," that there is no peace process, and Iran is not begging for peace or agreeing to terms.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:00:27) [[Donald Trump]] stated that Iran had begged him for extensions on the ultimatum, a claim Iran publicly denied, asserting that the extensions were due to the opening of markets.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:01:46) [[The Wall Street Journal]] reported that Iran rejected the latest two-tier proposal from the [[United States]] and its regional mediators for a 45-day ceasefire in exchange for opening the Strait of Hormuz.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:02:04) Iran counter-proposed with demands for a permanent ceasefire, lifting sanctions, compensation for war damages (reparations), a new arrangement for governing the Strait of Hormuz, and an end to all regional conflict including guarantees that [[Israel]] would not [[target]] [[Hezbollah]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:02:35) [[Donald Trump]] acknowledged Iran's counter-proposal as "not good enough" but a "significant step."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:04:19) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]]'s 15-point plan, submitted via [[Steve Wittkoff]] and [[Jared Kushner]], was a "non-starter" for Iran, which countered with its own 10-point plan demanding reparations and disabling [[United States]] bases in the [[Middle East]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:07:32) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]] is "bluffing" about bombing Iranian infrastructure because such an act would lead to Iran retaliating by bombing [[Persian Gulf]] infrastructure, destabilizing the [[region]], and leading to a "failed [[state]]" in Iran.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:12:37) [[Mark Levin]] and [[Benjamin Netanyahu|Netanyahu]] are reportedly telegraphing that a "major escalation" by the [[United States]] is imminent in the conflict with Iran.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:13:53) [[Nicholas J. Fuentes]] questioned whether the F-15 crash story was a cover for a failed [[United States]] mission to invade Iran and seize highly enriched uranium.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:16:49) [[Nicholas J. Fuentes]] expressed concern that [[Israel]] has maneuvered the [[United States]] into a "trapped" position in the conflict with Iran, with no clear exit strategy.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:19:34) [[Nicholas J. Fuentes]] stated that the war in Iran is also an [[Iraq]] war due to the involvement of the [[Kurdistan|Kurds]] in northern [[Iraq]] and western Iran, and the [[Shiite|Shiites]] from the PMF in the rest of [[Iraq]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:53:44) [[Donald Trump]] delivered a prime-[[time]] address about the war with Iran, during which he announced no new significant developments, reiterating that the conflict would continue for an additional two to three weeks.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:55:25) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s speech was intended to flood the information space with misinformation and contradictory signals to prevent Iran from determining the next moves of the [[United States]], [[Saudi Arabia]], [[United Arab Emirates|UAE]], and [[Qatar]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:58:50) Anonymous sources in [[The New York Times]] reported that Iran is not engaging in negotiations, and that any talk of diplomacy is fabricated or exaggerated by the [[United States]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:59:09) [[United States]] intelligence agencies reported that Iran does not desire a ceasefire because it believes it is winning the conflict.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:59:33) [[Washington Post|The Washington Post]] and [[Thomson Reuters|Reuters]] reported that [[Donald Trump]] requested military options to invade Iran and secure its stockpile of highly enriched uranium.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:59:49) The [[U.S. Department of Defense|Pentagon]] prepared a plan for paratroopers from the 82nd Airborne Division to land deep inside Iran at its nuclear complexes in [[Natanz]], [[Fordo]], and [[Isfahan]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:07:01) [[Nicholas J. Fuentes]] began his analysis of the war with Iran, noting that the conflict is approaching week six and that oil prices continued to rise to $116 a barrel following [[Donald Trump]]'s speech.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:09:17) [[Donald Trump]] articulated five major objectives for the conflict at its outset: destroying Iran's missiles, destroying its [[navy]], destroying its nuclear complex, pursuing regime change, and destroying regional proxies.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:09:39) [[Nicholas J. Fuentes]] assessed that of [[Donald Trump]]'s five original objectives, only the sinking of Iran's [[navy]] had been achieved, while the regime remained intact and its missile and drone launch capability was not suppressed.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:10:29) Iran closed the [[Strait of Hormuz]], creating the central overriding victory condition for the [[United States]] to reopen it.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:10:50) [[Nicholas J. Fuentes]] listed the current objectives of the [[United States]] as: toppling the regime in Iran, destroying its nuclear complex, destroying its missile production capacity, destroying regional proxies, and opening the [[Strait of Hormuz]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:12:47) [[Donald Trump]] in his prime-[[time]] address remade the case for the war, arguing the [[United States]] had to engage Iran to seize their highly enriched uranium.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:14:17) [[Donald Trump]] vowed during his speech to hit Iran extremely hard in the coming weeks and "pummel the [[country]] back to the Stone Ages where they belong."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:18:20) [[Nicholas J. Fuentes]] assessed that the [[United States]] is trapped because Iran prepared for a decapitation strike by having a deeply integrated, decentralized command structure that allows IRGC lieutenants and commanders to operate small, mobile, abundant missile and drone units.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:19:37) [[Nicholas J. Fuentes]] stated that Iran's regime is now fortified due to a "rally around the flag effect," and that there is no factionalism within the regime.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:20:22) [[Nicholas J. Fuentes]] argued that the [[United States]] cannot compel Iran to give up the [[Strait of Hormuz]] and cannot take it back by force without many [[United States|American]] casualties.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:24:33) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] wants Iran to believe it has less leverage over the [[United States]] than it does, while also pressuring [[India]], [[South Korea]], [[State of Japan|Japan]], [[Malaysia]], [[Taiwan]], and [[Europe]]—[[who]] are more dependent on the [[Persian Gulf]] for oil and liquefied natural gas from [[Qatar]]—to step in.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:27:03) [[United States]] intelligence agencies assessed that the government of Iran believes it is in a strong position in the war and does not have to accede to [[United States|America]]'s diplomatic demands.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:27:29) Iran's foreign ministry spokesman denied [[Donald Trump]]'s statement that Iran had asked for a ceasefire.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:27:12) Iran stated it is willing to engage diplomatically only under conditions where it sees the [[United States]] is willing to talk seriously about ending the war permanently and not just negotiating a temporary ceasefire.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:29:53) [[Donald Trump]] claimed that Iran begged for a deal and that the [[United States]] is holding off on escalating while waiting on negotiations mediated by [[Pakistan]], [[Turkey]], [[Arab Republic of Egypt|Egypt]], and [[Saudi Arabia]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:30:13) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] misrepresented the situation, and that messages are being passed between Iran and the [[United States]] through intermediaries, but there are no advanced-stage negotiations, meetings with Iranian officials, or substantial agreement on a deal.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:31:12) Iran stated to the media that it wants the [[United States]] to leave the [[Middle East]], pay reparations, and give Iran control of the [[Strait of Hormuz]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:36:11) [[Nicholas J. Fuentes]] stated that Iran believes it has all the cards and that the [[United States]] is losing, comparing the dynamic to the conflict in [[Ukraine]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:36:59) Iran stated it is not looking for a temporary ceasefire because it would benefit the [[United States]] by allowing it to replenish its weapons stockpile and mobilize more forces, but it is open to a durable peace.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:39:21) Iran demanded a peace treaty ratified by the [[U.S. Congress|United States Congress]] and assurances that the [[United States]] can control [[Israel]] to prevent it from restarting the conflict.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:39:45) [[Nicholas J. Fuentes]] summarized the competing positions: [[Donald Trump]] wants a maximalist menu of demands including complete surrender from Iran and the surrender of its missiles, proxies, nuclear program, and highly enriched uranium, while Iran wants a commitment that the [[United States]] will never go to war with it again.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:44:22) [[Washington Post|The Washington Post]] reported that [[Donald Trump]] specifically requested and was briefed on a military plan from the [[U.S. Department of Defense|Pentagon]] to invade Iran and seize its stockpile of nearly 1,000 pounds of highly enriched uranium.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:44:37) [[Donald Trump]] encouraged [[United States|Americans]] to watch a show on [[Fox News]] by [[Mark Levin]], during which [[Mark Levin|Levin]] argued the [[United States]] should deploy specialized ground troops to take Iran's uranium stockpile.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:46:37) [[Nicholas J. Fuentes]] described the proposed uranium seizure operation as requiring tens of thousands of soldiers and support personnel for weeks to fly into Iran's mountains, bring in heavy construction machinery, clear debris from bombed nuclear facilities, build a runway, and extract the radioactive material while under missile and drone attack.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:55:16) [[Isaac Perlmutter|Ike Perlmutter]] and [[Mark Levin]] had lunch with [[Donald Trump]] at the [[White House]] one week before the first strikes against Iran.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:56:49) [[Nicholas J. Fuentes]] stated that [[Benjamin Netanyahu|Netanyahu]] told [[Donald Trump]] in 2024 that Iran was trying to assassinate him, in an effort to "poison the well" and prime [[Donald Trump|Trump]] to bomb Iran.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:58:18) [[Nicholas J. Fuentes]] said he warned during the 2024 election that [[Donald Trump]] would take the [[United States]] to war in Iran, and that [[Donald Trump|Trump]] is the "Iran war candidate."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(04:07:19) [[Nicholas J. Fuentes]] stated that the "biggest [[patriot]]" regarding the war was [[Tucker Carlson]], for talking about the danger of war with Iran for years.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:49:23) [[Nicholas J. Fuentes]] introduced the featured story on the war in Iran, providing the context that it is "day 32."
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:53:04) [[Nicholas J. Fuentes]] stated that the messaging from the administration, [[Lindsey Graham]], and [[Israel]] over the past 48 hours constitutes a "full spectrum propaganda" campaign designed to convince the public that a cessation of hostilities is imminent on Iran's terms.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:07:59) [[Nicholas J. Fuentes]] stated that the press says the war with Iran is about to end.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:09:41) [[Nicholas J. Fuentes]] quoted [[Donald Trump|Trump]] as telling reporters in the [[White House|Oval Office]] that the [[United States]] would be leaving Iran in two to three weeks and that the [[United States|U.S]]. has eliminated Iran's nuclear threat.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:11:04) [[Nicholas J. Fuentes]] assessed the conflict as a stalemate, noting that the initial four-day operation to collapse Iran's government failed and the [[United States|U.S]]. is now in an attritional war.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:11:33) [[Nicholas J. Fuentes]] stated that Iran is successfully targeting [[United States|U.S]]. radar, bases, and strategic aircraft, including an E-3 Sentry that was destroyed and cannot be replaced.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:12:05) [[Nicholas J. Fuentes]] identified the global energy crunch resulting from Iran's closure of the [[Strait of Hormuz]] as the biggest problem in the conflict.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:12:21) [[Nicholas J. Fuentes]] stated that Iran's closure of the [[Strait of Hormuz]] represents an actual territorial gain for the Islamic Republic of Iran.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:13:04) [[Nicholas J. Fuentes]] argued that the [[United States]] has no ability to leverage Iran on any of the three original issues of contention: its nuclear program, its missile program, or its support for proxies.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:13:58) [[Nicholas J. Fuentes]] explained that Iran is effectively exercising a veto over which ships can leave the [[Strait of Hormuz]] and is aiming to formalize this dynamic by charging a toll of up to $2 million per ship.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:17:05) [[Nicholas J. Fuentes]] argued that Iran has "quintupled" the amount of energy resources it controls by taking control of the strait, through which 20% of the world's oil flows.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:18:36) [[Nicholas J. Fuentes]] stated that Iran has also taken control of 20% of the world's LNG market, which is pumped out of [[Qatar]] through the [[Strait of Hormuz]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:18:47) [[Nicholas J. Fuentes]] asserted that [[Donald Trump|Trump]] was not able to achieve his objectives, Iran survived the "killing blow," and the attack has strengthened and buttressed the regime.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:22:00) [[Nicholas J. Fuentes]] predicted that if the [[United States]] withdraws now, Iran will rebuild its missile program and highly enriched uranium, leading to pressure to go back to war, which the entire world would protest.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:24:04) [[Nicholas J. Fuentes]] cited [[Benjamin Netanyahu]] as telling the [[Israel|Israeli]] press that Iran no longer poses a threat to [[Israel]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:30:09) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] has been lying about negotiations with Iran, as there are no direct talks, only intermediaries.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:31:09) [[Nicholas J. Fuentes]] claimed that [[Donald Trump|Trump]]'s 15-point plan was a lie, as Iran has its own plan which calls for [[United States|U.S]]. reparations and the closure of all its bases.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:33:55) [[Nicholas J. Fuentes]] compared the current peace talks to the "ruse" in February and April 2025 when [[Steve Wittkoff|Steve Witkoff]] and [[Jared Kushner]] used negotiations as cover to plan the attack on Iran.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:39:12) [[Nicholas J. Fuentes]] noted that last week, Iranian parliamentary speaker [[Mohammad Baqer Ghalibaf]] said that Iran anticipated a [[United States|U.S]]. amphibious invasion with the help of a Gulf [[country]], and would punish that [[country]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:39:50) [[Nicholas J. Fuentes]] contrasted the Western press narrative (that the war is about to end) with what Iran is saying (that it is not negotiating and expects an amphibious assault).
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:41:33) [[Nicholas J. Fuentes]] concluded that the administration is using a "disinformation strategy" to keep everyone off balance, bluff Iran, pressure allies, and get buy-in from other nations for an escalation.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:43:16) [[Nicholas J. Fuentes]] argued that a peace deal with Iran is impossible if [[Israel]] is sabotaging it as a matter of grand strategy.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:50:37) [[Nicholas J. Fuentes]] hypothesized that if Iran is running low on drones and missiles (as suggested by the lower rate of fire), a concentrated air defense system could allow Marines to land on an island, making it a "mission accomplished" moment.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:55:46) [[Nicholas J. Fuentes]] characterized the [[Donald Trump|Trump]] administration as a series of half-finished projects: the Liberation Day tariffs (which were walked back), the invasion of [[Greenland]] (which was backed down from), and the war in Iran (which is now facing a potential humiliating withdrawal).
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:00:31) [[Benjamin Netanyahu|Netanyahu]] went to a joint session of [[U.S. Congress|Congress]] and gave a speech in defiance of [[White House|President]] [[Barack Obama]] and his nuclear deal with Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:01:50) The January 2020 assassination of [[Qasem Sulaimandi]] culminated a [[United States|U.S]]. shadow war with Iran, which began after the [[United States|U.S]]. withdrawal from the nuclear deal in 2018.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:57:52) [[Donald Trump]] stated on TruthSocial that if Iran does not open up the Strait of Hormuz, he will bomb desalination plants, power plants, electrical grids, the oil industry, and the oil infrastructure on Kharg Island.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:59:30) According to an interview with the [[Financial Times]], [[Donald Trump]] is considering seizing the oil from Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:59:49) The [[The Wall Street Journal|Wall Street Journal]] reported that [[Donald Trump]] may end the war with Iran without reopening the Strait of Hormuz.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:06:21) The war in Iran is costing [[the United States]] $200 billion.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:06:32) [[Donald Trump]] has bombed Iran 13,000 times, hitting 13,000 targets in the [[country]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:07:00) [[Matt Walsh]], [[who]] works for [[Ben Shapiro]] at [[The Daily Wire]], tweeted that the war in Iran is a bad idea, a catastrophe, and that there is no exit plan.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:08:22) [[Matt Walsh]] previously argued that the real [[America First]] position is to be indifferent to developments in the [[Middle East]], including [[Palestine]], Iran, [[Lebanon]], and [[Yemen]], and to fixate on domestic matters like school board meetings and the economy.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:13:14) [[Donald Trump]] created a new ultimatum for Iran giving them until April 6th to open up the Strait of Hormuz or else he would bomb their power grid, electrical grid, and oil infrastructure.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:33:06) [[Benjamin Netanyahu|Netanyahu]] went to [[the White House]] or the [[United States]] five or six times last year, pushing for a war with Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:38:58) [[Matt Walsh]] has been promoting indifference to developments in the [[Middle East]], a stance [[Nicholas J. Fuentes]] characterizes as obstruction and gaslighting that led to the current war with Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:44:00) [[Mark Levin]] is, along with [[Matt Walsh]], a chief propagandist promoting the war with Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:00:26) [[Nicholas J. Fuentes]] stated that [[the United States]]' weapons are not working against Iran and that [[the United States]] cannot achieve its objectives with air and sea power alone.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:00:26) Iran currently maintains the capability to bombard the Persian Gulf, Strait of Hormuz, Gulf countries, [[Israel]], and [[United States|U.S]]. bases with drones and ballistic missiles.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:00:26) [[Nicholas J. Fuentes]] stated that Iran has all the cards in the conflict, the [[United States|U.S]]. cannot topple the regime, and the [[United States|U.S]]. is effectively trapped.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:02:05) [[Donald Trump]] and the military planners are looking for a way to gain a small win on the battlefield to avoid a humiliating defeat and to gain leverage over Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:02:05) [[Donald Trump]] is looking to escalate the conflict into an energy war by attacking civilian infrastructure in Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:03:08) [[Nicholas J. Fuentes]] stated that Iran is intentionally drawing the conflict out to impose the maximum cost on the [[United States]], the [[region]], and the world.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:05:03) Iran has threatened to retaliate by bombing [[Saudi Arabia]], the [[United Arab Emirates]], and [[Kuwait]] if the [[United States|U.S]]. escalates into an energy war.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:05:12) [[Donald Trump]] pushed back his own deadline for Iran to open the Strait of Hormuz from 48 hours to five days, and then to April 6th.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:06:02) The [[United States]] is currently allowing Iran to export oil through the Strait of Hormuz in order to maintain oil supplies and stabilize prices.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:07:40) [[Donald Trump]] posted on TruthSocial that [[the United States]] is in serious discussions with a new and more reasonable regime to end the military operation in Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:10:28) The [[The Wall Street Journal|Wall Street Journal]] reported that [[Donald Trump]] told aides he is willing to end the military campaign against Iran even if the Strait of Hormuz remains closed.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:16:08) [[Donald Trump]] is bluffing about attacking Iran's energy infrastructure because doing so would cause oil prices to go even higher, which he has tried to prevent, and would allow Iran to destroy the Gulf countries.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:18:09) The [[United States]] is no longer a hyperpower or global hegemon and cannot pressure [[Russian Federation|Russia]], [[China]], or even middle powers like [[North Korea]] and Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:20:41) [[Israel]] is drawing the [[United States]] into an existential total war with Iran by using Iran's weapons as bait, aiming for regime change in Iran.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:20:41) [[Israel]] cannot topple Iran by itself because Iran is a large [[country]] with 90 million people, a big economy, and an arsenal of 3,000 missiles.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:21:54) [[Israel]] started a war with Iran last year and could not finish it, which forced the [[United States]] to intervene.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:25:53) [[Marco Rubio]] said that [[Israel]] was planning yet another preemptive attack on Iran, and if they attacked their missiles, those missiles would be used against [[United States|U.S]]. positions, forcing the [[United States|U.S]]. to go in.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:30:40) [[Nicholas J. Fuentes]] stated that Iran is fighting for the whole world against the Zionist occupation regime, and if Iran falls, [[Israel]] will control the entire [[Middle East]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:26:38) [[Nicholas J. Fuentes]] stated that [[the United States]] is currently on day 28 of a war with Iran.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:26:43) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] gave Iran a 48-hour ultimatum to open the [[Strait of Hormuz]] or [[Donald Trump|Trump]] and [[Israel]] would begin bombing Iran's power plants and civilian infrastructure.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:27:26) Mediating countries, including [[Turkey]], [[Arab Republic of Egypt|Egypt]], and [[Pakistan]], attempted to arrange a summit between representatives of Iran and the [[United States]] in [[Islamabad]], [[Pakistan]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:27:28) The [[United States]] submitted a 15-point plan to end the war, but Iran has not delivered a final answer and is expected to reject it.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:27:37) [[Nicholas J. Fuentes]] stated that the [[United States]] is preparing for a ground invasion of Iran in the event diplomacy fails.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:27:37) The [[United States]] is considering an amphibious landing on one of Iran's islands in the [[Persian Gulf]] or the [[Strait of Hormuz]], with [[Kharg Island]] being a potential [[target]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:00) [[Nicholas J. Fuentes]] argued that [[Donald Trump|Trump]] betrayed his 2024 campaign promises of "mass deportations and no new wars" by starting a war with Iran and failing to conduct mass deportations.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:11) [[Nicholas J. Fuentes]] observed that supporters on [[Twitter]] are using a new talking point about a "generational coalition" being squandered by the war with Iran.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:32:21) [[Nicholas J. Fuentes]] stated that the [[United States]] and [[Israel]] have engaged Iran in a joint operation using only air and sea power, having bombed Iran almost 10,000 times.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:32:27) Iran retaliated by closing the [[Strait of Hormuz]], effectively seizing control of 20% of the world's transiting energy market.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:32:42) [[Donald Trump|Trump]] is reportedly considering a ground invasion of [[Kharg Island]] to seize control of Iran's energy infrastructure rather than destroying it, to use as a bargaining chip to force Iran to reopen the [[Strait of Hormuz]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:33:22) Iran threatened to attack the energy infrastructure, desalination plants, hotels, and airports of [[Saudi Arabia]], [[Qatar]], the [[United Arab Emirates]], [[Kuwait]], and [[Bahrain]] if the [[United States]] targets Iran's power plants.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:33:30) [[Donald Trump|Trump]] stated he extended the deadline because Iran, at its own request, wanted [[time]] for peace negotiations.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:33:39) Iranian officials ruled out discussing Iran's missile program or committing to an end of uranium enrichment as a starting point for talks.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:28) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] warned Iran's leaders in a post on [[Cozy.tv|Truth Social]] that they would pay for every bullet fired by the [[Houthis]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:28) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] stated in the same [[Cozy.tv|Truth Social]] post that the [[Houthis]] have been "grazed" and that everything in Iran would be "blown to smithereens" if they continue.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:44) [[Nicholas J. Fuentes]] defined the [[United States]]' "escalation ladder" against Iran, citing the assassination of [[Qasem Soleimani]], the withdrawal from the nuclear deal, and cyber attacks as steps that led to the current air campaign.Here is the chronological knowledge log derived from the monologue segment of the video transcript.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:39:24) After [[the United States]] launched an opening campaign of heavy strikes against Iran, Iran did not buckle and closed the [[Strait of Hormuz]], effectively seizing control of global energy and embarrassing the [[United States]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:39:38) The [[United States]] was unable to reopen the [[Strait of Hormuz]] because Iran possessed an abundant supply of mobile, cheap, effective drones and missiles that could be launched from long distances, a short distance, or tethered to a fiber optic cable.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:39:38) Iran was able to constantly produce and import more drones and missiles, making it impossible for the [[United States]] to secure a 10-to-20-mile-wide stretch of the [[Strait of Hormuz]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:41:08) After a decisive killing blow, Iran expanded its territory and power rather than being defeated, surviving and coming out better off despite the [[United States]] killing its leader, dropping 10,000 bombs, and sinking its [[navy]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:41:26) Iran then controlled one of the single most important chokepoints in international trade.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:43:36) [[Donald Trump|Trump]] announced that there would be no further attacks on Iran's energy infrastructure, an action that served to reassure the markets and Iran.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:44:01) [[Donald Trump|Trump]] issued a 48-hour ultimatum demanding Iran open the [[Strait of Hormuz]] or face the destruction of its power plants and power grid.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:44:27) Iran was reportedly amenable to negotiations but did not want them to be public.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:47:34) The aircraft carrier [[USS Gerald R. Ford|USS Gerald Ford]] (CVN-78) was likely hit by an Iranian missile, but the official story claimed it was a fire in the laundry room, with reported damage far more extensive than initially stated.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:48:39) [[Marco Rubio]] told [[United States|US]] allies at the [[Group of Seven|G7]] summit in [[Europe]] that the [[United States]] would be at war with Iran for two to four more weeks.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:52:23) Iran had destroyed at least 13 [[United States|US]] bases across [[Kuwait]], [[Saudi Arabia]], [[Iraq]], and [[Qatar]], rendering them inoperable.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:53:39) An attack last week by Iran took out five refueling aircraft.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:53:43) Iran was allegedly shooting aircraft out of the sky over Iranian or [[Iraq|Iraqi]] airspace.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:54:08) Iran had a 600-mile coastline from which it could launch fiber-optic drones that could not be jammed.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:54:31) Iran was believed to be holding back its most precise and advanced missiles in order to exhaust [[United States|US]] interceptors first.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:56:11) Iran's parliamentary speaker publicly stated that Iran had intelligence the [[United States]] was planning to try and invade an island, and that Iran would [[target]] all the infrastructure of the Gulf [[country]] that assisted the operation.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:56:29) Iran was expected to escalate its response by attacking its own energy infrastructure, desalination plants in the Gulf, and [[Saudi Arabia|Saudi]] Aramco, rather than let the [[United States]] gain control.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:56:57) The conflict was considered an existential battle for Iran, which was fighting to the finish because it could not afford to lose the war and give up its missiles, nukes, proxies, and oil.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:59:33) [[Israel]] was identified as wanting regime change in Iran and planned to fight the war to the last [[United States|American]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:59:46) [[Israel]] stated it needed to hit Iran as hard as possible in the next two days because peace might break out at any [[time]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:00:04) [[Israel]] was accused of drawing the [[United States]] deeper into the war by encouraging escalation, reducing the number of off-ramps, and forcing the only possible path to be the collapse of the Iranian regime.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:01:41) [[JD Vance]] was being prepared by his allies to take over the peace talks with Iran.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:02:30) [[David Sacks]], the [[Artificial Intelligence|AI]] czar in the [[White House]], became the first administration official to come out against the war, stating that the [[United States]] needed to bring the war in Iran to a close.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:03:33) [[Joe Kent]] resigned as the director of counterterrorism under the DNI, releasing a letter stating he was against the war in Iran.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:10:14) [[The Israelis]] went to the press to claim that the only people [[who]] wanted [[JD Vance]] to lead peace talks were the Iranians.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:11:05) The [[The New York Post|New York Post]], a [[Rupert Murdoch]]-owned paper, reported that the only people [[who]] wanted [[JD Vance]] to negotiate with the Iranians were the Iranians.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:11:24) [[Vance's]] people were lobbying [[Donald Trump|Trump]] to let [[JD Vance|Vance]] solve his Iran problem, while [[the Israelis]] were lobbying him not to.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:12:37) [[JD Vance]] had already made multiple calls with [[Benjamin Netanyahu]] and had been involved in indirect communications with the Iranians.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:14:21) A senior [[United States|US]] official stated that if the Iranians couldn't strike a deal with [[JD Vance]], they wouldn't get a deal, and that he was the best they were going to get.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:14:40) The Iranians needed to decide if and how they wanted to come to the table for negotiations.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:14:57) Administration officials suspected foreign agents of spreading the word that Iran wanted to negotiate.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:06) [[JD Vance|Vance]] advisor [[Andrew Serabian]] stated on [[X]] that a [[Warner Bros. Discovery|CNN]] report about Iran wanting to negotiate was evidence of a foreign propaganda op.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:16) An administration official told [[Axios]] that the narrative that the Iranians saw [[JD Vance]] as inclined to cut a deal was an [[Israel|Israeli]] op against him.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:37) In the phone call, [[JD Vance]] mentioned that several of [[Benjamin Netanyahu]]'s predictions about the war, particularly concerning a popular uprising in Iran, had proven too optimistic.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:19:51) [[World Jewry]] was described as moving against [[JD Vance]] and in favor of [[Marco Rubio]], and the Iranian war was said to be the event that would bury [[JD Vance|Vance]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:21:52) [[The Israelis]] were accused of poisoning the well by spreading narratives that [[JD Vance]] hates [[Israel]] and that the only people [[who]] want him to negotiate are the Iranians.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:26:48) [[Peter Thiel]], [[Tucker Carlson]], and the broader faction were described as incidentally critical of [[Israel]] because [[Israel|Israeli]] hardliners wanted the [[United States]] to fight Iran and not [[China]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:13:31) [[Nicholas J. Fuentes]] reported that multiple Arab intermediaries were attempting to organize a meeting between the [[United States]] and Iran on Thursday.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:13:52) [[Donald Trump]] called off a major ultimatum against Iran on Monday, citing “substantial progress” in ongoing talks.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:15:32) The [[United States]] presented a 15-point plan to Iran that [[Nicholas J. Fuentes]] described as more demanding and a worse deal than the one offered in February.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:15:58) The [[United States]]’ February proposal required Iran to hand over all highly enriched uranium and destroy all nuclear enrichment facilities, with the terms being permanent and never sunsetting.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:16:21) The new 15-point plan required Iran to give up not just nuclear enrichment and highly enriched uranium, but also to restrict its missile program and end support for its proxies.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:16:49) [[Nicholas J. Fuentes]] argued that Iran would never agree to the 15-point plan, calling the offer an intentional derailment of diplomacy.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:21:28) [[Nicholas J. Fuentes]] reported that multiple news stories had been planted to portray [[JD Vance]] as always having been opposed to the war, contradicting insider reports that [[JD Vance]] was enthusiastically in favor of hitting Iran hard.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:22:42) [[Nicholas J. Fuentes]] accused the media of fabricating the story that Iran wanted [[JD Vance]] as a negotiator, suggesting it was copied from [[Tucker Carlson]] and the Rockbridge Network.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:39:12) [[Nicholas J. Fuentes]] speculated about a potential major terrorist attack numbering event, given the combination of a war with Iran, an international fatwa against [[United States|Americans]], and a defunded [[Transportation Security Administration|TSA]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:41:20) [[Nicholas J. Fuentes]] identified the current stage of the conflict as a stalemate, with the [[Strait of Hormuz]] remaining closed and Iran continuing attacks.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:41:47) [[Nicholas J. Fuentes]] described the [[U.S. Department of Defense|Pentagon]]’s strategy as “escalating to deescalate,” seeking to strike a critical blow against Iran to force concessions and achieve a “surrender with honor.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:42:25) [[Donald Trump]] pledged on Saturday that if Iran did not open the [[Strait of Hormuz]] in 48 hours, he would bomb their power plants and electrical grid.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:43:05) Iran pledged that if the [[United States]] bombed their power plants, Iran would retaliate against energy resources in the [[Persian Gulf]] and other civilian infrastructure like desalination plants.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:45:04) [[Donald Trump]] announced on Monday morning that he would not follow through on the ultimatum, saying there was a peace process underway and giving Iran another five-day grace period.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:47:12) Iran’s foreign minister initially denied that any talks were happening, stating that Iran did not want to talk and would not open the strait.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:47:36) [[Nicholas J. Fuentes]] reported that [[Turkey]], [[Pakistan]], and [[Saudi Arabia]] were attempting to arrange a bilateral negotiation between Iran and the [[United States]] in either [[Turkey]] or [[Pakistan]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:48:13) [[Nicholas J. Fuentes]] reported that the [[United States]] had proposed a 15-point plan to Iran that included demands that Iran not enrich uranium on its soil, give up its highly enriched uranium, destroy its nuclear complexes at [[Natanz]], [[Isfahan]], and [[Fordo]], end its ballistic missile program, and stop support for its proxies.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:50:12) Iran’s counter-proposal demanded reparations for the war, that the [[United States]] leave all its bases in the [[Middle East]], and that Iran gain permanent control over the [[Strait of Hormuz]] to charge tolls on shipping.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:51:22) [[Donald Trump]] told reporters that Iran’s leadership was under pressure to negotiate and that Iran recently agreed not to have a nuclear weapon, a position Iran had already publicly held.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:51:49) The [[The Wall Street Journal|Wall Street Journal]] reported that the 15-point plan sent by the [[United States]] to Iran called on Iran to dismantle its three main nuclear sites, suspend enrichment, end ballistic missile work, curb support for proxies, and reopen the [[Strait of Hormuz]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:52:08) The 15-point plan offered Iran the lifting of nuclear-related sanctions and [[United States|U.S]]. assistance with monitoring a civilian nuclear program in return for compliance.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:52:18) The 15-point plan broadly reflected the proposal discussed before the war started on February 28, when [[Donald Trump]] accused Iran of not negotiating in good faith.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:52:28) Iran’s new leadership had higher demands after weeks of attacks, including seeking reparations.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:18) [[Benjamin Netanyahu]] came to the [[White House]] in February 2025 asking [[Donald Trump]] to bomb Iran, making Iran the focus of his first two visits.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:43) [[Michael Waltz|Mike Waltz]], [[Donald Trump]]’s [[national security advisor]], lobbied on behalf of [[Benjamin Netanyahu]] to bomb Iran.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:52) [[Benjamin Netanyahu]] returned to the [[White House]] in the second week of April again asking [[Donald Trump]] to bomb Iran.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:53) [[Donald Trump]] told [[Benjamin Netanyahu]] he would give peace a chance, offering a 60-day ultimatum to Iran to make a deal.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:54:44) Iran only agreed to negotiate on the nuclear file, refusing to discuss support for proxies or its ballistic missile program, which Iran considered its sovereign right.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:55:55) Iran was willing to consider diluting its stockpile or giving it to a third party, but would never give up the technology or infrastructure of enrichment, which [[Nicholas J. Fuentes]] described as a source of national pride.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:57:51) [[Benjamin Netanyahu]] visited [[Donald Trump]] at [[Mar-a-Lago]] in late December, and in January, Iran experienced large protests.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:58:09) [[Donald Trump]] gave Iran a new deadline of 10 to 14 days to make a deal, leading to more rounds of negotiations in January where Iran again insisted on only discussing nuclear issues.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:58:37) [[Steve Wittkoff|Steve Witkoff]] and [[Jared Kushner]] went to [[Switzerland]] just a week before the conflict broke out and presented Iran with a final offer: give up enrichment, give up enriched uranium permanently, or face war.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:00:45) [[Nicholas J. Fuentes]] argued that the [[United States|U.S]]. proposal was a worse deal for Iran than pre-war offers, asking for concessions on nukes, proxies, and missiles when Iran’s leverage had increased, not decreased, during the war.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:01:53) [[Nicholas J. Fuentes]] argued that the war had increased Iran’s leverage because Iran had kept its regime intact, suppressed all protests, maintained leadership, and continued launching attacks against the strait, the Gulf, [[Israel]], and [[United States|U.S]]. bases.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:04:04) [[Nicholas J. Fuentes]] argued that Iran would never agree to the current [[United States|U.S]]. demands because they had fought hard for their sovereignty and strategic capabilities.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:08:52) The administration was considering a seizure of [[Kharg Island]], an Iranian island in the [[Persian Gulf]] from which Iran exports about 90% of its oil.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:12:20) [[Nicholas J. Fuentes]] noted that the [[United Arab Emirates]] and [[Saudi Arabia]] were now lobbying the [[United States]] to keep the war going, seeing Iran as a long-term threat to the stability of the Gulf.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:13:40) [[Nicholas J. Fuentes]] explained that [[Saudi Arabia]] and the [[United Arab Emirates|UAE]] feared that as long as Iran had missiles, their non-oil industries, tourism, and financial sectors were at risk.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:14:23) Iran was bombing [[Dubai]]’s airports, hotels, and shopping malls, threatening the long-term viability of the [[United Arab Emirates|UAE]] and [[Saudi Arabia]] as states.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:16:46) [[Warner Bros. Discovery|CNN]] and the [[The New York Post|New York Post]] published a story that an unnamed Iranian source claimed Iran wanted [[JD Vance]] to be the negotiator because they did not trust [[Jared Kushner]] or [[Steve Wittkoff|Steve Witkoff]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:17:14) [[Steve Wittkoff|Steve Witkoff]] had a personal relationship with the foreign minister of Iran and had business interests in [[Qatar]], which does business with Iran.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:18:05) [[Nicholas J. Fuentes]] read from a [[The New York Post|New York Post]] article stating that [[JD Vance]] was emerging as a key player in potential Iran talks and that Iran wanted to deal directly with him.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:20:46) [[JD Vance]] told the Quincy Institute that funding [[Ukraine]] should stop but that [[Israel]] was different and should be funded to bomb Iran.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:21:13) Sources from inside [[the White House]] said that [[JD Vance]] was in favor of bombing Iran and did not express any disagreement, with one source saying “[[JD Vance|Vance]] said, if you hit Iran, you got to bomb them really hard.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:21:33) [[Nicholas J. Fuentes]] argued that Iran knew [[JD Vance]]’s true position and would not request him, calling the story propaganda.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:28:40) [[Nicholas J. Fuentes]] argued that [[Marco Rubio]] had a “golden parachute” because he would be associated with successes in [[Venezuela]], [[Cuba]], and [[Nicaragua]], while [[JD Vance]] would be left to burn politically, associated with the war in Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:02:03) [[Nicholas J. Fuentes]] introduced the featured story as the war in Iran on "day 24" of the conflict.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:03:46) [[Donald Trump|Trump]] issued an ultimatum on Saturday stating that if the [[Strait of Hormuz]] is not opened in 48 hours, [[Donald Trump|Trump]], [[Israel]], and possibly [[Saudi Arabia]] would engage Iran in an all-out attack on its energy infrastructure.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:04:06) Iran stated it would retaliate by bombing the energy infrastructure in the Gulf as well as desalination plants in the [[United Arab Emirates]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:04:46) [[Donald Trump|Trump]] announced on Monday morning at 7:30 a.m. on [[Cozy.tv|Truth Social]] that the attack was postponed by five days, citing ongoing talks with Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:10:08) [[Nicholas J. Fuentes]] cited reports from the [[The Wall Street Journal|Wall Street Journal]] and [[Axios]] that a group of [[Middle East|Middle Eastern]] countries were acting as intermediaries between the [[United States]] and Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:11:28) [[Nicholas J. Fuentes]] reported that sources from [[U.S. Department of Defense|The Pentagon]] indicated [[Donald Trump|Trump]] was preparing to invade part of Iran, possibly an island in the [[Strait of Hormuz]] or a beachhead on the coastline.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:16:34) [[Nicholas J. Fuentes]] stated that [[U.S. Department of Defense|The Pentagon]] and [[U.S. Department of Defense|Central Command]] had not abandoned their plans to invade Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:33:36) Iran's Foreign Minister stated that if the [[United States]] bombs their energy, they will bomb [[Saudi Arabia]], [[Qatar]], and the [[United Arab Emirates]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:34:18) Iran's Foreign Minister argued that energy infrastructure is civilian infrastructure and that Iran would retaliate by attacking energy infrastructure and desalination plants.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:37:51) [[Donald Trump|Trump]] issued his ultimatum to Iran in all capital letters on [[Cozy.tv|Truth Social]], stating "you have 48 hours, open up the strait or else."
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:42:35) [[Nicholas J. Fuentes]] argued that [[Donald Trump|Trump]] wanted to escalate the conflict to break the stalemate and avoid a strategic victory for Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:48:40) [[Donald Trump|Trump]] postponed the deadline, giving Iran five days to open the [[Strait of Hormuz]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:49:30) [[Donald Trump|Trump]] stated that his administration had spoken to the  Iranian regime and made progress on a framework for a deal.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:51:36) [[Donald Trump|Trump]] stated that Iran had agreed to share the [[Strait of Hormuz]] with [[United States|America]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:52:07) Iran demanded sovereignty over the [[Strait of Hormuz]] to extract tolls on shipping, similar to [[Arab Republic of Egypt|Egypt]]'s control over the [[Suez Canal]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:53:11) Iran demanded the [[United States]] leave all its military bases in the [[Middle East]], pay reparations, and give them control of the [[Strait of Hormuz]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:53:18) The [[United States]] demanded Iran cannot have any ballistic missiles or nuclear enrichment.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:54:49) Iranian officials denied that discussions with the [[United States]] were taking place.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:55:51) Iran's parliamentary speaker [[Muhammad Baqer Ghalibaf]] wrote on Monday that the "Iranian people demand complete and remorseful punishment of the aggressors."
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:00:39) [[Nicholas J. Fuentes]] argued that [[Donald Trump|Trump]] launched the initial attack on Iran on a Friday night after the markets closed to prevent traders and investors from panicking until the weekend.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:01:59) [[Donald Trump|Trump]] launched the attack on Iran on a Friday night, with the stated expectation that the war would last four days, potentially concluding by the following Monday to reassure the markets.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:03:10) [[Donald Trump|Trump]] bombed Kharg Island, the central hub of Iran's energy in the [[Persian Gulf]], on a Friday.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:14:10) [[Donald Trump|Trump]] authorized an [[Israel|Israeli]] strike on Iran's southern Pars gas fields.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:16:44) Iran carried out an attack against [[Qatar]]'s [[Liquefied Natural Gas|LNG]] plant, which supplies 20% of the world's [[liquefied natural gas]], and [[Saudi Aramco]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:17:23) [[Donald Trump|Trump]] stated that the [[United States]] had nothing to do with the [[Israel|Israeli]] strike on Iran's gas fields and that he would restrain [[Israel]] from attacking Iran's energy if Iran did not continue its attacks.Here is the chronological knowledge log derived from the monologue portion of the transcript.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:17:50) The "Gulf" convinced the administration that attacking Iranian energy infrastructure was "a bridge too far" and "detrimental", leading [[Saudi Arabia]] and the [[United Arab Emirates]] to send representatives to [[Washington D.C.|Washington, D.C.]] to argue they could not endure such strikes on their energy supplies. [[Nicholas J. Fuentes]] analyzed the military and diplomatic situation between the [[United States]] and Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:18:36) [[Nicholas J. Fuentes]] assessed that reports of [[Turkey]], [[Pakistan]], and [[Saudi Arabia]] acting as intermediaries to de-escalate the conflict with Iran were a "fiction" and "overhyped," stating those countries have "no influence" over the [[United States]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:19:00) [[Donald Trump]] claimed to be negotiating with Iran, a claim that Iran denied. [[Nicholas J. Fuentes]] reported a significant gap between the positions of the two countries, with Iran demanding the [[United States]] leave the [[Middle East]] and pay reparations, while the [[United States]] demands Iran denuclearize.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:19:39) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s postponement of a military action by five days, citing negotiations that Iran denies, is likely a cover for a planned military operation, noting the buildup of [[United States|US]] Marines and the 82nd Airborne Division.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:21:54) [[U.S. Department of Defense|Pentagon]] officials weighed a deployment of a combat brigade from the [[Army]]'s [[82nd Airborne Division]] to support operations against Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:22:30) [[Nicholas J. Fuentes]] reported that the amphibious assault is planned to seize [[Kharg Island]], Iran's main oil export hub.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:25:10) [[Nicholas J. Fuentes]] argued that [[The New York Times]], [[The Wall Street Journal]], and [[Washington Post|The Washington Post]] were acting as mouthpieces for [[the Pentagon]] to telegraph a plan for a "limited tactical ground force operation" to commandeer, rather than destroy, Iran's energy infrastructure.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:27:00) [[Nicholas J. Fuentes]] described a "battle plan" where the [[United States]] would invade [[Kharg Island]] instead of the Iranian mainland, using a small force to take control of the energy infrastructure and form an effective embargo against Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:31:22) A report indicated that the administration wants the war with Iran to wind down by the second week of April, with betting markets correlating a potential deal to be reached between March 31st and April 7th.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:33:40) [[Nicholas J. Fuentes]] argued that [[Israel]] and the [[United States]] have not abandoned their ultimate goal of regime change in Iran, describing the current conflict as "mowing the grass"—a recurring cycle of strikes against Iran's rebuilt missile and nuclear capabilities.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:33:50) [[Nicholas J. Fuentes]] stated that the [[United States]] and [[Israel]] had initially hoped the opening strikes would cause Iran's government to collapse, but this did not happen.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:37:28) [[Nicholas J. Fuentes]] claimed the [[United States]] is on the ground in Iran building an anti-government coalition, preparing the [[Kurdistan|Kurds]] and other secessionist elements to take power after the Islamic Revolutionary Guard Corps is weakened.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:39:21) [[Nicholas J. Fuentes]] predicted that after the midterms, the [[United States]] and [[Israel]] will call for another, larger operation aimed at fully toppling the Iranian regime.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:40:43) [[David Sacks]] came out against the war with Iran.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:41:27) Reports and anonymous sources claimed that Iran wants to negotiate but does not trust [[Steve Wittkoff|Steve Witkoff]] and [[Jared Kushner]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:41:55) [[Nicholas J. Fuentes]] reported that Iran is requesting that [[JD Vance]] be brought in to negotiate in [[Pakistan]] or [[Turkey]], rather than [[Steve Wittkoff|Steve Witkoff]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:42:50) [[Nicholas J. Fuentes]] speculated that a potential photo op of [[JD Vance]] negotiating a ceasefire with Iran is a "psyop" designed to salvage [[JD Vance]]'s presidential ambitions.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:00:01) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian nuclear deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict Iran's enrichment of uranium.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:01:33) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the IRGC, the military of the Iranian regime, a terrorist group, putting the [[United States]] in a shadow war with Iran.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:02:43) [[Nicholas J. Fuentes]] argued that the war with Iran started a long [[time]] ago and that [[Donald Trump]] "made it hot" in 2020.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:15:30) [[Nicholas J. Fuentes]] expressed that he was getting tired of the war in Iran, which was entering its fourth week with no end in sight.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:17:04) [[Nicholas J. Fuentes]] noted that Iran can launch a drone from hundreds of miles inland and hit a ship in the 24-mile-wide Strait of Hormuz with high accuracy.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:22:00) [[Nicholas J. Fuentes]] reported that the price of crude oil passed $120 a barrel following the escalation of attacks on Iran's energy infrastructure.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:22:48) [[Nicholas J. Fuentes]] reported that [[U.S. Department of Defense|Secretary of Defense]] [[Pete Hegseth]] confirmed that the [[Pentagon]] was asking [[the White House]] to approve $200 billion for the war in Iran.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:24:10) [[Nicholas J. Fuentes]] recalled that [[Donald Trump]] had previously expressed disinterest in using budget reconciliation in 2026, but now the [[Republican Party|Republicans]] were planning to use it to appropriate $200 billion for the war in Iran.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:25:57) [[Nicholas J. Fuentes]] noted that this would mean the war in Iran was already more expensive than the war in [[Ukraine]], which cost $188 billion over four years, while the Iran war was costing $200 billion and was not even at the end of week three.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:03:30) [[Nicholas J. Fuentes]] asserted that the institutions have conditioned [[Donald Trump]] to do what they want: keep cheap labor, bomb Iran, keep weapons flowing to [[Ukraine]], and deregulate [[Artificial Intelligence|AI]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:04:51) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] is not releasing the [[Jeffrey Epstein|Epstein]] files, not building the wall, not carrying out mass deportations, and is going to war with Iran.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:13:12) [[Nicholas J. Fuentes]] pivoted back to the war in Iran, noting that it would enter its fourth week and that [[Pete Hegseth]] confirmed the $200 billion request.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:13:50) [[Nicholas J. Fuentes]] summarized the situation by saying [[Donald Trump]] promised mass deportations and "no new wars," but delivered no mass deportations and a $200 billion war in Iran.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:14:42) [[Nicholas J. Fuentes]] calculated that the $200 billion request from the [[Pentagon]] means the Iran war will cost more than the [[Ukraine]] war did in four years, and the [[United States|U.S]]. is not even four weeks in.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:15:24) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] brought the [[United States]] into a war in Iran on behalf of [[Israel]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:17:17) [[Nicholas J. Fuentes]] argued that the [[Donald Trump|Trump]] administration promised to put [[United States|Americans]] first and avoid new wars, but is now spending $200 billion on a war in Iran while deporting fewer than 500,000 people per year.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:17:53) [[Nicholas J. Fuentes]] stated that the war in Iran is the "opposite" of what was promised and is a catastrophe with no exit plan.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:19:59) [[Nicholas J. Fuentes]] detailed the spending priorities of the [[Donald Trump|Trump]] administration, stating that tax money goes to "[[Somalia|Somali]] scammers," illegal immigrants, and [[Israel]]'s decapitation campaign against Iran, while a $20 billion border wall was deemed too expensive in [[Donald Trump|Trump's]] first term.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:23:00) [[Nicholas J. Fuentes]] revisited ''[[The Wall Street Journal]]'' article, focusing on the $200 billion request for the Iran war.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:23:14) [[Nicholas J. Fuentes]] read from ''[[The Wall Street Journal]]'' report that the [[Pentagon]] has asked for $200 billion for the war in Iran and that [[Pete Hegseth]] said the number could move.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:24:03) [[Nicholas J. Fuentes]] compared the $200 billion request to the $188 billion spent on [[Ukraine]] and the $815 billion spent on the [[Iraq]] war, noting that the Iran war cost more in three weeks than the [[Ukraine]] war cost in four years.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:25:50) [[Nicholas J. Fuentes]] argued that the [[United States]] is in a stalemate, unable to topple Iran's regime while Iran chokes off energy through the Strait of Hormuz.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:26:40) [[Nicholas J. Fuentes]] analyzed [[Donald Trump]]'s options in the war: invade Iran and topple the regime, or retreat, which would be a strategic defeat.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:27:10) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] initiated a new phase of the conflict by launching an "energy war," bombing [[Kharg Island]] and Iran's [[Southern United States|South]] Pars gas fields to pressure Iran to open the Strait of Hormuz.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:29:00) [[Nicholas J. Fuentes]] noted that Iran still has a vast stockpile of mines, cruise missiles, and undamaged boats in hidden facilities.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:29:50) [[Nicholas J. Fuentes]] argued that to prevent drones and missiles from hitting ships in the strait, the [[United States|U.S.]] would have to clear a radius hundreds of miles inside Iran's territory, which he believes cannot be done.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:30:17) [[Nicholas J. Fuentes]] compared the operation to the previous year's bombing of [[Yemen]] by the [[Houthis]], which failed to stop them from bombing the [[Red Sea]], and concluded that stopping Iran from bombing a much smaller [[target]] is impossible.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:32:50) [[Nicholas J. Fuentes]] suggested the war in Iran is starting to feel like the [[Iraq War]], where no one has a clue how it will end.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:34:22) [[Nicholas J. Fuentes]] asked what happens when the [[United States]] is still in Iran by the end of April, with high oil prices, dead [[United States|Americans]], and depleted stockpiles.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:41:35) [[Nicholas J. Fuentes]] responded to a question about why the [[United States]] cannot pull out, explaining that Iran would claim victory, the regime would grow stronger, and the [[United States]] would be seen as a paper tiger.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:42:46) [[Nicholas J. Fuentes]] explained that a ceasefire would allow Iran to rebuild its capabilities and retain the ability to close the strait again, meaning the [[United States]] would likely have to go back to war later.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:43:10) [[Nicholas J. Fuentes]] concluded that the [[United States]] wants a decisive victory to topple the regime or at least prevent Iran from dictating the terms of the Strait of Hormuz.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:01:44) [[Nicholas J. Fuentes]] claimed that the shadow war with Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]], [[who]] he described as the architect of the "axis of resistance" including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:02:50) [[Nicholas J. Fuentes]] characterized the conflict in Iran as a forever war that began in 2018, comparing it to wars in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:10:23) [[Nicholas J. Fuentes]] repeated his argument that the war in Iran started a long [[time]] ago and that [[Donald Trump]] made it hot in 2018.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:10:52) [[Nicholas J. Fuentes]] repeated his characterization of the conflicts in [[Iraq]], [[State of Libya|Libya]], [[Syria]], and Iran as forever wars.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:28:34) [[Nicholas J. Fuentes]] introduced the featured story for the show as the war in Iran, describing it as "day 19" and entering the fourth week.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:30:55) [[Nicholas J. Fuentes]] explained that Iran's chief means of forcing the [[United States]] to exit the conflict is by attacking energy infrastructure, and that up until that point, the [[United States|U.S]]. and [[Israel]] had refrained from striking Iran's energy infrastructure for fear of retaliation against Gulf energy.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:31:54) [[Nicholas J. Fuentes]] reported that [[Israel]] launched a major strike on Iran's gas fields near [[Tehran]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:32:38) [[Nicholas J. Fuentes]] reported that Iran retaliated by bombing natural gas fields in [[Qatar]], the [[United Arab Emirates]], and oil infrastructure in [[Saudi Arabia]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:33:12) [[Nicholas J. Fuentes]] quoted [[Donald Trump|Trump]]'s [[Cozy.tv|Truth Social]] post, in which [[Donald Trump|Trump]] claimed the administration was unaware of the attack, did not give [[Israel]] permission, and said there would be no further attacks on Iran's energy and that the [[United States|U.S]]. would retaliate if Iran hits any energy in the Gulf.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:34:24) [[Nicholas J. Fuentes]] stated his belief that [[Donald Trump|Trump]] is "abjectly lying" and that of course [[Israel]] told the [[United States]] and the [[United States]] approved the strike as part of an escalatory tactic against Iran.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:34:45) [[Nicholas J. Fuentes]] explained that [[Donald Trump|Trump]] bombed Kharg Island last week and authorized the strike on the gas fields in order to ratchet up pressure on Iran to compel them to allow the Strait of Hormuz to open up.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:38:37) [[Nicholas J. Fuentes]] speculated that the preparations for escalation could be a genuine signal to Iran that the [[United States|U.S]]. is ready for the long haul, or an actual preparation for an operation to invade the coastline or seize Iran's nuclear facilities.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:41:05) [[Nicholas J. Fuentes]] reported that [[Tulsi Gabbard]] was asked in a [[U.S. Congress|U.S. Senate]] hearing by [[Jon Ossoff]] whether Iran posed an imminent threat, and that she deferred to [[Donald Trump|Trump]], saying it is up to [[Donald Trump|Trump]] to decide what is a threat and what isn't.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:41:42) [[Nicholas J. Fuentes]] stated that the justification for the war is that Iran presented an imminent threat.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:42:07) [[Nicholas J. Fuentes]] reported that [[Joe Kent]], [[who]] worked in the Office of the [[Director of National Intelligence|DNI]] at the Counterterrorism Center, resigned yesterday saying the claim that Iran posed an imminent threat is a lie.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:43:15) [[Nicholas J. Fuentes]] accused [[Tulsi Gabbard]] of a "disgusting betrayal," noting that for years she was a non-interventionist [[who]] said the [[United States|U.S]]. should not fight a war with Iran.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:47:38) [[Nicholas J. Fuentes]] quoted [[Joe Kent]]'s resignation letter, in which [[Joe Kent]] said that Iran did not pose an imminent threat and that the [[United States|U.S]]. was dragged into the conflict by [[Israel]] and its lobby.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:48:14) [[Nicholas J. Fuentes]] gave [[Joe Kent]]'s statement a grade of "B+," noting that [[Joe Kent]] called the killing of [[Qasem Soleimani]] "[[America First]]" but also said the war in Iran was "[[United States|America]] Last" and influenced by the [[Israel|Israelis]], arguing that the killing of [[Qasem Soleimani|Soleimani]] directly led to the conflict.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:06:44) [[Nicholas J. Fuentes]] claimed that the [[Peter Thiel|Thiel]]-backed network's sole mission is to make [[JD Vance|Vance]] [[president]], and that they knew a catastrophic war with Iran would hurt [[JD Vance|Vance]] the most.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:07:53) [[Nicholas J. Fuentes]] stated that he does not trust [[Joe Kent]] or [[Tucker Carlson]], noting that [[Joe Kent]] as recently as 2024 was saying the [[United States|U.S]]. should give [[Israel]] foreign aid and bomb Iran's nukes.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:10:14) [[Nicholas J. Fuentes]] explained that [[Donald Trump|Trump]] thought he could pound Iran hard for a few days, cause the regime to sue for peace, and impose conditions on Iran's nuclear program, but that things did not go according to plan.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:11:11) [[Nicholas J. Fuentes]] described the first phase of the war as the [[United States|U.S]]. bombing regime targets and military hardware, and the second phase as an attritional war where the [[United States|U.S]]. and [[Israel]] are using air and sea power to bomb Iran continually.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:12:22) [[Nicholas J. Fuentes]] stated that as long as Iran can launch drones and missiles, they can shut down shipping in the Strait of Hormuz, which chokes the global energy supply and hurts the Gulf nations.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:14:02) [[Nicholas J. Fuentes]] explained that Iran has closed the Strait of Hormuz with millions of cheap, small, easily produced suicide drones that can be launched from anywhere, making it impossible to bomb them all.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:15:03) [[Nicholas J. Fuentes]] stated that the only way to stop Iran from closing the strait is to topple the government, and the only way to do that is a ground invasion, which he described as off the table.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:15:52) [[Nicholas J. Fuentes]] explained that [[Donald Trump|Trump]] is looking for a "third way" to break the stalemate by increasing pressure without escalating, which involves hitting the one thing that has been off limits: Iran's energy infrastructure.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:17:15) [[Nicholas J. Fuentes]] argued that destroying Iran's energy industry would cripple Iran's economy for years, but it has not been hit for two reasons: it would harm a successor regime and it would trigger retaliation against [[United States|U.S]]. allies' energy.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:19:10) [[Nicholas J. Fuentes]] stated that if the [[United States|U.S]]. bombs Iran's energy and Iran retaliates by bombing the Gulf, the result would be a chronic energy shortage in the entire world that would take years to rebuild.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:21:52) [[Nicholas J. Fuentes]] reported that on the previous Friday, [[Donald Trump|Trump]] launched a major airstrike on Kharg Island, where 90% of Iran's oil exports move, but only hit the military targets, not the economic energy infrastructure.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:22:32) [[Nicholas J. Fuentes]] speculated that the attack on Kharg Island was a gesture to indicate to Iran that if they do not open the Strait of Hormuz, the [[United States|U.S]]. might attack the energy infrastructure.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:28:01) [[Nicholas J. Fuentes]] reported that [[Israel]] launched a major strike on the [[Southern United States|South]] Pars gas field and Iran retaliated by bombing [[Qatar]]'s gas, the Emirati's gas, and [[Saudi Arabia|Saudi]] oil.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:29:25) [[Nicholas J. Fuentes]] quoted a *[[The Wall Street Journal|Wall Street Journal]]* article stating that [[Donald Trump|Trump]] approved the strike on the [[Southern United States|South]] Pars gas field to pressure Iran to unblock the Strait of Hormuz, and that [[Donald Trump|Trump]] believed [[Tehran]] received the message and now wants to refrain from further strikes.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:31:28) [[Nicholas J. Fuentes]] argued that the strategy was for [[Donald Trump|Trump]] to hit Kharg Island, then when allies refused to help, he moved in with [[Israel]] to hit the gas field, anticipating that Iran would bomb the Gulf.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:31:52) [[Nicholas J. Fuentes]] argued that [[Donald Trump|Trump]] allowed this because the only way to pry the Strait of Hormuz open without regime change or a ceasefire is to make it hurt more for Iran by hitting their energy.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:33:08) [[Nicholas J. Fuentes]] argued that by bombing Iran's energy, [[Donald Trump|Trump]] is punishing the allies that did not assist by hurting their economies, noting that the [[United States|U.S]]. is a net exporter of energy and will not feel the shock as much as Asia and [[Europe]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:35:06) [[Nicholas J. Fuentes]] quoted [[Donald Trump|Trump]]'s [[Cozy.tv|Truth Social]] post, in which [[Donald Trump|Trump]] said the [[United States|U.S]]. knew nothing about the attack, that no more attacks will be made by [[Israel]] on the [[Southern United States|South]] Pars field unless Iran attacks [[Qatar]] again, in which case the [[United States|U.S]]. will "massively blow up the entirety of the [[Southern United States|South]] Pars gas field."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:38:45) [[Nicholas J. Fuentes]] stated that Iran retaliated quickly and hit [[Qatar]]'s [[Liquefied Natural Gas|LNG]], which is how [[Europe]] has replaced [[Russian Federation|Russian]] natural gas, making the situation a global supply shock.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:39:51) [[Nicholas J. Fuentes]] argued that Iran called the [[United States|U.S]]. bluff, and [[Donald Trump|Trump]] is now trying to get in front of it by saying he didn't authorize the strike and warning against further energy warfare.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:41:54) [[Nicholas J. Fuentes]] reported that the options for ground forces include securing a safe passage for oil tankers through the Strait of Hormuz, sending forces to Kharg Island, and securing Iran's stocks of highly enriched uranium.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:44:51) [[Nicholas J. Fuentes]] reported that the cost of the war in Iran exceeded $11 billion in the first week alone.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:46:58) [[Nicholas J. Fuentes]] described Iran as a [[country]] of 90 million people with a million soldiers, stating that the [[United States|U.S]]. doesn't have a military big enough to invade it.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:47:47) [[Nicholas J. Fuentes]] argued that the Gulf countries now view Iran as an existential threat and want the [[United States|U.S]]. to "finish the job and collapse the regime before we leave," which is how the [[United States|U.S]]. gets drawn into a full-fledged war.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:53:50) [[Nicholas J. Fuentes]] predicted that it is only a matter of [[time]] before an Iranian sleeper cell kills a bunch of civilians, which would fully commit the [[United States|U.S]]. to a ground war with Iran.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:54:30) [[Nicholas J. Fuentes]] stated his belief that even if there is a temporary ceasefire, the day will come when Iran has regime change and [[United States|U.S]]. ground forces will be a part of it.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:23:75) Iran closed the [[Strait of Hormuz]], effectively shutting down energy trade from the [[Persian Gulf]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:24:97) Iran began mining the [[Strait of Hormuz]] by deploying sea-based explosive mines in the narrow waterway.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:25:23) Iran launched ballistic missiles that struck two tankers in the [[Persian Gulf]] and hit oil infrastructure in [[Bahrain]] and [[Iraq]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:25:31) The [[United States]] military struck 3,000 targets inside Iran, destroying an estimated 85% of Iran's missile arsenal.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:27:19) [[Nicholas J. Fuentes]] stated that 90% of self-identified [[Donald Trump|MAGA]] [[Republican Party|Republicans]] supported a war in Iran.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:29:46) [[Nicholas J. Fuentes]] predicted during the 2024 election that [[Donald Trump]] would bring the [[country]] into a war with Iran.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:34:01) [[Nicholas J. Fuentes]] described a contrast between the unpopular policy of war in Iran and the formerly popular policy of mass deportations.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:05:50) [[Nicholas J. Fuentes]] argued that after the [[United States]] bombed Iran, the Islamic Republic of Iran deported a million people, which is more than [[the United States]] has.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:19:28) [[Nicholas J. Fuentes]] argued that [[Stephen Miller]] agitates for war with Iran while his wife appears on [[Piers Morgan]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:24:05) [[Nicholas J. Fuentes]] reported official polling data from [[NBC News]] showing that 54% of registered voters disapprove of [[Donald Trump]]'s handling of the situation in Iran.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:24:40) The [[NBC News]] poll showed that an overwhelming 89% of [[Democratic Party|Democrats]] say the [[United States]] should not have struck Iran.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:25:46) The [[NBC News]] poll found that two thirds of voters under 35 say the [[United States]] should not have struck Iran.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:27:47) [[Nicholas J. Fuentes]] contrasted the 2016 [[Donald Trump]] campaign, which repudiated the legacy of [[George W. Bush]] and the [[Iraq]] war, with the current situation where 90% of [[Donald Trump|MAGA]] [[Republican Party|Republicans]] support a war in Iran.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:41:20) [[Nicholas J. Fuentes]] asserted that the war in Iran began when [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) and [[Benjamin Netanyahu]] interfered by speaking to a joint session of [[U.S. Congress|Congress]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:41:32) [[Nicholas J. Fuentes]] cited an excerpt from [[James Bamford]]'s book "Spy Fail," alleging hidden collusion between [[Donald Trump]] and [[Israel]] in the 2016 election to scuttle the Iran nuclear deal.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:42:89) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the IRGC a terrorist group, and the shadow war with Iran culminated in the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(16:04:99) [[Nicholas J. Fuentes]] stated that [[Donald Trump|MAGA]] is "dead" if 90% of its voters support a war with Iran, and that young people need "something new."
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:59:54.980) [[Nicholas J. Fuentes]] traced the origins of the conflict with Iran to [[Barack Obama]]'s creation of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:01:27.850) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the IRGC a terrorist group.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:01:44.820) [[Nicholas J. Fuentes]] noted that the shadow war with Iran culminated in the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:02:50.540) [[Nicholas J. Fuentes]] characterized the conflict with Iran as a "forever war" that began in 2018, similar to wars in [[Iraq]] (1990), [[State of Libya|Libya]] (2011), and [[Syria]] (2011).
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:10:28.240) [[Nicholas J. Fuentes]] stated that the [[Donald Trump|Trump]] administration is diverging from [[Israel]]'s policy on the strategic objective of the war in Iran.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:10:33.320) [[Nicholas J. Fuentes]] asserted that [[Israel]]'s objective in the conflict is regime change in Iran.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:11:11.160) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] is now seeking to degrade Iran's military capabilities and then quickly exit, rather than pursue regime change.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:11:16.840) [[Nicholas J. Fuentes]] stated that [[Israel]] launched an all-out attack on Iran's oil infrastructure over the weekend, which the [[United States|US]] condemned.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:11:29.120) [[Nicholas J. Fuentes]] reported that the attack on Iran's oil was condemned by Secretary of War [[Pete Hegseth]], [[Donald Trump|Trump]], and Senator [[Lindsey Graham]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:12:38.350) [[Nicholas J. Fuentes]] noted a shift in messaging from "no new wars" to a war in Iran, and that [[Pete Hegseth]] announced the [[United States|U.S]]. is not doing nation-building in Iran.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:18:47.100) [[Nicholas J. Fuentes]] stated that the [[Donald Trump|MAGA]] movement brought the [[United States]] to war with Iran and that the only people cheering for it are [[Jews|Jewish]] donors and neocons.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:36:01.460) [[Nicholas J. Fuentes]] compared the approval ratings of mass deportations (49% against) versus the war in Iran (27% approval), arguing the administration is governed not by public opinion but by different interests.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:36:17.450) [[Nicholas J. Fuentes]] argued that mass deportations are a political loser, but the war in Iran is pursued regardless of its unpopularity.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:38:46.810) [[Nicholas J. Fuentes]] contrasted the [[Republican Party|RNC]] in 2024, where attendees held signs saying "Mass Deportations, Not War With Iran," with the current reality of war in Iran.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:40:51.190) [[Nicholas J. Fuentes]] referenced [[Kurt Mills]] of [[American Conservative Magazine|The American Conservative]] as someone [[who]] assured the audience that the [[United States]] would not go to war with Iran because he knew people in [[the Pentagon]] and [[U.S. National Security Council|National Security Council]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:40:57.830) [[Nicholas J. Fuentes]] named [[Bridge Colby]] as one of the people [[Kurt Mills]] trusted to prevent a war with Iran.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:10.000) [[Nicholas J. Fuentes]] argued that the people [[who]] want a war with Iran are the same people [[who]] do not want mass deportations.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:17.000) [[Nicholas J. Fuentes]] said [[The Wall Street Journal]] is bullish on the war with Iran but hates the deportations.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:34.000) [[Nicholas J. Fuentes]] noted that [[Hillary Clinton]] praised the [[Donald Trump|Trump]] administration for working with allies during the war in Iran.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:41.000) [[Nicholas J. Fuentes]] contrasted the media's lack of outcry against the war in Iran with its intense coverage of deportations.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:48.000) [[Nicholas J. Fuentes]] argued that the same people [[who]] want cheap immigrant labor also want a war with Iran to control the [[Persian Gulf]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:47:42.000) [[Nicholas J. Fuentes]] launched into a detailed analysis of the strategic objectives of [[Israel]] and the [[United States]] in Iran.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:47:52.000) [[Nicholas J. Fuentes]] stated that [[Israel]]'s strategic objective is regime change in Iran to pursue a "Greater [[Israel]]" expansionist agenda.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:48:31.000) [[Nicholas J. Fuentes]] argued that Iran, an Islamist [[state]], stands in the way of [[Israel]]'s expansion.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:48:51.000) [[Nicholas J. Fuentes]] stated that [[Israel]] needs to topple the [[Government of Iran|Iranian government]] to stop Iran's support for militias like [[Hezbollah]] and [[Hamas]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:49:29.000) [[Nicholas J. Fuentes]] stated that the [[United States]]' strategic imperative is to prevent Iran from getting a nuclear bomb and to ensure free navigation through the [[Strait of Hormuz]] for oil.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:49:28.000) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brokered the [[Joint Comprehensive Plan of Action|JCPOA]] and that [[Donald Trump]] ripped it up, but both were motivated by the same concern: Iran possessing a nuclear weapon.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:50:48.000) [[Nicholas J. Fuentes]] argued that [[Israel]] got the [[United States]] on the hook for war by claiming Iran was on the cusp of getting the bomb and preemptively striking.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:51:14.000) [[Nicholas J. Fuentes]] stated that after the first strike, Iran went back to work rebuilding, and that there were facilities the [[United States|U.S]]. did not know about.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:52:07.000) [[Nicholas J. Fuentes]] stated that when [[Donald Trump|Trump]] announced the operation two weeks prior, he said he wanted to topple the Iranian government.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:53:42.000) [[Nicholas J. Fuentes]] argued that [[Donald Trump|Trump]] is looking for an "off ramp" out of the war in Iran.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:54:04.000) [[Nicholas J. Fuentes]] stated that Iran appointed the son of the supreme leader [[who]] was killed by the [[United States]] as his successor, and that the people rallied in support of him.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:54:25.000) [[Nicholas J. Fuentes]] reported that [[the United States]] might declare "mission accomplished" by claiming to have destroyed 75-80% of Iran's missile launch platforms.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:55:23.000) [[Nicholas J. Fuentes]] argued that for the [[United States]], degrading Iran's military is sufficient, but for [[Israel]], only regime change is acceptable.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:55:46.000) [[Nicholas J. Fuentes]] argued that it is better for the [[United States]] that Iran survives the war to re-establish deterrence.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:56:18.000) [[Nicholas J. Fuentes]] stated that [[Israel]] wants the war to go on longer, and the [[United States|U.S]]. told [[Israel]] not to strike Iran's oil infrastructure again without approval.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:56:18.000) [[Nicholas J. Fuentes]] quoted an [[Axios]] report stating that the [[United States]] asked [[Israel]] to halt strikes on Iran's energy infrastructure.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:57:12.000) [[Nicholas J. Fuentes]] reported that [[Marco Rubio]] has articulated a more limited set of goals for the war in Iran, including setting back nuclear and missile programs.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:59:00.000) [[Nicholas J. Fuentes]] concluded his analysis by stating that he is rooting for Iran to survive and for [[Donald Trump|Trump]] to walk away from the war.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:51:25) [[Nicholas J. Fuentes]] reported that [[the United States]] had entered day 10 of a war in Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:52:00) [[Nicholas J. Fuentes]] stated that war terminology for the conflict with Iran was inconsistent, with [[Pete Hegseth]] calling it a war, [[JD Vance]] calling it a conflict, and the [[White House]] calling it an operation.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:52:47) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] simultaneously stated the war with Iran would be over soon and that [[the United States]] would hit Iran harder than ever before.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:54:14) [[Nicholas J. Fuentes]] reported that the Supreme Leader of Iran was killed in the conflict but a successor, his son, was named.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:54:54) [[Nicholas J. Fuentes]] reported that Iran was carrying out missile strikes against [[Gulf States]] and [[Israel]], and had closed the Strait of Hormuz.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:00:08) [[Nicholas J. Fuentes]] stated that Professor Qingchong Chang believed [[Donald Trump]] went to war with Iran so the [[United States]] could take Iran's uranium.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:05:52) [[Nicholas J. Fuentes]] stated that the ideal for the war in Iran was for [[Israel]] to have hegemony over the [[region]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:11:38) [[Nicholas J. Fuentes]] accused the [[Donald Trump|Trump]] administration of covering up the [[Jeffrey Epstein|Epstein]] files and prosecuting a war in Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:11:38) [[Nicholas J. Fuentes]] stated that [[Laura Loomer]], [[Mark Levin]], and [[Dave Rubin]] were claiming that anyone supporting a war with Iran was never part of the [[Donald Trump|MAGA]] movement.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:14:37) [[Nicholas J. Fuentes]] stated that supporters of [[Donald Trump]] were retconning history by saying the war in Iran was the way to end the endless wars.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:15:52) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] and his allies were ramping up anti-[[Islam|Muslim]] and anti-immigration sentiment in conjunction with the war with Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:18:55) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] specifically said he would not get the [[United States]] into a war with Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:26:22) [[Nicholas J. Fuentes]] stated that the war in Iran is a war that nobody voted for, nobody wants, that [[Israel]] is making the [[United States]] fight.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:27:00) [[Nicholas J. Fuentes]] stated that 2024 and 2025 was a mass awakening where the pro-[[Israel]] lobby lost the propaganda war, but that this has no relationship with policy outcomes, as the [[United States]] is now in [[Israel]]'s war in Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:28:13) [[Nicholas J. Fuentes]] argued that protests are fake and astroturfed, and that the absence of mass protests against the war in Iran is because no one is funding them.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:29:30) [[Nicholas J. Fuentes]] argued that the media supports the war in Iran because the people [[who]] own the media, such as [[Rupert Murdoch]] ([[Fox News|Fox]]) and [[Larry Ellison]] ([[Paramount Global|Paramount]], [[Warner Bros. Discovery|Warner Brothers]], [[Skydance Media|Skydance]], [[TikTok Inc.|TikTok]]), support it.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:34:48) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] folded under pressure on COVID, [[Black Lives Matter|BLM]], and the war in Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:38:42) [[Nicholas J. Fuentes]] praised [[Tucker Carlson]] for keeping his message focused on opposing the war in Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:41:33) [[Nicholas J. Fuentes]] stated that [[United States|American]] sons and daughters are killing and dying in Iran for a foreign [[country]]'s ([[Israel]]'s) agenda.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:42:28) [[Nicholas J. Fuentes]] stated that the war in Iran is all going towards building the Third Temple and the seating of the Antichrist.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:44:50) [[Nicholas J. Fuentes]] stated the war in Iran is a war of choice, a war of aggression, and an unwinnable war.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:45:50) [[Nicholas J. Fuentes]] stated the war in Iran was proceeding as he predicted: a failed strategic imperative for a quick and decisive victory by toppling the regime.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:48:40) [[Nicholas J. Fuentes]] reported that the [[United States]] dropped a tomahawk missile on a school in Iran, killing 130 children.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:49:05) [[Nicholas J. Fuentes]] stated that the attack on Iran rallied the people of Iran to support their government.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:50:32) [[Nicholas J. Fuentes]] described Iran as having transformed itself into a missile and drone factory inside of a fortress.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:51:13) [[Nicholas J. Fuentes]] reported that the [[United States]] and [[Israel]] had hit Iran 3,000 times and spent $3 billion per day, but Iran was still launching missiles.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:51:26) [[Nicholas J. Fuentes]] reported that Iran's missiles were hitting [[Bahrain]], [[Qatar]], and the [[United Arab Emirates|Emirates]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:51:46) [[Nicholas J. Fuentes]] reported that the Strait of Hormuz had been closed by Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:53:43) [[Nicholas J. Fuentes]] stated that the war was transitioning into a war of attrition where the [[United States]] is dropping ordnance on Iran hoping to destroy all its missiles in a race against [[time]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:54:49) [[Nicholas J. Fuentes]] reported that the generals in [[Washington D.C.|Washington, D.C.]] warned [[Donald Trump]] for months that toppling the regime in Iran was impossible.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:59:20) [[Nicholas J. Fuentes]] reported that [[Benjamin Netanyahu|Netanyahu]] was going to bomb Iran anyway, forcing the [[United States]] to join in so that Iran would be struck jointly first.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:01:19) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] said at one press conference that the war was over, and then later said they were going to hit Iran harder than ever.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:01:57) [[Nicholas J. Fuentes]] quoted a ''[[The New York Times|New York Times]]'' article in which [[Donald Trump]] threatened to hit Iran "so hard that it will not be possible for them... to ever recover."
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:03:40) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] assassinated the leader of Iran and half the leadership, but they have not surrendered.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:05:00) [[Nicholas J. Fuentes]] stated that [[Donald Trump]]'s language of "unconditional surrender" and "total victory" in Iran is impossible without a nuclear weapon.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:06:41) [[Nicholas J. Fuentes]] reported that the Iranian Revolutionary Guard has 200,000 members.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:06:49) [[Nicholas J. Fuentes]] reported that Iran still has half its stockpile of missiles, according to the ''[[The New York Times|New York Times]]''.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:07:47) [[Nicholas J. Fuentes]] argued that if the [[Donald Trump|Trump]] administration retreats without toppling the regime, it will be a strategic victory for Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:08:40) [[Nicholas J. Fuentes]] reported that [[Marco Rubio]] said [[Israel]] was going to attack Iran anyway, so the [[United States]] joined them, but [[Donald Trump]] later said the [[United States]] was going to attack and had to get [[Israel]] in on it.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:09:09) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] contradicted his own military by denying a tomahawk missile hit a school in Iran.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:10:08) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] supporters were claiming the war in Iran would not be like [[Iraq]] because of the competence of [[Donald Trump]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:10:56) [[Nicholas J. Fuentes]] stated that the war in Iran is exactly like [[Iraq]], with a plan to topple the government and no plan for the aftermath.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:11:58) [[Nicholas J. Fuentes]] stated that the [[United States]] knew Iran would retaliate with missiles and close the Strait of Hormuz, but simply did not prepare.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:15:53) [[Nicholas J. Fuentes]] stated that he had warned that [[Donald Trump]] would bring the [[United States]] into a war with Iran, and that it would not work.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(59:53:610) [[Nicholas J. Fuentes]] began a timeline of the conflict with Iran, stating that before the 2016 election, [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the Iranian Nuclear Deal.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:02:26:890) [[Nicholas J. Fuentes]] stated that the war with Iran has been going on for seven years, since 2018, characterizing it as a "forever war" like those in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(16:08:360) [[Nicholas J. Fuentes]] began the main monologue of the show, introducing the feature story on the latest developments in the war with Iran.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(16:37:130) [[Nicholas J. Fuentes]] reported that [[United States|U.S]]. [[U.S. Department of Defense|Central Command]] (CENTCOM), the division of the Department of War overseeing the conflict in the [[Middle East]], has announced they are moving intelligence assets to Southern [[State of Florida|Florida]] to prepare for a 100-day war with Iran, potentially lasting until September.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(19:24:520) [[Nicholas J. Fuentes]] stated that the first full week of the war with Iran would be completed, but the administration is not calling it a war but an "operation."
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(24:36:170) [[Nicholas J. Fuentes]] listed several recent events: the [[Jeffrey Epstein|Epstein]] file cover-up with all files redacted, the invasion of [[Minneapolis]] to kill a couple of hippies, [[Donald Trump|Trump]] saying they don't need to deport all illegal aliens, and now being in a regime-change war with Iran.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(27:18:220) [[Nicholas J. Fuentes]] stated that the war with Iran is happening and that "we are in hell."
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(59:53:610) [[Nicholas J. Fuentes]] began a detailed recount of the timeline of the conflict with Iran, starting with [[Barack Obama]] creating the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:09:44:980) [[Nicholas J. Fuentes]] repeated that in 2018, [[Donald Trump]] declared the IRGC a terrorist group, putting the [[United States]] in a shadow war with Iran.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:16:08:360) [[Nicholas J. Fuentes]] formally began the monologue again, stating the feature story is about the war with Iran.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:16:43:730) [[Nicholas J. Fuentes]] repeated that [[United States|U.S]]. [[U.S. Department of Defense|Central Command]] (CENTCOM) is moving intelligence assets to Southern [[State of Florida|Florida]] to prepare for a 100-day war with Iran, potentially until September.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:17:14:930) [[Nicholas J. Fuentes]] drew a comparison to the pandemic, where a four-week lockdown turned into years, suggesting the same for the war in Iran.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:18:18:870) [[Nicholas J. Fuentes]] stated that the [[United States]] is now at war with Iran, a "never-ending conflict in the [[Middle East]]."
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:24:36:170) [[Nicholas J. Fuentes]] repeated his list of grievances: the [[Jeffrey Epstein|Epstein]] file cover-up, the invasion of [[Minneapolis]], [[Donald Trump|Trump]]'s statement on deportations, and the war with Iran.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:38:33:960) [[Nicholas J. Fuentes]] listed his red lines: no mass deportations, no border wall, war with Iran, and buried [[Jeffrey Epstein|Epstein]] files.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:39:25:380) [[Nicholas J. Fuentes]] stated that he wants [[Democratic Party|Democrats]] in [[U.S. Congress|Congress]] to open up the [[Jeffrey Epstein|Epstein]] files and pass a war powers resolution to stop the war in Iran.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:12:21:340) [[Nicholas J. Fuentes]] listed the current foreign policy as war everywhere: with Iran, in [[Yemen]], bombing [[Nigeria]], and an operation in [[Ecuador]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:16:21:070) [[Nicholas J. Fuentes]] returned to the topic of the war in Iran, stating they are entering the fifth day and about to enter the second week.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:18:01:340) [[Nicholas J. Fuentes]] stated that the fog of war is thick, but it seems Iran is not asking to negotiate or waving a white flag.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:18:24:900) [[Nicholas J. Fuentes]] reported that Iran is continuing to launch ballistic missiles at Persian Gulf shipping and the Gulf countries.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:19:04:360) [[Nicholas J. Fuentes]] stated that Iran's primary deterrent is its ballistic missile arsenal, which is the largest and most diverse stockpile in the [[region]], and their missiles are largely underground.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:20:21:250) [[Nicholas J. Fuentes]] explained the problem of interception, stating that for every one ballistic missile Iran launches, the [[United States|US]] needs five interceptors.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:23:01:430) [[Nicholas J. Fuentes]] stated that Iran is a big [[country]], they have prepared for this, and the [[United States|US]] cannot destroy all their missiles.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:27:04:880) [[Nicholas J. Fuentes]] stated that if the [[United States]] deescalates and has a ceasefire, it would leave without achieving objectives, giving Iran a huge propaganda victory.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:28:10:690) [[Nicholas J. Fuentes]] argued that the other option is escalation, which means sending a ground force of [[United States|US]] special forces with the [[Kurdistan|Kurds]] into Iran to break apart the regime.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:31:53:590) [[Nicholas J. Fuentes]] questioned what the upside is for the [[United States]] in a war with Iran, arguing that the [[United States]] has oil and does not need Iran's, and that Iran's missiles cannot hit the [[United States]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:34:28:640) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] is being drawn further into the war in Iran, noting that he won't rule out boots on the ground.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:35:34:890) [[Nicholas J. Fuentes]] pointed out that 80% of [[Republican Party|Republicans]] support the war with Iran, and that [[Donald Trump]] is getting [[Republican Party|Republicans]] to want a war with Iran, which he called a "de-radicalizing force."
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:01:44:77) The assassination of [[Qasem Soleimani]] in January 2020 was a culmination of the [[United States|U.S]]. shadow war with Iran.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:01:59:62) [[Nicholas J. Fuentes]] argued that the war with Iran started in 2018 when [[Donald Trump]] made it "hot," and has been ongoing for seven years, similar to forever wars in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:10:02:05) The [[United States|U.S]]. shadow war with Iran culminated in the January 2020 assassination of [[Qasem Soleimani]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:11:07:66) [[Nicholas J. Fuentes]] characterized the conflict with Iran as a forever war that began in 2018, similar to the wars in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:37:26:92) [[Brian McGinnis]], a [[United States Marine Corps]] veteran running for [[U.S. Congress|Senate]] in [[North Carolina]] for the [[Green Party]], was beat up by a [[United States|U.S]]. Senator for protesting the war in Iran at a [[U.S. Congress|Senate]] hearing.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:38:34:95) The war powers resolution, which would constrain [[Donald Trump]]'s ability to continue the war in Iran, failed in a party-line vote, with [[Republican Party|Republicans]] voting against it and [[Democratic Party|Democrats]] voting for it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:40:52:27) [[Nicholas J. Fuentes]] noted that the theft of [[Tucker Carlson]]'s nicotine pouches occurred between [[Tucker Carlson|Carlson]]'s interview with [[Mike Huckabee]] and the beginning of the war in Iran.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:46:58:70) [[Nicholas J. Fuentes]] stated he is more fearful of the [[United States]] winning the war in Iran than losing, because victory would lead to the building of the Third Temple, which he believes would be "the end of everything."
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:52:36:10) [[Nicholas J. Fuentes]] announced he is "switching sides" and will be voting for [[Democratic Party|Democrats]] in the 2026 election to hold the [[Donald Trump|Trump]] administration accountable for covering up the [[Jeffrey Epstein|Epstein]] files, dragging the [[United States|U.S]]. into a war in Iran, and failing on its other promises.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:08:19:85) [[Nicholas J. Fuentes]] stated that he "forgot it" the day the [[Donald Trump|Trump]] administration went to war in Iran in June 2025.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:17:30:33) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] launched the war in Iran without congressional authorization, a formal declaration of war, and in contravention of his own campaign promises of no new wars.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:21:44:76) The war powers resolution in the [[U.S. Congress|Senate]], which would have constrained [[Donald Trump]]'s ability to continue the war in Iran, failed largely along party lines, with every [[Republican Party|Republican]] except [[Ron Paul|Rand Paul]] voting against it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:21:49:93) [[U.S. Congress|Senate Majority Leader]] [[John Thune]] argued that [[Donald Trump]] had the authority to order strikes on Iran without a vote in [[U.S. Congress|Congress]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:25:24:60) [[Nicholas J. Fuentes]] argued that [[Israel]] went to war with Iran confidently knowing that with a [[Republican Party|Republican]] administration, they would have backing from [[the Pentagon]] and that a [[Republican Party|Republican]]-controlled [[U.S. Congress|Congress]] would provide no check on the [[president]]'s power.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:27:23:52) [[Lindsey Graham]] stated he could not be happier about being in a war in Iran.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:35:34:84) [[Nicholas J. Fuentes]] contrasted the administration's reluctance to pursue mass deportations due to unpopularity with its willingness to send ground troops to Iran without regard for approval ratings.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:38:04:48) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] and [[Pete Hegseth]] have intimated that a ground invasion of Iran is not off the table, and that there are reports the [[United States|U.S]]. is training the [[Kurdistan|Kurds]] for an invasion from Northern [[Iraq]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:50:07:83) [[Nicholas J. Fuentes]] noted that the [[Ayatollah Ali Khamenei|Ayatollah]] of Iran is in an fortified bunker, has a 200,000-man army of loyalists, and that if [[Israel]] could get him, they could get [[Donald Trump]], [[Nicholas J. Fuentes]], or anyone.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(04:14:07:62) [[Nicholas J. Fuentes]] commented on a clip from [[Tucker Carlson]]'s show where [[Tucker Carlson|Carlson]] discussed the attempt to rebuild the Third Temple and invade Iran, laughing about it, noting a reference to Emperor Julian the Apostate being killed while invading Iran in 363 [[Anti-Defamation League|AD]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:30:56) [[Nicholas J. Fuentes]] began his monologue by stating that [[the United States]] is at war with Iran and that the situation felt "surreal."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:31:31) [[Nicholas J. Fuentes]] stated that he had been predicting the [[United States|U.S]]. war with Iran for a long [[time]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:31:50) [[Nicholas J. Fuentes]] asserted that [[Israel]] got the [[Republican Party]] into power for the purpose of starting a war with Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:32:43) [[Nicholas J. Fuentes]] stated that the biggest problem is that "there is no plan" for the war in Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:33:16) [[Nicholas J. Fuentes]] said that [[Donald Trump]] launched heavy attacks on Iran anticipating the fighting would last weeks at most.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:33:36) [[Nicholas J. Fuentes]] described [[Donald Trump]]'s plan as hoping a pragmatic faction within Iran's government would emerge and initiate peace negotiations with the [[United States]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:34:33) [[Nicholas J. Fuentes]] stated that the [[United States]] had conducted airstrikes on 1,700 different targets within Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:34:39) [[Nicholas J. Fuentes]] said that the [[United States]] was bombing regime targets, the Islamic Revolutionary Guard Corps, the civilian government, and the oil fields in Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:34:47) [[Nicholas J. Fuentes]] asked rhetorically what the plan would be if after days or weeks of bombing, nobody in Iran surrenders.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:35:59) [[Nicholas J. Fuentes]] said that one bad option is that the Iranian regime survives and reconstitutes, making the conflict an ongoing problem.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:36:12) [[Nicholas J. Fuentes]] said that a second bad option would be for the [[United States]] to send its own forces into Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:36:32) [[Nicholas J. Fuentes]] reported that the [[Donald Trump|Trump administration]] spoke with two [[Iraq|Iraqi]] [[Kurdish]] groups in [[Northern Iraq]] a week before the operation began, expecting them to cross into Iran as a ground force.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:36:50) [[Nicholas J. Fuentes]] argued that the [[Kurdistan|Kurds]] are "not enough" to take over all of Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:41:14) [[Nicholas J. Fuentes]] said that it is heartbreaking to see [[Donald Trump]] deliver the [[United States]] into a war with Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:42:27) [[Nicholas J. Fuentes]] said that he sees commenters on [[Twitter]] saying they voted for [[Donald Trump]] multiple times but will never vote for a [[Republican Party|Republican]] again because of the war with Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:43:34) [[Nicholas J. Fuentes]] said that despite the efforts of the past ten years, the [[United States]] is in a war with Iran regardless.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:46:55) [[Nicholas J. Fuentes]] said the show would cover the course of the war with Iran, which is an air and naval campaign.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:47:15) [[Nicholas J. Fuentes]] described the fighting as the [[United States]] and [[Israel]] launching air strikes over Iran, bombing missile launch platforms, missile production facilities, Iran's [[U.S. Department of Defense|Navy]], and the leadership of the government and military.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:47:45) [[Nicholas J. Fuentes]] said that Iran has no capability other than its missiles and lacks a modern air force, an anti-aircraft system, and a [[navy]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:48:01) [[Nicholas J. Fuentes]] said that Iran can only launch short and medium-range ballistic missiles, which are interceptable, but they hope to overwhelm [[United States|US]] defenses with large volumes.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:48:30) [[Nicholas J. Fuentes]] stated that the [[United States]] and [[Israel]] had hit 1,700 targets in Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:48:36) [[Nicholas J. Fuentes]] said that Iran was retaliating with ballistic missiles against [[United States|US]] bases in the [[Persian Gulf]], [[Erbil]], [[Jim Jordan|Jordan]], and against military and government targets in [[Israel]], as well as civilian targets in the Gulf countries.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:49:26) [[Nicholas J. Fuentes]] said that Iran fired 300 missiles in the first 24 hours and that most are being intercepted by [[United States|US]]-provided weapon systems.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:49:50) [[Nicholas J. Fuentes]] said that Iran's goal is to overwhelm the air defenses with large volleys of missiles or over a sustained period, counting on the [[United States]], [[Israel]], and the Gulf states to run out of interceptors.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:50:34) [[Nicholas J. Fuentes]] said the strategic objectives of the [[United States]] are regime change in Iran and destroying Iran's [[navy]] and ballistic missile capability.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:51:06) [[Nicholas J. Fuentes]] identified a complication: Iran's missile production facilities and launch platforms are fortified underground.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:51:55) [[Nicholas J. Fuentes]] noted that [[Israel]] claimed the joint operations had destroyed half of Iran's ballistic missile launch platforms, but that it is an open-ended question whether they can destroy all of them.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:56:06) [[Nicholas J. Fuentes]] said that [[Donald Trump]] laid out a case for full-fledged regime change in Iran on Friday, stating they would destroy the military and then the people would rise up.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:57:58) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] said every candidate he had in mind to lead Iran has been killed.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:58:54) [[Nicholas J. Fuentes]] argued that there is opposition to the regime in Iran but that it is not cohesive, armed, trained, or organized.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:59:03) [[Nicholas J. Fuentes]] said that there is no alternative force in Iran to rise up as [[Donald Trump]] suggested.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:59:31) [[Nicholas J. Fuentes]] compared the expectation of someone inside Iran's regime taking power to the "[[Venezuela]] model," where the regime would remain intact.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:59:45) [[Nicholas J. Fuentes]] predicted that the Iranian Revolutionary Guard and Iranian Armed Forces would remain intact.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:00:35) [[Nicholas J. Fuentes]] argued that the hope for a pragmatic element seizing power seems unlikely because Iran is a theocracy built on a religion of martyrs.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:01:23) [[Nicholas J. Fuentes]] said that the survivors of the regime in Iran, being religious zealots [[who]] witnessed their leader killed, are more likely to be emboldened and get a more hardline faction, not a compliant one.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:02:12) [[Nicholas J. Fuentes]] said that [[Donald Trump]] admitted in the [[White House|Oval Office]] that the [[United States]] might actually get a more hardline regime in Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:03:03) [[Nicholas J. Fuentes]] explained that the second strategic objective, destroying the ballistic missile capability, is vital because missiles are Iran's only military capability to hit strategic assets among [[United States|US]] allies.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:03:49) [[Nicholas J. Fuentes]] argued that the [[United States]] cannot bomb all of Iran's ballistic missiles because they are highly mobile.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:05:23) [[Nicholas J. Fuentes]] stated that according to [[Defense Intelligence Agency]] assessments, Iran has the widest, biggest, and most diverse ballistic missile arsenal in the [[Middle East]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:05:34) [[Nicholas J. Fuentes]] described the [[United States|US]] strategy as dropping enough bombs that Iran submits, calling it a "very blunt tool."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:05:56) [[Nicholas J. Fuentes]] explained that Iran's ballistic missiles are much cheaper than the interceptor missiles used to shoot them down, and that [[the United States]] produces interceptors much more slowly.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:06:25) [[Nicholas J. Fuentes]] said that Iran has tons of cheap missiles and that the [[United States]] has no ability to prevent them from launching.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:06:42) [[Nicholas J. Fuentes]] said that Iran is launching missiles against [[Israel]], [[Jim Jordan|Jordan]], [[Northern Iraq]], [[Riyadh]], [[Bahrain]], the [[United Arab Emirates|Emirates]], [[Qatar]], [[Oman]], and ships in the [[Persian Gulf]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:08:55) [[Nicholas J. Fuentes]] described the conflict as a "war of attrition" and questioned whether the [[United States]] will run out of its finite interceptors before Iran runs out of its cheap missiles.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:09:56) [[Nicholas J. Fuentes]] described [[Donald Trump]]'s thinking as believing he could hit Iran so hard that someone in the government would make a deal, and that this was the play because the war had to be short.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:10:46) [[Nicholas J. Fuentes]] asked what the "off ramp" or "exit plan" is if Iran does not surrender.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:11:56) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] told the [[The New York Post|New York Post]] that he is not ruling out sending ground troops into Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:12:30) [[Nicholas J. Fuentes]] reported that [[Pete Hegseth]] said at a [[U.S. Department of Defense|Pentagon]] press conference that no [[United States|American]] troops are currently inside Iran, but he also did not rule out the possibility.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:13:13) [[Nicholas J. Fuentes]] said that the [[United States]] is considering sending in a ground force if Iran does not capitulate.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:13:50) [[Nicholas J. Fuentes]] argued that Iran is three times the size of [[Iraq]], mountainous, and has a population three times larger, making an invasion seem implausible.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:14:33) [[Nicholas J. Fuentes]] asked rhetorically what will happen when [[United States|Americans]] start dying on the ground in Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:15:33) [[Nicholas J. Fuentes]] predicted that if [[United States|American]] troops are deployed, Iran will become destabilized, law and order will break down, and a refugee crisis may occur.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:16:59) [[Nicholas J. Fuentes]] said that the idea was that [[Iraq|Iraqi]] [[Kurdistan|Kurds]], armed and supported with [[United States|US]] air power, would cross the border with Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:52) [[Nicholas J. Fuentes]] reported that six days before the war began, five dissident [[Kurdish]] groups sheltering in [[Iraq]] announced the formation of a coalition to fight Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:18:05) [[Nicholas J. Fuentes]] noted that [[United States|US]] policymakers believe [[Benjamin Netanyahu]] might have overestimated the number of [[Kurdistan|Kurds]] [[who]] would take up arms against Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:19:20) [[Nicholas J. Fuentes]] described the strategy as using the [[Kurdistan|Kurds]] as an invasion force that would cross from [[Iraq]] into Iran, liberating [[Kurdistan|Kurds]] living there and creating a beachhead.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:22:02) [[Nicholas J. Fuentes]] speculated that the plan might include a two-pronged attack using the [[Baloch]] in southeastern Iran as well.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:23:08) [[Nicholas J. Fuentes]] argued that if Iran does not surrender, a ground force, likely the [[Kurdistan|Kurds]], will have to go in, but that they are not enough.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:25:02) [[Nicholas J. Fuentes]] stated that the Islamic Revolutionary Guard will not remain intact by the end of the [[Donald Trump|Trump administration]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:25:13) [[Nicholas J. Fuentes]] said that the regime change in Iran "has to be boots."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:25:52) [[Nicholas J. Fuentes]] argued that the so-called protestors in Iran in February were not actual protestors but a proxy force, pointing to eyewitness accounts of them wearing [[black]] uniforms, using professional tactics, and being armed with automatic weapons.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:26:31) [[Nicholas J. Fuentes]] argued that the "protest" was a [[Kurdish]] invasion from [[Iraq]] into Iran that failed and was repelled.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:28:04) [[Nicholas J. Fuentes]] noted that six days before the war began, all the [[Kurdish]] anti-Iranian groups got together, and he argued this was not a coincidence.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:29:21) [[Nicholas J. Fuentes]] acknowledged that it is possible a faction in the IRGC takes power and negotiates with the [[United States]], but he called it a gamble with bad odds.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:29:57) [[Nicholas J. Fuentes]] said that Iran has full faith they will survive the war because they have their missiles and [[time]] on their side.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:30:34) [[Nicholas J. Fuentes]] said that if the regime survives, [[Israel]] will likely keep the conflict going at a "low boil," constantly degrading Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:30:56) [[Nicholas J. Fuentes]] said the last option involves an [[United States|American]]-backed hybrid force of [[Kurdistan|Kurds]] and anti-government forces within Iran to swiftly bring down the government.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:31:33) [[Nicholas J. Fuentes]] contrasted the [[United States|US]] effort in Iran with the situation in [[Minneapolis]], where he said the [[United States]] sent in [[border patrol]] to stop [[Somalia|Somalians]] from "ripping off" the [[country]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:32:33) [[Nicholas J. Fuentes]] argued that the [[United States]] could not do an "invasion force" for its own [[country]] but can for Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:33:00) [[Nicholas J. Fuentes]] stated that Iran is not a threat to the [[United States]] and has no missiles that can reach the [[country]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:34:10) [[Nicholas J. Fuentes]] characterized the allies of the [[United States]] in the war against Iran as "liberals, college students, women, racial and ethnic minorities."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:34:31) [[Nicholas J. Fuentes]] said that Iran is fighting for its sovereignty so it does not have to capitulate to [[Washington D.C.|Washington, D.C.]] and [[Israel]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:35:36) [[Nicholas J. Fuentes]] described the war against Iran as "rape."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:35:43) [[Nicholas J. Fuentes]] said that the greatest allies of the "evil outside force" in Iran are women, students, liberals, and racial and ethnic minorities, specifically citing the [[Kurdistan|Kurds]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:36:12) [[Nicholas J. Fuentes]] said that liberalism makes a [[country]] weak and that "feminism, diversity, and voting" are the vulnerabilities in Iran.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:36:44) [[Nicholas J. Fuentes]] argued that Iran's diversity is being used to invade the [[country]] and topple the government.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:37:48) [[Nicholas J. Fuentes]] argued that [[China]] and Iran have "cyber firewalls" not to keep their own people in, but to keep the "[[Kanye West|West]]" out.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:40:23) [[Nicholas J. Fuentes]] said he is in his "era of I don't give a fuck" and called the war with Iran a "golden age."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:41:07) [[Nicholas J. Fuentes]] said that the [[Republican Party]] brought the [[United States]] to war in Iran and that he is "going with whatever hates my enemies more" and currently, [[Republican Party|Republicans]] are his enemies.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:41:24) [[Nicholas J. Fuentes]] stated he would not vote for the party that brought the war in Iran for [[Israel]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:45:34) [[Nicholas J. Fuentes]] said he saw [[Andrew Isker]] say he was against the war with Iran and immediately get attacked by his own people.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:40:36) [[Nicholas J. Fuentes]] began a monologue on his show "[[America First]]," stating he would discuss a war with Iran, which he described as being on its third day.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:41:33) [[Marco Rubio]], serving as [[U.S. Department of State|Secretary of State]], informed the press that the [[United States]] went to war with Iran because [[Israel]] was preparing to strike Iran regardless of [[United States|American]] intervention.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:41:59) [[Marco Rubio]] stated that the decision for the [[United States]] to join the war was made because if [[Israel]] struck Iran without the [[United States]], Iran would retaliate against [[United States|American]] forces regardless.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:45:47) [[Nicholas J. Fuentes]] said that [[JD Vance]], the [[Vice Media|Vice]] [[White House|President]], supported the war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:45:57) [[JD Vance]] was reported by [[Nicholas J. Fuentes]] to have pushed for the [[United States]] to "go bigger and wider" when considering entering the conflict with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:46:52) [[JD Vance]] was reported by the [[The New York Times|New York Times]] to have encouraged the administration to conduct a full-scale bombing campaign against Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:48:41) [[Donald Trump]] stated that he is not ruling out sending boots on the ground into Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:49:45) [[Pete Hegseth]] stated that the [[United States]] is not ruling out sending boots on the ground into Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:49:53) [[Nicholas J. Fuentes]] stated that the administration has no plan for the war in Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:53:07) [[Jared Kushner]] and [[Steve Wittkoff|Steve Witkoff]] traveled to [[Switzerland]] to conduct the third and final round of negotiations between Iran and the [[United States]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:53:15) [[Jared Kushner]] and [[Steve Wittkoff|Steve Witkoff]] gave Iran an ultimatum to dismantle its nuclear enrichment facilities, pledge to never enrich again, give up its highly enriched uranium to the [[United States]], and agree to these terms in perpetuity.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:53:47) Iran rejected all of the demands presented by [[Jared Kushner]] and [[Steve Wittkoff|Steve Witkoff]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:55:09) [[Donald Trump]] announced on the preceding Friday that the goal of the operation was to destroy Iran's [[U.S. Department of Defense|Navy]], its missile production capabilities, its missiles and launch platforms, and to kill the military and civilian leadership of the [[country]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:55:50) The [[United States]] completely destroyed Iran's [[U.S. Department of Defense|Navy]] within 24 hours of the operation's start.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:58:24) [[Israel]] claimed that 50% of Iran's missile launch platforms had been destroyed in the first 48 to 72 hours of the conflict.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:59:20) The [[United States]] assassinated the [[Ayatollah Ali Khamenei|Ayatollah]] [[Ayatollah Ali Khamenei|Ali Khamenei]], the Supreme Leader of Iran, in the first round of strikes.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:00:33) [[Nicholas J. Fuentes]] stated that he had been predicting a war with Iran since [[October 7th Attack|October 7th]], 2023.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:03:10) Polling from [[Thomson Reuters|Reuters]] and the [[Washington Post]] indicated that 30% of the [[United States|American]] people supported the war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:03:23) [[Nicholas J. Fuentes]] stated that the 2003 war in [[Iraq]] and the war in [[Afghanistan]] had higher public approval than the current war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:06:11) [[Donald Trump]] stated that Iran is a danger to the world, is working on a nuclear bomb, and is unwilling to negotiate.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:06:16) [[Nicholas J. Fuentes]] characterized the war as a war of aggression and a war of choice, stating that Iran poses no threat to the [[United States]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:07:12) [[Nicholas J. Fuentes]] said the decision to kill a foreign head of [[state]] was made because the administration thought they could remove the [[Ayatollah Ali Khamenei|Ayatollah]] from power, as Iran is a rival.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:07:52) [[Marco Rubio]] stated that [[Israel]] was planning an attack on Iran and that Iran would retaliate against [[United States|US]] interests, so [[United States|US]] forces struck preemptively.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:09:23) [[Nicholas J. Fuentes]] argued that [[Israel]] was not in any danger and that [[Israel]] made the decision to go to war with Iran because it has been their plan for many years.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:11:28) [[Nicholas J. Fuentes]] argued that [[Israel]] was planning an attack on Iran that would be unsuccessful, putting [[Israel]] in harm's way and triggering an Iranian retaliation against the [[United States]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:12:57) [[Nicholas J. Fuentes]] asserted that [[Israel]] wanted the [[United States]] to enter the war, and that [[Israel]] knew that if they attacked Iran, Iran would rain missiles on [[United States|American]] bases.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:13:37) [[Politico]] reported that the logic inside the administration was that they may have wanted [[Israel]] to attack Iran first to create a better justification for the [[United States]] to enter the war.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:15:36) Under [[Joe Biden]], [[Israel]] launched an airstrike in [[Syria]] against a consulate building owned by Iran, killing senior Iranian military personnel.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:16:07) Iran retaliated against [[Israel]] by launching 50 ballistic missiles in a largely telegraphed response.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:16:20) [[Joe Biden]] sent two aircraft carriers into the [[Middle East]] to deter Iran from retaliating too strongly after the [[Israel|Israeli]] airstrike in [[Damascus]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:16:53) [[Israel]] provoked Iran by assassinating [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:19:23) [[Benjamin Netanyahu]] asked [[Donald Trump]] to go to war with Iran during his visit on February 4th, 2025.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:19:48) [[Michael Waltz|Mike Waltz]], the [[U.S. National Security Council|National Security Advisor]], pushed on behalf of [[Benjamin Netanyahu]] for [[Donald Trump]] to go to war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:20:07) [[Benjamin Netanyahu]] returned to [[the White House]] a second [[time]] a week after Liberation Day and pleaded with [[Donald Trump]] to bomb Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:20:24) [[Donald Trump]] announced during a joint press conference with [[Benjamin Netanyahu]] that he would give Iran 60 days to negotiate, or the [[United States]] would bomb them.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:20:48) [[Israel]] launched Operation Rising Lion, an all-out attack on Iran, hitting nuclear facilities at [[Natanz]], [[Fordow|Fordo]], and [[Isfahan]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:21:35) Iran retaliated against [[Israel]] after Operation Rising Lion by raining down volleys of hundreds of ballistic missiles for nearly two weeks.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:22:13) [[Israel]] was not able to destroy Iran's nuclear infrastructure, which is deep underground and fortified by mountains.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:22:20) [[Israel]] struck Iran's nuclear facilities knowing they could not achieve their objectives, which triggered an Iranian retaliation in a war of attrition they knew they could not sustain.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:22:46) The [[United States]] had to show up and shoot down the ballistic missiles from Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:26:48) [[Benjamin Netanyahu]] visited [[Mar-a-Lago]] just before New Year's 2026 and asked [[Donald Trump]] for another war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:28:17) [[Israel]] informed the [[United States]] that they would bomb Iran without them, and that if they did, Iran would launch its missiles at [[United States|US]] bases in the [[region]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:38:21) [[Nicholas J. Fuentes]] said the [[United States]] was able to kidnap [[Nicolás Maduro]] and assassinate the [[Ayatollah Ali Khamenei|Ayatollah]] in Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:41:52) [[Nicholas J. Fuentes]] stated that [[Israel]] wanted a war to destroy Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:42:15) [[Nicholas J. Fuentes]] stated that [[Israel]] has 300 nuclear warheads and that Iran could not pose an existential threat to them.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:44:28) [[Nicholas J. Fuentes]] cited the 1996 Clean Break Report, which he said was written by the same people in the [[George W. Bush|Bush]] [[White House]], as calling for [[Israel]] to take out [[Iraq]], then [[Syria]], then Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:47:50) [[JD Vance]] was reported by the [[The New York Times|New York Times]] to be all in favor of the war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:48:07) Nobody in [[Donald Trump]]'s cabinet opposed [[United States|US]] entrance into the war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:48:24) [[JD Vance]] argued in a [[White House]] situation room meeting that if the [[United States]] was going to hit Iran, it should go big and go fast.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:51:34) [[JD Vance]] gave a speech at the [[Quincy Institute]], an anti-war nonprofit, where he said "we have to arm [[Israel]] so they can bomb Iran."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:59:46) [[Nicholas J. Fuentes]] stated that [[JD Vance]]'s career should be finished because he supported a war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:04:34) [[Nicholas J. Fuentes]] declared that the war with Iran is the breaking point for the [[Republican Party|GOP]] coalition.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:06:22) [[Nicholas J. Fuentes]] stated that [[Joe Biden]] kept the [[United States]] out of a war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:06:47) [[Nicholas J. Fuentes]] argued that [[Joe Biden]] kept the [[United States]] out of a war with Iran, and that [[Donald Trump]] started one.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:09:07) [[Nicholas J. Fuentes]] stated that he will "play both sides" and that [[Donald Trump]], [[JD Vance]], and [[Marco Rubio]] are "fuck[ing] these people" with a war in Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:11:04) [[Nicholas J. Fuentes]] said [[Donald Trump]], [[JD Vance]], and [[Marco Rubio]] betrayed him by starting a war with Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:12:58) [[Nicholas J. Fuentes]] stated that [[Candace Owens]] is against the war with Iran but believes it is the work of the Khazarian mafia.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:15:10) Polling indicated that 70% of [[Israel|Israelis]] supported [[Israel]] bombing Iran.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:32:17) [[Nicholas J. Fuentes]] stated that Iran has been a [[Shiite|Shia]] theocracy since 1979 and has not carried out a terrorist attack on [[United States|US]] soil.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:32:18) [[Nicholas J. Fuentes]] stated that the [[United States|USS Liberty]] incident is an example of [[Israel]] doing more terror attacks against the [[United States]] than Iran has.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:59:59) [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[United States]] and the [[European Union]] to enforce a nuclear deal that restricts Iran's enrichment of uranium.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:32) [[Donald Trump]] declared the IRGC, the military of the Iranian regime, a terrorist group in 2018, sanctioning them for attacks.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:02:55) The war with Iran has been ongoing since 2018, a forever war similar to those in [[Iraq]] (1990), [[State of Libya|Libya]] (2011), and [[Syria]] (2011).
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:14:08) The third round of discussions between the [[United States]] and Iran was held in [[Geneva]], [[Switzerland]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:14:45) Before [[Israel]] bombed Iran last year in June, they had scheduled another round of talks.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:16:18) The [[United States]] entered talks with Iran with a list of demands: Iran must destroy its nuclear facilities, agree to never enrich uranium again permanently, and forfeit its highly enriched uranium to the [[United States]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:17:12) The [[United States]] demanded that Iran give all of its enriched uranium to the [[United States]], not a third [[country]] like [[Russian Federation|Russia]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:17:40) The [[United States]] is not offering anything in return for Iran agreeing to its demands.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:17:54) Iran made concessions, offering to dilute its stockpile, give some of it to a third [[country]], or slow enrichment for a period of [[time]], in exchange for massive and immediate sanctions relief.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:18:29) The [[United States]] is offering no sanctions relief to Iran, and any relief offered is contingent upon compliance with other demands.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:18:53) [[Donald Trump]] gave Iran an ultimatum: agree to all demands or face war.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:19:22) [[Donald Trump]] gave Iran a 10-day deadline to make a deal.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:19:53) The deadline [[Donald Trump]] imposed on himself and Iran to make a deal points toward imminent strikes either this weekend or next weekend.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:20:12) The Omani minister is coming to make a last-ditch effort to reach an agreement between the [[United States]] and Iran.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:24:45) The second [[Donald Trump|Trump]] administration is going to war with Iran to pursue regime change.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:57:04) [[Donald Trump|Trump]] issued an ultimatum to Iran on [[Cozy.tv|Truth Social]], demanding they give up their nuclear program or they would be destroyed.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:58:45) [[Donald Trump|Trump]]'s demands for Iran are the same as they have always been: dismantle enrichment facilities, never enrich again, and give up their enriched uranium.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:59:02) Iran is never agreeing to [[Donald Trump|Trump]]'s demands.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:03) [[Nicholas J. Fuentes]] announced he would also discuss the situation in Iran, noting that no new position on Iran was given during the [[Concept|State of the Union]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:30) [[Nicholas J. Fuentes]] stated that during the [[Concept|State of the Union]], [[Donald Trump]] said Iran must pledge not to build nuclear weapons, adding that [[Donald Trump]] had been "looking for these magic words" from Iran.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:36) [[Nicholas J. Fuentes]] stated that [[Donald Trump]]'s new red line—that Iran must promise not to build a nuclear bomb—represented a significant shift from the previous [[United States|US]] position, which had been a demand for zero enrichment of uranium.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:57) [[Nicholas J. Fuentes]] reported that two other [[Donald Trump|Trump]] administration officials, [[Marco Rubio]] and [[JD Vance]], had given statements complicating the diplomatic situation with Iran.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:57) [[Nicholas J. Fuentes]] reported that [[Vice Media|Vice]] [[White House|President]] [[JD Vance]] said the [[United States]] has evidence Iran is rebuilding a nuclear weapons program, a claim [[Nicholas J. Fuentes]] said he did not believe and called "news."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:21:04) [[Nicholas J. Fuentes]] reported that [[U.S. Department of State|Secretary of State]] [[Marco Rubio]] said it would be a "big problem" if Iran is unwilling to discuss its ballistic missiles, a move [[Nicholas J. Fuentes]] said would scuttle diplomacy because Iran has stated its ballistic missile program is a non-starter for negotiations.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:21:42) [[Nicholas J. Fuentes]] noted that the third round of talks between the [[United States]] and Iran was scheduled to take place in [[Switzerland]] in a matter of hours.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:21:51) [[Nicholas J. Fuentes]] commented that the new demands regarding ballistic missiles might be an attempt to scuttle the talks, noting that the Iranian deputy foreign minister suggested a deal was within reach.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:58:14) [[Nicholas J. Fuentes]] reported that the third round of talks between the [[United States]] and Iran was scheduled for the next day in [[Switzerland]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:58:23) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] had given Iran 10 days to two weeks to make a deal, and that the upcoming talks were "make or break."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:58:33) [[Nicholas J. Fuentes]] reported that the [[United States|US]] position in the last round of talks was that Iran must give up its nuclear enrichment capability, an ultimatum he characterized as "capitulate or we go to war."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:59:23) [[Nicholas J. Fuentes]] reported that according to [[Israel|Israeli]] media, Iran was not budging on enrichment, but might concede on downgrading its stockpile of highly enriched uranium or enriching at a low level.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:59:40) [[Nicholas J. Fuentes]] stated that [[Vice Media|Vice]] [[White House|President]] [[JD Vance]] said the [[United States]] believes Iran is working on a nuclear weapon, a claim [[Nicholas J. Fuentes]] called "news" as Iran has always maintained its program is peaceful and the negotiations had been about enrichment, not weapons.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:59:53) [[Nicholas J. Fuentes]] reported that [[U.S. Department of State|Secretary of State]] [[Marco Rubio]] warned that a failure by Iran to negotiate its ballistic missile program would be a "big problem," a comment that contradicted the framework of the talks and could scuttle them.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:00:28) [[Nicholas J. Fuentes]] suggested that [[Marco Rubio]]'s and [[JD Vance]]'s statements might be a way for the [[Donald Trump|Trump]] administration to "finesse its own red line" and create an off-ramp by asking Iran to promise not to pursue an ICBM or a nuclear bomb, instead of demanding zero enrichment.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:02:08) [[Nicholas J. Fuentes]] cited a [[Politico]] article reporting that the [[United States|US]] may want [[Israel]] to hit Iran first, to make it easier for the [[United States|US]] to enter a war with a casus belli.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:02:20) [[Nicholas J. Fuentes]] noted that the [[Politico]] article also said [[the Pentagon]] was worried that a war with Iran would stretch [[United States|US]] capabilities thin and allow [[China]] to make a move on [[Taiwan]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:23) [[Nicholas J. Fuentes]] presented a timeline of [[United States|US]]-Iran relations, stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:42) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] was elected in 2016 with the help of [[Israel]], citing an excerpt from [[James Allsup|James]] Bamford's book, *Spy Fail*, which he said detailed the hidden collusion between [[Donald Trump|Trump]] and [[Israel]] in the 2016 election to scuttle the Iranian nuclear deal.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:54) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the IRGC, the military of Iran, a terrorist [[organization]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:57) [[Nicholas J. Fuentes]] stated that the shadow war between the [[United States]] and Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:02:33) [[Nicholas J. Fuentes]] reported that as of the [[Concept|State of the Union]], the [[United States]] is involved in a war with Iran, with "half of our air power in the [[Middle East]]" and a squadron of [[F-22 Raptors]] deployed to the [[United Kingdom]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:03:04) [[Nicholas J. Fuentes]] pointed out that contrary to being a "peace [[president]]," [[Donald Trump|Trump]] is now "bombing" Iran while the war in [[Ukraine]] continues.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(15:02:31) [[Nicholas J. Fuentes]] noted that the [[United States]] is now in a war with Iran and has deployed F-22 Raptors to the [[United Kingdom]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(17:22:51) [[Nicholas J. Fuentes]] gave a preview of the [[Concept|State of the Union]], predicting [[Donald Trump]] would focus on border security, a new tax cut, and the situation with Iran.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(17:24:40) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] may either declare war on Iran or introduce a new innovation in policy during the speech.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], [[Israel]], Iran, [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:38:43) [[Donald Trump]] discussed the "Operation Midnight Hammer" attack on Iran's nuclear weapons program.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(59:53:64) [[Nicholas J. Fuentes]] stated that before the 2016 election, [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] (Iranian Nuclear Deal), bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[United States]] to restrict Iran's enrichment of uranium.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:01:27:74) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump|Trump]] declared the IRGC a terrorist [[organization]], leading to a shadow war with Iran that culminated in the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:02:25:90) [[Nicholas J. Fuentes]] characterized the conflict with Iran as a "forever war" that began in 2018, similar to those in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(20:50:53:29) [[Nicholas J. Fuentes]] began a discussion about the situation with Iran, stating that 45-50% of [[the United States]]' deployable air power is in the [[Middle East]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(20:52:50:80) [[Nicholas J. Fuentes]] argued that this military build-up, including two aircraft carriers and 13 missile destroyers, indicates that the [[United States]] is mobilizing for war with Iran.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(21:00:57:57) [[Nicholas J. Fuentes]] stated that the only new information is that there may be a third round of talks on Thursday in [[Geneva]], [[Switzerland]], and that the ambassador from [[Oman]] will deliver Iran's response to [[United States|America]]'s demands.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(23:15:90:00) [[Nicholas J. Fuentes]] declared that [[Donald Trump|MAGA]] is dead because it was supposed to be for forgotten [[United States|Americans]] but is instead starting a war with Iran.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(23:43:40:00) [[Nicholas J. Fuentes]] argued that if the [[United States]] can bomb Iran and kidnap [[Nicolás Maduro]], it can handle [[Minneapolis]] and [[St. Paul]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(24:00:37:00) [[Nicholas J. Fuentes]] stated that he is "out" and for "[[America First]]," meaning no regime change in Iran, and that [[Israel]] should fight its own war.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(24:29:30:00) [[Nicholas J. Fuentes]] argued that [[Democratic Party|Democrats]] do things for their voters (like eliminating student debt), whereas the [[Republican Party|GOP]] sells a war with Iran while telling voters they cannot deport people.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(24:42:35:00) [[Nicholas J. Fuentes]] stated that what the [[Donald Trump|Trump]] administration has done is remove [[Bashar al-Assad]] and set up a war with Iran, while [[Harvard University|Harvard]] now has a [[Jews|Jewish]] [[president]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(25:12:17:00) [[Nicholas J. Fuentes]] reported that [[Donald Trump|Trump]] has publicly denied reports from the [[The Wall Street Journal|Wall Street Journal]] and [[The New York Times|New York Times]] that he is considering a limited strike on Iran.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(25:15:03:00) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] confirmed that it is a "deal or nothing" approach with Iran
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:13:52) [[Nicholas J. Fuentes]] announced that the featured story for the broadcast is the imminent war with Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:14:22) [[Donald Trump]] unofficially announced a 10-day countdown to war with Iran during a press conference at the first meeting of the [[Gaza Strip|Gaza]] board for peace.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:14:29) [[Donald Trump]] stated that he would give Iran 10 days and would make his decision within that [[time]] whether or not to go to war.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:15:19) The [[The Wall Street Journal|Wall Street Journal]] published an exclusive piece offering insight into [[Donald Trump]]'s thinking regarding potential military action against Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:15:47) Unnamed anonymous officials in [[the White House]] told the [[The Wall Street Journal|Wall Street Journal]] that [[Donald Trump]] is considering an initial strike against Iran that will be minimal and intended to compel Iran to surrender.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:15:57) Unnamed anonymous officials in [[the White House]] told the [[The Wall Street Journal|Wall Street Journal]] that if Iran does not surrender after the initial strike, there will be a weeks-long assault meant to topple the government of Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:17:04) [[Nicholas J. Fuentes]] asserted that every news story coming out about the potential war with Iran is deliberately planted.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:17:43) [[Barak Ravid]] and [[Axios]] have been reporting on the buildup to war with Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:34:21) [[Nicholas J. Fuentes]] argued that the buildup of military force in the [[Middle East]] makes it clear that some form of action against Iran will occur.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:37:02) [[Donald Trump]], [[Marco Rubio]], and [[Steve Wittkoff|Steve Witkoff]] told Iran that war can be avoided if they give up nuclear enrichment, forfeit their stockpile of enriched uranium, and give up their ballistic missile program.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:38:07) [[Nicholas J. Fuentes]] argued that Iran is miscalculating by stalling and thinking they still have cards to play in negotiations with the [[Donald Trump]] administration.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:38:32) [[Nicholas J. Fuentes]] argued that the [[time]] for Iran to get sanctions relief and investment under a deal was April 2025, and that the new deal is "we get everything we want or we destroy you."
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:39:10) The press secretary, spokesman for the [[U.S. Department of State|State Department]], [[Marco Rubio]], the [[Vice Media|Vice]] [[White House|President]], and [[Donald Trump]] all stated that if Iran does not come to their position, the [[United States]] will go to war.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:40:03) [[Nicholas J. Fuentes]] argued that the questions about a potential strike on Iran are the scope and scale of the attack and the purpose of the attack.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:41:30) [[Nicholas J. Fuentes]] speculated that a limited strike on Iran could [[aim]] to destroy their ballistic missile stockpile, leaving them defenseless and compelled to make a deal.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:41:47) [[Nicholas J. Fuentes]] reported that the [[The Wall Street Journal|Wall Street Journal]] published an exclusive story citing unnamed sources inside the administration saying that [[Donald Trump]] is considering a more surgical strike on Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:42:13) The [[The Wall Street Journal|Wall Street Journal]] reported that [[Donald Trump]] is weighing an initial limited military strike on Iran to force it to meet his demands for a nuclear deal, short of a full-scale attack.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:42:33) The [[The Wall Street Journal|Wall Street Journal]] reported that the opening assault on Iran, if authorized, could come within days and would [[target]] a few military or government sites.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:42:41) The [[The Wall Street Journal|Wall Street Journal]] reported that if Iran still refused to comply with [[Donald Trump]]'s directive to end nuclear enrichment, the [[United States]] would respond with a broad campaign against regime facilities potentially aimed at toppling the regime in [[Tehran]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:43:19) [[Donald Trump]] told reporters that his timeline for deciding next moves on Iran was a maximum of roughly two weeks.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:43:22) [[Donald Trump]] told reporters "We're going to make a deal or get a deal one way or the other" regarding Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:43:37) [[Nicholas J. Fuentes]] noted that [[Donald Trump]] loves the element of surprise and speculated that strikes against Iran might come toward the end of the 10-day to two-week deadline.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:44:47) [[Nicholas J. Fuentes]] noted that the attack on Iran in the previous year commenced on June 13th, which corresponds to 613, the number of commandments in the [[Jews|Jewish]] Bible in the [[Mishnah]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:45:14) [[Nicholas J. Fuentes]] argued that Iran underestimates the peril they are in and that the [[Ayatollah Ali Khamenei|Ayatollah]] has given permission for the [[president]] and foreign minister to engage the [[United States]] in talks, but they are not budging on enrichment.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:46:07) [[Nicholas J. Fuentes]] argued that Iran believes that in order for the [[United States]] to topple their regime, the [[United States]] will need a ground force, and they do not believe the [[United States]] will do that.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:46:19) [[Nicholas J. Fuentes]] argued that Iran also thinks that any protracted war with Iran will bleed into the midterms.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:48:30) [[Nicholas J. Fuentes]] argued that Iran is looking at the [[United States]] the same way they looked at the [[Joe Biden|Biden]], [[Barack Obama|Obama]], or [[George W. Bush|Bush]] administrations, but it is a "new sheriff" and [[Donald Trump]] "doesn't play on that timeline."
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:49:09) [[Nicholas J. Fuentes]] expressed skepticism about the [[The Wall Street Journal|Wall Street Journal]] report that [[Donald Trump]] is thinking about a very limited strike on Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:49:51) [[Nicholas J. Fuentes]] argued that once the [[United States]] hits Iran, they lose control of the escalation ladder.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:50:15) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] is not the type of [[president]] to do a "pinprick strike" on Iran, wait, and ask again nicely for negotiations.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:50:37) [[Nicholas J. Fuentes]] speculated that if the [[United States]] hit all of Iran's ballistic missile launch platforms, that would suppress Iran's ability to retaliate.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:52:28) [[Nicholas J. Fuentes]] argued that the story about a limited strike on Iran is a deliberately planted signal to throw Iran off the scent.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:52:47) [[Nicholas J. Fuentes]] predicted that if there is a strike on Iran, it will be "very hard," "very big," and a surprise, and that [[Donald Trump]] will leave Iran in ruins.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:53:16) [[Nicholas J. Fuentes]] argued that regime change in Iran is not desirable and not feasible because air power and naval power are insufficient to dislodge the regime.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:54:51) [[Nicholas J. Fuentes]] argued that even if the [[United States]] took out the Iranian regime with air power, there is no alternative regime, no political alternative, and no leader with legitimacy in Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:55:28) [[Nicholas J. Fuentes]] argued that if the [[United States]] destroyed the regime in Iran, the result would be a humanitarian crisis, chaos, open borders, and a government potentially worse than the one before.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:56:11) [[Nicholas J. Fuentes]] argued that regime change in Iran is not in the best interest of the [[United Arab Emirates]], [[Qatar]], or [[Saudi Arabia]] because there are significant [[Shiite]] populations inside those countries.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:56:55) [[Nicholas J. Fuentes]] argued that the Gulf countries are not even allowing the [[United States]] to use their airspace for a potential strike on Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:57:11) [[Nicholas J. Fuentes]] argued that nobody in the [[region]] is willing to cooperate with or support a military intervention in Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:57:45) [[Nicholas J. Fuentes]] argued that there is a fundamental disconnect between [[Washington D.C.|Washington, D.C.]] and [[Rishon LeZion|Tel Aviv]] regarding Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:58:45) [[Nicholas J. Fuentes]] argued that [[Israel]] fundamentally seeks regime change in Iran and does not want a deal.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:58:53) [[Nicholas J. Fuentes]] argued that a deal with Iran is desirable for Iran, for the Gulf countries, and for the [[United States]] because with a deal the Iranian regime can survive.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:59:29) [[Nicholas J. Fuentes]] argued that if Iran gets a deal, they get sanctions relief, their currency recovers, their economy recovers, they rebuild infrastructure, and they can normalize relations with [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[Pakistan]], and [[Turkey]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:00:40) [[Nicholas J. Fuentes]] argued that much of the instability in Iran is due to sanctions, industrial sabotage, and diplomatic isolation, not the type of regime.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:01:05) [[Nicholas J. Fuentes]] argued that a deal with Iran would allow the [[United States]] to stabilize the [[region]] and focus on the [[Caribbean]] and the [[Indo-Pacific]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:01:55) [[Nicholas J. Fuentes]] argued that [[Israel]] does not want a deal with Iran because the Revolutionary Theocratic [[government of Iran]] has a message that appeals to [[Islam|Muslims]] throughout the [[Middle East]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:02:13) [[Nicholas J. Fuentes]] argued that Iran has influence through proxies including the [[Houthis]] in [[Yemen]], [[Hezbollah]] in [[Lebanon]], and [[Hezbollah]] in [[Iraq]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:03:32) [[Nicholas J. Fuentes]] argued that Iran supports the aspirations of the [[Palestine|Palestinians]] for statehood and ultimately wants a nuclear weapon to be a regional power.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:03:43) [[Nicholas J. Fuentes]] argued that to the extent Iran makes a deal with the [[United States]], [[Israel]] cannot have uncontested influence in the [[Middle East]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:04:05) [[Nicholas J. Fuentes]] argued that [[Israel]] is incentivized to sabotage any deal with Iran because a deal keeps the Iranian regime in place.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:04:35) [[Nicholas J. Fuentes]] argued that [[Israel]]'s "happy ending" is that Iran falls, the regime falls, and Iran is split up into different countries.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:06:30) [[Nicholas J. Fuentes]] argued that [[Israel]] got [[Donald Trump]] in office because they know he is the least likely [[person]] in the world to make a deal with Iran.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:06:55) [[Nicholas J. Fuentes]] argued that [[Israel]] has engendered bad blood and made [[Donald Trump]] the mortal enemy of Iran, potentially precluding the [[United States]] from making a deal because of [[Donald Trump]]'s grudge.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:07:10) [[Nicholas J. Fuentes]] argued that [[Israel]] does not want Iran to have centrifuges and missiles for the same reason that [[Israel]] destroyed [[Hezbollah]], [[Bashar al-Assad|Assad]], and the [[Houthis]] - to make Iran defenseless.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:07:30) [[Nicholas J. Fuentes]] argued that Iran will not give up their missiles and nukes because they know that if they do, [[Israel]] will destroy them anyway.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:08:05) [[Nicholas J. Fuentes]] argued that if Iran is sitting on a pile of 2000 ballistic missiles, everyone knows that if the [[United States]] goes in, people will die and Iran will rain missiles on [[Israel]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:08:41) [[Nicholas J. Fuentes]] compared Iran's deterrence logic to [[North Korea]]'s nuclear arsenal, where the regime cannot be allowed to fall because if it does, they press a button and everyone gets nuked.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:09:24) [[Nicholas J. Fuentes]] argued that if the [[United States]] shoots down 90% of 2000 missiles from Iran, that still leaves 200 missiles getting through to [[Israel]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:10:05) [[Nicholas J. Fuentes]] cited [[Israel]]'s own leadership saying they want to open up a new front in Iran and control Iran's airspace the way they do with [[Syria]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:10:45) [[Nicholas J. Fuentes]] argued that the reason [[Israel]] cannot do airstrikes in Iran like they do in [[Syria]] is because Iran has missiles and air defenses.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:11:08) [[Nicholas J. Fuentes]] argued that [[Israel]] wants the [[United States]] to take away Iran's defenses so that a "Persian spring" can begin.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:11:28) [[Nicholas J. Fuentes]] stated that [[Israel]]'s stated desire to bomb Iran is published in [[The Jerusalem Post]] and [[i24 News]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:13:03) [[Nicholas J. Fuentes]] predicted that a strike on Iran will be heavy, creative like the [[Venezuela]] operation, and unpredictable, because that is [[Donald Trump]]'s MO.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:13:18) [[Nicholas J. Fuentes]] argued that the longer the [[United States]] waits to strike Iran, the more Iran rebuilds, and the window closes before the [[United States]] enters an election cycle where it becomes a campaign issue.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:23:12) [[Nicholas J. Fuentes]] argued that the war in Iran, the acquisition of [[Warner Bros. Discovery|Warner Bros.]] by [[Paramount Global]], and the acquisition of [[TikTok Inc.|TikTok]] by [[Larry Ellison]] are all for [[Israel]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:08:27.930) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to enforce a nuclear deal restricting Iran's uranium enrichment.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:09:44.660) [[Nicholas J. Fuentes]] reported that in 2018, [[Donald Trump]] declared the IRGC (the military of the Iranian regime) a terrorist group, green-lighting that group for sanctions and attacks.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:10:01.970) [[Nicholas J. Fuentes]] stated that the [[United States]] shadow war with Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:10:23.350) [[Nicholas J. Fuentes]] argued that the [[Israel|Israelis]] hated [[Barack Obama]] for the [[Joint Comprehensive Plan of Action|JCPOA]] and colluded with [[Donald Trump]] to get him elected so that [[Donald Trump|Trump]] would apply "maximum pressure," creating a ladder of escalation by pulling out of the deal, declaring the IRGC terrorists, killing its leader, and putting sanctions on the regime.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:10:45.700) [[Nicholas J. Fuentes]] characterized the [[United States]] conflict with Iran as a "forever war" that began in 2018.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:16:02.280) [[Nicholas J. Fuentes]] opened the main segment of the show, identifying the featured story as the "imminent war" with Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:16:29.160) [[Nicholas J. Fuentes]] stated that he has been talking about the conflict since the first [[United States|U.S]]. strikes against Iran in the previous June.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:16:50.440) [[Nicholas J. Fuentes]] reported, citing the [[The Wall Street Journal|Wall Street Journal]] and the [[The New York Times|New York Times]], that the largest force assembled off the coast of Iran since the invasion of [[Iraq]] in 2003 is now in place, including two aircraft carriers and over a dozen missile destroyers.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:18:52.340) [[Nicholas J. Fuentes]] stated that the attack, which could happen at any point in the next few days to two weeks, is intended to degrade Iran's nuclear and missile capability.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:28:29.220) [[Nicholas J. Fuentes]] expressed difficulty in accepting that the [[United States]] is "on our way to bombing Iran a second [[time]]."
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:30:28.310) [[Nicholas J. Fuentes]] compared the looming war with Iran to the [[Iraq]] War, calling it "a war for [[Israel]]" against a [[country]] that does not threaten the [[United States]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:31:10.890) [[Nicholas J. Fuentes]] characterized the potential war as a "regime change war" with a bad track record, arguing that Iran is a bigger and more ambitious undertaking than [[Iraq]] in every way.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:31:37.860) [[Nicholas J. Fuentes]] stated that the war is being sold under the false pretext of Iran having a [[weapons of mass destruction]] program, the same story used to sell the [[Iraq]] War.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:33:08.008) [[Nicholas J. Fuentes]] noted that despite the contradiction, hundreds or thousands of pro-[[Donald Trump|Trump]] supporters on [[Twitter]] are supporting the war with Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:33:19.950) [[Nicholas J. Fuentes]] posted on [[Twitter]] that if the [[United States]] enters a war with Iran, he will not vote for any member of the cabinet in 2028 or for the midterms, arguing it is a betrayal of the movement.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:36:12.540) [[Nicholas J. Fuentes]] argued that had [[Kamala Harris]] won the election, she would also be bringing the [[United States]] to war in Iran, but that [[Donald Trump]] and 100% of [[Republican Party|Republicans]] would be against it.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:23:11) [[United States|The United States]] will be in a position to launch an all-out attack on Iran as soon as Saturday, according to information from [[Axios]] and other administration sources.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:23:37) [[Donald Trump|President Trump]] has the option to take military action against Iran as early as the weekend, based on intelligence from [[U.S. Department of Defense|Pentagon]] officials.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:24:00) [[Donald Trump]] gave no indication he has decided between pursuing diplomacy or war against Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:24:05) [[United States|The United States]] military drive to assemble a force capable of striking Iran’s nuclear program and ballistic missiles continued despite indirect talks between the two nations.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:24:19) [[Donald Trump]] repeatedly demanded that Iran give up its nuclear program.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:24:31) [[The Prime Minister of Israel]] pushed for action to weaken Iran’s ability to launch missiles at [[Israel]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:25:03) Indirect talks in [[Geneva]] ended with Iran’s foreign minister claiming an agreement on a set of guiding principles, while the [[United States]] said big gaps remain.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:25:31) [[Benjamin Netanyahu]] began asking the [[United States]] to bomb Iran's nuclear program as soon as [[Donald Trump]] entered office.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:25:48) [[Israel]] provoked Iran into a war, and the [[United States]] intervened to cripple Iran's nuclear complex by bombing [[Fordow|Fordo]], [[Isfahan|Esfahan]], and [[Natanz]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:26:06) The bombing of Iran's nuclear complex temporarily increased Iran's breakout [[time]] to perhaps two years.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:26:33) [[Benjamin Netanyahu]] returned in December and again recently to ask the [[United States]] to bomb Iran's ballistic missiles.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:26:55) [[Israel]] argued that Iran would preemptively attack [[Israel]] using ballistic missiles, requiring the [[United States]] to intervene.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:27:14) [[Donald Trump]] called off an earlier strike on Iran because the [[United States]] lacked sufficient assets in the [[region]], including only one carrier strike group.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:27:32) [[Donald Trump]] began sending warships, missile defense systems, and other assets to the [[Middle East]] to prepare for a possible attack on Iran and to defend against a counterattack.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:28:08) [[Donald Trump]] gave Iran an ultimatum to fully surrender or face the destruction of their regime.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:28:32) The [[United States]] opened indirect talks with Iran only after an intense lobbying effort from [[Turkey]], [[Qatar]], [[Pakistan]], the [[United Arab Emirates]], [[Oman]], [[Saudi Arabia]], and [[Arab Republic of Egypt|Egypt]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:29:34) [[Steve Wittkoff|Steve Witkoff]] and other personnel searched for a creative solution last year where Iran would make concessions, but the [[United States]] bombed them instead.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:29:46) The bombing of Iran left it weaker than before, with its proxy network destroyed and its nuclear program damaged.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:30:00) The only remaining major threat to [[Israel]] and [[United States]] bases from Iran is its ballistic missile program.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:30:33) The talks in [[Oman]] and [[Switzerland]] were not negotiations but an ultimatum giving Iran a chance to capitulate to the [[United States]]' demands.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:30:58) The [[United States]] position, stated by [[the White House]] press secretary, [[secretary of state]], the [[president]], and the [[vice]] [[president]], is that Iran must give up all enrichment or face bombing.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:31:16) Iran is stalling for [[time]] and begging for negotiations.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:31:25) The Supreme Leader [[Ayatollah Ali Khamenei|Ayatollah]] gave a dispensation for [[Masoud Pezeshkian]] and Iran's foreign minister to negotiate.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:31:29) Iran offered to limit enrichment for three years and give up its stockpile of enriched uranium, but the [[United States]] said this was insufficient.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:32:02) The impasse between the [[United States]] and Iran concerns nuclear enrichment, with the [[United States]] demanding Iran give it up and Iran refusing.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:32:40) The [[United States]] and [[Israel]] perceive Iran as weaker than ever and are engaging in "gunboat diplomacy."
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:32:49) The [[United States]] position is to either extract all concessions from Iran, conduct a regime change, or bomb them.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:33:08) Military action is inevitable, and a deal with Iran is not in the cards.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:33:25) [[Kurt Mills]] appeared on [[Steve Bannon]]'s show and argued that if the [[United States]] insists on zero enrichment, no deal will be reached with Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:34:25) Headlines claiming progress in talks with Iran are press releases that should not be trusted.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:34:55) Iran is engaged in talks to buy [[time]] to produce more ballistic missiles and protect its leadership from a decapitation strike.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:35:53) Iran can produce 150 ballistic missiles every two weeks to use against [[Israel]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:37:01) The [[United States]] has been in a [[state]] of war against Iran for a long [[time]], using economic sanctions, industrial sabotage, and assassinations.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:37:37) [[Donald Trump]] has not decided whether to order strikes on Iran, or whether the [[aim]] would be to halt the nuclear program, wipe out missiles, or topple the regime.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:38:19) The firepower assembled will give the [[United States]] the option of carrying out a sustained weeks-long air war against Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:38:30) Options for strikes on Iran include a campaign to kill scores of leaders or an air attack limited to nuclear and ballistic missile facilities.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:39:25) The size and scope of the military force in the [[region]] indicates the [[United States]] is not planning a ground invasion of Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:40:20) Toppling the Iranian regime would require a ground force to kill soldiers and secure cities, which is not in place.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:41:22) The current force package resembles the one used last June to bomb Iran from the [[United States]], using missile carriers and B2 stealth bombers.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:42:32) An air campaign could [[target]] Iran's nuclear complex and missiles to make the [[country]] weak for future negotiations, or it could [[target]] the leadership for a decapitation strike.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:47:22) Regime change in Iran is unlikely without a ground force or an alternative regime ready to take power.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:48:02) The [[United States]] administration likely recognizes that an all-out war with Iran would be catastrophic, especially in a midterm election year.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:48:17) The [[United States]] does not want to be fighting a protracted war in Iran with high oil prices and [[United States|American]] casualties going into November.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:48:40) The [[United States]] wants a quick, painless operation in Iran and will likely use a smart decapitation strike.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:49:01) [[Benjamin Netanyahu|Bibi]] and [[Israel]] want a confrontation with Iran, which is the key driver of the situation.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:50:17) [[Nicholas J. Fuentes]] forecasts a major air campaign by the [[United States]] within two to four weeks targeting Iran's missiles, nuclear program, and the leadership, specifically the [[Ayatollah Ali Khamenei|Ayatollah]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:53:07) [[Israel]]'s ultimate goal is regime change in Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:53:17) [[Israel]]'s goal is to destroy Iran's strategic weapons and then "cut off the head of the snake."
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:53:23) A favorable regime in Iran would give [[Israel]] hegemony over the [[Middle East]], as it is the only nuclear power with a military edge guaranteed by the [[United States]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:54:11) Regime change in Iran is the grand prize for [[Israel]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:54:38) If [[Israel]] stops short and Iran makes a deal, Iran's economy will recover and they will rebuild their missiles, making them unassailable.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:55:04) [[Israel]] must either totally win or totally lose in Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:55:13) Regime change in Iran is guaranteed, and it will require some form of [[United States]] intervention.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:55:43) The [[United States]] is serving [[Israel]]'s aims in Iran.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:56:01) Iran was given two weeks to capitulate, making the window for a strike Saturday to a week from Tuesday.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(04:47:33) [[Nicholas J. Fuentes]] estimated that a series of airstrikes on Iran would not be a mass casualty event, comparing it to the previous [[Israel|Israeli]]-Iran strikes where 1,000 Iranians and 32 [[Israel|Israelis]] were killed.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:01:32) [[Donald Trump]] declared the IRGC, the military of the regime, a terrorist group in 2018, green-lighting sanctions and attacks.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:01:49) The [[United States]] culminated a shadow war with Iran in January 2020 with the assassination of [[Qasem Soleimani]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:02:16) [[Donald Trump]] created a "ladder of escalation" with Iran by pulling the [[United States]] out of the [[Joint Comprehensive Plan of Action|JCPOA]], declaring the IRGC terrorists, killing its leader, and putting sanctions on the regime.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:02:30) The forever war with Iran has been going on for seven years, starting in 2018 with [[Donald Trump|Trump]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:02:42) Forever wars exist in [[Iraq]], [[State of Libya|Libya]], [[Syria]], and Iran.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(04:04:43) [[Nicholas J. Fuentes]] began the featured story on the imminent confrontation with Iran.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:05:52) Iran agreed to stop enriching uranium for three years and to forfeit its stockpile of highly enriched uranium to a third [[country]], likely [[Russian Federation|Russia]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:06:22) The concessions offered by Iran fall short of what the [[United States]] and [[Israel]] are demanding.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:23:00) [[Nicholas J. Fuentes]] stated that the [[Republican Party|GOP]] promised not to start new wars, but now there are two aircraft carriers in the [[Middle East]] getting ready to bomb Iran.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:25:30) [[Nicholas J. Fuentes]] stated that the way for the [[Republican Party|GOP]] to defeat him is to simply do what they promised they would do, such as releasing the [[Jeffrey Epstein|Epstein]] files, not going to war with Iran, and continuing mass deportations.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:37:42) [[Donald Trump]] gave Iran an ultimatum: surrender or die, demanding either capitulation to the [[United States]]' demands or war.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:37:53) [[Donald Trump]] repeatedly said he is looking for a "decisive military option" with Iran, which is a translation for regime change.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:39:34) Iran and the [[United States]] made progress in Tuesday's nuclear talks in [[Geneva]] following [[Tehran]]'s willingness to compromise around the edges of its nuclear program, including moving its near-weapons-grade uranium offshore, as reported by the [[The Wall Street Journal|Wall Street Journal]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:40:05) Iranian Supreme Leader [[Ayatollah Ali Khamenei|Ali Khamenei]] warned in a speech on Tuesday that Iran was prepared to retaliate against any [[United States|American]] strike.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:40:43) Iranian Foreign Minister [[Person|Abbas Aragchi]] said that Tuesday's talks were more substantive and that both sides presented ideas aimed at crafting an agreement, and agreed to exchange texts to create the framework for a deal.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:41:40) [[Benjamin Netanyahu|Bibi]] [[Benjamin Netanyahu|Netanyahu]], [[who]] met with [[Donald Trump]] the previous week, said a "good deal" with Iran would require the dismantling of Iran's nuclear infrastructure and limiting the range of its ballistic missiles.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:44:02) [[Marco Rubio]] said expectations for a deal with Iran were not high.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:44:33) [[Israel]] has been pursuing the overthrow of the Iranian regime since 1979.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:46:10) Iran is hedging its bets to defend itself against [[Israel]] by creating a latent nuclear arsenal, having the ability to create nuclear fuel for a bomb.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:47:05) [[Israel]] wants to destroy Iran, but Iran has a nuclear capability.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:48:43) [[Donald Trump]] pulled the [[United States]] out of the [[Joint Comprehensive Plan of Action|JCPOA]] because he said the deal would sunset after 10 years, allowing Iran to resume unrestricted enrichment.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:53:15) [[Nicholas J. Fuentes]] argued that the concessions Iran is making are not real because Iran is promising not to enrich uranium for three years, a process they probably cannot do due to past bombings, in exchange for massive sanctions relief and [[time]] to rebuild their missile arsenal and nuclear complex.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:54:44) [[Nicholas J. Fuentes]] argued that Iran is buying [[time]] because they know if they give up enrichment, [[Israel]] will foment a [[civil war]] in their [[country]] within 10 years.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:00:59) [[Nicholas J. Fuentes]] characterized the negotiations as a three-party negotiation between the [[United States]], Iran, and [[Israel]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:01:22) Iran has been integrating into the [[region]], making peace with [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], and [[Turkey]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:01:51) [[Israel]] is insistent that Iran render itself defenseless by giving up its nuclear hedge, missiles, and proxies.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:02:50) [[Nicholas J. Fuentes]] predicted that a [[United States]] confrontation with Iran is imminent, citing the two-week ultimatum and the massive force posture buildup in the [[Middle East]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:03:35) The [[United States]] bombed Iran with airstrikes in 2025, hitting [[Fordow|Fordo]] and [[Natanz]] with bunker buster bombs after [[Israel]] had pounded Iran for weeks.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:04:02) [[Nicholas J. Fuentes]] argued that a decisive confrontation with Iran requires more than air power and would need some kind of ground force—either protesters, armed militia, or a [[United States]] invasion force.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:04:23) [[Nicholas J. Fuentes]] argued that the [[United States]] is in a bind where it cannot win a negotiation with Iran but cannot win a war without a ground force that seems unthinkable.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:09:12) [[Nicholas J. Fuentes]] predicted that the most likely outcome is a protracted military campaign involving successive waves of airstrikes on Iran.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:11:15) Every month after the initial 2025 strike, Iran will have more missiles (300 per month) and more centrifuges put online, increasing its leverage and putting pressure on [[Washington D.C.|Washington, D.C.]] and [[Rishon LeZion|Tel Aviv]] to act quickly.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:15:01) [[Nicholas J. Fuentes]] argued that [[Israel]] cannot accept any deal with Iran because it would allow Iran to normalize and rebuild its defenses, making regime change impossible.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:16:55) [[Miriam Adelson]] pledged $100 million to [[Donald Trump|Trump]] after [[Nikki Haley]] dropped out of the race and threw her support behind [[Donald Trump|Trump]], with the "price tag" being [[Gaza Strip|West Bank]], [[Gaza Strip]], and Iran.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:19:20) [[JD Vance]] talked about bombing Iran before he was even nominated for [[vice]] [[president]] in 2024.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(00:58:28) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] (Iranian Nuclear Deal), bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[United States]] to restrict Iran's enrichment of uranium.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:00:05) [[Nicholas J. Fuentes]] claimed that in 2018 [[Donald Trump]] declared the IRGC a terrorist group and that the [[United States]] is now in a "shadow war" with Iran, culminating in the assassination of [[Qasem Soleimani]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:43:50) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] was "the [[Jews|Jewish]] candidate" [[who]] gave [[Israel]] the [[Gaza Strip|West Bank]], [[Gaza Strip|Gaza]], Iran, and [[Syria]] "on a silver platter."
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:35:50) [[Nicholas J. Fuentes]] stated to [[Sneeko]] that the [[United States]] is a "[[Christianity|Christian]] nation," and that [[Islam|Muslims]] are welcome to be [[Islam|Muslim]] in [[Islam|Muslim]] countries like [[Morocco]], [[Algeria]], [[State of Libya|Libya]], [[Arab Republic of Egypt|Egypt]], [[Yemen]], [[Oman]], [[Saudi Arabia]], [[Tajikistan]], and Iran.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:58:02) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the Iranian Nuclear Deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict Iran's enrichment of uranium.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:59:36) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the IRGC, the military of the Iranian regime, a terrorist group, green-lighting sanctions and attacks, thereby placing the [[United States]] in a shadow war with Iran.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:59:53) [[Nicholas J. Fuentes]] stated that the shadow war with Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]], [[who]] was the architect of the Axis of Resistance including [[Hamas]] and [[Hezbollah]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(01:00:33) [[Nicholas J. Fuentes]] characterized the conflict with Iran as a forever war that started in 2018 and has been going on for seven years, similar to [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:12:04) [[Nicholas J. Fuentes]] stated that his prediction from June 2024 was coming true: a war with Iran, corporate tax cuts, H1B visas, and no mass deportations.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:12:16) [[Nicholas J. Fuentes]] restated his 2024 position that he would not vote for [[Donald Trump]] unless he committed to an immigration moratorium and refused regime change in Iran.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:12:44) [[Nicholas J. Fuentes]] stated that the army is preparing for war with Iran and that a second aircraft carrier is being prepared.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:14:56) [[Nicholas J. Fuentes]] accused the administration of burying the [[Jeffrey Epstein|Epstein]] files and preparing to bomb Iran.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:22:17) [[Nicholas J. Fuentes]] accused the administration of betraying the base on [[Jeffrey Epstein|Epstein]], [[Ukraine]], Iran, [[Artificial Intelligence|AI]], deportations, H1-Bs, and student visas.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(59:57:00) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict Iran's enrichment of uranium.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:01:33:00) [[Nicholas J. Fuentes]] claimed that in 2018, [[Donald Trump]] declared the IRGC a terrorist group, which initiated a shadow war with Iran.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:02:06:00) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the Iran issue with the deal, but [[Israel]] colluded with [[Donald Trump]] to get him elected so he would create a ladder of escalation by pulling out of the deal and killing [[Qasem Soleimani]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:18:28) [[Nicholas J. Fuentes]] characterized the situation with Iran as being in the "exact same predicament" as one year prior, with a "last minute, last ditch effort to negotiate" and "no evidence that that is going to happen."
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:19:14) [[Nicholas J. Fuentes]] argued that negotiations are impossible because the positions of the [[United States]] and Iran are "irreconcilable" over Iran's enrichment of uranium, which is a "red line" for both countries.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:20:37) [[Nicholas J. Fuentes]] stated that [[Benjamin Netanyahu]] intends to lobby the [[United States]] not to make a deal and to insist that any deal must include restrictions on Iran's ballistic missiles and support for its proxies.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:21:03) [[Nicholas J. Fuentes]] asserted that if the negotiations fail, the [[United States]] is going to war with Iran, citing the deployment of major cargo aircraft into [[Turkmenistan]], a second carrier strike group, [[MIM-104 Patriot|Patriot]] missile batteries, [[Terminal High Altitude Area Defense|THAAD systems]], B-52 bombers, and B-2 bombers.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:21:53) [[Nicholas J. Fuentes]] identified [[Turkey]], [[Arab Republic of Egypt|Egypt]], [[Qatar]], [[Saudi Arabia]], [[Pakistan]], the [[United Arab Emirates]], and [[Oman]] as countries lobbying the [[United States]] to make a deal with Iran.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:53:40) [[Nicholas J. Fuentes]] argued that [[Israel]] wants the [[United States]] to go to war with Iran.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:59:00) [[Nicholas J. Fuentes]] traced the origins of the conflict with Iran to [[Barack Obama]]'s creation of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with Iran.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:00:35) [[Nicholas J. Fuentes]] stated that the conflict with Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom [[Nicholas J. Fuentes|Fuentes]] described as the architect of the "axis of resistance" including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:08:20) [[Nicholas J. Fuentes]] characterized [[Benjamin Netanyahu|Netanyahu's]] purpose in meeting with [[Donald Trump]] as wanting to "sabotage the talks and get a blank check" to bomb Iran with impunity.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:09:07) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] is giving [[Benjamin Netanyahu]] a platform to show Iran that [[Israel]] and the [[United States]] are aligned, but that this will backfire as it shows Iran cannot trust the [[United States]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(59:53:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the Iran Nuclear Deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:23:00) [[Israel]] was determined to get a [[Republican Party|Republican]] elected in 2016 to scuttle the Iran nuclear deal, and the [[United States]] subsequently withdrew from the deal.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:43:00) In 2018, [[Donald Trump]] declared the IRGC, the military of the Iranian regime, a terrorist group.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:49:00) The [[United States]] culminated its shadow war with Iran by January 2020 with the assassination of [[Qasem Soleimani]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:02:08:00) [[Israel|Israelis]] colluded with [[Donald Trump]] to get him elected so that he would conduct "maximum pressure" on Iran and create a "ladder of escalation."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:02:18:00) [[Nicholas J. Fuentes]] said the war with Iran started in 2018 when [[Donald Trump]] made it hot and has been going on for seven years.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:02:34:00) [[Nicholas J. Fuentes]] characterized the conflicts in [[Iraq]], [[State of Libya|Libya]], [[Syria]], and Iran as "forever wars."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:08:11:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the Iran Nuclear Deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict Iran's enrichment of uranium.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:18:00) [[Israel]] was determined to get a [[Republican Party|Republican]] elected in 2016 to scuttle the Iran nuclear deal.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:45:00) In 2018, [[Donald Trump]] declared the IRGC, the military of the Iranian regime, a terrorist group.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:01:00) The [[United States]] culminated its shadow war with Iran by January 2020 with the assassination of [[Qasem Soleimani]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:19:00) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] had the Iran situation solved with the deal, and that [[Israel|Israelis]] hated him for it, so they colluded with [[Donald Trump]] to get him elected in order to conduct "maximum pressure" on Iran.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:37:00) The war with Iran started in 2018 and has been going on for seven years.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:47:00) [[Nicholas J. Fuentes]] characterized the conflicts in [[Iraq]], [[State of Libya|Libya]], [[Syria]], and Iran as "forever wars."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:38:50) [[Nicholas J. Fuentes]] stated that he did not vote for [[Donald Trump]] and advised others not to, arguing that [[Donald Trump|Trump]] would not do mass deportations and that the only result would be tax cuts and a war with Iran.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:07) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), which restricted Iran's enrichment of uranium, and that [[Israel|Israelis]] were furious about the deal.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:38) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] declared the IRGC, the military of the Iranian regime, a terrorist [[organization]] in 2018, leading to a shadow war between the [[United States]] and Iran.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:42) [[Nicholas J. Fuentes]] stated that the conflict with Iran culminated in the assassination of [[Qasem Soleimani]] in January 2020, whom he described as the architect of the axis of resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:07:00) [[Nicholas J. Fuentes]] argued that the conflict with Iran, which began in 2018, had been an active war for seven years as of the recording date, and categorized it alongside other "forever wars" in [[Iraq]] (1990–present), [[State of Libya|Libya]] (2011–present), and [[Syria]] (2011–present).
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:07) [[Nicholas J. Fuentes]] argued that the upcoming negotiations with Iran, set to take place with [[Steve Wittkoff|Steve Witkoff]] and the foreign minister of Iran, looked like the "final ultimatum" before going to war.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:15) [[Nicholas J. Fuentes]] stated that a multilateral framework proposal for negotiations with Iran was put together by seven [[Islam|Muslim]]-majority countries, including [[Arab Republic of Egypt|Egypt]], [[Turkey]], the [[United Arab Emirates|UAE]], [[Qatar]], [[Saudi Arabia]], [[Pakistan]], and [[Oman]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:21) [[Nicholas J. Fuentes]] reported that the framework proposal for Iran included a mutual non-aggression agreement, a three-year suspension of enrichment followed by enrichment at 1.5%, and Iran giving up its highly enriched uranium stockpile to a third [[country]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:43) [[Nicholas J. Fuentes]] stated that Iran had not changed its position and refused to negotiate on missiles, proxies, or stop enriching uranium, while [[Marco Rubio]] insisted the [[United States|US]] would still try to negotiate on those points.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:50) [[Nicholas J. Fuentes]] concluded that the [[United States|US]] and Iran were at an impasse and that if the talks were a "take it or leave it" proposal, Iran would likely leave it, leading to war.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:19:09) [[Nicholas J. Fuentes]] stated that the [[United States]] issued a warning for all [[United States|US]] citizens to leave Iran, which he interpreted as a signal that the [[United States|US]] was gearing up for war.Here is the chronological knowledge log derived from the provided transcript, following all specified formatting and scope rules.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:41:14) [[Nicholas J. Fuentes]] stated that the [[Donald Trump|Trump]] administration brought the [[United States]] to war in Iran and failed on deportations.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:47:37) [[Nicholas J. Fuentes]] identified several failures of the [[Donald Trump|Trump]] administration: the [[Artificial Intelligence|AI]] regulation moratorium, forcing [[China|Chinese]] students and [[India|Indian]] H-1B workers into the [[country]], bombing Iran twice, the ongoing [[Ukraine]] war, a terrible job market, a software industry decline, and [[Bitcoin]] being down 50%.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:01:50) [[Nicholas J. Fuentes]] argued that [[Barack Obama]]'s 2015 [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) had effectively prevented a war with Iran.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:03:55) [[Donald Trump]] declared the Iran Revolutionary Guard Corps (IRGC) a terrorist [[organization]] in 2018.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:04:15) [[Nicholas J. Fuentes]] asserted that a forever war with Iran has been ongoing since 2018.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Benjamin Netanyahu|Bibi]] traveled to [[Mar-a-Lago]] on December 29th to plead with [[Donald Trump]] to bomb Iran's ballistic missiles and proxies in support of a regime change war.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] argued that the "massive protests" in Iran in early January were not spontaneous, but were a manufactured foreign-backed uprising following a multi-year regime change war.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] asserted that [[Israel]] has been conducting industrial sabotage against Iran for years, bombing factories, oil refineries, ports, and infrastructure.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] stated that [[Israel]] bombed Iran's internal security service during the 12-day war in June of the previous year to weaken its ability to suppress a future foreign-backed uprising.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] reported that Iran's border with [[Iraq]] and [[Azerbaijan]] is being "flooded" by operatives with automatic rifles taking over government buildings, which he characterized as part of a systematic regime change war.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] compared the alleged playbook for regime change in Iran to the one in [[Syria]], involving the destruction of a nuclear hedge followed by funding ethnic separatists and using the [[United States|U.S]]. as an air force.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] claimed that [[Elon Musk]]'s [[StarShield]] was the internet provider for Iran and that when the regime shut off the internet, the foreign-backed uprising stopped.(04:05:31-04:05:41) [[Nicholas J. Fuentes]] argued that the weapons, internet, and economic pressure supporting protests in Iran originated from [[Washington D.C.|Washington, D.C.]] and [[Rishon LeZion|Tel Aviv]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:50) [[Nicholas J. Fuentes]] recounted that by January 2020, the shadow war with Iran culminated in the assassination of [[Qasem Soleimani]], the architect of the "Axis of Resistance" including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:02:06) [[Nicholas J. Fuentes]] concluded that [[Israel]] colluded with [[Donald Trump|Trump]] to create a "ladder of escalation" against Iran, which pulled the [[United States|US]] out of the deal, declared the IRGC terrorists, killed its leader, and placed sanctions on the regime.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:02:35) [[Nicholas J. Fuentes]] characterized the conflict with Iran as a "forever war," similar to those in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:10:07) [[Nicholas J. Fuentes]] repeated the statement that the shadow war with Iran culminated in the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:10:23) [[Nicholas J. Fuentes]] repeated the conclusion that [[Israel]] colluded with [[Donald Trump|Trump]] to create a "ladder of escalation" against Iran.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:10:45) [[Nicholas J. Fuentes]] repeated the characterization of the conflict with Iran as a "forever war" similar to those in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:48:06) [[Nicholas J. Fuentes]] noted that there is a possible meeting between [[Steve Wittkoff|Steve Witkoff]] and Iran's foreign minister, [[Araghchi]], suggesting that [[Donald Trump|Trump]] is looking for an "off-ramp" from the conflict with Iran.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:48:25) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]]'s maximalist demands and gunboat diplomacy will not be enough, as Iran is not backing down and is threatening a regional war.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:10:30.000) [[Nicholas J. Fuentes]] named [[Barack Obama]] as the creator of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with Iran, [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[European Union]], and the [[United States]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:13:00.000) [[Nicholas J. Fuentes]] reported that in 2018, [[Donald Trump]] declared the IRGC a terrorist group.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:13:30.000) [[Nicholas J. Fuentes]] stated that by January 2020, the shadow war between the [[United States]] and Iran culminated in the assassination of [[Qasem Soleimani]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:14:20.000) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had a solved situation with Iran, but [[Israel]] colluded with [[Donald Trump]] to create a ladder of escalation.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:15:00.000) [[Nicholas J. Fuentes]] categorized the conflict with Iran as a "forever war" that started in 2018, drawing parallels to [[Iraq]] (1990), [[State of Libya|Libya]] (2011), and [[Syria]] (2011).
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:23:38) [[Elon Musk]] visited the [[White House]] with a [[black]] eye, which was his last visit to the [[White House|Oval Office]], and occurred a week before [[Israel]] bombed Iran.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:24:13) [[Benjamin Netanyahu]] visited the [[White House]] to celebrate a victory in the war with Iran and gave [[Donald Trump]] a trophy.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:36:55) [[Nicholas J. Fuentes]] argued that the [[Jeffrey Epstein]] files are hanging over [[Donald Trump]]'s head like a dagger, and that if [[Donald Trump|Trump]] does not bring the [[United States]] to war with Iran or play ball with the [[Israel]] lobby and billionaires, the dagger will fall.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:38:21) [[Nicholas J. Fuentes]] argued that the first war with Iran was bookended by intrigue about the [[Jeffrey Epstein]] files, pointing out that [[Elon Musk]] crashed out with a [[black]] eye about [[Jeffrey Epstein|Epstein]] a week before the war, the files were buried the day after [[Benjamin Netanyahu]] visited the [[White House]], and the files were released when the [[United States]] was "locked and loaded" for a second war with Iran.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:00:01) [[Nicholas J. Fuentes]] said that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian nuclear deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:18) [[Nicholas J. Fuentes]] said that the reason [[Israel]] got [[Donald Trump]] elected in 2016 was to scuttle the Iranian nuclear deal.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:44) [[Nicholas J. Fuentes]] said that the [[United States]] has been in a shadow war with Iran.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:02:02) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had the Iran issue solved with the nuclear deal, but that the [[Israel|Israelis]] hated [[Barack Obama|Obama]] for it and colluded with [[Donald Trump|Trump]] so that [[Donald Trump|Trump]] would create a "ladder of escalation."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:02:50) [[Nicholas J. Fuentes]] described the conflict with Iran as one of the "forever wars," similar to those in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:08:10) [[Nicholas J. Fuentes]] repeated his timeline of the conflict with Iran, stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:09:01) [[Nicholas J. Fuentes]] repeated that [[Donald Trump|Trump]] was elected in 2016 with the help of the [[Israel|Israelis]] to scuttle the Iranian nuclear deal.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:10:23) [[Nicholas J. Fuentes]] repeated that the [[Israel|Israelis]] colluded with [[Donald Trump|Trump]] to create a "ladder of escalation" against Iran.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:10:50) [[Nicholas J. Fuentes]] repeated that the war with Iran is a "forever war" that began in 2018.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:21:52) [[Nicholas J. Fuentes]] introduced the featured story of the show: an imminent war with Iran.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:22:22) [[Nicholas J. Fuentes]] said that the [[United States]] is sending the military to the [[Middle East]] to bomb Iran and may send special forces on the ground to raid nuclear sites.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:23:29) [[Nicholas J. Fuentes]] characterized the upcoming war with Iran as "another war for [[Israel]]."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:23:41) [[Nicholas J. Fuentes]] said that [[Donald Trump]] is considering a second strike on Iran.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:23:52) [[Nicholas J. Fuentes]] reported that the first strike on Iran in June, Operation Midnight Hammer, was a one-and-done operation using B2 stealth bombers to drop 50,000-pound bunker buster bombs on nuclear sites.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:25:48) [[Nicholas J. Fuentes]] stated that potential operations now include special forces raids on the ground in Iran to infiltrate and dismantle nuclear sites.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:59:57) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] demanded that Iran give up nuclear centrifuges, enriched uranium, longer-range missiles, and support for proxies, effectively demanding a "complete and total surrender."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:00:34) [[Nicholas J. Fuentes]] reported that [[the Pentagon]] is now considering special operations raids on the ground in Iran to physically dismantle infrastructure.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:01:11) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] was "basically elected for this exact purpose" of going to war with Iran.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:04:58) [[Nicholas J. Fuentes]] argued that the war with Iran is the "big ticket item" that got [[Donald Trump|Trump]] elected, and that the deportations and trade wars are just "stocking stuffers."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:07:53) [[Nicholas J. Fuentes]] said that [[Benjamin Netanyahu|Netanyahu]] began visiting the [[White House]] demanding a war with Iran as soon as [[Donald Trump|Trump]] was elected.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:08:20) [[Nicholas J. Fuentes]] argued that the [[Israel|Israelis]] poisoned [[Donald Trump|Trump]]'s relationship with Iran by pushing him to assassinate [[Qasem Soleimani]], rip up the nuclear deal, and brand the IRGC a terrorist group, making diplomacy impossible.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:08:57) [[Nicholas J. Fuentes]] argued that the [[Israel|Israelis]] fabricated a myth that Iran was trying to assassinate [[Donald Trump|Trump]] to further poison relations.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:09:52) [[Nicholas J. Fuentes]] said that the [[Israel|Israelis]] propagandized the world about an imminent Iranian nuclear capability, leading to their preemptive attack in June.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:10:15) [[Nicholas J. Fuentes]] argued that [[Donald Trump|Trump]] supporters coped after the first strike by saying it was a "one and done" operation that disabled Iran's nuclear hedge without committing the [[United States]] to a war.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:11:18) [[Nicholas J. Fuentes]] argued that Iran's nuclear program was never the real problem; the real problem is that [[Israel]] cannot tolerate the existence of a large, powerful Islamist [[state]] that does not recognize [[Israel]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:11:58) [[Nicholas J. Fuentes]] argued that [[Israel]] wants Iran destroyed, just as it wanted [[Saddam Hussein]] and [[Bashar al-Assad]] destroyed.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:12:17) [[Nicholas J. Fuentes]] argued that Iran built a nuclear hedge in reaction to [[United States]] and [[Israel]] overthrowing regimes in [[Iraq]] and [[Syria]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:12:55) [[Nicholas J. Fuentes]] stated that the [[United States|U.S.]] interest in Iran is limited, but [[Israel]]'s is unlimited, and [[Israel]] wants Iran wiped out.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:14:33) [[Nicholas J. Fuentes]] argued that taking out Iran's nuclear program in June only left Iran vulnerable, which is what [[Israel]] wants in order to then pursue its goal of destroying Iran.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:15:36) [[Nicholas J. Fuentes]] argued that from the [[United States|American]] perspective, the nuclear hedge was removed, but from [[Israel]]'s perspective, the "runway has been cleared" to degrade Iran's other capabilities.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:18:58) [[Nicholas J. Fuentes]] argued that Iran's other deterrents include ballistic missiles and proxies like [[Hezbollah]] and the [[Houthis]], and that [[Israel]] cannot attack all of them simultaneously.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:19:43) [[Nicholas J. Fuentes]] said that Iran could not trust the [[United States]] for negotiations after the sneak attack in June.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:20:42) [[Nicholas J. Fuentes]] reported that [[Steve Wittkoff|Steve Witkoff]] and [[Donald Trump]] went on TV to claim that the negotiations Iran were a "fake out" to lower Iran's guard for the preemptive strike.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:20:57) [[Nicholas J. Fuentes]] stated that Iran realized it cannot trust the [[United States]] and that the [[United States]] is the "junior partner" in [[Israel]]'s foreign policy.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:21:55) [[Nicholas J. Fuentes]] reported that in response to the war, Iran ejected weapons inspectors from the [[International Atomic Energy Agency|IAEA]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:22:24) [[Nicholas J. Fuentes]] argued that Iran began reconstituting its defensive capabilities, including building new enrichment sites deeper in the mountains and rebuilding its missile arsenal.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:23:25) [[Nicholas J. Fuentes]] laid out the cycle: [[Israel]] wants to destroy Iran, Iran reconstitutes its deterrents, so [[Israel]] will want to go back to war before Iran can rebuild.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:23:56) [[Nicholas J. Fuentes]] said that Iran cannot be allowed to reconstitute, so [[Israel]] will want to go to war again soon.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:24:43) [[Nicholas J. Fuentes]] argued that the [[Israel|Israelis]] will spin the situation by saying the first strike accelerated Iran's path to nuclearization, necessitating a second strike.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:25:15) [[Nicholas J. Fuentes]] argued that the [[United States]] must assume Iran is building a nuclear bomb, and its only two options are negotiation or bombing them again.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:25:36) [[Nicholas J. Fuentes]] stated that [[the Pentagon]] cannot accept Iran having a bomb.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:26:20) [[Nicholas J. Fuentes]] argued that the June strike was a mistake because [[Israel]] got the [[United States]] to bomb Iran directly, making the [[United
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:01:44) [[Nicholas J. Fuentes]] stated that the shadow war with Iran culminated in the January 2020 assassination of [[Qasem Soleimani]], whom he described as the architect of the "Axis of Resistance."
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:02:00) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the Iran problem with the nuclear deal, and that [[Israel]] colluded with [[Donald Trump]] to get him elected so he would escalate the conflict into a "Forever War."
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:31:15) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] described an armada of [[United States|US]] warships heading to the [[Middle East]] to bomb Iran.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:31:21) [[Nicholas J. Fuentes]] stated that the [[United States]] was going to war with [[Hezbollah]] in [[Iraq]] and with Iran.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:32:00) [[Nicholas J. Fuentes]] stated that he had predicted [[Donald Trump|Trump]] would bring the [[United States]] to war with Iran and would not deport anyone.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(01:02:50:72) The [[United States|U.S]]. war with Iran has been ongoing since 2018.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:14:37:16) [[Nicholas J. Fuentes]] said "I told you so" regarding his prediction that [[Donald Trump]] would take the [[United States|U.S]]. to war with Iran and fail to do mass deportations.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:35:10:60) [[Nicholas J. Fuentes]] declared that he is anti-mass migration, anti-[[Israel]], anti-[[Burkina Faso]], anti-[[Russian Federation|Russia]], anti-Iran, anti-[[Venezuela]], and pro-[[United States|America]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:00:10) [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to enforce a nuclear deal restricting Iran's enrichment of uranium.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:01:50) The shadow war between the [[United States]] and Iran culminated by January 2020 in the assassination of [[Qasem Soleimani]], [[who]] was the architect of the axis of resistance ([[Hamas]], [[Hezbollah]], the [[Houthis]]).
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:01:27:710) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the IRGC a terrorist group, leading to a shadow war between the [[United States]] and Iran.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:01:50:130) [[Nicholas J. Fuentes]] stated that the war against Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]], the architect of the Axis of Resistance.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:02:02:900) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] had solved the conflict with Iran through the deal, but [[Israel|Israelis]] hated him for it, colluded with [[Donald Trump|Trump]], and created a ladder of escalation.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:02:35:150) [[Nicholas J. Fuentes]] characterized the conflict with Iran, which began in 2018, as a "forever war" similar to those in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:07:12) [[Benjamin Netanyahu|Bibi]] requested that the [[United States]] bomb Iran again, support bombing [[Hezbollah]] again, and give him the green light to go back to war in [[Gaza Strip|Gaza]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:07:28) [[Donald Trump]] told [[Benjamin Netanyahu|Bibi]] that if Iran rebuilt their nukes and missiles, [[Israel]] could bomb them.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:07:52) The [[Central Intelligence Agency|CIA]] and [[Israel Defense Forces|Mossad]] armed protests in Iran, which were embellished by the media and assisted by [[Elon Musk]]'s [[White House|Starlink]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:08:22) [[Donald Trump]] redirected a [[United States|U.S]]. carrier strike group to the [[Middle East]] to escalate against Iran.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:08:49) A second strike on Iran by the [[United States]] was called off at the last minute.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:09:20) The [[The Wall Street Journal|Wall Street Journal]] and [[The Jerusalem Post|Times of Israel]] reported that [[Donald Trump]] did not follow through on the strike in Iran because the military could not guarantee it would topple the [[Government of Iran|Iranian government]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:09:40) [[Nicholas J. Fuentes]] concluded that [[Donald Trump]]'s goal was regime change in Iran.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:13:14) [[Donald Trump]] announced 25% secondary sanctions, which he called a "tariff," on any [[country]] that does business with Iran.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:18:06) [[Turkey]], [[Saudi Arabia]], [[Qatar]], and [[Israel]] lobbied [[Washington D.C.]] against the strike on Iran, saying they were not ready and would not allow the use of their airspace.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:43:56) [[Nicholas J. Fuentes]] agreed that after a successful Iranian revolution, [[Israel]] would "destroy all of Iran's weapons."
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:00:16) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict Iran's enrichment of uranium, which made the [[Israel|Israelis]] “furious.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:01:27) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the Iranian Revolutionary Guard (IRGC) a terrorist group and greenlit sanctions and attacks, placing the [[United States]] in a “shadow war” with Iran.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:01:44) [[Nicholas J. Fuentes]] stated that the war with Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]], the architect of the Axis of Resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:02:02) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had “solved” the Iran issue with the nuclear deal, but that [[Israel|Israelis]] colluded with [[Donald Trump|Trump]] to create an escalation ladder that led to the forever war with Iran that began in 2018.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:02:33) [[Nicholas J. Fuentes]] stated that forever wars are the nature of conflicts in [[Iraq]], [[State of Libya|Libya]], [[Syria]], and Iran, warning that people will fall for the same thing again if they do not pay attention to underlying forces.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:29:29) [[Nicholas J. Fuentes]] spent [[time]] covering the ongoing crisis in Iran, including the protests and the prospect of [[United States|U.S]]. intervention.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:30:26) [[Nicholas J. Fuentes]] stated that it looked very likely that the [[United States]] was going to intervene militarily in Iran, reporting that Iran had closed its airspace and that the [[United States]] was evacuating its base in [[Qatar]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:31:17) [[Nicholas J. Fuentes]] stated that a [[United States|U.S]]. strike on Iran had not happened yet as of the [[time]] of recording, and that he did not believe it would happen anytime soon due to the insufficient force package in the [[region]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:31:49) [[Nicholas J. Fuentes]] predicted that if the [[United States]] launched a missile strike on Iran, Iran would retaliate against [[Israel]] and [[U.S. Department of Defense|U.S. military]] bases across the [[Middle East]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:32:54) [[Nicholas J. Fuentes]] predicted that a military intervention in Iran could come as late as the first quarter of the year, or that the [[United States]] would use economic measures or a cyber attack to degrade Iran's ability to suppress protests, leading to a future intervention before April.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:33:38) [[Nicholas J. Fuentes]] noted that [[Jimmy Dore]] and others had tweeted, falsely in his view, that [[Charlie Kirk]] would be opposing a strike on Iran if he were alive.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:34:04) [[Nicholas J. Fuentes]] argued that the claim that the deceased [[Charlie Kirk]] would oppose regime change in Iran is a lie, pointing to [[Charlie Kirk]]'s tweet from last year where he supported a “bottom-up revolution” and defended [[Donald Trump]]'s insinuation of regime change.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:34:49) [[Nicholas J. Fuentes]] stated that [[Charlie Kirk]] went on [[Twitter]] to defend the [[United States|U.S]]. strike on Iran and supported a “bottom-up revolution,” and later said he trusted [[Donald Trump]] to get to the bottom of the [[Jeffrey Epstein|Epstein]] files.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:36:45) [[Nicholas J. Fuentes]] argued that the reason the current protests in Iran are more violent than in 2022 or 2019 is that the demonstrators have guns.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:37:15) [[Nicholas J. Fuentes]] asked [[who]] is arming the [[Kurdistan|Kurds]] in Iran and [[Syria]], answering that it is [[Israel]] and the [[Central Intelligence Agency|CIA]], and that the arms provided by Western intelligence are meant to topple the government through a “color revolution” or “Arab Spring” tactic.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:00:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) alongside [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict Iran's enrichment of uranium.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:01:04) [[Nicholas J. Fuentes]] argued that [[Israel]] interfered in the 2016 [[United States|U.S]]. election to get [[Donald Trump]] elected for the purpose of scuttling the Iran nuclear deal, citing an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:01:32) [[Donald Trump]] declared the Iranian Revolutionary Guard (IRGC) a terrorist [[organization]] in 2018, authorizing sanctions and attacks that led to a shadow war between the [[United States]] and Iran.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:24:25) [[Nicholas J. Fuentes]] began his main monologue by introducing the topic of an imminent [[United States|U.S]]. attack on Iran, though he stated he did not believe a military strike was forthcoming.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:25:10) A wave of protests in Iran over the previous few weeks, triggered by the collapse of the currency and a banking crisis, saw the government crack down by allegedly shooting and killing thousands of protesters and shutting down the internet.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:25:43) [[Lindsey Graham]] said he had not slept for a week while waiting for the [[United States]] to bomb Iran for the second [[time]] in the [[Donald Trump|Trump]] administration.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:25:58) [[Donald Trump]] gathered his cabinet, including General [[Raising Keynes]] of the Joint Chiefs of Staff, to discuss options for responding to Iran, which were later reported to be non-kinetic options such as a cyber attack or economic measures.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:40:35) [[Nicholas J. Fuentes]] described the media narrative of massive, spontaneous pro-democracy protests in Iran that have been violently suppressed by the regime, creating demands for the [[United States]] to intervene.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:41:00) [[Nicholas J. Fuentes]] stated that he had been predicting since October 2023 that [[Israel]]'s campaign in [[Gaza Strip|Gaza]] and [[Lebanon]] would culminate in a regime change in Iran involving the [[United States]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:41:30) [[Nicholas J. Fuentes]] argued that [[Israel]]'s long-term strategic goal was to dismantle Iran's proxy network, nuclear hedge, and missile capability, thereby clearing a pathway for a decapitation strike or regime change.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:44:50) [[Nicholas J. Fuentes]] noted that after the [[United States]] and [[Israel]] bombed Iran the previous June in a "12-day war," the strikes had an 80% approval rating within the [[Republican Party|GOP]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:45:05) [[Nicholas J. Fuentes]] argued that the current conflict with Iran began in 2018 when [[Donald Trump]] pulled out of the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] created by [[Barack Obama]] and [[John Kerry]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:46:15) [[Nicholas J. Fuentes]] claimed that starting in 2021, [[Israel]] escalated a shadow war against Iran by assassinating nuclear scientists, launching cyber attacks on infrastructure, and conducting industrial espionage.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:50:40) [[Nicholas J. Fuentes]] described Iran as a powerful, populous [[country]] with a large middle class and potential, but hindered by its Islamist regime; he stated that [[Israel]] has sought regime change there since 1979.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:54:00) [[Nicholas J. Fuentes]] argued that [[Israel]] and the [[United States]] sold the public on the idea of "denuclearization" as the goal of the June 2025 strikes against Iran, but their true goal is regime change, which requires the destruction of Iran's layered defenses (nukes, missiles, and proxies).
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:56:50) [[Nicholas J. Fuentes]] described how [[Israel]] has systematically dismantled Iran's proxy network since [[October 7th Attack|October 7th]], including confronting [[Hamas]] in [[Gaza Strip|Gaza]], compelling [[Hezbollah]] to surrender in [[Lebanon]], and collapsing the [[Bashar al-Assad|Assad]] regime in [[Syria]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:57:55) [[Nicholas J. Fuentes]] stated that during the 12-day war in June 2025, [[Israel]]'s demand for a ceasefire was prompted by the severe damage Iran's missile barrages were inflicting on the small [[country]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:59:40) [[Nicholas J. Fuentes]] reported that [[Benjamin Netanyahu|Bibi]] requested escalation on all fronts during his December 2025 meeting with [[Donald Trump]], specifically asking to restart war in [[Gaza Strip|Gaza]], restart operations in [[Lebanon]], and bomb Iran's missile platforms.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:03:15) [[Nicholas J. Fuentes]] stated that [[Israel]] claims Iran has fully replenished its ballistic missile stockpile since the June 2025 war and is preparing to attack.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:04:36) [[Nicholas J. Fuentes]] argued that [[Israel]]'s request for the [[United States]] to bomb Iran's missiles is a "bait and switch," as their true goal is not denuclearization or missile removal, but clearing the way to expand the war and achieve regime change.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:07:40) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] told [[Benjamin Netanyahu|Bibi]] that if Iran rebuilds its missiles, the [[United States]] will "look strongly" at bombing them, and that [[Donald Trump|Trump]] was not adamantly against expanding the war.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:08:18) [[The New York Times]] reported that the Iranian government is waging one of its deadliest crackdowns in over a decade, with government forces allegedly opening fire with automatic weapons on unarmed protesters.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:09:26) [[Nicholas J. Fuentes]] cited a report from [[Bari Weiss]]'s [[CBS News]] claiming that between 12,000 and 20,000 protesters have been killed in Iran, which he dismissed as atrocity propaganda.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:10:11) [[Nicholas J. Fuentes]] pointed out that the worst protests in Iran are occurring in Kurdish-majority areas in the [[west]] of the [[country]], suggesting that the [[Kurdistan|Kurds]] ethnically motivated aspirations for statehood are responsible for a disproportionate amount of the violence.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:11:50) [[Nicholas J. Fuentes]] argued that Western media's atrocity propaganda, combined with [[Elon Musk]]'s [[Elon Musk|SpaceX]] [[White House|Starlink]] satellites and [[Twitter|X]] platform, is being used by the [[Central Intelligence Agency|CIA]] and NGOs to foment, amplify, and create a pretext for the [[United States]] to intervene in Iran.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:14:10) [[Donald Trump]] announced a 25% tariff on any [[country]] doing business with Iran, targeting major trading partners like [[China]], [[Turkey]], the [[United Arab Emirates|Emirates]], [[Iraq]], and [[India]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:15:20) [[The New York Times]] reported that [[Donald Trump]] told Iranian protesters that "help is on the way," and that [[JD Vance]], [[Marco Rubio]], and other top advisors presented him with options for action ranging from diplomacy to military strikes.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:24:02) [[Nicholas J. Fuentes]] argued that the Iranian regime cannot be overthrown by protests, as it has a massive, well-armed, and loyal army that will kill protesters, and the uprising is "never going to overthrow the Islamic Republic."
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:25:55) [[Nicholas J. Fuentes]] speculated that the [[Donald Trump|Trump]] administration may bomb Iran's domestic security forces (the Basij) not to overthrow the regime, but to "mow the grass," degrade Iran's ability to defend itself, and create an "orchestrated escalation" towards a decisive confrontation.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:28:50) [[Nicholas J. Fuentes]] described Iran as a "hardened, fortified regime" with missiles stored in underground cities, and argued that defeating it would require a ground war, which he said would be an even greater undertaking than the wars against [[Hezbollah]] or [[Bashar al-Assad]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:30:10) [[Nicholas J. Fuentes]] argued that bombing Iran now would have the opposite of the intended effect, as it might rally the pro-regime forces, and that the [[United States]] lacks the necessary force package (including an aircraft carrier) to defend [[Israel]] and itself against a retaliatory missile barrage.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:32:35) [[The Jerusalem Post|The Times of Israel]] reported that [[Israel]] and Arab officials advised the [[Donald Trump|Trump]] administration to delay striking Iran, fearing that the regime is not yet sufficiently weak for an attack to topple it.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:33:00) [[NBC News]] reported that [[Israel]] proposed alternatives to a full military strike, such as assisting Iranians in getting around the communications shutdown, toughening economic sanctions, engaging in cyber attacks, or launching targeted strikes.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:34:00) [[Nicholas J. Fuentes]] predicted that the timeline for a [[United States|U.S]]. strike on Iran is likely the spring (March), as [[Israel]] and [[Donald Trump]] are conscious of the midterm election year and would want to take action before the summer.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:35:48) [[Nicholas J. Fuentes]] argued that [[JD Vance]] is "dying to become [[president]]" and is publicly distancing himself from the push for war with Iran in order to avoid owning it in the 2028 election.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:36:35) [[Washington Post|The Washington Post]] reported that [[JD Vance]] is lobbying against intervention in Iran and is concerned about boots on the ground.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:39:05) [[Nicholas J. Fuentes]] stated that he supports intervention in the [[United States|Americas]] ([[Country of Greenland|Greenland]], [[Panama]], [[Cuba]], [[Venezuela]]) under the Monroe Doctrine, but opposes intervention in Iran because it is on the other side of the planet and poses no threat to the [[United States]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:40:40) [[Nicholas J. Fuentes]] argued that [[Israel]] is undermining the potential for the [[United States]] to have a working relationship with Iran and that [[Israel]] must be restrained to prevent a "decisive military confrontation."
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:13:24) The [[United States]] bombed Iran when [[Nicholas J. Fuentes]] was going to visit [[Christine from Ohio]] in June of the prior year.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:08:55) [[Nicholas J. Fuentes]] stated that [[United States|America]] has sat back and watched [[Russian Federation|Russia]] invade [[Ukraine]], Iran invade other places, and [[China]] get ready to invade [[Taiwan]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:59:42) [[Nicholas J. Fuentes]] provided a timeline of events leading to the conflict with Iran, stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:00) [[Nicholas J. Fuentes]] argued that [[Israel]] was determined to elect a [[Republican Party|Republican]] in 2016 to scuttle the Iran nuclear deal.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:15) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the Islamic Revolutionary Guard Corps (IRGC), the military of the Iranian regime, a terrorist group.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:37) [[Nicholas J. Fuentes]] stated that the conflict with Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he described as the architect of the "axis of resistance" ([[Hamas]], [[Hezbollah]], the [[Houthis]]).
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:50) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the Iran situation with the nuclear deal, but [[Israel]] colluded with [[Donald Trump]] to get him elected, leading to a ladder of escalation that included withdrawing from the deal, declaring the IRGC terrorists, and killing [[Qasem Soleimani|Soleimani]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:02:18) [[Nicholas J. Fuentes]] characterized the conflict with Iran as a "forever war" that began in 2018, similar to those in [[Iraq]] (1990), [[State of Libya|Libya]] (2011), and [[Syria]] (2011).
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:21:17) [[Nicholas J. Fuentes]] stated that the "generational run" of his show gained traction in May and June 2025, not because of a major interview, but because of his accurate predictions regarding the [[Israel]]-Iran conflict.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:23:03) [[Nicholas J. Fuentes]] argued that his show's success stemmed from being "the only one" to predict that [[Donald Trump]] would be elected as the pro-[[Israel]] candidate and would take the [[United States]] to war with Iran.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:05:05) [[Nicholas J. Fuentes]] criticized the [[Donald Trump|Trump]] administration's first year, noting 330,000 deportations (below promises), bombing of multiple countries ([[Somalia]], [[Nigeria]], [[Venezuela]], Iran, [[Syria]], [[Yemen]]), continued war in [[Ukraine]], and a failure to release unredacted [[Jeffrey Epstein|Epstein]] files.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:09:00) [[Nicholas J. Fuentes]] stated that he would not vote for [[Donald Trump]] in 2024 without pledges not to bomb Iran and to enact an immigration moratorium, and that his refusal to vote for [[Donald Trump|Trump]] led to him being called a "shill plant."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(00:59:49) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the Iranian nuclear deal, with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict Iran's uranium enrichment.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:01:15) [[Nicholas J. Fuentes]] said that [[Donald Trump]] declared the Iranian Revolutionary Guard (IRGC) a terrorist [[organization]] in 2018.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:01:37) [[Nicholas J. Fuentes]] stated that the assassination of [[Qasem Soleimani]] in January 2020 culminated the shadow war between the [[United States]] and Iran.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(00:59:45) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], and the [[United Kingdom]] to restrict Iran's uranium enrichment, and that "the [[Israel|Israelis]] were furious."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:14) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the Iranian Revolutionary Guard (IRGC) a terrorist group.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:22) [[Nicholas J. Fuentes]] stated that the [[United States]] and Iran are in a "shadow war" that culminated in the January 2020 assassination of [[Qasem Soleimani]], whom he described as the architect of the axis of resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:02:15) [[Nicholas J. Fuentes]] characterized the conflict with Iran as one of the "forever wars," comparing it to the wars in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:07:03) [[Nicholas J. Fuentes]] repeated a prediction he made last year: that [[Donald Trump|Trump]] would go to "the [[American Israel Public Affairs Committee|Israel lobby]] and [[The Wall Street Journal|Wall Street]]," delivering tax cuts for [[The Wall Street Journal|Wall Street]], a war with Iran, and [[Israel]] getting the [[Gaza Strip|West Bank]], but not mass deportations or lower inflation.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:41:14) [[Nicholas J. Fuentes]] argued the [[time]] to call [[Donald Trump|Trump]] out was "when they needed your vote," pointing to [[Donald Trump|Trump]]'s comments a year ago about H1B visas and bombing Iran.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:53:55) [[Nicholas J. Fuentes]] stated a simple demand: "We do not want a war in Iran."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:00:23) [[Nicholas J. Fuentes]] traced the current situation to [[Barack Obama]]'s creation of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with Iran.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:02:11) [[Nicholas J. Fuentes]] stated that the [[United States|U.S]]. shadow war with Iran culminated in January 2020 in the assassination of [[Qasem Soleimani]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:02:59) [[Nicholas J. Fuentes]] stated that the nature of "forever wars" applies to [[Iraq]] (1990–today), [[State of Libya|Libya]] (2011–today), [[Syria]] (2011–today), and Iran (2018–today).
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:10:14) [[Nicholas J. Fuentes]] traced the current conflict to [[Barack Obama]]'s creation of the [[Joint Comprehensive Plan of Action|JCPOA]] with Iran.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:12:06) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] escalated the shadow war with Iran which culminated in the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:12:40) [[Nicholas J. Fuentes]] stated that the war with Iran has been going on for seven years since [[Donald Trump]] "made it hot" in 2018, and that this is the nature of "forever wars."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:22:25) [[Nicholas J. Fuentes]] reported that the [[United States]] seized an oil tanker headed from [[Venezuela]] to a destination that could be Iran or [[Cuba]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(00:59:53) [[Nicholas J. Fuentes]] began a historical analysis of how the [[United States]] reached its current conflict with Iran, starting with [[Barack Obama]]'s creation of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]).
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:00:10) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] together to enforce a nuclear deal restricting Iran's uranium enrichment.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:01:12) [[Nicholas J. Fuentes]] argued that [[Israel]] supported [[Donald Trump|Trump]]'s election to scuttle the [[Joint Comprehensive Plan of Action|JCPOA]], leading to the [[United States|U.S]]. withdrawal and escalation of a conflict with Iran.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:01:41) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]]'s declaration of the IRGC as a terrorist [[organization]] in 2018 and the subsequent assassination of [[Qasem Soleimani]] in 2020 were part of a "ladder of escalation" put the [[United States|U.S]]. into a "shadow war" with Iran.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:02:36) [[Nicholas J. Fuentes]] characterized the conflict with Iran as a "forever war," comparable to the ongoing conflicts in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:08:11) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] to restrict Iran's uranium enrichment, bringing in [[China]], [[Russian Federation|Russia]], [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:09:45) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] declared the IRGC a terrorist group in 2018 and assassinated [[Qasem Soleimani]] in 2020, starting a "shadow war" that has been ongoing for seven years.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:01:27:41) [[Nicholas J. Fuentes]] recounted that in 2018, [[Donald Trump]] declared the IRGC, the military of Iran, a terrorist group.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:01:44:81) [[Nicholas J. Fuentes]] stated that the shadow war with Iran culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he described as the architect of the axis of resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:02:28:53) [[Nicholas J. Fuentes]] described the conflict with Iran which started in 2018 as a "forever war" akin to those in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].

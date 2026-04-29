@@ -12,7 +12,7 @@
 (00:00:30) Bill de Blasio faced a massive protest outside his [[New York|New York City]] mansion from firefighters, police officers, and other [[city]] workers opposing one of the strictest vaccine mandates in the [[country]], which threatened termination or unpaid leave for thousands of unvaccinated employees.
 
 ### AF 2021-10-29 0903
-(00:48:48) [[New York|New York City]], under Mayor Bill de Blasio, implemented a sweeping vaccine mandate for all municipal workers without a testing opt-out, similar to policies in [[San Francisco Bay Area|San Francisco]], [[Los Angeles]], [[City of Chicago|Chicago]], [[Washington D.C.|Washington]], and [[Massachusetts]].
+(00:48:48) [[New York|New York City]], under Mayor Bill de Blasio, implemented a sweeping vaccine mandate for all municipal workers without a testing opt-out, similar to policies in [[San Francisco Bay Area|San Francisco]], [[Los Angeles]], [[Chicago]], [[Washington D.C.|Washington]], and [[Massachusetts]].
 
 ### AF 2021-10-29 0903
 (00:52:57) Bill de Blasio predicted that many [[New York|New York City]] workers would get vaccinated at the last minute, as happened with earlier mandates for healthcare and education employees, where vaccination rates eventually reached around 95%.

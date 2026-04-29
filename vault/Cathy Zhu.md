@@ -30,7 +30,7 @@
 (01:46:02) Cathy Zhu kept asking [[Nicholas J. Fuentes]] what it takes to be based and in Redfield instead of cringing Bluefield, but was resisting taking her "red pills."
 
 ### AF 2019-10-01 0470
-(01:12:66) Cathy Zhu debated Bernadine Barber on questions of female traditionalism at the Demand Free Speech event in [[City of Miami|Miami]].
+(01:12:66) Cathy Zhu debated Bernadine Barber on questions of female traditionalism at the Demand Free Speech event in [[Miami]].
 
 ### AF 2019-10-01 0470
 (01:21:48) [[Ashley St Claire|Ashley St. Clair]] was fired from [[Turning Point USA]] after being photographed at a party with [[Nicholas J. Fuentes]], Cathy Zhu, [[Timothy Gionet|Baked Alaska]], [[Steve Franson]], [[Ali Alexander]], and [[Jacob Wall]].
@@ -42,7 +42,7 @@
 (02:05:30) [[Brad Palumbo]] of [[The Washington Examiner]], [[who]] publicly identifies as a gay atheist, attacked Cathy Zhu and [[CJ Pearson]] for their comments.
 
 ### AF 2019-09-16 0462
-(00:46:30) [[Nicholas J. Fuentes]] promoted an upcoming debate event in [[City of Miami|Miami]] featuring himself debating [[Jacob Wohl]], with an undercard debate between Cathy Zhu and a nationalist woman named Bernadette.
+(00:46:30) [[Nicholas J. Fuentes]] promoted an upcoming debate event in [[Miami]] featuring himself debating [[Jacob Wohl]], with an undercard debate between Cathy Zhu and a nationalist woman named Bernadette.
 
 ### AF 2019-09-03 0453
 (00:09:14) Cathy Zhu, described as an "alt-light" figure, tweeted that one does not need to be traditional to believe in freedom and liberty, a statement [[Nicholas J. Fuentes]] used to criticize libertarian definitions of conservatism.

@@ -19,3 +19,6 @@
 
 ### AF 2021-04-01 0784
 (00:54:42) [[Nicholas J. Fuentes]] cited left-wing journalist [[Jared Holt]] claiming the media covered Ashli Babbitt's story by pointing to 118,000 [[Google]] news results, which [[Nicholas J. Fuentes]] contrasted with 1.42 million results for [[Breonna Taylor]], arguing this proved extreme media bias.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:35:04) [[Nicholas J. Fuentes]] compared the situation to Ashli Babbitt, stating that [[the left]] did not cry for her, and that Renee Good got exactly what she was looking for.

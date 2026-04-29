@@ -28,3 +28,6 @@
 
 ### AF 2018-11-20 0285
 (00:04:05) Greg Gutfeld formerly hosted the late-night program Red Eye on [[Fox News]], which occasionally featured [[Gavin McInnes]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:55:30) [[Nicholas J. Fuentes]] listed his broadcast influences: [[Bill O'Reilly]], Greg Gutfeld, [[John Stossel]], [[Samuel J. Hyde|Sam Hyde]], [[Donald Trump]], [[Alex Jones]], [[Gavin McInnes]], and [[Milton Friedman]].

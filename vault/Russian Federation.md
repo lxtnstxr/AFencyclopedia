@@ -257,3 +257,207 @@
 
 ### AF 2025-08-06 1546
 (00:04:56) [[Steve Wittkoff]] returned from a meeting with [[Vladimir Putin]] in [[Russian Federation|Russia]] this week, with both the [[White House]] and the Kremlin stating there was no major breakthrough in negotiations to end the war in [[Ukraine]].
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:37:11) [[Nicholas J. Fuentes]] stated that the [[Donald Trump|MAGA]] movement had not achieved key policy goals such as mass deportations, an infrastructure bill, a ban on [[Super PAC|Super PACs]], or a closer relationship with Russia.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:15.760) The [[United States]], under [[Barack Obama]], collaborated with [[China]], Russia, [[Germany]], [[France]], and the [[United Kingdom]], along with the [[European Union]], to implement a nuclear deal that restricted [[Iran]]'s uranium enrichment.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:53.820) [[James Bamford]]'s book *Spy Fail* contains an excerpt detailing hidden collusion between [[Donald Trump]] and [[Israel]] in the 2016 election, rather than collusion between [[Donald Trump]] and Russia.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:59:45.200) [[Donald Trump]] did not pardon the J6ers, put [[Hillary Clinton]] in jail, build the wall, make allies with Russia, or "put [[Israel]] in its place," failing to deliver on his promises.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:37:02.230) The potential redeployment of [[United States]] troops is controversial amidst Russia's war with [[Ukraine]], as [[North Atlantic Treaty Organization|NATO]] countries rely on these troops for protection against Russia.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:00:01) [[Barack Obama]] brought together [[China]], Russia, [[Germany]], [[France]], and the [[United Kingdom]] to enforce the nuclear deal that restricts [[Iran|Iran's]] enrichment of uranium.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:18:09) [[Donald Trump]] has no credibility with his threats, as shown by his past failures to follow through on ultimatums with Russia, [[China]], [[Greenland]], and [[North Korea]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:18:09) The [[United States]] is no longer a hyperpower or global hegemon and cannot pressure Russia, [[China]], or even middle powers like [[North Korea]] and [[Iran]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:00:01) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, which brought together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:00:51) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 with the help of [[Israel]] and cited an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail* about hidden collusion in the 2016 election, which he described as "[[Donald Trump|Trump]] and [[Israel]]," not "[[Donald Trump|Trump]] and Russia."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:00:51) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]] was elected in 2016 with the help of the [[Israel|Israelis]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election, which he claimed was between [[Donald Trump|Trump]] and [[Israel]], not [[Donald Trump|Trump]] and Russia.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:59:54.980) [[Nicholas J. Fuentes]] traced the origins of the conflict with [[Iran]] to [[Barack Obama]]'s creation of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:59:57.940) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to enforce the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:08:18:870) [[Nicholas J. Fuentes]] again stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]], bringing together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[United States]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(59:53:87) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, and brought together [[China]], Russia, [[Germany]], [[France]], and the [[United Kingdom]] to enforce it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:08:11:15) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal) by bringing together [[China]], Russia, [[Germany]], [[France]], and the [[United Kingdom]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:59:59) [[Barack Obama]] brought together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[United States]] and the [[European Union]] to enforce a nuclear deal that restricts [[Iran]]'s enrichment of uranium.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:17:12) The [[United States]] demanded that [[Iran]] give all of its enriched uranium to the [[United States]], not a third [[country]] like Russia.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:23) [[Nicholas J. Fuentes]] presented a timeline of [[United States|US]]-[[Iran]] relations, stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] with [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(59:53:64) [[Nicholas J. Fuentes]] stated that before the 2016 election, [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal), bringing together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[United States]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:53:34) [[Nicholas J. Fuentes]] argued that the [[United States]] does not want a ground war in the [[Middle East]] because of debt and other responsibilities including fighting Russia in [[Ukraine]] and planning to fight [[China]] in [[Taiwan]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:08:27.930) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to enforce a nuclear deal restricting [[Iran]]'s uranium enrichment.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:09:08.840) [[Nicholas J. Fuentes]] cited the book *Spy Fail* by [[James Bamford]], claiming it details hidden collusion in the 2016 election between [[Donald Trump]] and [[Israel]], not [[Donald Trump]] and Russia.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:00:06) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:05:52) [[Iran]] agreed to stop enriching uranium for three years and to forfeit its stockpile of highly enriched uranium to a third [[country]], likely Russia.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(00:58:28) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal), bringing together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[United States]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:58:02) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran|Iranian]] Nuclear Deal, which brought together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:58:54) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 with the help of [[Israel|Israelis]], citing an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail* that details "hidden collusion" in the 2016 election between [[Donald Trump|Trump]] and [[Israel]], not [[Donald Trump|Trump]] and Russia.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(59:57:00) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(59:53:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran]] Nuclear Deal, bringing together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:11:00) [[Nicholas J. Fuentes]] argued that the hidden collusion in the 2016 election was between [[Donald Trump]] and [[Israel]], not [[Donald Trump]] and Russia.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:08:11:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran]] Nuclear Deal, which brought together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:07:00) [[Nicholas J. Fuentes]] argued that the hidden collusion in the 2016 election was between [[Donald Trump]] and [[Israel]], not [[Donald Trump]] and Russia.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:09:59) [[Nicholas J. Fuentes]] described [[Candace Owens]]'s anti-[[United States|American]] rhetoric as "Russian propaganda" and "anti-Western propaganda."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(00:59:53) [[Nicholas J. Fuentes]] described a timeline of events leading to the [[United States|US]]-[[Iran]] conflict, beginning with [[Barack Obama]] creating the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:05) [[Nicholas J. Fuentes]] asserted that the collusion in the 2016 election was between [[Donald Trump|Trump]] and [[Israel]], not between [[Donald Trump|Trump]] and Russia.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:08:11) [[Nicholas J. Fuentes]] described the timeline beginning with [[Barack Obama]] creating the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:09:22) [[Nicholas J. Fuentes]] repeated the assertion that the collusion in the 2016 election was between [[Donald Trump|Trump]] and [[Israel]], not between [[Donald Trump|Trump]] and Russia.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:56:14.700) [[Nicholas J. Fuentes]] expressed suspicion about people hanging out in [[Saudi Arabia]], buying real estate in [[Qatar]], and living in [[Serbia]] and Russia while getting money from the [[U.S. Department of State|State Department]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:10:30.000) [[Nicholas J. Fuentes]] named [[Barack Obama]] as the creator of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[Iran]], [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[European Union]], and the [[United States]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:00:01) [[Nicholas J. Fuentes]] said that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, bringing together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:00) [[Nicholas J. Fuentes]] cited an excerpt from [[James Bamford]]'s book *Spy Fail* to argue that the hidden collusion in the 2016 election was between [[Donald Trump|Trump]] and [[Israel]], not [[Donald Trump|Trump]] and Russia.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:01:07) [[Nicholas J. Fuentes]] claimed that the collusion in the 2016 election was not between [[Donald Trump|Trump]] and Russia, but between [[Donald Trump|Trump]] and [[Israel]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:08:54) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] chickens out on everything, including trade with [[China]] and Russia, and his policies on [[Greenland]] and [[Europe]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(59:53:74) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, bringing together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:33:38:13) [[Jackson Hinkle]] lives in Russia and supports movements in [[Burkina Faso]] and [[Yemen]] that are anti-[[United States|American]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:35:10:60) [[Nicholas J. Fuentes]] declared that he is anti-mass migration, anti-[[Israel]], anti-[[Burkina Faso]], anti-Russia, anti-[[Iran]], anti-[[Venezuela]], and pro-[[United States|America]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:36:27:80) [[Nicholas J. Fuentes]] criticized [[Tucker Carlson]] for traveling to [[Qatar]], Russia, and [[Serbia]] instead of staying in [[United States|America]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:00:10) [[Barack Obama]] brought together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to enforce a nuclear deal restricting [[Iran]]'s enrichment of uranium.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:00:51:580) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] was elected in 2016 with the help of [[Israel]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election, which he claimed was between [[Donald Trump|Trump]] and [[Israel]], not Russia.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:01:21:560) [[Nicholas J. Fuentes]] stated that [[Joe Biden|Biden]] provoked Russia into a protracted war of attrition.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:43:00) [[Nicholas J. Fuentes]] asserted that Russia is "deeply influenced by the [[Jews]]," contradicting a viewer's claim that Russia is fighting the [[Jews]] in [[Ukraine]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(18:13:000) [[Nicholas J. Fuentes]] endorsed a policy of taking territory globally, citing Russia's actions in [[Ukraine]] and [[Israel]]'s expansions as examples.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(20:13:000) [[Nicholas J. Fuentes]] argued that the [[United States]] must own [[Country of Greenland|Greenland]] outright because there is "no substitute for ownership," as ownership ensures the [[U.S. Department of Defense|U.S. military]] will defend the territory against [[China]] and Russia.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(04:05:22) [[Nicholas J. Fuentes]] stated that he wants to marry a Russian girl because they "respect their husbands more."
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:00:16) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium, which made the [[Israel|Israelis]] “furious.”
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:00:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) alongside [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:08:55) [[Nicholas J. Fuentes]] stated that [[United States|America]] has sat back and watched Russia invade [[Ukraine]], [[Iran]] invade other places, and [[China]] get ready to invade [[Taiwan]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:59:42) [[Nicholas J. Fuentes]] provided a timeline of events leading to the conflict with [[Iran]], stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:00:45) [[Nicholas J. Fuentes]] asserted that the "hidden collusion" in the 2016 election, detailed in [[James Bamford]]'s book *Spy Fail*, was not between [[Donald Trump]] and Russia, but between [[Donald Trump]] and [[Israel]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(00:59:49) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, with [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s uranium enrichment.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(00:59:45) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], Russia, [[Germany]], [[France]], and the [[United Kingdom]] to restrict [[Iran]]'s uranium enrichment, and that "the [[Israel|Israelis]] were furious."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:00:59) [[Nicholas J. Fuentes]] claimed, citing [[James Bamford]]'s book *Spy Fail*, that the hidden collusion in the 2016 election was not between [[Donald Trump|Trump]] and Russia, but between [[Donald Trump|Trump]] and [[Israel]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:16:40) [[Nicholas J. Fuentes]] argued that the government has more important things to do, such as addressing the $38 trillion debt and wars with Russia and [[China]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:03:06) [[Nicholas J. Fuentes]] questioned [[Candace Owens]]'s obsession with [[France]] and her husband from the [[United Kingdom]], and [[Tucker Carlson]]'s statements that Russia is the [[United States|U.S]].'s closest ally.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:00:10) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]] together to enforce a nuclear deal restricting [[Iran]]'s uranium enrichment.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:00:52) [[Nicholas J. Fuentes]] asserted that [[Donald Trump|Trump]] was elected in 2016 with help from [[Israel]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about "hidden collusion" between [[Donald Trump|Trump]] and [[Israel]], not [[Donald Trump|Trump]] and Russia.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:08:11) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] to restrict [[Iran]]'s uranium enrichment, bringing in [[China]], Russia, [[Germany]], [[France]], the [[United Kingdom]], and the [[European Union]].

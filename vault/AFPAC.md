@@ -78,7 +78,7 @@
 (23:21:94) [[Nicholas J. Fuentes]] stated that in a speech at AFPAC, he said every [[person]] regardless of race should be treated with respect, dignity, and equal rights, and that he is against cruelty, prejudice, and discrimination.
 
 ### AF 2022-10-26 1086
-(22:15:34) [[Costin Alamariu|Bronze Age Pervert]] tried to sabotage the movement by telling people the 2019 Groypers Leadership Summit would be "[[City of Charlottesville|Charlottesville]] 2" and that AFPAC would be a disaster.
+(22:15:34) [[Costin Alamariu|Bronze Age Pervert]] tried to sabotage the movement by telling people the 2019 Groypers Leadership Summit would be "[[Charlottesville]] 2" and that AFPAC would be a disaster.
 
 ### AF 2022-10-21 1083
 (01:03:21:20) [[Nicholas J. Fuentes]] stated that the AIPAC is the most powerful lobbying group in the [[United States]], securing unanimous votes for foreign and military aid to [[Israel]].
@@ -99,7 +99,7 @@
 (00:58:00) [[Nicholas J. Fuentes]] argued that [[United States|U.S]]. foreign policy in the [[Middle East]] primarily served [[Israel]]'s interests rather than [[United States|American]] strategic goals, citing the influence of the AIPAC lobby and figures like [[Ben Shapiro]].
 
 ### AF 2022-06-17 1015
-(00:07:43) The event in [[City of Las Vegas|Las Vegas]] would screen the first two episodes of the documentary and premiere a third episode featuring footage from the AFPAC 3 conference.
+(00:07:43) The event in [[Las Vegas]] would screen the first two episodes of the documentary and premiere a third episode featuring footage from the AFPAC 3 conference.
 
 ### AF 2022-06-17 1015
 (00:18:59) [[Nicholas J. Fuentes]] stated that he got off the no-fly list, regained his financial standing, and organized events like AFPAC 2, [[White Boy Summer]], [[Vax Watch]], built [[Cozy.tv|Cozy TV]], and held AFPAC 3.
@@ -108,7 +108,7 @@
 (04:25:93) Congressional candidate [[Greg Raths]] stated that the AIPAC controls politicians in [[Washington D.C.|Washington, D.C.]], drawing condemnation from the [[Republican Jewish Coalition]].
 
 ### AF 2022-05-27 1003
-(09:07:65) [[Costin Alamariu|Bronze Age Pervert]] demanded [[Nicholas J. Fuentes]] cancel the AFPAC and [[Groyper]] Leadership Summit, warning it would be like [[City of Charlottesville|Charlottesville]] all over again.
+(09:07:65) [[Costin Alamariu|Bronze Age Pervert]] demanded [[Nicholas J. Fuentes]] cancel the AFPAC and [[Groyper]] Leadership Summit, warning it would be like [[Charlottesville]] all over again.
 
 ### AF 2022-05-27 1003
 (25:49:56) The *[[The New York Post|New York Post]]* described [[Greg Raths]]'s comments about the AIPAC as a "shocking diatribe against [[Jews]]."
@@ -138,7 +138,7 @@
 (04:29:01) [[Nicholas J. Fuentes]] predicted that within ten years, the AFPAC would be larger than [[Conservative Political Action Conference|CPAC]] because it represented the desires of the conservative base.
 
 ### AF 2022-03-08 0953
-(00:23:44) [[Nicholas J. Fuentes]] attended [[Kanye West]]'s "Donda 2" listening event in [[City of Miami|Miami]] with [[Hiding Magyar]] and [[Beardson Beardley]], describing it as the soundtrack for AFPAC 3.
+(00:23:44) [[Nicholas J. Fuentes]] attended [[Kanye West]]'s "Donda 2" listening event in [[Miami]] with [[Hiding Magyar]] and [[Beardson Beardley]], describing it as the soundtrack for AFPAC 3.
 
 ### AF 2022-03-08 0953
 (00:25:38) [[Nicholas J. Fuentes]] stated that AFPAC 3 attracted over 1200 people and nine government officials, including [[Marjorie Taylor Greene]], at the [[Marriott World Center]] in [[Orlando]].
@@ -168,7 +168,7 @@
 (00:37:12) [[Nicholas J. Fuentes]] claimed people attend [[Turning Point USA]] events to hook up, get drunk, or find jobs, while people attend AFPAC for camaraderie and to express support for [[United States|America]] and [[God]].
 
 ### AF 2022-03-08 0953
-(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended AFPAC 3 and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
+(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended AFPAC 3 and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
 
 ### AF 2022-03-08 0953
 (00:40:54) [[Nicholas J. Fuentes]] referenced journalist [[Jared Holt]], who wrote articles asking why the [[Republican Party]] would not disavow AFPAC.
@@ -213,7 +213,7 @@
 (01:10:10) [[Nicholas J. Fuentes]] announced that former [[Joe Biden|White House]] official [[Garrett Ziegler]], [[known]] for his work on the [[Hunter Biden]] laptop story, would be a special guest at AFPAC 3.
 
 ### AF 2022-02-18 0949
-(01:14:10) [[Nicholas J. Fuentes]] stated that ticket sales for the AFPAC 3 conference in [[City of Orlando|Orlando]], [[State of Florida|Florida]] would close the following day.
+(01:14:10) [[Nicholas J. Fuentes]] stated that ticket sales for the AFPAC 3 conference in [[Orlando]], [[State of Florida|Florida]] would close the following day.
 
 ### AF 2022-02-10 0944
 (00:04:26) [[Nicholas J. Fuentes]] announced that AFPAC 3 tickets were back on sale and that the event was being expanded to accommodate over a thousand people.
@@ -258,7 +258,7 @@
 (02:10:11) [[Nicholas J. Fuentes]] concluded the show by reminding viewers that tickets for AFPAC were on sale at AFPAC.events, were selling fast, and were more than halfway gone.
 
 ### AF 2022-01-06 0930
-(03:43:82) [[Nicholas J. Fuentes]] announced that tickets for his event AFPAC 3 were on sale for February 25th in [[City of Orlando|Orlando]], [[State of Florida|Florida]], and were nearly halfway sold out.
+(03:43:82) [[Nicholas J. Fuentes]] announced that tickets for his event AFPAC 3 were on sale for February 25th in [[Orlando]], [[State of Florida|Florida]], and were nearly halfway sold out.
 
 ### AF 2022-01-06 0930
 (05:47:68) [[Nicholas J. Fuentes]] recalled that AFPAC 2 featured a sitting congressman and was considered professional and large by attendees.
@@ -270,7 +270,7 @@
 (02:28:09) [[Nicholas J. Fuentes]] concluded the show by wishing everyone a happy [[January 6th Attack|January 6th]], directing them to get AFPAC tickets at afpac.events, and stating he would be on air Monday through Friday.
 
 ### AF 2022-01-03 0927
-(00:07:06) [[Nicholas J. Fuentes]] announced that tickets for AFPAC 3 were on sale for an event in [[City of Orlando|Orlando]], [[State of Florida|Florida]] on February 25th.
+(00:07:06) [[Nicholas J. Fuentes]] announced that tickets for AFPAC 3 were on sale for an event in [[Orlando]], [[State of Florida|Florida]] on February 25th.
 
 ### AF 2022-01-03 0927
 (00:07:29) [[Nicholas J. Fuentes]] listed [[Paul Gosar]], [[Steven King|Steve King]], [[Michelle Malkin]], [[Jonathan Miller|John Miller]], [[Vince James]], [[Bryson Gray]], [[Beardson Beardley]], and [[Laura Loomer]] as attendees of the previous AFPAC conference.
@@ -315,7 +315,7 @@
 (01:23:34:670) A viewer's mother offered to paint a portrait featuring [[Nicholas J. Fuentes]], [[Michelle]], and [[Vince]] from the AFPAC event.
 
 ### AF 2021-06-15 0829
-(03:08:05) [[Nicholas J. Fuentes]] discussed [[Patrick Casey]], founder of [[Identity Evropa]] and [[American Identity Movement]], expressing uncertainty about his background and noting it was suspicious that Casey did not disclose his impending court date related to [[City of Charlottesville|Charlottesville]] before inserting himself into AFPAC and [[Nicholas J. Fuentes|Groyper]] events.
+(03:08:05) [[Nicholas J. Fuentes]] discussed [[Patrick Casey]], founder of [[Identity Evropa]] and [[American Identity Movement]], expressing uncertainty about his background and noting it was suspicious that Casey did not disclose his impending court date related to [[Charlottesville]] before inserting himself into AFPAC and [[Nicholas J. Fuentes|Groyper]] events.
 
 ### AF 2021-05-25 0816
 (00:58:34) AIPAC has argued that spying on [[United States|America]] by [[Israel]] is beneficial.
@@ -366,7 +366,7 @@
 (01:47:51) [[Nicholas J. Fuentes]] defended the decision to hold AFPAC, a ticketed private political event in a conservative state, arguing that similar events like [[Conservative Political Action Conference|CPAC]] and a public speech by [[Vince James]] had proceeded without incident, and that overblown fears of government raids were unrealistic.
 
 ### AF 2021-02-10 0759
-(07:01:22) [[Nicholas J. Fuentes]] promoted the upcoming AFPAC conference scheduled for February 26th in [[City of Orlando|Orlando]], [[State of Florida|Florida]], noting tickets were effectively sold out and sales were conducted via mail using only cash and checks.
+(07:01:22) [[Nicholas J. Fuentes]] promoted the upcoming AFPAC conference scheduled for February 26th in [[Orlando]], [[State of Florida|Florida]], noting tickets were effectively sold out and sales were conducted via mail using only cash and checks.
 
 ### AF 2021-02-10 0759
 (08:16:36) [[Nicholas J. Fuentes]] announced that AFPAC would have security ten times more intense than the previous year's event, held in a larger venue designed to resemble a major political conference like [[Conservative Political Action Conference|CPAC]].
@@ -378,7 +378,7 @@
 (12:14:86) [[Nicholas J. Fuentes]] worked with an assistant referred to as "assistant Grueper" to organize AFPAC, which was shaping up to have the trappings of a major political conference with a substantial speaker lineup.
 
 ### AF 2021-02-09 0758
-(01:00:00) [[Nicholas J. Fuentes]] promoted the second annual AFPAC conference, noting that tickets were selling quickly for the event in [[City of Orlando|Orlando]] and that payment was being accepted only via cash or check for attendee security.
+(01:00:00) [[Nicholas J. Fuentes]] promoted the second annual AFPAC conference, noting that tickets were selling quickly for the event in [[Orlando]] and that payment was being accepted only via cash or check for attendee security.
 
 ### AF 2021-02-09 0758
 (01:05:00) [[Nicholas J. Fuentes]] argued that the AIPAC-aligned [[Republican Party|Republican]] senators who voted to proceed with the impeachment of [[Donald Trump]] did so to maintain leverage over him and to protect [[Israel]]-related interests.
@@ -387,7 +387,7 @@
 (05:06:00) [[Nicholas J. Fuentes]] accused the AIPAC-aligned [[United States|American]] media, [[U.S. Department of State|State Department]], [[Joe Biden|Biden]] administration, and social media proxies of hypocrisy for condemning political dissidents in countries like [[Venezuela]], [[Russia]], [[China]], [[Belarus]], and [[Iran]] while persecuting dissidents at home.
 
 ### AF 2021-01-29 0751
-(04:15:00) [[Nicholas J. Fuentes]] stated that the [[Atlantic Council]] is funded by the [[U.S. Department of Defense|Department of Defense]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], [[Bank of America Corporation|Bank of America]], [[Pfizer]], AIPAC, the [[Europe|European Union]], [[JPMorgan Chase & Co.|JPMorgan Chase]], [[Israel]], and the [[United Arab Emirates]].
+(04:15:00) [[Nicholas J. Fuentes]] stated that the [[Atlantic Council]] is funded by the [[U.S. Department of Defense|Department of Defense]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], [[Bank of America Corporation|Bank of America]], [[Pfizer]], AIPAC, the [[European Union]], [[JPMorgan Chase & Co.|JPMorgan Chase]], [[Israel]], and the [[United Arab Emirates]].
 
 ### AF 2021-01-29 0751
 (04:44:20) [[Nicholas J. Fuentes]] compared the taboo around discussing hedge fund collusion in the [[GameStop]] saga to the taboo around discussing collusion by [[Jews|Jewish]] groups like the [[Zionist Organization of America|ZOA]] and AIPAC, arguing that both are glaringly obvious yet met with gaslighting and accusations of extremism.
@@ -441,7 +441,7 @@
 (02:03:58) [[Nicholas J. Fuentes]] paid respects to [[Spencer Sims]], a [[black]] conservative he met at a [[Turning Point USA]] conference and at AFPAC, [[who]] died in a car accident, noting Sims was devout, civil, and had invited him to be on his podcast.
 
 ### AF 2020-09-16 0682
-(08:25:380) Following the [[City of Miami|Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[City of Phoenix|Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended AFPAC.
+(08:25:380) Following the [[Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended AFPAC.
 
 ### AF 2020-08-24 0668
 (02:02:04) [[Nicholas J. Fuentes]] noted that both [[Joe Biden]] and [[Kamala Harris]] were also Zionists [[who]] had spoken at AIPAC events.
@@ -453,7 +453,7 @@
 (00:45:46) [[Nicholas J. Fuentes]] characterized organized [[Jews|Jewish]] advocacy groups, [[Black Lives Matter]], [[La Raza]], and the [[Council on American-Islamic Relations]] as "ethnic lobbies," and criticized [[Fox News]] commentators for discussing the latter but not groups like AIPAC, the [[Anti-Defamation League|ADL]], or the [[Southern Poverty Law Center|SPLC]].
 
 ### AF 2020-07-17 0643
-(01:47:44) [[Nicholas J. Fuentes]] accused the writer "BAP" of sabotaging the [[Groyper]] Leadership Summit and AFPAC events by spreading lies and "blood libel" that they would be disastrous, [[City of Charlottesville|Charlottesville]]-like events leading to ruined lives, despite no such consequences occurring.
+(01:47:44) [[Nicholas J. Fuentes]] accused the writer "BAP" of sabotaging the [[Groyper]] Leadership Summit and AFPAC events by spreading lies and "blood libel" that they would be disastrous, [[Charlottesville]]-like events leading to ruined lives, despite no such consequences occurring.
 
 ### AF 2020-07-17 0643
 (01:48:56) [[Nicholas J. Fuentes]] defended the security protocols for his in-[[person]] events, stating that the [[Groyper]] Leadership Summit involved a small, vetted group of [[known]] individuals and that subsequent events like AFPAC also protected attendees, with the only leak possibly coming from a stream backdrop.
@@ -507,7 +507,7 @@
 (03:32:50) [[Nicholas J. Fuentes]] described a series of minor misfortunes he experienced, including a broken suitcase at AFPAC, a broken elevator at his hotel, and a leaky cup at [[Portillo's]], which he jokingly attributed to a personal curse.
 
 ### AF 2020-03-02 0555
-(01:07:14:62) Supporters of [[Joe Biden]] argued that [[Bernie Sanders]] would be a weaker general election candidate because his radical policy proposals, like [[Health and Human Services|Medicare]] for All, would scare away moderates and seniors.(01:15:24) [[Nicholas J. Fuentes]] met an attendee [[known]] as [[Minnesota]] [[Groyper]] at the AFPAC event and again at Harry's bar in [[Washington D.C.|Washington, D.C.]].
+(01:07:14:62) Supporters of [[Joe Biden]] argued that [[Bernie Sanders]] would be a weaker general election candidate because his radical policy proposals, like [[Medicare]] for All, would scare away moderates and seniors.(01:15:24) [[Nicholas J. Fuentes]] met an attendee [[known]] as [[Minnesota]] [[Groyper]] at the AFPAC event and again at Harry's bar in [[Washington D.C.|Washington, D.C.]].
 
 ### AF 2020-03-02 0555
 (01:16:08) [[Nicholas J. Fuentes]] stated that the AFPAC event "manhandled the [[Washington D.C.|DC]] ecosystem" and that approximately 40 Groypers occupied the [[Gaylord National Resort|National Harbor]] and the [[Gaylord National Resort|Gaylord Hotel]].
@@ -630,7 +630,7 @@
 (03:11:760) [[Nicholas J. Fuentes]] dismissed a conspiracy theory that Representatives [[Ilhan Omar]] and [[Rashida Tlaib]] are controlled opposition for AIPAC, arguing it makes no strategic sense.
 
 ### AF 2019-08-14 0440
-(03:00:00) [[Nicholas J. Fuentes]] listed [[Ben Shapiro]], AIPAC, [[Charlie Kirk]], and [[Mike Johnson|Kevin McCarthy]] as figures [[who]] demonstrate public support for [[Israel]].
+(03:00:00) [[Nicholas J. Fuentes]] listed [[Ben Shapiro]], AIPAC, [[Charlie Kirk]], and [[Kevin McCarthy]] as figures [[who]] demonstrate public support for [[Israel]].
 
 ### AF 2019-07-23 0425
 (00:01:36) [[Donald Trump|Trump]]'s administration planned to deport 2,000 people across 10 cities in a major [[U.S. Immigration and Customs Enforcement|ICE]] operation, but the action was delayed for two weeks pending a congressional immigration deal. (00:02:20) The delayed [[U.S. Immigration and Customs Enforcement|ICE]] raids ultimately resulted in the deportation of only 35 people, a fraction of the initial 2,000-[[person]] [[target]]. (00:04:03) [[Donald Trump|Trump]]'s administration had built only 1.7 miles of new border wall, according to internal figures, a number later contested. (00:04:29) A report from the [[Washington Examiner]] claimed the [[Donald Trump|Trump]] administration had built zero miles of new border wall on previously unfenced parts of the [[United States]]-[[Mexico]] border, with all construction merely replacing existing barriers. (00:05:09) [[Nicholas J. Fuentes]] argued that [[United States]] involvement in the [[Middle East]], including the [[Iraq]] war, intervention in [[Libya]], and the conflict in [[Yemen]], was driven by the influence of [[Israel]] and the Israel lobby. (00:06:16) [[Iran]] was accused by the [[United States]] of destroying a Norwegian chemical tanker and a [[State of Japan|Japanese]] oil tanker in the [[Strait of Hormuz]] or the [[Gulf of Oman]]. (00:06:50) [[Iran]] shot down an [[United States|American]] unmanned drone, which [[Iran]] claimed was violating its airspace, while the [[United States]] stated the drone was on a surveillance mission. (00:07:12) [[Iran]] seized a [[United Kingdom|British]] tanker in the [[Strait of Hormuz]] and claimed it would execute 17 alleged [[Central Intelligence Agency|CIA]] members. (00:08:22) The [[United Kingdom]] seized an [[Iran|Iranian]] tanker, the Grace One, off [[Gibraltar]] for allegedly exporting oil to [[Syria]] in violation of [[EU]] sanctions, prompting [[Iran]]'s retaliatory seizure of the [[United Kingdom|British]] tanker Stena Impero. (00:08:48) [[United States]] [[U.S. Department of Defense|Navy]] ship [[USS Boxer]] took defensive action and reportedly shot down one, and possibly two, [[Iran|Iranian]] unmanned drones in the [[Strait of Hormuz]] after the aircraft threatened the vessel, though [[Iran]] denied losing any drones. (00:09:47) [[Iran]]'s Ministry of Intelligence claimed to have detained 17 [[Iran|Iranian]] citizens accused of working for the [[Central Intelligence Agency|CIA]], with some facing execution for allegedly collecting intelligence in sensitive economic, nuclear, infrastructural, military, and cyber areas. (00:10:20) [[Donald Trump|Trump]] refuted [[Iran]]'s claim of capturing [[Central Intelligence Agency|CIA]] spies in a tweet, calling the report "totally false" and part of a propaganda campaign by a "religious regime that is badly failing." (00:10:50) [[Nicholas J. Fuentes]] stated that [[Israel]] was trying to drive the [[United States]] into a war with [[Iran]], a conflict he argued was not in [[United States|American]] interests. (00:11:40) [[Boris Johnson]] was selected as the new Prime Minister of the [[United Kingdom]], succeeding [[Theresa May]], with many drawing comparisons between his populist, unconventional style and that of [[Donald Trump|Trump]]. (00:12:46) The [[United Kingdom]]'s [[Royal Navy]] was reportedly struggling to counter [[Iran]]'s naval power in the [[Persian Gulf]], highlighting the [[country]]'s diminished ability to project military force. (00:14:02) [[Twitter]] underwent its first website redesign in seven years, a change widely criticized by users including [[Nicholas J. Fuentes]]. (00:14:41) An article from [[Twitter]].com highlighted "three women" as the designers behind the platform's controversial new redesign. (00:17:14) [[Donald Trump|Trump]] pulled the [[United States]] out of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|Iran nuclear deal]]) in May 2018, seeking a more comprehensive agreement covering [[Iran]]'s nuclear program, missile development, and support for militias across the [[Middle East]]. (00:18:26) The [[Donald Trump|Trump]] administration imposed sanctions on [[Iran]]'s economy after withdrawing from the nuclear deal but allowed [[Iran]] to export oil under temporary waivers for approximately a year to keep global oil prices low. (00:18:57) The [[Donald Trump|Trump]] administration withdrew waivers allowing [[Iran]] to export oil in May 2019, subjecting all [[Iran]]ian oil to sanctions and escalating tensions. (00:19:09) Two tankers, a Norwegian chemical tanker and a [[State of Japan|Japanese]] oil tanker, were attacked with torpedoes in the [[Gulf of Oman]] and the [[Strait of Hormuz]] in an incident the [[United States]] blamed on [[Iran]]. (00:19:26) [[Michael Pompeo|Mike Pompeo]] asserted that only [[Iran]] among [[United States|America]]'s enemies had the capability to carry out the tanker attacks, dismissing other potential actors. (00:20:03) [[Iran]] shot down an unmanned [[United States|American]] drone over the [[Persian Gulf]], which the [[United States]] had deployed in response to the tanker attacks. (00:20:20) [[Donald Trump|Trump]] authorized and then called off a major bombing raid targeting [[Iran]]ian nuclear infrastructure in retaliation for the downing of the [[United States|American]] drone, pulling back at the last minute. (00:21:11) [[Iran]]'s seizure of the [[United Kingdom|British]] tanker Stena Impero was a direct retaliation for the [[United Kingdom]]'s seizure of the [[Iran]]ian tanker Grace One two weeks prior. (00:21:18) [[Iran]]'s foreign minister stated that [[Iran]] did not want a confrontation with the [[United Kingdom]] and suggested the [[United States]] had ordered the seizure of the [[Iran]]ian tanker. (00:23:30) [[Donald Trump|Trump]] dismissed [[Iran]]'s claim of capturing [[Central Intelligence Agency|CIA]] spies as "totally false" and part of a propaganda campaign by a failing regime, while also declaring [[Iran]]'s economy "dead." (00:36:20) [[Nicholas J. Fuentes]] concluded that wars in the [[Middle East]] were fought for [[Israel]] and benefited the military-industrial complex. (00:37:16) [[U.S. Immigration and Customs Enforcement|ICE]] arrested only 35 people as part of a highly publicized operation targeting families with deportation orders, far short of the 2,000 migrants originally touted by [[Donald Trump|Trump]]. (00:37:52) [[Donald Trump|Trump]] had claimed the enforcement operation would take people out "by the thousands" and later called the raid, which netted 35 deportations, "very successful." (00:40:58) A new [[Gallup]] poll found that 27% of registered voters considered immigration their top concern, the highest such figure for any issue in the poll's history. (00:41:48) The [[Donald Trump|Trump]] administration failed to install a single mile of new wall on previously unfenced sections of the [[United States]]-[[Mexico]] border in its first 30 months, according to a report from the [[Washington Examiner]]. (00:42:18) [[Customs and Border Protection|U.S. Customs and Border Protection]] confirmed that all fencing completed since [[Donald Trump|Trump]] took office replaced existing, dilapidated barriers, with no new wall built in areas that previously had none. (00:45:20) A friend of [[Nicholas J. Fuentes]] from [[Washington D.C.|Washington, D.C.]] [[who]] worked on the [[Donald Trump|Trump]] campaign noted that unconventional, paradigm-shifting candidates like [[Donald Trump|Trump]] typically only change the political conversation and rarely win election, making [[Donald Trump|Trump]]'s victory the most difficult hurdle. (00:46:28) [[Nicholas J. Fuentes]] campaigned for [[Donald Trump|Trump]] in [[New Hampshire]] the day after the "Access [[Los Angeles|Hollywood]]" tape leaked, facing heckling from voters [[who]] called [[Donald Trump|Trump]] a rapist. (00:47:08) [[Nicholas J. Fuentes]] argued that the only lasting achievements of the [[Donald Trump|Trump]] administration would be a corporate tax cut and the elimination of the individual mandate from the [[Affordable Care Act (Obamacare)]], with no progress on the border wall or mass deportations.
@@ -645,13 +645,13 @@
 (23:30:00) [[John Bolton]] stated at an AIPAC event that the [[United States]] would be in [[Tehran]] by the end of 2018.
 
 ### AF 2019-05-24 0394
-(00:40:50) [[E. Michael Jones]] described [[Benjamin Netanyahu|Bibi Netanyahu]]'s speeches to [[United States Capitol|U.S. Congress]], where he received standing ovations from lawmakers [[who]] take AIPAC money and fear being primaried if they do not comply.
+(00:40:50) [[E. Michael Jones]] described [[Benjamin Netanyahu|Bibi Netanyahu]]'s speeches to [[U.S. Congress]], where he received standing ovations from lawmakers [[who]] take AIPAC money and fear being primaried if they do not comply.
 
 ### AF 2019-04-10 0364
 (01:25:38) [[Israel]] has been accused of stealing military technology and intelligence from the [[United States]] and manipulating [[United States|American]] politics through NGOs and lobbying groups like AIPAC, the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]].
 
 ### AF 2019-04-09 0363
-(41:13:94) [[Donald Trump]]'s pro-[[Israel]] actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[Israeli sovereignty over the Golan Heights]], affirming foreign aid, attacking Congresswoman [[Ilhan Omar]], and attending the AIPAC conference.
+(41:13:94) [[Donald Trump]]'s pro-[[Israel]] actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], recognizing [[Israeli sovereignty over the Golan Heights]], affirming foreign aid, attacking Congresswoman [[Ilhan Omar]], and attending the AIPAC conference.
 
 ### AF 2019-04-08 0362
 (00:54:54) An attendee using the name "Puppet pal" asked [[Nicholas J. Fuentes]] if he was trying to sneak into AIPAC but was "dummy thick."
@@ -705,7 +705,7 @@
 (30:58:09) Congresswoman [[Ilhan Omar]] stated that AIPAC basically controls [[Congress]], which [[Nicholas J. Fuentes]] cited as evidence of foreign influence.
 
 ### AF 2019-02-14 0332
-(31:14:31) [[Nicholas J. Fuentes]] noted that Congressional leaders [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Nancy Pelosi]], and [[Chuck Schumer]] demanded an apology from [[Ilhan Omar]] for her comments about AIPAC.
+(31:14:31) [[Nicholas J. Fuentes]] noted that Congressional leaders [[Kevin McCarthy]], [[Mitch McConnell]], [[Nancy Pelosi]], and [[Chuck Schumer]] demanded an apology from [[Ilhan Omar]] for her comments about AIPAC.
 
 ### AF 2019-02-14 0332
 (41:08:45) [[Nicholas J. Fuentes]] argued that organizations like AIPAC had bought [[Congress]] to control [[United States|U.S]]. foreign policy.
@@ -720,7 +720,7 @@
 (01:24:20) [[Matt Brooks]], leader of the [[Republican Jewish Coalition]], publicly challenged [[Nancy Pelosi]] and [[Steny Hoyer]] to respond to [[Ilhan Omar]]'s comments, noting Hoyer's leadership of many AIPAC trips to [[Israel]].
 
 ### AF 2019-02-11 0329
-(01:28:40) [[Nicholas J. Fuentes]] stated that two-thirds of the [[United States Capitol|U.S. Congress]] attends the annual AIPAC conference in [[Washington D.C.|Washington, D.C.]], with speakers including [[Nancy Pelosi]], [[Chuck Schumer]], [[Mitch McConnell]], and [[Marco Rubio]].
+(01:28:40) [[Nicholas J. Fuentes]] stated that two-thirds of the [[U.S. Congress]] attends the annual AIPAC conference in [[Washington D.C.|Washington, D.C.]], with speakers including [[Nancy Pelosi]], [[Chuck Schumer]], [[Mitch McConnell]], and [[Marco Rubio]].
 
 ### AF 2019-02-11 0329
 (01:29:20) The [[U.S. Senate]] passed the Combating [[BDS]] Act, sponsored by AIPAC, with a 77-vote supermajority, making it illegal for companies with federal contracts to boycott [[Israel]].
@@ -792,7 +792,7 @@
 (00:27:34) [[Nicholas J. Fuentes]] argued that the influence of the AIPAC, which two-thirds of [[Congress]] attends annually, explains why the [[United States]] continues to fund [[Israel]] despite receiving poor intelligence.
 
 ### AF 2017-12-07 0066
-(02:00:57) [[Nicholas J. Fuentes]] suggested [[Donald Trump]]'s announcement about moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]] may have been a concession to AIPAC lobbying, possibly influenced by donor [[Sheldon Adelson]], in exchange for support on tax reform.
+(02:00:57) [[Nicholas J. Fuentes]] suggested [[Donald Trump]]'s announcement about moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]] may have been a concession to AIPAC lobbying, possibly influenced by donor [[Sheldon Adelson]], in exchange for support on tax reform.
 
 ### AF 2017-11-17 0053
 (01:19:37) [[Nicholas J. Fuentes]] praised [[Tucker Carlson]] for mentioning [[George Soros|Soros]]ism and the Israel lobby on [[Fox News]], calling it "God's work" and great optics.

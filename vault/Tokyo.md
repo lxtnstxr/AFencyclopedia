@@ -9,7 +9,7 @@
 (00:12:00) [[Nicholas J. Fuentes]] began analyzing a [[Michael Bloomberg|Bloomberg]] article which reported that Tokyo is becoming more ethnically diverse due to increased immigration and tourism, a trend the article framed as a positive development.
 
 ### AF 2019-05-27 0395
-(00:16:20) [[Nicholas J. Fuentes]] characterized the [[Michael Bloomberg|Bloomberg]] article's celebratory tone towards Tokyo's increasing diversity as a "perverse and sick mentality" held by rootless cosmopolitans [[who]] want every [[city]] to resemble [[New York|New York City]] or [[City of London|London]].
+(00:16:20) [[Nicholas J. Fuentes]] characterized the [[Michael Bloomberg|Bloomberg]] article's celebratory tone towards Tokyo's increasing diversity as a "perverse and sick mentality" held by rootless cosmopolitans [[who]] want every [[city]] to resemble [[New York|New York City]] or [[London]].
 
 ### AF 2017-09-29 0021
 (00:02:57) The guest argued that a [[United States|U.S]]. first strike on [[North Korea]] would risk nuclear retaliation against [[Seoul]], Tokyo, and [[U.S. Department of Defense|U.S. military]] bases in [[South Korea]] and [[State of Japan|Japan]], as [[North Korea]] possesses nuclear weapons and ballistic missiles.

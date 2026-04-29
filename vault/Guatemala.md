@@ -108,7 +108,7 @@
 (02:10:46) [[Donald Trump]] tweeted that [[Mexico]], [[Honduras]], Guatemala, and [[El Salvador]] were doing nothing to stop the flow of illegal immigrants to the [[United States]], blaming them and the [[Democratic Party|Democrats]].
 
 ### AF 2019-01-23 0316
-(00:21:59) [[Donald Trump]] formally recognized [[Venezuela|Venezuelan]] opposition leader Juan Guaidó as the rightful interim president of [[Venezuela]], a move also supported by [[Paraguay]], [[Brazil]], [[Chile]], [[Peru]], [[Ecuador]], [[Columbia|Colombia]], [[Argentina]], [[Costa Rica]], Guatemala, and [[Dominion of Canada|Canada]].
+(00:21:59) [[Donald Trump]] formally recognized [[Venezuela|Venezuelan]] opposition leader Juan Guaidó as the rightful interim president of [[Venezuela]], a move also supported by [[Paraguay]], [[Brazil]], [[Chile]], [[Peru]], [[Ecuador]], [[Colombia]], [[Argentina]], [[Costa Rica]], Guatemala, and [[Dominion of Canada|Canada]].
 
 ### AF 2018-10-19 0265
 (00:01:38) The Mexican federal police deployed two airplanes of soldiers to the border with Guatemala to prevent approximately four thousand Honduran migrants from entering [[Mexico]].

@@ -112,3 +112,12 @@
 
 ### AF 2018-03-16 0126
 (02:54:80) [[Nicholas J. Fuentes]] described academia as a "cathedral" that sets societal tone, forming a direct pipeline through top universities like [[Princeton University|Princeton]], [[Harvard University|Harvard]], and Yale to think tanks and [[Washington D.C.|Washington, D.C.]], where legislation is ultimately written.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:05:38) [[JD Vance]] considered his meeting with [[Peter Thiel]] while at Yale University to be the most important meeting of his lifetime.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:08:27) [[Nicholas J. Fuentes]] pointed out that [[Tucker Carlson|Tucker]]'s dad was in the [[Central Intelligence Agency|CIA]], [[Joe Kent]] is in the [[Central Intelligence Agency|CIA]], [[Peter Thiel]] is a [[Central Intelligence Agency|CIA]] contractor, and that [[JD Vance]] was recruited out of Yale Law School, a recruiting ground for the [[Central Intelligence Agency|CIA]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:59:00) [[Nicholas J. Fuentes]] stated that [[Jeffrey Epstein]] knew business leaders and government officials in [[Israel]], the [[United Kingdom]], and the [[United States]], including people at [[JPMorgan Chase & Co.|JP Morgan]], Yale University, and individuals such as [[Reid Hoffman]], [[Peter Thiel]], and [[Marc Andreessen]].

@@ -32,7 +32,7 @@
 (01:10:00) Journalists asserted that [[Donald Trump]] had created a culture of attacking the press, which they linked to the violence in Annapolis.
 
 ### AF 2018-06-28 0190
-(01:59:33) A viewer noted there was a mass casualty drill in Annapolis a few days before the shooting, drawing a parallel to the [[City of Parkland|Parkland]] shooting, which occurred on a day with a planned active shooter drill.
+(01:59:33) A viewer noted there was a mass casualty drill in Annapolis a few days before the shooting, drawing a parallel to the [[Parkland]] shooting, which occurred on a day with a planned active shooter drill.
 
 ### AF 2018-06-28 0190
 (01:02:59) A viewer joked that [[Lena Dunham]] was working as a journalist in Annapolis and had put [[Samuel J. Hyde|Sam Hyde]] in a defensive situation.

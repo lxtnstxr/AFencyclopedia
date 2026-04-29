@@ -12,10 +12,10 @@
 (02:03:54) [[Nicholas J. Fuentes]] recounted that when he asked Kathy Zhu about her ethnicity, she expressed a strong sense of [[China|Chinese]] racial supremacy, disparaging Japanese and [[Southern United States|South]] Koreans, which he found intriguing.
 
 ### AF 2021-05-10 0808
-(01:25:00) [[Nicholas J. Fuentes]] stated that Kathy Zhu had expressed interest in him during an event in [[City of Miami|Miami]] but was upset when he said he would only date someone white because he wanted white children.
+(01:25:00) [[Nicholas J. Fuentes]] stated that Kathy Zhu had expressed interest in him during an event in [[Miami]] but was upset when he said he would only date someone white because he wanted white children.
 
 ### AF 2020-09-16 0682
-(07:50:340) On September 28th of the previous year, [[Nicholas J. Fuentes]] participated in the "[[City of Miami|Miami]] Uncensored" event where he debated [[Jacob Wohl]] and appeared alongside [[Timothy Gionet|Baked Alaska]] and Kathy Zhu.
+(07:50:340) On September 28th of the previous year, [[Nicholas J. Fuentes]] participated in the "[[Miami]] Uncensored" event where he debated [[Jacob Wohl]] and appeared alongside [[Timothy Gionet|Baked Alaska]] and Kathy Zhu.
 
 ### AF 2020-08-05 0655
 (01:23:30) [[Nicholas J. Fuentes]] listed women like Kathy Zhu, [[Lauren Southern]], and [[Tara McCarthy]] as examples of "e-girls" [[who]] had become sources of embarrassment or liability for right-wing movements.
@@ -48,7 +48,7 @@
 (01:45:16) [[Nicholas J. Fuentes]] claimed that if he were with Kathy Zhu, his "virile masculinity" would subjugate her and there would be "none of that" bedroom activity.
 
 ### AF 2020-04-28 0594
-(01:45:50) [[Nicholas J. Fuentes]] recalled that at a [[City of Miami|Miami]] event, Kathy Zhu was disappointed when he told her he was against race-mixing and wouldn't date an Asian girl.
+(01:45:50) [[Nicholas J. Fuentes]] recalled that at a [[Miami]] event, Kathy Zhu was disappointed when he told her he was against race-mixing and wouldn't date an Asian girl.
 
 ### AF 2020-04-21 0590
 (01:55:30) [[Nicholas J. Fuentes]] humorously admitted to sometimes imagining Kathy Zhu bringing him food like mozzarella sticks while he gamed late at night, but emphasized his commitment to [[Catholic Church|Catholic]] principles against race-mixing, calling it a sacrifice for the movement.
@@ -60,19 +60,19 @@
 (01:25:00) [[Nicholas J. Fuentes]] stated that [[Ashley Rae Goldenberg]] was "doing great work" by exposing Kathy Zhu and others, directing her energy positively without stirring drama, unlike other "E-girls" [[who]] tear movements apart.
 
 ### AF 2020-02-03 0538
-(01:53:19) While in [[City of Miami|Miami]], [[Nicholas J. Fuentes]] and [[Steve Franssen]] attempted to "red pill" Kathy Zhu on race during a conversation.
+(01:53:19) While in [[Miami]], [[Nicholas J. Fuentes]] and [[Steve Franssen]] attempted to "red pill" Kathy Zhu on race during a conversation.
 
 ### AF 2020-02-03 0538
 (01:55:03) [[Nicholas J. Fuentes]] made a joke on [[Twitter]] about strip-searching Kathy Zhu to find a cure, which a critic later described as demonic behavior from a supposed [[Christianity|Christian]].
 
 ### AF 2020-02-03 0538
-(01:58:35) During a dinner in [[City of Miami|Miami]], Kathy Zhu asked [[Nicholas J. Fuentes]] how she could be "based and red-pilled," to which he replied she never would be because women generally are not and she was a "cringe libertarian."
+(01:58:35) During a dinner in [[Miami]], Kathy Zhu asked [[Nicholas J. Fuentes]] how she could be "based and red-pilled," to which he replied she never would be because women generally are not and she was a "cringe libertarian."
 
 ### AF 2020-02-03 0538
 (02:00:04) [[Nicholas J. Fuentes]] stated he knew Kathy Zhu was "simping" for his attention during their interactions and that she temporarily promoted his talking points on Telegram before the relationship soured.
 
 ### AF 2020-01-31 0537
-(00:09:01) [[Nicholas J. Fuentes]] recounted his previous speaking engagement at a [[City of Miami|Miami]] event in September, which he stated was organized by people affiliated with the [[Proud Boys]] and attended by Kathy Zhu and [[Jacob Wohl]].
+(00:09:01) [[Nicholas J. Fuentes]] recounted his previous speaking engagement at a [[Miami]] event in September, which he stated was organized by people affiliated with the [[Proud Boys]] and attended by Kathy Zhu and [[Jacob Wohl]].
 
 ### AF 2020-01-31 0537
 (02:15:45) [[Nicholas J. Fuentes]] made a joke about Kathy Zhu dating a "knockoff" version of himself.
@@ -84,7 +84,7 @@
 (01:28:50) [[Nicholas J. Fuentes]] argued that his recent conflicts with figures on the right, including [[Owen Benjamin]], [[Vox Day]], [[Richard Spencer]], Kathy Zhu, and [[Stefan Molyneux]], were instigated by the other parties, not by him.
 
 ### AF 2019-12-03 0506
-(01:56:51) [[Nicholas J. Fuentes]] recounted a past argument with Kathy Zhu in [[City of Miami|Miami]], where she claimed [[China|Chinese]] people sometimes have lighter skin than white people, to which he responded with a racially insensitive gesture.
+(01:56:51) [[Nicholas J. Fuentes]] recounted a past argument with Kathy Zhu in [[Miami]], where she claimed [[China|Chinese]] people sometimes have lighter skin than white people, to which he responded with a racially insensitive gesture.
 
 ### AF 2019-09-20 0466
-(00:10:00) [[Nicholas J. Fuentes]] announced that a scheduled debate event in [[City of Miami|Miami]] on September 28th, featuring himself, [[Jacob Wohl]], Kathy Zhu, [[Ali Alexander]], [[Timothy Gionet|Baked Alaska]], and [[Joe Biggs]], had been moved from a yacht to a conventional hall due to booking complications.
+(00:10:00) [[Nicholas J. Fuentes]] announced that a scheduled debate event in [[Miami]] on September 28th, featuring himself, [[Jacob Wohl]], Kathy Zhu, [[Ali Alexander]], [[Timothy Gionet|Baked Alaska]], and [[Joe Biggs]], had been moved from a yacht to a conventional hall due to booking complications.

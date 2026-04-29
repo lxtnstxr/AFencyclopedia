@@ -61,7 +61,7 @@
 (26:46:64) Youssef cited [[Otto von Bismarck]] and 19th-century [[United Kingdom|British]] Tories practicing "One Nation Conservatism" as historical examples of right-wing socialist movements, distinct from [[Germany|German]] National Socialism.
 
 ### AF 2018-04-13 0145
-(27:43:04) Youssef argued that the push to repeal the [[U.S. Constitution|Second Amendment]] is a power move by the government to disarm citizens, citing high crime rates with knives in [[City of London|London]] as evidence that disarmament does not help.
+(27:43:04) Youssef argued that the push to repeal the [[U.S. Constitution|Second Amendment]] is a power move by the government to disarm citizens, citing high crime rates with knives in [[London]] as evidence that disarmament does not help.
 
 ### AF 2018-04-13 0145
 (28:22:34) Youssef expressed admiration for [[John F. Kennedy]], particularly for initiating the Apollo project, and lamented that the [[United States]] no longer undertakes such large-scale national endeavors.

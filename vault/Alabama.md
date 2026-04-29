@@ -273,7 +273,7 @@
 (00:12:34) [[Doug Jones]]'s victory in Alabama provided a significant morale boost to the [[Democratic Party]], which had been losing elections throughout 2016 and 2017.
 
 ### AF 2017-12-13 0069
-(00:28:27) Following the sexual misconduct allegations against [[Roy Moore]], [[Sean Hannity]] stated the decision was up to the people of Alabama, and [[Steven Crowder|Steve Bannon]] said he would "bury" Moore if the allegations were true.
+(00:28:27) Following the sexual misconduct allegations against [[Roy Moore]], [[Sean Hannity]] stated the decision was up to the people of Alabama, and [[Steve Bannon]] said he would "bury" Moore if the allegations were true.
 
 ### AF 2017-12-13 0069
 (00:31:57) [[Barack Obama]] won 97% of the [[black]] vote in his elections, one percentage point less than [[Doug Jones]] received in Alabama.
@@ -315,7 +315,7 @@
 (11:59:34) [[Nicholas J. Fuentes]] framed the Alabama [[Senate]] special election as a crucial watershed for the 2018 midterms and for [[Donald Trump]]'s first term.
 
 ### AF 2017-11-16 0052
-(12:54:42) [[Nicholas J. Fuentes]] stated that the August [[Republican Party|GOP]] primary in Alabama was the first [[time]] the [[Donald Trump|MAGA]] [[America First]] agenda, headed by [[Steven Crowder|Steve Bannon]], was pitted against [[Donald Trump]], [[who]] endorsed [[Luther Strange]].
+(12:54:42) [[Nicholas J. Fuentes]] stated that the August [[Republican Party|GOP]] primary in Alabama was the first [[time]] the [[Donald Trump|MAGA]] [[America First]] agenda, headed by [[Steve Bannon]], was pitted against [[Donald Trump]], [[who]] endorsed [[Luther Strange]].
 
 ### AF 2017-11-16 0052
 (13:10:22) [[Donald Trump]] endorsed [[Luther Strange]] in the Alabama [[Senate]] primary, held a rally for him, directed the [[Republican Party]] to back him, and brushed off claims that [[Luther Strange]] was a water boy for [[Mitch McConnell]].
@@ -333,19 +333,19 @@
 (00:22:44) [[Nicholas J. Fuentes]] argued that funding disparities between impoverished white communities in [[Appalachia]] and inner-[[city]] [[black]] communities are a scandal, noting that white poverty in states like [[State of West Virginia|West Virginia]], [[Commonwealth of Pennsylvania|Pennsylvania]], Alabama, [[State of Mississippi|Mississippi]], and [[Kansas|Arkansas]] is rarely discussed compared to [[black]] poverty.
 
 ### AF 2017-10-24 0038
-(08:30:34) [[Nicholas J. Fuentes]] suggested that [[Stephen Miller]]'s role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with [[Donald Trump]]'s own opposition, and that [[Donald Trump|the president's]] actions serviced the political ascendancy of [[Steven Crowder|Steve Bannon]] and [[Roy Moore]] in Alabama.
+(08:30:34) [[Nicholas J. Fuentes]] suggested that [[Stephen Miller]]'s role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with [[Donald Trump]]'s own opposition, and that [[the president's]] actions serviced the political ascendancy of [[Steve Bannon]] and [[Roy Moore]] in Alabama.
 
 ### AF 2017-10-16 0032
-(02:26:10) [[Steven Crowder|Steve Bannon]] planned to run candidates against the [[Republican Party|GOP]] establishment in states including [[State of Nevada|Nevada]], [[Tennessee]], Alabama, and [[Arizona]], and had already supported [[Roy Moore]] in the Alabama [[Republican Party|Republican]] primary against [[Luther Strange]].
+(02:26:10) [[Steve Bannon]] planned to run candidates against the [[Republican Party|GOP]] establishment in states including [[State of Nevada|Nevada]], [[Tennessee]], Alabama, and [[Arizona]], and had already supported [[Roy Moore]] in the Alabama [[Republican Party|Republican]] primary against [[Luther Strange]].
 
 ### AF 2017-10-16 0032
-(02:30:06) [[Steven Crowder|Steve Bannon]]'s primary challenge against [[Luther Strange]] in Alabama succeeded despite [[Donald Trump]]'s endorsement and a rally in [[Huntsville]] for Strange.
+(02:30:06) [[Steve Bannon]]'s primary challenge against [[Luther Strange]] in Alabama succeeded despite [[Donald Trump]]'s endorsement and a rally in [[Huntsville]] for Strange.
 
 ### AF 2017-09-27 0019
 (02:14:46) [[Donald Trump]] held a rally in [[Huntsville]], Alabama to endorse [[Luther Strange]], but the [[state]]'s [[Republican Party|Republican]] electorate rejected his endorsement and voted overwhelmingly for [[Roy Moore]].
 
 ### AF 2017-09-27 0019
-(02:33:09) [[Nicholas J. Fuentes]] claimed [[Steven Crowder|Steve Bannon]] left the [[White House]] not because he was fired, but to wage a "guerrilla media campaign" against the establishment from the outside, a move timed just before [[Roy Moore]]'s victory in Alabama.
+(02:33:09) [[Nicholas J. Fuentes]] claimed [[Steve Bannon]] left the [[White House]] not because he was fired, but to wage a "guerrilla media campaign" against the establishment from the outside, a move timed just before [[Roy Moore]]'s victory in Alabama.
 
 ### AF 2017-09-27 0019
-(02:34:50) [[Steven Crowder|Steve Bannon]] and [[Breitbart News|Breitbart]] played a crucial role in organizing for [[Roy Moore]]'s victory in Alabama, and [[Bannon]] subsequently planned similar primary challenges in [[State of Nevada|Nevada]], [[Arizona]], and [[Tennessee]].
+(02:34:50) [[Steve Bannon]] and [[Breitbart News|Breitbart]] played a crucial role in organizing for [[Roy Moore]]'s victory in Alabama, and [[Bannon]] subsequently planned similar primary challenges in [[State of Nevada|Nevada]], [[Arizona]], and [[Tennessee]].

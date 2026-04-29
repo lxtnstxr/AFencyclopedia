@@ -82,3 +82,9 @@
 
 ### AF 2018-04-04 0138
 (00:47:530) Kirstjen Nielsen confirmed that the [[Mexican]] government had disbanded a 1,500-[[person]] caravan of migrants from [[Honduras]] that was en route to the [[United States]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:04:04) Kirstjen Nielsen and an unnamed woman at [[U.S. Department of Homeland Security|DHS]] implemented a policy to detain children away from adults in order to keep families at the border to adjudicate asylum requests.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:06:30) [[Nicholas J. Fuentes]] stated that the same cast of characters is in place for the second [[Donald Trump|Trump]] administration, with [[Tom Homan]], [[Stephen Miller]], and [[Kristi Noem]] replacing Kirstjen Nielsen.

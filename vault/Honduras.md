@@ -118,3 +118,6 @@
 
 ### AF 2018-04-02 0136
 (00:11:25) According to a [[BuzzFeed]] report, a caravan of 1,000 to 1,500 migrants, approximately 80% from Honduras, was organized by [[Organization|Pueblos Sin Fronteras]] and traveling through [[Mexico]] to seek entry into the [[United States]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:33:49:00) [[Eli Black]] took over the [[United Fruit Company]], which was involved in the [[Caribbean]], and committed suicide in 1975 after he tried to bribe the government of Honduras.

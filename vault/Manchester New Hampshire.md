@@ -15,4 +15,4 @@
 (02:43:00) [[Nicholas J. Fuentes]] recalled that a campaign office contact in Manchester, New Hampshire with a thick Boston accent warned that volunteering would be difficult due to leaf-peeping season, a major tourist activity in the Northeast.
 
 ### AF 2020-03-27 0574
-(01:47:44) When asked his favorite [[city]] besides [[City of Chicago|Chicago]], [[Nicholas J. Fuentes]] stated he really likes Manchester and [[Boston]], enjoys [[New England]], but hates [[Washington D.C.|DC]] and [[City of Miami|Miami]].
+(01:47:44) When asked his favorite [[city]] besides [[Chicago]], [[Nicholas J. Fuentes]] stated he really likes Manchester and [[Boston]], enjoys [[New England]], but hates [[Washington D.C.|DC]] and [[Miami]].

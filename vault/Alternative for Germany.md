@@ -16,19 +16,19 @@
 (00:48:35) [[Nicholas J. Fuentes]] stated that the AFD party is banned in [[Germany]] because of the Holocaust, and that the [[Germany|German]] state's reason for existing is to secure the existence of the state of [[Israel]].
 
 ### AF 2024-06-10 1341
-(00:28:00) The [[Europe|European Union]] held parliamentary elections, with results showing gains for right-wing parties including the Alternative for Germany, the [[National Rally]] in [[Government of France|France]], and the party of Italian Prime Minister [[Giorgia Meloni]].
+(00:28:00) The [[European Union]] held parliamentary elections, with results showing gains for right-wing parties including the Alternative for Germany, the [[National Rally]] in [[France]], and the party of Italian Prime Minister [[Giorgia Meloni]].
 
 ### AF 2024-06-10 1341
-(00:33:00) In the [[Europe|European Union]] elections, the Alternative for Germany increased its proportion of seats in the [[European Parliament]], performing better than the [[Social Democrats]] of Chancellor [[Olaf Scholz]].
+(00:33:00) In the [[European Union]] elections, the Alternative for Germany increased its proportion of seats in the [[European Parliament]], performing better than the [[Social Democrats]] of Chancellor [[Olaf Scholz]].
 
 ### AF 2024-06-10 1341
 (01:20:00) [[Marine Le Pen]]'s [[National Rally]] party distanced itself from the Alternative for Germany because the AFD's policy of deporting certain residents from [[Germany]] was considered "a bridge too far."
 
 ### AF 2024-06-10 1341
-(01:23:00) [[Nicholas J. Fuentes]] noted that the Alternative for Germany was the most popular party among the youth demographic in the [[Europe|European Union]] elections, a success attributed to its use of [[TikTok]].
+(01:23:00) [[Nicholas J. Fuentes]] noted that the Alternative for Germany was the most popular party among the youth demographic in the [[European Union]] elections, a success attributed to its use of [[TikTok]].
 
 ### AF 2025-12-06 1609
-(03:22:50) The national defense strategy encourages the rise of populist, far-right, anti-immigrant parties in [[Europe]], such as the AFD, the [[National Rally]] in [[Government of France|France]], and [[Reform UK]].
+(03:22:50) The national defense strategy encourages the rise of populist, far-right, anti-immigrant parties in [[Europe]], such as the AFD, the [[National Rally]] in [[France]], and [[Reform UK]].
 
 ### AF 2025-12-06 1609
 (03:27:23) In [[Germany]], the [[Christian Democrats]] work with the left to prevent the AFD from gaining power.
@@ -37,7 +37,7 @@
 (03:27:57) The AFD and its leaders are banned from the [[country]], and individuals like [[Dries Van Langenhove]] in [[Belgium]] are arrested for sharing "edgy memes" in group chats.
 
 ### AF 2024-02-08 1289
-(52:46:68) Right-wing parties in [[Europe]], such as [[Vox]] in [[Spain]], the [[National Rally|National Front]] in [[Government of France|France]], and the AfD in [[Germany]], are also sympathetic to [[Israel]].
+(52:46:68) Right-wing parties in [[Europe]], such as [[Vox]] in [[Spain]], the [[National Rally|National Front]] in [[France]], and the AfD in [[Germany]], are also sympathetic to [[Israel]].
 
 ### AF 2023-11-10 1247
 (01:06:45) Simultaneously with the deportation announcements, [[Daniel Halemba]], a 22-year-old member of the [[Germany|German]] legislature from the AfD party, was arrested for allegedly displaying Nazi symbols after "Sieg Heil" shouts were heard from his fraternity.
@@ -67,7 +67,7 @@
 (00:17:21) [[Nicholas J. Fuentes]] reported that Austrian publicist [[Gerald Grosz]], who was invited as a speaker, also confirmed the attack on the Alternative for Germany leader.
 
 ### AF 2023-10-05 1230
-(00:18:10) [[Nicholas J. Fuentes]] compared Alternative for Germany to other right-wing [[Europe|European]] parties like the [[National Rally|National Front]] in [[Government of France|France]], [[UK Independence Party|UKIP]] in the [[United Kingdom]], the [[BNP]], and [[Lega|Lega Nord]] in [[Italian Republic|Italy]].
+(00:18:10) [[Nicholas J. Fuentes]] compared Alternative for Germany to other right-wing [[Europe|European]] parties like the [[National Rally|National Front]] in [[France]], [[UK Independence Party|UKIP]] in the [[United Kingdom]], the [[BNP]], and [[Lega|Lega Nord]] in [[Italian Republic|Italy]].
 
 ### AF 2023-10-05 1230
 (00:19:07) [[Nicholas J. Fuentes]] stated that Alternative for Germany was now leading in polls in [[Germany]] for the first [[time]], surpassing the parties in the governing coalition.

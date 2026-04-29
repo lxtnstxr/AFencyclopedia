@@ -18,7 +18,7 @@
 (00:36:00) [[Donald Trump|Trump]] faces potential asset seizure, including Trump Tower and his golf club in [[Bedminster]], [[New Jersey]], following the [[New York]] ruling.
 
 ### AF 2021-06-07 0824
-(01:48:52) [[Nicholas J. Fuentes]] cited ongoing violence in [[City of Chicago|Chicago]], including 63 shootings one weekend and a killing near Trump Tower, as examples of disorder that leftist ideology excuses due to historical racism.
+(01:48:52) [[Nicholas J. Fuentes]] cited ongoing violence in [[Chicago]], including 63 shootings one weekend and a killing near Trump Tower, as examples of disorder that leftist ideology excuses due to historical racism.
 
 ### AF 2020-07-17 0643
 (02:19:25) [[Nicholas J. Fuentes]] stated that [[Ben Shapiro]] attended [[University of California, Los Angeles|UCLA]] and [[Harvard University]] on his parents' dime and received billionaire seed money to start his website, while [[Charlie Kirk]]'s father, the architect for Trump Tower, gave him access to [[Donald Trump]].

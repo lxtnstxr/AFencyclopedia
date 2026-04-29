@@ -2,7 +2,7 @@
 #Unknown
 
 ### AF 2021-01-29 0751
-(00:29:24) The [[United States House of Representatives]] considered a vote to censure or expel newly elected Representative [[Marjorie Taylor Greene]] from [[Country of Georgia|Georgia]] over past social media posts concerning [[September 11 attacks|9-11]], [[City of Newtown|Sandy Hook]], the Parkland school shooting, and [[Jews|Jewish people]].
+(00:29:24) The [[United States House of Representatives]] considered a vote to censure or expel newly elected Representative [[Marjorie Taylor Greene]] from [[Country of Georgia|Georgia]] over past social media posts concerning [[September 11 attacks|9-11]], [[Sandy Hook]], the Parkland school shooting, and [[Jews|Jewish people]].
 
 
 ### AF 2019-06-17 0408
@@ -12,7 +12,7 @@
 (00:03:36) [[Cesar Sayoc]] was apprehended in the same county as the Parkland school shooting by Sheriff [[Scott Israel]], [[who]] was criticized for his response during that shooting.
 
 ### AF 2018-06-28 0190
-(01:52:04) [[Nicholas J. Fuentes]] highlighted the hypocrisy of media figures [[who]] dismissed conspiracy theories about shootings like Parkland while promoting the [[Christopher Steele|Steele dossier]] allegation that [[Donald Trump]] engaged with prostitutes in [[City of Moscow|Moscow]].
+(01:52:04) [[Nicholas J. Fuentes]] highlighted the hypocrisy of media figures [[who]] dismissed conspiracy theories about shootings like Parkland while promoting the [[Christopher Steele|Steele dossier]] allegation that [[Donald Trump]] engaged with prostitutes in [[Moscow]].
 
 ### AF 2018-06-28 0190
 (01:59:33) A viewer noted there was a mass casualty drill in [[Annapolis]] a few days before the shooting, drawing a parallel to the Parkland shooting, which occurred on a day with a planned active shooter drill.
@@ -30,10 +30,10 @@
 (24:36:40) Student activists from Parkland, [[State of Florida|Florida]], launched a coordinated media campaign following the school shooting there.
 
 ### AF 2018-03-02 0117
-(00:23:28) [[Nicholas J. Fuentes]] stated that the [[SHARE Act]], which would have legalized suppressors and established national concealed carry reciprocity, was shelved following the [[City of Las Vegas|Las Vegas]] shooting and the Parkland shooting.
+(00:23:28) [[Nicholas J. Fuentes]] stated that the [[SHARE Act]], which would have legalized suppressors and established national concealed carry reciprocity, was shelved following the [[Las Vegas]] shooting and the Parkland shooting.
 
 ### AF 2018-02-20 0112
-(01:43:86) [[Nicholas J. Fuentes]] expressed skepticism about media coverage of the Parkland school shooting, citing unanswered questions about the [[City of Las Vegas|Las Vegas]] shooting involving [[Stephen Paddock]].
+(01:43:86) [[Nicholas J. Fuentes]] expressed skepticism about media coverage of the Parkland school shooting, citing unanswered questions about the [[Las Vegas]] shooting involving [[Stephen Paddock]].
 
 ### AF 2018-02-20 0112
 (01:51:48) [[Nicholas J. Fuentes]] highlighted witness accounts from the Parkland shooting that reported both a fire drill and a scheduled active shooter drill involving blanks and simulated screams on the same day, Valentine's Day.

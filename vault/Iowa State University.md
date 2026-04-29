@@ -15,10 +15,10 @@
 (02:30:57) During the 2019 Iowa State University speech, a [[Jewish]] man blocked [[Nicholas J. Fuentes]]'s path as police escorted him away, leading to a confrontation where [[Fuentes]] implied he was going to use an anti-Semitic slur but stopped himself.
 
 ### AF 2021-12-06 0916
-(02:32:30) [[Nicholas J. Fuentes]] stated that new figures in his movement did not go through the same experiences as him, such as the [[City of Charlottesville|Charlottesville rally]] or dangerous in-[[person]] confrontations like the one at Iowa State University.
+(02:32:30) [[Nicholas J. Fuentes]] stated that new figures in his movement did not go through the same experiences as him, such as the [[Charlottesville rally]] or dangerous in-[[person]] confrontations like the one at Iowa State University.
 
 ### AF 2019-12-03 0506
-(01:32:52) [[Nicholas J. Fuentes]] recounted traveling to events throughout the year in locations including [[City of Chicago|Chicago]], [[CPAC]], Iowa State University, [[India|Indiana]], [[State of Michigan|Michigan]], [[City of Miami|Miami]], and [[Tennessee]].
+(01:32:52) [[Nicholas J. Fuentes]] recounted traveling to events throughout the year in locations including [[Chicago]], [[CPAC]], Iowa State University, [[India|Indiana]], [[State of Michigan|Michigan]], [[Miami]], and [[Tennessee]].
 
 ### AF 2019-07-22 0424
 (01:22:18) [[Nicholas J. Fuentes]] recounted being confronted by a [[Jews|Jewish]] student wearing a Star of David necklace after giving a speech at Iowa State University; he pushed the student and stated, "get out of my way you effing..." implying he was going to use an anti-Semitic slur.

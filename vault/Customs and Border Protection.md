@@ -66,7 +66,7 @@
 (00:18:24) According to a [[The New York Times|New York Times]] report, CBP officials were preparing a ceremony for [[Donald Trump|Trump]] to mark the completion of 400 miles of new border wall, with more than 341 miles already installed.
 
 ### AF 2020-07-20 0644
-(01:28:58) [[Donald Trump|President Trump]] deployed federal officers from the [[U.S. Marshals Service]] and Customs and Border Protection to [[City of Portland|Portland]], [[Oregon]] under an executive order protecting statues, allowing deployment without state permission.
+(01:28:58) [[Donald Trump|President Trump]] deployed federal officers from the [[U.S. Marshals Service]] and Customs and Border Protection to [[Portland]], [[Oregon]] under an executive order protecting statues, allowing deployment without state permission.
 
 ### AF 2020-07-08 0636
 (28:13:60) U.S. Customs and Border Protection announced 229 miles of [[Donald Trump]]'s border wall had been constructed using 331,000 tons of steel and 485,000 cubic yards of concrete, reaching 10% of the total [[United States|U.S]].-Mexico border length.
@@ -100,3 +100,21 @@
 
 ### AF 2019-01-07 0307
 (00:15:38) [[Donald Trump]] announced a nationally televised address from the [[White House]] to make the case for a border wall, followed by a trip to the [[United States|U.S]].-Mexico border to meet with Border Patrol agents.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:01:00) [[Republican Party|Republican]] leaders in the [[U.S. Congress|House]] and [[U.S. Congress|Senate]] agreed to a deal to end the partial government shutdown that would effectively defund [[U.S. Immigration and Customs Enforcement|ICE]] and Border Patrol.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:02:20) [[Nicholas J. Fuentes]] observed that [[Democratic Party|Democrats]], despite being a minority in both the [[U.S. Congress|House]] and [[U.S. Congress|Senate]], successfully defunded [[U.S. Immigration and Customs Enforcement|ICE]] and Border Patrol.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:10:27) [[Nicholas J. Fuentes]] claimed that mass deportations "hit the iceberg" in January and are now over, after [[Donald Trump]] sent [[U.S. Immigration and Customs Enforcement|ICE]] and Border Patrol to [[Minneapolis]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:28:27) [[Nicholas J. Fuentes]] asserted that [[Donald Trump|Trump]] had chickened out in his response to a challenge, withdrawing Border Patrol from [[Minneapolis]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:30:06) [[Nicholas J. Fuentes]] reported that Border Patrol received new orders to no longer arrest individuals found to be in the [[country]] illegally through license plate checks unless they had a criminal record, a policy he described as a return to the [[Barack Obama]]-era doctrine of only deporting criminal illegal aliens.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:54:51) [[Nicholas J. Fuentes]] reported that [[Nicholas J. Fuentes|Nick]] Sorter, on the ground in [[Minneapolis]], said Border Patrol had been given new orders not to arrest non-criminal illegal aliens.

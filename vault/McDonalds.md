@@ -63,7 +63,7 @@
 (01:16:35) [[Nicholas J. Fuentes]] described visiting his grandmother, driving through McDonald's to get her food, and watching her eat it while he abstained due to Lent.
 
 ### AF 2020-08-03 0653
-(02:27:53) [[Nicholas J. Fuentes]] stated that when choosing where to eat, he drives [[west]] from [[City of Chicago|Chicago]] to avoid [[black]]-majority areas, claiming the quality of establishments like McDonald's improves the further [[west]] one goes.
+(02:27:53) [[Nicholas J. Fuentes]] stated that when choosing where to eat, he drives [[west]] from [[Chicago]] to avoid [[black]]-majority areas, claiming the quality of establishments like McDonald's improves the further [[west]] one goes.
 
 ### AF 2020-06-29 0631
 (02:04:32) McDonald's released a statement about "amplifying [[black]] voices," which [[Nicholas J. Fuentes]] said would make him eat there "begrudgingly."

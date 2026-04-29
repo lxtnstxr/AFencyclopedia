@@ -18,7 +18,7 @@
 (02:43:00) [[United States]] [[U.S. Department of Defense|Secretary of Defense]] Lloyd Austin indicated the [[United States]] would continue supplying military aid to [[Israel]] even if it proceeded with the Rafah operation against [[United States]] advice.
 
 ### AF 2024-02-21 1295
-(00:50:51) [[Nicholas J. Fuentes]] gave examples of key nodes being controlled, including [[Elon Musk]] prohibiting pro-[[Gaza Strip|Palestine]] phrases on [[Twitter]], [[Larry Fink]] of [[BlackRock]] blacklisting [[Israel]] protesters, and [[Joe Biden]] and Lloyd Austin saying nothing positive about [[Israel]].
+(00:50:51) [[Nicholas J. Fuentes]] gave examples of key nodes being controlled, including [[Elon Musk]] prohibiting pro-[[Palestine]] phrases on [[Twitter]], [[Larry Fink]] of [[BlackRock]] blacklisting [[Israel]] protesters, and [[Joe Biden]] and Lloyd Austin saying nothing positive about [[Israel]].
 
 ### AF 2023-11-14 1249
 (00:12:30) Austin conveyed growing anxiety within the [[Joe Biden|White House]] to [[Galant]] that [[Israel]]'s military actions in [[Lebanon]] could exacerbate tensions and lead to a regional war, drawing in the [[United States]].

@@ -8,7 +8,7 @@
 (01:28:31) The assailant in the Charlotte light rail killing was apprehended shortly after the attack and charged with homicide.
 
 ### AF 2022-09-03 1054
-(04:03:59) [[Bank of America]] launched an initiative to increase [[black]] and [[Hispanic]] home ownership by offering mortgages with no down payment and no closing costs in cities including [[City of Miami|Miami]], [[Dallas]], [[Los Angeles]], [[Detroit]], and Charlotte.
+(04:03:59) [[Bank of America]] launched an initiative to increase [[black]] and [[Hispanic]] home ownership by offering mortgages with no down payment and no closing costs in cities including [[Miami]], [[Dallas]], [[Los Angeles]], [[Detroit]], and Charlotte.
 
 ### AF 2020-07-23 0647
 (01:07:25) The [[Republican Party|RNC]] canceled its large-scale nominating convention in [[Jacksonville]], [[State of Florida|Florida]], which had been moved from Charlotte, [[North Carolina]], due to the coronavirus pandemic, marking a retreat by the [[Donald Trump|Trump]] campaign from holding a full-scale event.

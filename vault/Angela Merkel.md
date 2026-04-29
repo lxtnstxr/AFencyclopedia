@@ -12,7 +12,7 @@
 (01:55:44) [[Nicholas J. Fuentes]] cited leaders like [[Emmanuel Macron]] and Angela Merkel as examples of politicians disconnected from their people, facilitating policies of mass immigration.
 
 ### AF 2018-10-30 0272
-(00:10:02) [[Nicholas J. Fuentes]] stated he would not cover Angela Merkel's decision to step down from her party in 2021, expressing indifference to developments in [[Germany]] and the [[Europe|European Union]].
+(00:10:02) [[Nicholas J. Fuentes]] stated he would not cover Angela Merkel's decision to step down from her party in 2021, expressing indifference to developments in [[Germany]] and the [[European Union]].
 
 ### AF 2018-07-25 0207
 (00:55:00) [[Nicholas J. Fuentes]] dismissed examples like [[Margaret Thatcher]], Angela Merkel, and [[Theresa May]] as token cases, arguing that for every one woman in history you could name a thousand men, and that the rule remains that "they ruin everything."
@@ -39,7 +39,7 @@
 (00:15:10) [[Donald Trump]] and [[Emmanuel Macron]] met, with Angela Merkel scheduled to visit the [[White House]] on Friday, to discuss the impending May 12th deadline for the [[United States]] to decide on recertifying the [[Iran]] nuclear deal.
 
 ### AF 2018-03-21 0129
-(00:31:50) Angela Merkel, [[Emmanuel Macron]], and [[Jean-Claude Juncker]] of the [[Europe|European Union]] also congratulated [[Vladimir Putin]] on his election victory.
+(00:31:50) Angela Merkel, [[Emmanuel Macron]], and [[Jean-Claude Juncker]] of the [[European Union]] also congratulated [[Vladimir Putin]] on his election victory.
 
 ### AF 2018-03-01 0116
 (00:44:40) Angela Merkel, the Chancellor of [[Germany]], acknowledged the existence of "no-go zones" in [[Germany]] and other [[Europe|European]] countries, areas with majority-[[Islam|Muslim]] populations where police and public services reportedly could not operate.
@@ -54,10 +54,10 @@
 (01:19:56) [[Nicholas J. Fuentes]] expressed approval for [[Golden Dawn]] in [[Greece]], stating his support for any [[Europe|European]] far-right nationalist group opposed to [[Brussels]] and Angela Merkel.
 
 ### AF 2017-10-04 0024
-(02:32:68) The [[Europe|European Union]], along with leaders like [[Emmanuel Macron]] of [[France]] and Angela Merkel of [[Germany]], offered no comment or intervention in the Catalan independence crisis, which [[Nicholas J. Fuentes]] argued contradicted the [[EU]]'s founding principle of self-determination.
+(02:32:68) The [[European Union]], along with leaders like [[Emmanuel Macron]] of [[France]] and Angela Merkel of [[Germany]], offered no comment or intervention in the Catalan independence crisis, which [[Nicholas J. Fuentes]] argued contradicted the [[EU]]'s founding principle of self-determination.
 
 ### AF 2017-10-04 0024
-(02:40:74) In 2014, [[Russia]]n proxies invaded [[City of Sevastopol|Crimea]] and held an independence referendum, which was condemned by [[Barack Obama]], Angela Merkel, and [[François Hollande]] as an illegal thwarting of [[Ukraine|Ukrainian]] sovereignty.
+(02:40:74) In 2014, [[Russia]]n proxies invaded [[Crimea]] and held an independence referendum, which was condemned by [[Barack Obama]], Angela Merkel, and [[François Hollande]] as an illegal thwarting of [[Ukraine|Ukrainian]] sovereignty.
 
 ### AF 2017-09-25 0017
 (01:35:35) [[Nicholas J. Fuentes]] contrasted neoliberal leaders like [[Emmanuel Macron]], Angela Merkel, and [[Barack Obama]], [[who]] prioritize material standards, with paleoconservatives [[who]] value social trust over GDP growth.

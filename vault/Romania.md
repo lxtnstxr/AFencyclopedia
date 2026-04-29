@@ -38,7 +38,7 @@
 (02:27:48) [[Nicholas J. Fuentes]] recounted that he was banned from [[Google|YouTube]] for a cyberbullying strike after linking up with the [[Andrew Tate|Tate brothers]] in [[Bucharest]], Romania, and then received a circumvention strike for informing his audience on another channel.
 
 ### AF 2022-10-04 1071
-(00:55:56) [[Sneeko]] flew from [[City of Miami|Miami]] to Romania to appear on a stream with [[Andrew Tate]], but [[Andrew Tate]] refused to let him on the show, citing him as a liability partly due to his association with [[Nicholas J. Fuentes]].
+(00:55:56) [[Sneeko]] flew from [[Miami]] to Romania to appear on a stream with [[Andrew Tate]], but [[Andrew Tate]] refused to let him on the show, citing him as a liability partly due to his association with [[Nicholas J. Fuentes]].
 
 ### AF 2022-09-29 1069
 (05:57:00) The governments of [[Estonia]], [[Latvia]], [[Bulgaria]], Romania, and the [[United States]] issued advisories ordering their diplomatic personnel to leave [[Russia]] immediately.
@@ -57,3 +57,9 @@
 
 ### AF 2018-07-11 0198
 (31:14:90) Many countries, including [[Israel|Poland]], [[Estonia]], [[Latvia]], [[Lithuania]], [[Slovakia]], the [[Czech Republic]], [[Hungary]], Romania, [[Bulgaria]], [[Montenegro]], and [[Croatia]], joined [[North Atlantic Treaty Organization|NATO]] after the collapse of the [[Soviet Union]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:56:23:190) [[Nicholas J. Fuentes]] reported that [[Andrew Tate]] told him a story about how he was locked up in Romania, describing it as a "mask off story" of how the matrix works.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:13:01:520) [[Nicholas J. Fuentes]] defended [[Andrew Tate]] and [[Andrew Tate|Tristan Tate]], stating they were put in jail for four years and that the [[Joe Biden|Biden]] [[U.S. Department of State|State Department]] leaned on the Romanian government to imprison them.

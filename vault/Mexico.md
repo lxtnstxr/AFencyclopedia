@@ -86,7 +86,7 @@
 (00:34:01) [[Joe Biden]]'s immigration policies, which dismantled the framework of the [[Donald Trump]] administration, directly resulted in a massive surge of illegal border crossings at the [[United States|U.S.]]-Mexico border.
 
 ### AF 2025-12-06 1609
-(03:33:35) The [[Donald Trump|Trump]] corollary to the [[Monroe Doctrine]] involves using the military to go to the border and engage inside Mexico, [[Columbia|Colombia]], or other countries to fight drug traffickers.
+(03:33:35) The [[Donald Trump|Trump]] corollary to the [[Monroe Doctrine]] involves using the military to go to the border and engage inside Mexico, [[Colombia]], or other countries to fight drug traffickers.
 
 ### AF 2025-12-06 1609
 (03:43:02) The [[United States]] could build upon relationships with [[Dominion of Canada|Canada]], Mexico, and other Western Hemisphere countries to become a source of power against [[China]].
@@ -98,7 +98,7 @@
 (05:23:48) [[Nicholas J. Fuentes]] claimed that most cocaine and fentanyl entering the [[United States]] comes from [[Colombian]] and Mexican cartels, not [[Venezuela]], and that ties between the [[Venezuela|Venezuelan]] government and cartels like the Cult of the Sun are tenuous.
 
 ### AF 2024-02-16 1294
-(47:35:89) [[Joe Biden]] held a press conference to respond to the special counsel's findings on his handling of classified documents, during which he mistakenly referred to [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]] as [[Donald Trump|the president]] of Mexico.
+(47:35:89) [[Joe Biden]] held a press conference to respond to the special counsel's findings on his handling of classified documents, during which he mistakenly referred to [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]] as [[the president]] of Mexico.
 
 ### AF 2024-02-13 1291
 (05:09:37) [[Joe Biden]] held a press conference on the same night as the [[Tucker Carlson]] interview with [[Vladimir Putin]], during which he experienced memory lapses, forgot key details about his son, and mistakenly said he was negotiating with [[the President]] of [[Arab Republic of Egypt|Egypt]] over the [[United States|U.S.]]-Mexico border.
@@ -119,7 +119,7 @@
 (01:29:36) [[Nikki Haley]] stated she did not care what her colleagues at the [[United Nations]] would think about using [[United States]] special forces in Mexico, advocating for ending normal trade relations with [[China]] and sending special operations to take out cartels.
 
 ### AF 2023-10-10 1231
-(01:56:01) [[Nicholas J. Fuentes]] expressed love for a wide array of entities and individuals, including [[black]] people, [[Jews|Jewish people]], [[Israel]], [[Iran]], [[Gaza Strip|Palestine]], [[Palestinian]] Islamic Jihad, Mexico, white people, [[Adolf Hitler|Hitler]], [[Charlie Kirk]], and [[Joe Biden]].
+(01:56:01) [[Nicholas J. Fuentes]] expressed love for a wide array of entities and individuals, including [[black]] people, [[Jews|Jewish people]], [[Israel]], [[Iran]], [[Palestine]], [[Palestinian]] Islamic Jihad, Mexico, white people, [[Adolf Hitler|Hitler]], [[Charlie Kirk]], and [[Joe Biden]].
 
 ### AF 2023-10-03 1228
 (00:43:26) [[Nicholas J. Fuentes]] argued that immigrants from countries like Mexico treat the [[United States]] with disrespect because they have no sense of ownership, comparing it to how they treat their home countries.
@@ -218,7 +218,7 @@
 (03:34:50) The [[State Department]] reports 1.6 million [[United States|U.S]]. citizens live in Mexico, with a significant influx into [[Mexico City]] accelerating since the COVID-19 pandemic, according to relocation company Welcome Home Mexico.
 
 ### AF 2022-07-29 1038
-(09:57:50) [[Nicholas J. Fuentes]] argues that mass immigration from Mexico and other countries is changing the fabric of the [[United States]], citing low English proficiency and cultural displacement in cities like [[City of Chicago|Chicago]].
+(09:57:50) [[Nicholas J. Fuentes]] argues that mass immigration from Mexico and other countries is changing the fabric of the [[United States]], citing low English proficiency and cultural displacement in cities like [[Chicago]].
 
 ### AF 2022-07-29 1038
 (34:33:50) [[Nicholas J. Fuentes]] connects global populist movements, including those led by [[López Obrador]] in Mexico, [[Jair Bolsonaro]] in [[Brazil]], [[Recep Tayyip Erdogan|Erdoğan]] in [[Turkey]], and [[Vladimir Putin|Putin]] in [[Russia]], to a widespread reaction against Western-led globalization.
@@ -248,7 +248,7 @@
 (01:08:50:32) [[Nicholas J. Fuentes]] used the analogy of [[Russia]] forming an alliance with Mexico, placing missiles and a naval base in the [[Gulf of Mexico]], to illustrate the [[Russia]]n security perspective on [[Ukraine]] joining [[North Atlantic Treaty Organization|NATO]].
 
 ### AF 2022-03-21 0962
-(01:33:14:81) [[Destiny|Destiny]] asserted that the [[United States]] does not exert influence over weaker neighbors, a claim [[Nicholas J. Fuentes]] dismissed by citing [[United States]] influence in Mexico and throughout the [[Western Hemisphere]].
+(01:33:14:81) [[Destiny]] asserted that the [[United States]] does not exert influence over weaker neighbors, a claim [[Nicholas J. Fuentes]] dismissed by citing [[United States]] influence in Mexico and throughout the [[Western Hemisphere]].
 
 ### AF 2022-03-01 0952
 (00:51:40) The [[Joe Biden|Biden Administration]] installed new technology like cutting-edge scanners at the border to detect drug smuggling and set up joint patrols with Mexico and [[Guatemala]] to catch human traffickers.
@@ -584,7 +584,7 @@
 (17:48:00) [[Donald Trump]] issued a proclamation to deny asylum claims from migrants [[who]] passed through Mexico, but the policy was blocked by a federal court injunction.
 
 ### AF 2019-01-07 0307
-(00:46:43) The "[[Donald Trump|Trump]] revolution" was described by [[Nicholas J. Fuentes]] as a three-pronged fight for national sovereignty over trade policy (against [[China]] and the [[Europe|European Union]]), immigration policy (against Mexico and [[Israel|Central America]]), and foreign policy (against [[Israel]] and [[Saudi Arabia]]).
+(00:46:43) The "[[Donald Trump|Trump]] revolution" was described by [[Nicholas J. Fuentes]] as a three-pronged fight for national sovereignty over trade policy (against [[China]] and the [[European Union]]), immigration policy (against Mexico and [[Israel|Central America]]), and foreign policy (against [[Israel]] and [[Saudi Arabia]]).
 
 ### AF 2018-11-21 0286
 (00:04:09) During the interview, [[Ben Shapiro]] stated that there are differences in IQ between races, citing average IQs of 65 in some [[Kanye West|West]] African countries and 85 in Mexico.
@@ -707,22 +707,22 @@
 (00:45:00) [[Nicholas J. Fuentes]] argued that subsequent generations betrayed the sacrifice of World War II veterans by selling the [[country]]'s [[heritage]] for cheap consumer goods from [[China]], cheap labor from Mexico, and lobbyist money from [[Israel]].
 
 ### AF 2018-06-05 0178
-(00:45:09) The [[Donald Trump|Trump]] administration renegotiated the [[North American Free Trade Agreement]] and initiated a trade war involving tariffs on the [[Europe|European Union]], [[China]], [[Dominion of Canada|Canada]], and Mexico.
+(00:45:09) The [[Donald Trump|Trump]] administration renegotiated the [[North American Free Trade Agreement]] and initiated a trade war involving tariffs on the [[European Union]], [[China]], [[Dominion of Canada|Canada]], and Mexico.
 
 ### AF 2018-05-31 0175
-(00:03:51) [[Wilbur Ross]], the [[United States]] Commerce Secretary, announced the expiration of tariff exemptions for Mexico, [[Dominion of Canada|Canada]], and the [[Europe|European Union]], imposing 25% tariffs on steel and 10% on aluminum starting at midnight.
+(00:03:51) [[Wilbur Ross]], the [[United States]] Commerce Secretary, announced the expiration of tariff exemptions for Mexico, [[Dominion of Canada|Canada]], and the [[European Union]], imposing 25% tariffs on steel and 10% on aluminum starting at midnight.
 
 ### AF 2018-05-31 0175
 (00:07:07) [[Nicholas J. Fuentes]] argued that multinational corporations benefit from free trade by outsourcing labor and manufacturing to countries like Mexico and [[India]] while retaining access to [[United States|U.S.]] markets.
 
 ### AF 2018-05-31 0175
-(00:10:39) [[Wilbur Ross]] announced from [[Paris]] that Mexico, [[Dominion of Canada|Canada]], and the [[Europe|European Union]] would lose their tariff exemptions, leading to retaliatory measures and complaints to the [[World Trade Organization]].
+(00:10:39) [[Wilbur Ross]] announced from [[Paris]] that Mexico, [[Dominion of Canada|Canada]], and the [[European Union]] would lose their tariff exemptions, leading to retaliatory measures and complaints to the [[World Trade Organization]].
 
 ### AF 2018-05-31 0175
 (00:12:13) Mexico announced retaliatory tariffs on approximately $11 billion worth of [[United States|U.S.]] goods in response to the new steel and aluminum tariffs.
 
 ### AF 2018-05-31 0175
-(00:13:13) [[Nicholas J. Fuentes]] cited [[United States]] trade deficits of $18 billion with [[Dominion of Canada|Canada]], $71 billion with Mexico, and $92 billion with the [[Europe|European Union]] as evidence these allies drain the [[United States|American]] economy.
+(00:13:13) [[Nicholas J. Fuentes]] cited [[United States]] trade deficits of $18 billion with [[Dominion of Canada|Canada]], $71 billion with Mexico, and $92 billion with the [[European Union]] as evidence these allies drain the [[United States|American]] economy.
 
 ### AF 2018-05-31 0175
 (00:15:21) [[Nicholas J. Fuentes]] argued that countries like [[Germany]], [[France]], [[Dominion of Canada|Canada]], and Mexico protect their own industries with trade barriers while demanding unfettered access to [[United States|U.S.]] markets.
@@ -830,7 +830,7 @@
 (01:00:12) [[Nicholas J. Fuentes]] argued that only white, [[Europe|European]]-descended countries are undergoing rapid demographic transformation, while countries like [[China]], [[State of Japan|Japan]], and Mexico are not.
 
 ### AF 2017-09-25 0017
-(01:07:19) [[Destiny|Destiny]] argued that immigrants fleeing broken structures, like cartels in Mexico, do not necessarily bring those structures with them to the [[United States]].
+(01:07:19) [[Destiny]] argued that immigrants fleeing broken structures, like cartels in Mexico, do not necessarily bring those structures with them to the [[United States]].
 
 ### AF 2017-09-25 0017
 (01:23:31) [[Nicholas J. Fuentes]] contended that, all else being equal, ten immigrants from Mexico would be more likely to commit crimes than ten immigrants from [[Germany]].
@@ -852,3 +852,18 @@
 
 ### AF 2017-09-13 0009
 (00:36:18) [[Nicholas J. Fuentes]] stated that he understood why individuals from broken countries like Mexico would break the law to enter the [[United States]] for a better life and did not begrudge them for it.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:33:45) [[Donald Trump]] promised during his 2015 campaign to build a "big, tall, powerful, and penetrable border wall" that Mexico would pay for.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(17:56:000) [[Nicholas J. Fuentes]] expressed enthusiasm for increasing the size of the [[United States]], including territories like [[Country of Greenland|Greenland]], [[Dominion of Canada|Canada]], and Mexico.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(18:15:000) [[Nicholas J. Fuentes]] advocated for the [[United States]] to take [[Venezuela]] and Mexico as colonies, not states, arguing that their inhabitants would not receive the right to vote.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:51:14) [[China]] enrolled the majority of Latin [[United States|American]] countries in the Belt and Road Initiative and began building deep water ports in [[Jamaica]], Mexico, [[Cuba]], [[Venezuela]], [[Peru]], [[Ecuador]], and [[Argentina]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:30:34) [[Nicholas J. Fuentes]] summarized [[Candace Owens]]'s latest theory about a guy from the 1980s in Mexico proving that [[Brigitte Macron]] is a man.

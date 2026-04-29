@@ -2,7 +2,7 @@
 #person
 
 ### AF 2022-07-18 1032
-(00:54:50) [[Nicholas J. Fuentes]] argued that historical degeneracy in [[City of Las Vegas|Las Vegas]], represented by figures like [[Frank Sinatra]] and Dean Martin, was more tasteful than modern casual lack of decorum.
+(00:54:50) [[Nicholas J. Fuentes]] argued that historical degeneracy in [[Las Vegas]], represented by figures like [[Frank Sinatra]] and Dean Martin, was more tasteful than modern casual lack of decorum.
 
 
 ### AF 2020-06-29 0631

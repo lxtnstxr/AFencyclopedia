@@ -36,3 +36,72 @@
 
 ### AF 2025-12-05 1608
 (06:20:58) [[Nicholas J. Fuentes]] pointed out that Erika Kirk is doing a town hall on [[Paramount Global|Paramount]] Plus with [[Bari Weiss]], connecting it to a network involving [[JD Vance]], [[Peter Thiel]], and [[Bari Weiss]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:54:58) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] claimed he knew for a fact that Erika Kirk was being followed by Egyptian planes, but that someone later paid for the same data, found it was bogus because [[Candace Owens]] entered the data incorrectly, and the story was never spoken of again.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:38:41) [[Matt Walsh]] came out with a video strongly going after [[Candace Owens]] for attacking Erica Kirk.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:40:34) [[Matt Walsh]] said that [[Charlie Kirk]] actually died and Erica Kirk is a widow, and it is wrong to attack and accuse somebody with no evidence.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:43:40) [[Candace Owens]] is running a show without any actual credible evidence regarding Erica Kirk.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(23:22:48) Erica Kirk, the widow of [[Charlie Kirk]], was present in the gallery and recognized by [[Donald Trump]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(19:37:000) [[Nicholas J. Fuentes]] referenced [[Candace Owens]]'s claim that Egyptian military planes were following [[Charlie Kirk]] and Erica Kirk.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:13:36) [[Nicholas J. Fuentes]] introduced the night's topic as the feud between [[Candace Owens]] and Erika Kirk.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:14:05) [[Nicholas J. Fuentes]] stated that [[Candace Owens]] has been escalating a campaign to expose a conspiracy to kill [[Charlie Kirk]], and that Erika Kirk has retaliated on [[Fox News]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:23:10) [[Nicholas J. Fuentes]] stated that the show will cover the feud between [[Candace Owens]] and Erika Kirk.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:23:47) [[Nicholas J. Fuentes]] stated that [[Candace Owens]] is now explicitly attacking Erika Kirk as part of a three-month conspiracy crusade.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:27:58) [[Nicholas J. Fuentes]] reported that [[Candace Owens]] was invited to attend the live stream but declined, then said she would attend if Erika Kirk is there.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:29:08) [[Nicholas J. Fuentes]] reported that Erika Kirk appeared on the [[Fox News]] show *Outnumbered* with [[Kamala Harris|Harris]] Faulkner and gave a tearful statement saying that her silence does not mean she is complacent.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:30:32) [[Nicholas J. Fuentes]] reported that Erika Kirk said people can attack her, but not her family and [[Turning Point USA]], and that she will never back down.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:38:05) [[Nicholas J. Fuentes]] argued that Erika Kirk and [[Turning Point USA]] are losing the public relations battle because [[Candace Owens]] is dominating the conversation.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:41:14) [[Nicholas J. Fuentes]] described [[Candace Owens]] as having a "big fat, stupid [[black]] head" and being "giddy" and "elated" that she was attacked by Erika Kirk.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:43:17) [[Nicholas J. Fuentes]] reported that [[Candace Owens]] responded to Erika Kirk and said that Erika Kirk cannot weaponize the sympathy of her dead husband to shield her [[organization]] from criticism.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:45:42) [[Nicholas J. Fuentes]] stated that Erika Kirk deserves scrutiny if she is being elevated to a national political figure.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:04:50) [[Nicholas J. Fuentes]] cited as evidence of [[Turning Point USA]]'s cynicism a rally with pyrotechnics and Erika Kirk walking on stage in a white pants suit.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:13:49) [[Nicholas J. Fuentes]] stated that without [[Candace Owens]]'s influence, the public would be focused on the evidence against [[Tyler Robinson]], rather than on theories involving [[Brigitte Macron]], Egyptian planes, and Erica Kirk.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:16:15) [[Nicholas J. Fuentes]] criticized [[Candace Owens]] for using the word "compromise" when she meant "compartmentalize" in her advice to Erica Kirk.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:17:33) [[Nicholas J. Fuentes]] stated that Erica Kirk and [[Blake Neff]] could not stop [[Candace Owens]], but he can, and claimed that other conservatives are now cheering him on despite previously trashing him.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:43:01) [[Nicholas J. Fuentes]] advised a man [[who]] said his girlfriend loves Erica Kirk to get another girlfriend, saying "there's billions of them, they're always making new ones."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:31:15) [[Nicholas J. Fuentes]] called for Erica Kirk to stop [[Candace Owens]], whom he described as a malicious actor, a compulsive liar, and a disingenuous [[person]].

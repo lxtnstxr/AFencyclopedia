@@ -2,7 +2,7 @@
 #Unknown
 
 ### AF 2021-06-14 0828
-(52:17:02) The [[City of Charlottesville|Charlottesville]] rally aimed to defend the [[Robert E. Lee]] statue in Lee Park from removal, which was proposed after the 2015 church shooting in [[Charleston]], South Carolina.
+(52:17:02) The [[Charlottesville]] rally aimed to defend the [[Robert E. Lee]] statue in Lee Park from removal, which was proposed after the 2015 church shooting in [[Charleston]], South Carolina.
 
 
 ### AF 2021-05-11 0809

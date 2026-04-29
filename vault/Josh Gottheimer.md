@@ -2,7 +2,7 @@
 #person
 
 ### AF 2023-12-14 1263
-(03:05:48) Josh Gottheimer, a [[Democratic Party|Democratic]] congressman from [[New Jersey]], sent a letter to [[Donald Trump|the president]] of [[Prager University|Rutgers University]] criticizing a campus event for providing a platform for anti-Semites.
+(03:05:48) Josh Gottheimer, a [[Democratic Party|Democratic]] congressman from [[New Jersey]], sent a letter to [[the president]] of [[Prager University|Rutgers University]] criticizing a campus event for providing a platform for anti-Semites.
 
 (41:15:84) Josh Gottheimer criticized [[Prager University|Rutgers University]] for a campus event that provided a platform for well-[[known]] anti-Semites.
 

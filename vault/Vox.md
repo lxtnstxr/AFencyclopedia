@@ -2,11 +2,11 @@
 #organization
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the Vox party in [[Spain]], and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the Vox party in [[Spain]], and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 
 ### AF 2024-02-08 1289
-(52:46:68) Right-wing parties in [[Europe]], such as Vox in [[Spain]], the [[National Rally|National Front]] in [[Government of France|France]], and the [[Alternative for Germany|AfD]] in [[Germany]], are also sympathetic to [[Israel]].
+(52:46:68) Right-wing parties in [[Europe]], such as Vox in [[Spain]], the [[National Rally|National Front]] in [[France]], and the [[Alternative for Germany|AfD]] in [[Germany]], are also sympathetic to [[Israel]].
 
 ### AF 2024-02-07 1288
 (00:17:09) [[Nicholas J. Fuentes]] stated that [[Viktor Orbán]] and the Spanish party Vox also received support from [[Tucker Carlson]].

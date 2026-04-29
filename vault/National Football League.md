@@ -21,10 +21,10 @@
 (01:36:46) [[Ben Shapiro]] argued that [[the left]] has "militarized every component of the culture," making it morally incumbent to boycott corporations like the [[National Basketball Association|NBA]] and NFL that actively seek the destruction of traditional values.
 
 ### AF 2020-08-26 0669
-(00:37:56) [[Jack Brewer]], a former NFL player and lifelong [[Democratic Party|Democrat]], announced his support for [[Donald Trump]], crediting [[Donald Trump|Trump's]] policies for helping the [[black]] community and criticizing the media's portrayal of [[Donald Trump|the president]].
+(00:37:56) [[Jack Brewer]], a former NFL player and lifelong [[Democratic Party|Democrat]], announced his support for [[Donald Trump]], crediting [[Donald Trump|Trump's]] policies for helping the [[black]] community and criticizing the media's portrayal of [[the president]].
 
 ### AF 2019-07-10 0422
-(00:06:23) [[Nicholas J. Fuentes]] stated the episode would cover a flash mob robbery at a [[Walgreens]] in [[City of Philadelphia|Philadelphia]] and an NFL superstar arrested in a convenience store incident.
+(00:06:23) [[Nicholas J. Fuentes]] stated the episode would cover a flash mob robbery at a [[Walgreens]] in [[Philadelphia]] and an NFL superstar arrested in a convenience store incident.
 
 ### AF 2018-08-07 0216
 (00:10:49) [[Nicholas J. Fuentes]] argued that corporations like the NFL and [[WWE]] were making unpopular changes, such as introducing male cheerleaders, which worked against their financial interests, suggesting a political agenda.

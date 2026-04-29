@@ -12,4 +12,4 @@
 (00:01:40) [[Nicholas J. Fuentes]] announced a debate victory over Styxhexenhammer666, winning 72% of the vote in a poll with 1,822 respondents.
 
 ### AF 2018-03-05 0118
-(00:09:40) [[Nicholas J. Fuentes]] debated Styxhexenhammer666 on religion on the [[My Name is Al Show]], covering topics including the historicity of [[Jesus Christ]], the authority of the [[Pope Francis|Catholic Church]], and arguments for God's existence.
+(00:09:40) [[Nicholas J. Fuentes]] debated Styxhexenhammer666 on religion on the [[My Name is Al Show]], covering topics including the historicity of [[Jesus Christ]], the authority of the [[Catholic Church]], and arguments for God's existence.

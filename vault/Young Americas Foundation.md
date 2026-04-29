@@ -81,7 +81,7 @@
 (00:02:36) The Young America's Foundation released an internal memo on May 25, 2018, detailing allegations of unethical and illegal business practices by [[Turning Point USA]].
 
 ### AF 2019-11-07 0494
-(00:07:58) The Young America's Foundation memo accused [[Turning Point USA]] of having members [[who]] attended the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally and harboring racists within its [[organization]].
+(00:07:58) The Young America's Foundation memo accused [[Turning Point USA]] of having members [[who]] attended the [[Charlottesville]] "Unite the Right" rally and harboring racists within its [[organization]].
 
 ### AF 2019-11-07 0494
 (00:11:12) Young America's Foundation's upcoming campus tour features speakers including [[Ben Shapiro]], [[Matt Walsh]], [[Michael Knowles]], and [[Andrew Klavan]].

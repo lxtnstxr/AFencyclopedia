@@ -19,7 +19,7 @@
 
 
 ### AF 2025-07-28 1540
-(03:03:92) [[Nicholas J. Fuentes]] stated that [[Donald Trump]]'s administration blackmailed Colombia and other [[Ivy League]] universities by withholding federal funds to force them to crack down on pro-[[Gaza Strip|Palestine]] protests and change curricula to be more pro-[[Israel]].
+(03:03:92) [[Nicholas J. Fuentes]] stated that [[Donald Trump]]'s administration blackmailed Colombia and other [[Ivy League]] universities by withholding federal funds to force them to crack down on pro-[[Palestine]] protests and change curricula to be more pro-[[Israel]].
 
 
 ### AF 2025-07-28 1540
@@ -31,7 +31,7 @@
 
 
 ### AF 2025-07-28 1540
-(03:05:10) [[Nicholas J. Fuentes]] noted that [[Bari Weiss]] and [[Costin Alamariu]] ([[Costin Alamariu|Bronze Age Pervert]]) were part of [[the David Project]] at Colombia in 2004-2005, campaigning to fire a pro-[[Gaza Strip|Palestine]] professor.
+(03:05:10) [[Nicholas J. Fuentes]] noted that [[Bari Weiss]] and [[Costin Alamariu]] ([[Costin Alamariu|Bronze Age Pervert]]) were part of [[the David Project]] at Colombia in 2004-2005, campaigning to fire a pro-[[Palestine]] professor.
 
 
 ### AF 2025-07-28 1540

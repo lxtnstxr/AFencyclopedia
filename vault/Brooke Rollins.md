@@ -53,3 +53,12 @@
 
 ### AF 2021-04-14 0792
 (39:08:44) [[Nicholas J. Fuentes]] concluded that the [[America First Policy Institute]], founded by Brooke Rollins, [[Linda McMahon]], and [[Larry Kudlow]], represented "the worst of the [[Donald Trump|Trump administration]]" and was a platform for [[George W. Bush|Bush]], McCain, and [[Mitt Romney|Romney]]-era policies rebranded with [[United States|America]] First slogans.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:56:10) [[Nicholas J. Fuentes]] brought up the example of Secretary of Agriculture Brooke Rollins, [[who]] represents big agriculture interests and is against deportations and migrant farm labor, while [[Kristi Noem]] and [[Stephen Miller]] are for them.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:57:20) [[Nicholas J. Fuentes]] said that [[Donald Trump]] has a better relationship with Brooke Rollins, [[who]] ran the [[America First]] Policy Institute (AFPI), and that [[Donald Trump|Trump]] chose AFPI over Project 2025 from the [[Heritage Foundation]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:55:11.500) [[Nicholas J. Fuentes]] reported that [[Donald Trump]], [[Stephen Miller]], and Brooke Rollins were devising a plan to give H2A visas to illegal immigrants working on farms, effectively an amnesty or "carve out."

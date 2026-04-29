@@ -2,9 +2,9 @@
 #Unknown
 
 ### AF 2020-05-27 0614
-(01:09:30) [[Nicholas J. Fuentes]] described videos showing people looting a Target store and a liquor store in [[City of Minneapolis|Minneapolis]] during the protests.
+(01:09:30) [[Nicholas J. Fuentes]] described videos showing people looting a Target store and a liquor store in [[Minneapolis]] during the protests.
 
-(01:34:30) [[Nicholas J. Fuentes]] argued that appeasing criminals through investigations and concessions would not work, and that law-breaking, like looting Target, must be punished to restore order.(01:40:08) [[Nicholas J. Fuentes]] argued that observable disparities in outcomes between regions like [[City of Minneapolis|Minneapolis]], [[City|Detroit]], [[City of Chicago|Chicago]], [[Europe]], and [[African continent|Africa]] stem from fundamental genetic inequalities, not solely cultural differences.
+(01:34:30) [[Nicholas J. Fuentes]] argued that appeasing criminals through investigations and concessions would not work, and that law-breaking, like looting Target, must be punished to restore order.(01:40:08) [[Nicholas J. Fuentes]] argued that observable disparities in outcomes between regions like [[Minneapolis]], [[City|Detroit]], [[Chicago]], [[Europe]], and [[African continent|Africa]] stem from fundamental genetic inequalities, not solely cultural differences.
 
 ### AF 2020-03-20 0569
 (05:37:54) [[Nicholas J. Fuentes]] observed completely empty shelves for cereal, canned goods, toilet paper, hand sanitizer, disinfectant, bleach, bread, eggs, and freezer items at Target and [[Walmart]].

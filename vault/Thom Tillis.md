@@ -22,3 +22,6 @@
 
 ### AF 2020-02-04 0539
 (01:04:24:31) [[Donald Trump]] endorsed legislation introduced by Senator Tom Tillis to allow [[United States|Americans]] to sue sanctuary cities and states when a loved one is hurt or killed due to their policies.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:39:33) [[Nicholas J. Fuentes]] reported that the top three [[House Democrats]] supported an effort to impeach [[Kristi Noem]], and that [[Republican Party|Republican]] Senators Thom Tillis and [[Lisa Murkowski]] were also critical.

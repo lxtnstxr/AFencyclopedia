@@ -102,7 +102,7 @@
 (00:32:55) [[Nicholas J. Fuentes]] speculated that if [[Donald Trump]] had been killed, the [[Republican Party|Republican]] National Convention would have selected a replacement nominee from among [[Nikki Haley]], Ron DeSantis, [[Marco Rubio]], or [[JD Vance]], all of whom had delegates.
 
 ### AF 2024-07-13 1355
-(00:39:33) [[Nicholas J. Fuentes]] argued that [[Sheldon Adelson|Miriam Adelson]] was a close personal friend and supporter of [[Nikki Haley]], Ron DeSantis, and [[Marco Rubio]], and that [[JD Vance]] had recently expressed strong support for [[Israel]].
+(00:39:33) [[Nicholas J. Fuentes]] argued that [[Miriam Adelson]] was a close personal friend and supporter of [[Nikki Haley]], Ron DeSantis, and [[Marco Rubio]], and that [[JD Vance]] had recently expressed strong support for [[Israel]].
 
 ### AF 2024-07-13 1355
 (00:51:12) [[Nicholas J. Fuentes]] listed [[Benjamin Netanyahu]], [[North Atlantic Treaty Organization|NATO]], the [[Central Intelligence Agency|CIA]], defense contractors, [[Nikki Haley]], Ron DeSantis, [[Marco Rubio]], [[JD Vance]], and [[Peter Thiel]] as entities that would have benefited from a successful assassination of [[Donald Trump]].
@@ -132,7 +132,7 @@
 (00:38:09) A [[Twitter]] account named "Max Nordau," believed to be run by [[Brian Griffin]], communications director for the Ron DeSantis campaign, criticized [[Nicholas J. Fuentes]] as an anti-Semite who supports [[Donald Trump]].
 
 ### AF 2024-05-28 1336
-(00:48:14) Figures like [[Ben Shapiro]], [[Sheldon Adelson|Miriam Adelson]], and [[Bill Kristol]] initially opposed [[Donald Trump]], supported Ron DeSantis and [[Nikki Haley]], and only reluctantly support [[Donald Trump|Trump]] because he supports [[Israel]].
+(00:48:14) Figures like [[Ben Shapiro]], [[Miriam Adelson]], and [[Bill Kristol]] initially opposed [[Donald Trump]], supported Ron DeSantis and [[Nikki Haley]], and only reluctantly support [[Donald Trump|Trump]] because he supports [[Israel]].
 
 ### AF 2024-04-24 1325
 (47:19:69) [[Nicholas J. Fuentes]] claimed that Ron DeSantis's Anti-Tech Censorship Bill in [[State of Florida|Florida]] did not fully protect free speech because doing so would allow people to deny the Holocaust or say things that are anti-Semitic.
@@ -141,7 +141,7 @@
 (23:05:45) [[Pedro Gonzalez]] apologized to [[Ben Shapiro]] for previous anti-Semitic remarks and subsequently worked for Ron DeSantis.
 
 ### AF 2024-04-16 1320
-(23:36:57) Ron DeSantis received support from [[Sheldon Adelson|Miriam Adelson]] during the [[2024 Republican presidential primary]] and advocated for military action against [[Iran]] and unwavering support for [[Israel]].
+(23:36:57) Ron DeSantis received support from [[Miriam Adelson]] during the [[2024 Republican presidential primary]] and advocated for military action against [[Iran]] and unwavering support for [[Israel]].
 
 ### AF 2024-04-02 1313
 (00:27:24) [[Nicholas J. Fuentes]] used the [[Donald Trump|Trump]] revolution as another example of winning the argument but losing the peace, as key elements like immigration restriction were subtracted by successors like Ron DeSantis.
@@ -183,7 +183,7 @@
 (48:28:45) [[David Sacks]] hosted Ron DeSantis's campaign announcement on [[Twitter|X]] (formerly [[Twitter]]) and donated $50,000 to his campaign.
 
 ### AF 2024-02-28 1299
-(48:34:23) Ron DeSantis traveled to [[Israel]] with donors [[Sheldon Adelson|Miriam Adelson]] and other major [[Jewish]] donors shortly before his campaign announcement.
+(48:34:23) Ron DeSantis traveled to [[Israel]] with donors [[Miriam Adelson]] and other major [[Jewish]] donors shortly before his campaign announcement.
 
 ### AF 2024-02-28 1299
 (48:40:29) Ron DeSantis heeded calls from the [[Israel|Israeli government]] to act against [[Ben & Jerry's]], BDS on campuses, and anti-Semitic flyering.
@@ -192,7 +192,7 @@
 (00:07:00) [[Nikki Haley]], [[Donald Trump]]'s [[United Nations|UN]] Ambassador, and Ron DeSantis have competed over who would do more for [[Israel]].
 
 ### AF 2024-02-01 1287
-(00:03:47) Ron DeSantis called for the deportation of [[Ilhan Omar]] but has himself taken actions seen as supportive of [[Israel]], including banning BDS on public campuses and visiting [[Israel]] to take money from the [[Sheldon Adelson|Miriam Adelson]] family.
+(00:03:47) Ron DeSantis called for the deportation of [[Ilhan Omar]] but has himself taken actions seen as supportive of [[Israel]], including banning BDS on public campuses and visiting [[Israel]] to take money from the [[Miriam Adelson]] family.
 
 ### AF 2024-02-01 1287
 (00:32:30) Ron DeSantis condemned [[Ilhan Omar]] for dual loyalty but was criticized for doing the "exact same thing with [[Israel]]," referencing his debate performances with [[Nikki Haley]] where they argued over who would do more for [[Israel]].
@@ -213,7 +213,7 @@
 (01:55:00) [[Ken Griffin]], the founder of [[Citadel LLC]], and other [[The Wall Street Journal|Wall Street]] [[Republican Party|Republican]] donors shifted their support from [[Donald Trump]] to Ron DeSantis in 2022, citing a desire for a candidate who would "not rock the boat" on cultural issues.
 
 ### AF 2024-01-25 1282
-(01:56:00) Ron DeSantis attended a dinner in [[Israel]] with [[Sheldon Adelson|Miriam Adelson]] and other major [[Jewish]] donors shortly before announcing his presidential campaign, which he launched with the support of [[David Sacks]] and [[Elon Musk]].
+(01:56:00) Ron DeSantis attended a dinner in [[Israel]] with [[Miriam Adelson]] and other major [[Jewish]] donors shortly before announcing his presidential campaign, which he launched with the support of [[David Sacks]] and [[Elon Musk]].
 
 ### AF 2024-01-23 1281
 (00:34:800) Ron DeSantis suspended his 2024 presidential campaign and endorsed [[Donald Trump]] before the New Hampshire primary, leaving [[Nikki Haley]] as the last major challenger.
@@ -246,7 +246,7 @@
 (49:13:650) In his withdrawal video, Ron DeSantis stated that a majority of [[Republican Party|Republican]] primary voters wanted to give [[Donald Trump]] another chance and criticized [[Nikki Haley]] as representing "warmed-over corporatism."
 
 ### AF 2024-01-23 1281
-(51:07:890) [[Donald Trump]] called Ron DeSantis a "terrific person" during a rally in [[City of Rochester|Rochester, New Hampshire]], after DeSantis ended his campaign and offered an endorsement.
+(51:07:890) [[Donald Trump]] called Ron DeSantis a "terrific person" during a rally in [[Rochester, New Hampshire]], after DeSantis ended his campaign and offered an endorsement.
 
 ### AF 2024-01-23 1281
 (51:25:090) Major [[The Wall Street Journal|Wall Street]] donor [[Ken Griffin]] of [[Citadel LLC]] publicly backed Ron DeSantis in late 2022, representing a pivot of financial elite support away from [[Donald Trump]].
@@ -291,16 +291,16 @@
 (00:31:21) [[Nicholas J. Fuentes]] argued that Ron DeSantis had no viable path to the nomination, as he was not leading in any of the early states or his home state of [[State of Florida|Florida]].
 
 ### AF 2024-01-17 1278
-(00:37:07) [[Nicholas J. Fuentes]] noted that the [[American Israel Public Affairs Committee|Israel lobby]], led by figures like [[Sheldon Adelson|Miriam Adelson]], had backed Ron DeSantis and later [[Nikki Haley]], not [[Donald Trump]].
+(00:37:07) [[Nicholas J. Fuentes]] noted that the [[American Israel Public Affairs Committee|Israel lobby]], led by figures like [[Miriam Adelson]], had backed Ron DeSantis and later [[Nikki Haley]], not [[Donald Trump]].
 
 ### AF 2024-01-17 1278
-(00:37:15) Before announcing his campaign, Ron DeSantis flew to [[Israel]] and had dinner with [[Sheldon Adelson|Miriam Adelson]], the widow of major [[Republican Party|Republican]] donor [[Sheldon Adelson]].
+(00:37:15) Before announcing his campaign, Ron DeSantis flew to [[Israel]] and had dinner with [[Miriam Adelson]], the widow of major [[Republican Party|Republican]] donor [[Sheldon Adelson]].
 
 ### AF 2024-01-17 1278
 (00:40:10) Ron DeSantis visited [[Israel]], [[London]], and [[South Korea]] before announcing his presidential campaign.
 
 ### AF 2024-01-17 1278
-(00:40:19) During his [[Israel]] trip, Ron DeSantis dined with [[Sheldon Adelson|Miriam Adelson]] and other major Zionist donors.
+(00:40:19) During his [[Israel]] trip, Ron DeSantis dined with [[Miriam Adelson]] and other major Zionist donors.
 
 ### AF 2024-01-17 1278
 (00:41:09) [[Ken Griffin]] and [[The Wall Street Journal|Wall Street]] initially threw their support behind Ron DeSantis before shifting to [[Nikki Haley]] as DeSantis's campaign faltered.
@@ -420,7 +420,7 @@
 (02:02:15) [[Nicholas J. Fuentes]] identified [[Ken Griffin]] as a major liberal [[The Wall Street Journal|Wall Street]] donor who reluctantly bankrolled [[Donald Trump]] but shifted his support to Ron DeSantis in 2022, preferring a candidate who would cut taxes and not rock the boat.
 
 ### AF 2023-12-07 1258
-(02:02:59) [[Nicholas J. Fuentes]] stated that Ron DeSantis visited [[Israel]] before his presidential announcement and received support from [[Jewish]] donors like [[Sheldon Adelson|Miriam Adelson]], amassing a record war chest of around $200 million.
+(02:02:59) [[Nicholas J. Fuentes]] stated that Ron DeSantis visited [[Israel]] before his presidential announcement and received support from [[Jewish]] donors like [[Miriam Adelson]], amassing a record war chest of around $200 million.
 
 ### AF 2023-12-07 1258
 (02:03:36) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]]'s campaign was struggling financially in early 2023 until his indictments changed the dynamic, while Ron DeSantis was seen as a viable alternative.
@@ -507,10 +507,10 @@
 (11:51:42) Ron DeSantis stated that many companies have moved from [[State of California|California]] to [[State of Texas|Texas]], and some to [[State of Florida|Florida]], due to a better business environment.
 
 ### AF 2023-12-01 1254
-(12:11:36) [[Gavin Newsom]] challenged Ron DeSantis on his business climate claims, citing [[Disney|Disney]] and the [[Tampa Bay Rays]].
+(12:11:36) [[Gavin Newsom]] challenged Ron DeSantis on his business climate claims, citing [[Disney]] and the [[Tampa Bay Rays]].
 
 ### AF 2023-12-01 1254
-(12:21:72) Ron DeSantis claimed he made [[Disney|Disney]] a fortune and saved jobs by keeping it open during COVID, unlike [[Gavin Newsom]] who closed it for over a year.
+(12:21:72) Ron DeSantis claimed he made [[Disney]] a fortune and saved jobs by keeping it open during COVID, unlike [[Gavin Newsom]] who closed it for over a year.
 
 ### AF 2023-12-01 1254
 (12:37:58) Ron DeSantis accused [[Gavin Newsom]] of locking working-class and middle-income kids out of school for longer than anywhere else in the [[country]] during the COVID-19 pandemic.
@@ -756,7 +756,7 @@
 (00:30:17) Ron DeSantis stated he was the first presidential candidate to say he would cancel the visas of foreign nationals on student visas who make "common cause with [[Hamas]]" and send them home.
 
 ### AF 2023-11-09 1246
-(00:30:33) Ron DeSantis reported that in [[State of Florida|Florida]], he deactivated the student group "Students for Justice in [[Gaza Strip|Palestine]]" after they declared common cause with [[Hamas]], stating he would not use state tax dollars to fund jihad.
+(00:30:33) Ron DeSantis reported that in [[State of Florida|Florida]], he deactivated the student group "Students for Justice in [[Palestine]]" after they declared common cause with [[Hamas]], stating he would not use state tax dollars to fund jihad.
 
 ### AF 2023-11-09 1246
 (00:45:48) Ron DeSantis pledged that as president, he would not send [[United States|American]] sons and daughters to [[Ukraine]] but would send troops to the [[United States|U.S]]. southern border to address terrorist threats and deport migrants who entered under [[Joe Biden]].
@@ -912,7 +912,7 @@
 (01:17:04) [[Nicholas J. Fuentes]] asserted that the establishment's full-scale effort to defeat [[Donald Trump]] in the 2024 [[Republican Party|Republican]] primary, including promoting Ron DeSantis, had already failed embarrassingly.
 
 ### AF 2023-08-25 1204
-(01:17:04) [[Nicholas J. Fuentes]] claimed that major donors like [[Ken Griffin]] and [[Sheldon Adelson|Miriam Adelson]], institutions like [[The Wall Street Journal|Wall Street]], and influencers like [[Elon Musk]] had backed Ron DeSantis's failed primary challenge against [[Donald Trump]].
+(01:17:04) [[Nicholas J. Fuentes]] claimed that major donors like [[Ken Griffin]] and [[Miriam Adelson]], institutions like [[The Wall Street Journal|Wall Street]], and influencers like [[Elon Musk]] had backed Ron DeSantis's failed primary challenge against [[Donald Trump]].
 
 ### AF 2023-08-25 1204
 (01:17:04) [[Nicholas J. Fuentes]] stated that Ron DeSantis began the primary race with a $200 million war chest and polled at 30%, while [[Donald Trump]] initially struggled to raise money.
@@ -1023,7 +1023,7 @@
 (00:10:52) [[Nicholas J. Fuentes]] discussed the exposure of [[Pedro Gonzalez]], a prominent Ron DeSantis supporter and writer at [[Chronicles]] magazine, by [[Breitbart News]] for anti-Semitic texts sent in 2019.
 
 ### AF 2023-06-30 1184
-(00:13:10) [[Nicholas J. Fuentes]] stated that [[Pedro Gonzalez]] had betrayed his previously held views to support Ron DeSantis, whom he characterized as a hardcore supporter of [[Israel]] who had dined with [[Sheldon Adelson|Miriam Adelson]] to receive her blessing.
+(00:13:10) [[Nicholas J. Fuentes]] stated that [[Pedro Gonzalez]] had betrayed his previously held views to support Ron DeSantis, whom he characterized as a hardcore supporter of [[Israel]] who had dined with [[Miriam Adelson]] to receive her blessing.
 
 ### AF 2023-06-28 1182
 (00:00:20) [[Breitbart News|Breitbart]] published a report exposing [[Pedro Gonzalez]], a prominent supporter of Ron DeSantis, for sending private text messages that contained negative remarks about [[Jews]], the Holocaust, and [[black]] people, and positive comments about [[Nicholas J. Fuentes]].
@@ -1044,10 +1044,10 @@
 (01:00:13) [[Nicholas J. Fuentes]] claimed that Ron DeSantis passed legislation in [[State of Florida|Florida]] making it a felony to put up an anti-Semitic flyer in the wrong place, which he characterized as a hate speech law.
 
 ### AF 2023-06-28 1182
-(01:00:57) [[Nicholas J. Fuentes]] stated that Ron DeSantis moved to defund [[Ben & Jerry's]] [[ice]] cream after the foreign minister of [[Israel]] called on [[United States|American]] officials to attack the company over its stance on the [[Israel]]-[[Gaza Strip|Palestine]] conflict.
+(01:00:57) [[Nicholas J. Fuentes]] stated that Ron DeSantis moved to defund [[Ben & Jerry's]] [[ice]] cream after the foreign minister of [[Israel]] called on [[United States|American]] officials to attack the company over its stance on the [[Israel]]-[[Palestine]] conflict.
 
 ### AF 2023-06-28 1182
-(01:02:45) [[Nicholas J. Fuentes]] said that before announcing his presidential campaign, Ron DeSantis traveled to [[Israel]] to meet with [[Jews|Jewish Zionist]] donors like [[Sheldon Adelson|Miriam Adelson]] to get their blessing.
+(01:02:45) [[Nicholas J. Fuentes]] said that before announcing his presidential campaign, Ron DeSantis traveled to [[Israel]] to meet with [[Jews|Jewish Zionist]] donors like [[Miriam Adelson]] to get their blessing.
 
 ### AF 2023-06-08 1174
 (04:01:74) The 2024 [[Republican Party]] presidential primary field included Ron DeSantis, [[Nikki Haley]], [[Tim Scott]], [[Chris Christie]], [[Mike Pence]], [[Vivek Ramaswamy]], and [[Asa Hutchinson]].
@@ -1080,7 +1080,7 @@
 (00:55:07) [[Nicholas J. Fuentes]] predicted [[Donald Trump|Trump]] would win the 2024 [[Republican Party|Republican]] primary easily, citing his dominant polling position compared to his 12% starting point in 2016, and that the only way DeSantis could win is if [[Donald Trump|Trump]] was sidelined by the [[U.S. Department of Justice|DOJ]].
 
 ### AF 2023-05-31 1169
-(02:01:21) [[Nicholas J. Fuentes]] suggested that his dinner with [[Donald Trump]] and [[Kanye West]] caused [[Jews]] to flee [[Donald Trump|Trump's]] camp, and that Ron DeSantis was subsequently crowned as the pro-[[Israel]] candidate after meeting with donor [[Sheldon Adelson|Miriam Adelson]] in [[Israel]].
+(02:01:21) [[Nicholas J. Fuentes]] suggested that his dinner with [[Donald Trump]] and [[Kanye West]] caused [[Jews]] to flee [[Donald Trump|Trump's]] camp, and that Ron DeSantis was subsequently crowned as the pro-[[Israel]] candidate after meeting with donor [[Miriam Adelson]] in [[Israel]].
 
 ### AF 2023-05-31 1169
 (02:04:28) [[Nicholas J. Fuentes]] expressed support for [[Donald Trump]] over Ron DeSantis, whom he viewed as the candidate anointed by pro-[[Israel]] figures, though he acknowledged [[Donald Trump|Trump's]] connections through [[Jared Kushner]].
@@ -1254,28 +1254,28 @@
 (01:22:43) Ron DeSantis was expected to announce his 2024 presidential campaign within weeks following the conclusion of the [[State of Florida|Florida]] legislative session.
 
 ### AF 2023-05-05 1156
-(00:24:00) Members of the far-right group [[Proud Boys]], including former leader [[Enrique Tarrio]], were convicted for their role in the [[January 6th Attack|January 6th]] Capitol riot, with four found guilty of seditious conspiracy and all five guilty of obstructing an official proceeding. (00:46:00) [[Enrique Tarrio]] was not in [[Washington D.C.|Washington, D.C.]] on [[January 6th Attack|January 6th]], having been arrested two days prior for burning a [[Black Lives Matter]] banner and on weapons charges. (00:48:00) Co-defendant [[Joe Biggs]], a [[United States|U.S]]. Army veteran and former broadcaster for [[Infowars]], was seen on video leading members of the [[Proud Boys]] around the Capitol on [[January 6th Attack|January 6th]]. (00:48:00) Co-defendant [[Zachary Rehl]], a former [[United States|U.S]]. Marine and leader of the [[City of Philadelphia|Philadelphia]] chapter of the [[Proud Boys]], was part of the group that stormed the Capitol building. (00:49:00) Co-defendant [[Dominic Pezzola]], a former Marine, was found not guilty of seditious conspiracy but was convicted of assaulting a police officer after taking a riot shield and smashing a window. (00:49:00) [[Dominic Pezzola]] testified in his own defense that he was acting alone on [[January 6th Attack|January 6th]] and had not met his co-defendants prior to that day. (00:53:00) [[Nicholas J. Fuentes]] argued that the convictions of the [[Proud Boys]] represent the regime's effort to eliminate opposition, comparing the defendants to participants in the Boston Tea Party and stating the government views them as terrorists. (01:04:00) [[Nicholas J. Fuentes]] stated that the [[Federal Bureau of Investigation|FBI]] and [[U.S. Department of Justice|DOJ]] have a conviction rate over 95% and do not charge people unless they have an airtight case, implying the [[Proud Boys]] are unlikely to win on appeal. (01:05:00) [[Nicholas J. Fuentes]] advised against joining militias or breaking laws as a high-risk strategy, citing the prosecutions of the [[Proud Boys]] and [[Douglas Mackey|Ricky Vaughn]] as examples of the regime's pressure tactics. (01:05:00) [[Nicholas J. Fuentes]] stated that after [[January 6th Attack|January 6th]], 2021, many people decided political activism was "not worth it" due to the demonstrated brutality of the regime, leading to a change in tone. (01:08:00) [[Nicholas J. Fuentes]] argued that the only way to oppose the current regime is to ensure a favorable candidate wins the 2024 election, explicitly stating "not [[Joe Biden|Biden]], not DeSantis."
+(00:24:00) Members of the far-right group [[Proud Boys]], including former leader [[Enrique Tarrio]], were convicted for their role in the [[January 6th Attack|January 6th]] Capitol riot, with four found guilty of seditious conspiracy and all five guilty of obstructing an official proceeding. (00:46:00) [[Enrique Tarrio]] was not in [[Washington D.C.|Washington, D.C.]] on [[January 6th Attack|January 6th]], having been arrested two days prior for burning a [[Black Lives Matter]] banner and on weapons charges. (00:48:00) Co-defendant [[Joe Biggs]], a [[United States|U.S]]. Army veteran and former broadcaster for [[Infowars]], was seen on video leading members of the [[Proud Boys]] around the Capitol on [[January 6th Attack|January 6th]]. (00:48:00) Co-defendant [[Zachary Rehl]], a former [[United States|U.S]]. Marine and leader of the [[Philadelphia]] chapter of the [[Proud Boys]], was part of the group that stormed the Capitol building. (00:49:00) Co-defendant [[Dominic Pezzola]], a former Marine, was found not guilty of seditious conspiracy but was convicted of assaulting a police officer after taking a riot shield and smashing a window. (00:49:00) [[Dominic Pezzola]] testified in his own defense that he was acting alone on [[January 6th Attack|January 6th]] and had not met his co-defendants prior to that day. (00:53:00) [[Nicholas J. Fuentes]] argued that the convictions of the [[Proud Boys]] represent the regime's effort to eliminate opposition, comparing the defendants to participants in the Boston Tea Party and stating the government views them as terrorists. (01:04:00) [[Nicholas J. Fuentes]] stated that the [[Federal Bureau of Investigation|FBI]] and [[U.S. Department of Justice|DOJ]] have a conviction rate over 95% and do not charge people unless they have an airtight case, implying the [[Proud Boys]] are unlikely to win on appeal. (01:05:00) [[Nicholas J. Fuentes]] advised against joining militias or breaking laws as a high-risk strategy, citing the prosecutions of the [[Proud Boys]] and [[Douglas Mackey|Ricky Vaughn]] as examples of the regime's pressure tactics. (01:05:00) [[Nicholas J. Fuentes]] stated that after [[January 6th Attack|January 6th]], 2021, many people decided political activism was "not worth it" due to the demonstrated brutality of the regime, leading to a change in tone. (01:08:00) [[Nicholas J. Fuentes]] argued that the only way to oppose the current regime is to ensure a favorable candidate wins the 2024 election, explicitly stating "not [[Joe Biden|Biden]], not DeSantis."
 
 ### AF 2023-04-27 1154
-(00:19:40) [[Disney|Disney]] sued Ron DeSantis and the state of [[State of Florida|Florida]], alleging retaliation for the company's opposition to the Parental Rights in Education Act, which critics called the "Don't Say Gay" bill.
+(00:19:40) [[Disney]] sued Ron DeSantis and the state of [[State of Florida|Florida]], alleging retaliation for the company's opposition to the Parental Rights in Education Act, which critics called the "Don't Say Gay" bill.
 
 ### AF 2023-04-27 1154
-(00:27:20) [[Nicholas J. Fuentes]] characterized Ron DeSantis as a pawn of [[Israel]] but praised his confrontation with the [[Disney|Disney]] corporation.
+(00:27:20) [[Nicholas J. Fuentes]] characterized Ron DeSantis as a pawn of [[Israel]] but praised his confrontation with the [[Disney]] corporation.
 
 ### AF 2023-04-27 1154
-(00:41:58) [[Disney|Disney]] alleged that Ron DeSantis and the [[State of Florida|Florida]] state government engaged in a campaign of retaliation, including voiding development deals and threatening new taxes and a state prison near [[Disney]] World, after the company criticized the Parental Rights in Education Act.
+(00:41:58) [[Disney]] alleged that Ron DeSantis and the [[State of Florida|Florida]] state government engaged in a campaign of retaliation, including voiding development deals and threatening new taxes and a state prison near [[Disney]] World, after the company criticized the Parental Rights in Education Act.
 
 ### AF 2023-04-27 1154
-(00:54:00) Ron DeSantis defended the state's actions against [[Disney|Disney]] as removing special privileges and asserted the state would not bend to "woke executives."
+(00:54:00) Ron DeSantis defended the state's actions against [[Disney]] as removing special privileges and asserted the state would not bend to "woke executives."
 
 ### AF 2023-04-27 1154
-(01:00:40) [[Disney|Disney]] CEO [[Bob Iger]], who is [[Jewish]], called Ron DeSantis's feud with the company "anti-business and anti-[[State of Florida|Florida]]."
+(01:00:40) [[Disney]] CEO [[Bob Iger]], who is [[Jewish]], called Ron DeSantis's feud with the company "anti-business and anti-[[State of Florida|Florida]]."
 
 ### AF 2023-04-27 1154
-(01:42:20) [[Nicholas J. Fuentes]] argued that the conflict between Ron DeSantis and the [[Disney|Disney]] corporation represented a fundamental question of whether elected state governments or unaccountable multinational corporations ultimately control societal norms.
+(01:42:20) [[Nicholas J. Fuentes]] argued that the conflict between Ron DeSantis and the [[Disney]] corporation represented a fundamental question of whether elected state governments or unaccountable multinational corporations ultimately control societal norms.
 
 ### AF 2023-04-27 1154
-(02:03:00) [[Nicholas J. Fuentes]] stated that [[Nikki Haley]] took bribes from [[Boeing]] during her political career, contrasting her with Ron DeSantis's actions against [[Disney|Disney]].
+(02:03:00) [[Nicholas J. Fuentes]] stated that [[Nikki Haley]] took bribes from [[Boeing]] during her political career, contrasting her with Ron DeSantis's actions against [[Disney]].
 
 ### AF 2023-04-21 1151
 (00:14:02) [[Nicholas J. Fuentes]] described an online dispute between [[Dave Reboy]], a supporter of Ron DeSantis, and [[Rick Grenell]], the gay former ambassador to [[Germany]] and director of national intelligence under [[Donald Trump]].
@@ -1287,7 +1287,7 @@
 (11:24:82) Ron DeSantis, as Governor of [[State of Florida|Florida]], signed the Parental Rights in Education Act, which banned classroom discussion of gender and sexual orientation in public schools for children before the fourth grade.
 
 ### AF 2023-04-11 1145
-(00:30:52) [[Joe Biden]] ended the war in [[Afghanistan]] in August 2021, withdrawing [[United States|U.S]]. troops despite criticism over abandoned equipment and civilians. (00:56:57) [[Joe Biden]] ended the national COVID-19 public health emergency on April 10, 2023, signing [[House]] Joint Resolution 7, a bill sponsored by [[Paul Gosar]]. (01:10:95) [[Donald Trump]] declared the COVID-19 national emergency on March 13, 2020, after the [[World Health Organization]] declared the virus a pandemic. (01:39:73) [[Paul Gosar]] sponsored [[House]] Joint Resolution 7, the bill that terminated the national emergency concerning the COVID-19 pandemic. (02:20:11) The [[Tennessee]] [[House of Representatives]], controlled by [[Republican Party|Republicans]], expelled two [[Black]] [[Democratic Party|Democratic]] state representatives, [[Justin Jones]] and [[Justin Pearson]], for violating chamber decorum during a gun control protest. (03:47:97) The [[Nashville]] Metropolitan Council voted unanimously to reinstate [[Justin Jones]] to the [[Tennessee]] [[House of Representatives]] on an interim basis, overriding the normal four-week waiting period for filling vacancies. (04:57:03) The [[Tennessee]] [[House]] expelled [[Justin Jones]] and [[Justin Pearson]], who are [[Black]], but did not expel [[Gloria Johnson]], a white representative who participated in the same protest. (05:41:75) [[Marjorie Taylor Greene]] attacked [[Nicholas J. Fuentes]] and [[Laura Loomer]] on [[Twitter]] on Good Friday, calling [[Fuentes]] a "weirdo" and an "alleged federal informant." (08:29:77) [[The New York Times]] published a story reporting that [[Donald Trump]] wanted to hire [[Laura Loomer]] for his campaign. (09:06:37) [[Marjorie Taylor Greene]] stated it would be a "terrible mistake" for [[Donald Trump]] to hire [[Laura Loomer]] and called [[Nicholas J. Fuentes]] a "weirdo" and an "alleged federal informant." (10:29:89) [[The New York Times]] reported that federal prosecutors considered charging [[Nicholas J. Fuentes]] with conspiracy related to the [[January 6th Attack|January 6th]] Capitol riot but declined to do so. (11:46:85) [[Marjorie Taylor Greene]]'s first act after being elected to [[Congress]] was to apologize for her past controversial statements, despite previously vowing she would "never apologize." (12:16:11) [[Marjorie Taylor Greene]] compared COVID-19 mask and vaccine mandates to the Holocaust, stating anti-vaxxers were being treated like [[Jews]] during that period. (12:56:71) [[Marjorie Taylor Greene]] visited the [[United States|U.S]]. Holocaust Memorial Museum a week after her Holocaust comparison comments, stating she wanted to "get educated." (13:32:69) [[Marjorie Taylor Greene]], who had previously called for impeaching [[Mike Johnson|Kevin McCarthy]], was the first to support him for [[Mike Johnson|Speaker of the House]] after the 2022 midterms. (13:47:29) [[Marjorie Taylor Greene]] endorsed [[Laura Loomer]] for [[Congress]] in 2020 but later opposed her, influenced by [[Karen Giorno]]. (14:09:73) [[Marjorie Taylor Greene]] spoke at [[AFPAC|AFPAC 3]], an event hosted by [[Nicholas J. Fuentes]], but later claimed she did not know who he was when criticized by the media. (15:33:43) [[Nicholas J. Fuentes]] hosted 1,200 attendees at his [[AFPAC|AFPAC 3]] event, where [[Marjorie Taylor Greene]] appeared as a surprise guest. (17:01:61) [[Nicholas J. Fuentes]] stated he invited [[Marjorie Taylor Greene]] to [[AFPAC|AFPAC 3]] to gain credibility for his movement and was only willing to be "polite and cordial" with her. (18:19:57) [[Donald Trump]]'s inner circle included [[Jason Miller]], [[Rick Grenell]], [[Steve Bannon]], and [[Marjorie Taylor Greene]], according to [[Nicholas J. Fuentes]]. (19:19:69) [[Nicholas J. Fuentes]] appeared on an interview with [[Pearl Davis|Pearl]] in [[London]] where he denied the Holocaust and the Holodomor and made statements against interracial marriage. (19:53:05) [[Pearl Davis|Pearl]] was criticized in an interview with two [[United Kingdom|British]] [[Jewish]] hosts for having [[Nicholas J. Fuentes]] on her show, but she defended her decision by stating she believes in letting people talk. (21:53:83) [[Destiny]] and the podcast [[No Jumper]] frequently criticize interviewers for not providing sufficient pushback against controversial guests like [[Nicholas J. Fuentes]]. (24:36:64) The hosts of the podcast "Trigger Warning," who identify as [[Jewish]], stated they would "never have [[Nicholas J. Fuentes]] on the show," calling him a "Holocaust-denying piece of shit." (25:36:64) [[Sam Harris]] attacked [[Lex Fridman]] for his interview with [[Kanye West]], criticizing Fridman for not pushing back harder on [[Kanye West]]'s comments about [[Jews]]. (26:56:76) During [[Lex Fridman]]'s interview with [[Kanye West]], [[Kanye West]] stated "it's the [[Jews]]," to which Fridman responded by emphasizing the individuality of [[Jews|Jewish people]]. (28:55:02) [[Nicholas J. Fuentes]] observed that [[Jewish]] intellectuals like [[Sam Harris]] and [[Lex Fridman]] become emotionally agitated and lose their composure when the topic of [[Jewish]] influence is raised. (29:27:90) [[Pearl Davis|Pearl]] planned to release a major video collaboration with [[Nicholas J. Fuentes]] on the Wednesday following this broadcast. (29:33:30) [[Nicholas J. Fuentes]] announced he would not host his show on Thursday or Friday of that week, as he would be traveling for a collaboration. (33:13:66) [[Nicholas J. Fuentes]] announced forthcoming collaborations with [[Adam22]], [[Pearl Davis|Pearl]], and [[Sneako]], and noted that [[Jon Zherka]] was promoting him. (34:51:38) The [[Tennessee]] [[House of Representatives]] expelled [[Justin Jones]] and [[Justin Pearson]] for leading a protest on the chamber floor with a megaphone and bringing outside protesters into the capitol building after the Covenant School shooting. (37:18:36) The [[Nashville]] Metropolitan Council reinstated [[Justin Jones]] to the [[Tennessee]] [[House of Representatives]] just days after his expulsion, appointing him on an interim basis until a special election. (39:14:06) The Shelby County Commission planned to meet to discuss reappointing [[Justin Pearson]] to the [[Tennessee]] [[House of Representatives]] after his expulsion. (42:13:60) [[Donald Trump]] and [[Senate]] [[Republican Party|Republicans]] prioritized confirming [[Amy Coney Barrett]] to the [[Supreme Court]] over passing a COVID-19 stimulus bill before the 2020 election. (42:52:40) [[Amy Coney Barrett]] recused herself from an early [[Supreme Court]] case concerning election laws in [[Commonwealth of Pennsylvania|Pennsylvania]] or [[North Carolina]] shortly after her confirmation. (44:45:82) Ron DeSantis responded to [[Donald Trump]]'s indictment by the [[Manhattan]] District Attorney by making a dismissive comment about "porn stars." (48:50:82) [[Joe Biden]] considered expanding the number of seats on the [[Supreme Court of the United States]] after taking office, a move often referred to as "court packing." (52:07:52) [[Joe Biden]] signed [[House]] Joint Resolution 7, a [[Republican Party|Republican]]-proposed bill drafted by [[Paul Gosar]], to end the COVID-19 national emergency, despite initial [[Democratic Party|Democratic]] objections. (54:12:18) [[Joe Biden]] ended the 20-year war in [[Afghanistan]] in August 2021, ordering a full withdrawal despite terrorist attacks at the Kabul airport and the Taliban's takeover. (55:07:10) The [[Supreme Court of the United States]] overturned *Roe v. Wade* in June 2022, ending the federal constitutional right to abortion during [[Joe Biden]]'s presidency. (55:48:22) [[Joe Biden]] provided an open-ended, unlimited defense guarantee to [[Ukraine]] following [[Russia]]'s invasion in February 2022, a move [[Nicholas J. Fuentes]] argued eroded [[United States|American]] hegemony. (56:07:68) [[Government of France|France]] began discussing "strategic autonomy" from the [[United States]], and [[Brazil]], [[Saudi Arabia]], and [[India]] started conducting trade with [[China]] in yuan instead of [[United States|U.S]]. dollars. (57:45:40) [[Nicholas J. Fuentes]] argued that a primary reason the political right harbors animosity toward [[Barack Obama]] and [[Joe Biden]] is due to their perceived lack of support for [[Israel]]. (58:08:24) [[Barack Obama]] sought a "reset" in relations with [[Russia]] early in his presidency, sending [[Secretary of State]] [[Hillary Clinton]] to meet with Foreign Minister [[Sergey Lavrov]]. (58:19:48) [[Barack Obama]] refused to send lethal aid to [[Ukraine]] during his administration and allowed the [[United Nations Security Council]] to pass a resolution condemning [[Israel]]i settlements. (59:00:02) [[Nicholas J. Fuentes]] asserted that both [[Donald Trump]] and [[Joe Biden]] are influenced by [[Jewish]] advisors, citing [[Jared Kushner]] for [[Trump]] and numerous [[Jewish]] cabinet members for [[Joe Biden|Biden]]. (01:01:06:90) [[Joe Biden]] did not fully support [[Benjamin Netanyahu|Bibi]] during a period of tension the previous week, which [[Nicholas J. Fuentes]] claimed triggered the most intense anti-[[Joe Biden|Biden]] sentiment from his critics. (01:01:34:62) [[Nicholas J. Fuentes]] debated [[Alex Jones]] on [[Alex Jones|InfoWars]], arguing that [[Alex Jones|Jones]] focused on conspiracies about the [[Bilderberg Group]] and [[Klaus Schwab]] while ignoring the influence of what [[Fuentes]] called the "[[Jewish]] mafia." (01:03:06:84) [[Nicholas J. Fuentes]] acknowledged that some conspiracy theories, such as flat [[Earth]], chemtrails, and QAnon narratives, are counterproductive to building a serious populist movement. (01:05:05:57) [[Apple Inc.|Apple]] and [[Google]] implemented Bluetooth-based contact tracing systems into their mobile operating systems during the COVID-19 pandemic, creating a permanent infrastructure for proximity tracking.
+(00:30:52) [[Joe Biden]] ended the war in [[Afghanistan]] in August 2021, withdrawing [[United States|U.S]]. troops despite criticism over abandoned equipment and civilians. (00:56:57) [[Joe Biden]] ended the national COVID-19 public health emergency on April 10, 2023, signing [[House]] Joint Resolution 7, a bill sponsored by [[Paul Gosar]]. (01:10:95) [[Donald Trump]] declared the COVID-19 national emergency on March 13, 2020, after the [[World Health Organization]] declared the virus a pandemic. (01:39:73) [[Paul Gosar]] sponsored [[House]] Joint Resolution 7, the bill that terminated the national emergency concerning the COVID-19 pandemic. (02:20:11) The [[Tennessee]] [[House of Representatives]], controlled by [[Republican Party|Republicans]], expelled two [[Black]] [[Democratic Party|Democratic]] state representatives, [[Justin Jones]] and [[Justin Pearson]], for violating chamber decorum during a gun control protest. (03:47:97) The [[Nashville]] Metropolitan Council voted unanimously to reinstate [[Justin Jones]] to the [[Tennessee]] [[House of Representatives]] on an interim basis, overriding the normal four-week waiting period for filling vacancies. (04:57:03) The [[Tennessee]] [[House]] expelled [[Justin Jones]] and [[Justin Pearson]], who are [[Black]], but did not expel [[Gloria Johnson]], a white representative who participated in the same protest. (05:41:75) [[Marjorie Taylor Greene]] attacked [[Nicholas J. Fuentes]] and [[Laura Loomer]] on [[Twitter]] on Good Friday, calling [[Fuentes]] a "weirdo" and an "alleged federal informant." (08:29:77) [[The New York Times]] published a story reporting that [[Donald Trump]] wanted to hire [[Laura Loomer]] for his campaign. (09:06:37) [[Marjorie Taylor Greene]] stated it would be a "terrible mistake" for [[Donald Trump]] to hire [[Laura Loomer]] and called [[Nicholas J. Fuentes]] a "weirdo" and an "alleged federal informant." (10:29:89) [[The New York Times]] reported that federal prosecutors considered charging [[Nicholas J. Fuentes]] with conspiracy related to the [[January 6th Attack|January 6th]] Capitol riot but declined to do so. (11:46:85) [[Marjorie Taylor Greene]]'s first act after being elected to [[Congress]] was to apologize for her past controversial statements, despite previously vowing she would "never apologize." (12:16:11) [[Marjorie Taylor Greene]] compared COVID-19 mask and vaccine mandates to the Holocaust, stating anti-vaxxers were being treated like [[Jews]] during that period. (12:56:71) [[Marjorie Taylor Greene]] visited the [[United States|U.S]]. Holocaust Memorial Museum a week after her Holocaust comparison comments, stating she wanted to "get educated." (13:32:69) [[Marjorie Taylor Greene]], who had previously called for impeaching [[Kevin McCarthy]], was the first to support him for [[Mike Johnson|Speaker of the House]] after the 2022 midterms. (13:47:29) [[Marjorie Taylor Greene]] endorsed [[Laura Loomer]] for [[Congress]] in 2020 but later opposed her, influenced by [[Karen Giorno]]. (14:09:73) [[Marjorie Taylor Greene]] spoke at [[AFPAC|AFPAC 3]], an event hosted by [[Nicholas J. Fuentes]], but later claimed she did not know who he was when criticized by the media. (15:33:43) [[Nicholas J. Fuentes]] hosted 1,200 attendees at his [[AFPAC|AFPAC 3]] event, where [[Marjorie Taylor Greene]] appeared as a surprise guest. (17:01:61) [[Nicholas J. Fuentes]] stated he invited [[Marjorie Taylor Greene]] to [[AFPAC|AFPAC 3]] to gain credibility for his movement and was only willing to be "polite and cordial" with her. (18:19:57) [[Donald Trump]]'s inner circle included [[Jason Miller]], [[Rick Grenell]], [[Steve Bannon]], and [[Marjorie Taylor Greene]], according to [[Nicholas J. Fuentes]]. (19:19:69) [[Nicholas J. Fuentes]] appeared on an interview with [[Pearl Davis|Pearl]] in [[London]] where he denied the Holocaust and the Holodomor and made statements against interracial marriage. (19:53:05) [[Pearl Davis|Pearl]] was criticized in an interview with two [[United Kingdom|British]] [[Jewish]] hosts for having [[Nicholas J. Fuentes]] on her show, but she defended her decision by stating she believes in letting people talk. (21:53:83) [[Destiny]] and the podcast [[No Jumper]] frequently criticize interviewers for not providing sufficient pushback against controversial guests like [[Nicholas J. Fuentes]]. (24:36:64) The hosts of the podcast "Trigger Warning," who identify as [[Jewish]], stated they would "never have [[Nicholas J. Fuentes]] on the show," calling him a "Holocaust-denying piece of shit." (25:36:64) [[Sam Harris]] attacked [[Lex Fridman]] for his interview with [[Kanye West]], criticizing Fridman for not pushing back harder on [[Kanye West]]'s comments about [[Jews]]. (26:56:76) During [[Lex Fridman]]'s interview with [[Kanye West]], [[Kanye West]] stated "it's the [[Jews]]," to which Fridman responded by emphasizing the individuality of [[Jews|Jewish people]]. (28:55:02) [[Nicholas J. Fuentes]] observed that [[Jewish]] intellectuals like [[Sam Harris]] and [[Lex Fridman]] become emotionally agitated and lose their composure when the topic of [[Jewish]] influence is raised. (29:27:90) [[Pearl Davis|Pearl]] planned to release a major video collaboration with [[Nicholas J. Fuentes]] on the Wednesday following this broadcast. (29:33:30) [[Nicholas J. Fuentes]] announced he would not host his show on Thursday or Friday of that week, as he would be traveling for a collaboration. (33:13:66) [[Nicholas J. Fuentes]] announced forthcoming collaborations with [[Adam22]], [[Pearl Davis|Pearl]], and [[Sneako]], and noted that [[Jon Zherka]] was promoting him. (34:51:38) The [[Tennessee]] [[House of Representatives]] expelled [[Justin Jones]] and [[Justin Pearson]] for leading a protest on the chamber floor with a megaphone and bringing outside protesters into the capitol building after the Covenant School shooting. (37:18:36) The [[Nashville]] Metropolitan Council reinstated [[Justin Jones]] to the [[Tennessee]] [[House of Representatives]] just days after his expulsion, appointing him on an interim basis until a special election. (39:14:06) The Shelby County Commission planned to meet to discuss reappointing [[Justin Pearson]] to the [[Tennessee]] [[House of Representatives]] after his expulsion. (42:13:60) [[Donald Trump]] and [[Senate]] [[Republican Party|Republicans]] prioritized confirming [[Amy Coney Barrett]] to the [[Supreme Court]] over passing a COVID-19 stimulus bill before the 2020 election. (42:52:40) [[Amy Coney Barrett]] recused herself from an early [[Supreme Court]] case concerning election laws in [[Commonwealth of Pennsylvania|Pennsylvania]] or [[North Carolina]] shortly after her confirmation. (44:45:82) Ron DeSantis responded to [[Donald Trump]]'s indictment by the [[Manhattan]] District Attorney by making a dismissive comment about "porn stars." (48:50:82) [[Joe Biden]] considered expanding the number of seats on the [[Supreme Court of the United States]] after taking office, a move often referred to as "court packing." (52:07:52) [[Joe Biden]] signed [[House]] Joint Resolution 7, a [[Republican Party|Republican]]-proposed bill drafted by [[Paul Gosar]], to end the COVID-19 national emergency, despite initial [[Democratic Party|Democratic]] objections. (54:12:18) [[Joe Biden]] ended the 20-year war in [[Afghanistan]] in August 2021, ordering a full withdrawal despite terrorist attacks at the Kabul airport and the Taliban's takeover. (55:07:10) The [[Supreme Court of the United States]] overturned *Roe v. Wade* in June 2022, ending the federal constitutional right to abortion during [[Joe Biden]]'s presidency. (55:48:22) [[Joe Biden]] provided an open-ended, unlimited defense guarantee to [[Ukraine]] following [[Russia]]'s invasion in February 2022, a move [[Nicholas J. Fuentes]] argued eroded [[United States|American]] hegemony. (56:07:68) [[France]] began discussing "strategic autonomy" from the [[United States]], and [[Brazil]], [[Saudi Arabia]], and [[India]] started conducting trade with [[China]] in yuan instead of [[United States|U.S]]. dollars. (57:45:40) [[Nicholas J. Fuentes]] argued that a primary reason the political right harbors animosity toward [[Barack Obama]] and [[Joe Biden]] is due to their perceived lack of support for [[Israel]]. (58:08:24) [[Barack Obama]] sought a "reset" in relations with [[Russia]] early in his presidency, sending [[Secretary of State]] [[Hillary Clinton]] to meet with Foreign Minister [[Sergey Lavrov]]. (58:19:48) [[Barack Obama]] refused to send lethal aid to [[Ukraine]] during his administration and allowed the [[United Nations Security Council]] to pass a resolution condemning [[Israel]]i settlements. (59:00:02) [[Nicholas J. Fuentes]] asserted that both [[Donald Trump]] and [[Joe Biden]] are influenced by [[Jewish]] advisors, citing [[Jared Kushner]] for [[Trump]] and numerous [[Jewish]] cabinet members for [[Joe Biden|Biden]]. (01:01:06:90) [[Joe Biden]] did not fully support [[Benjamin Netanyahu|Bibi]] during a period of tension the previous week, which [[Nicholas J. Fuentes]] claimed triggered the most intense anti-[[Joe Biden|Biden]] sentiment from his critics. (01:01:34:62) [[Nicholas J. Fuentes]] debated [[Alex Jones]] on [[Alex Jones|InfoWars]], arguing that [[Alex Jones|Jones]] focused on conspiracies about the [[Bilderberg Group]] and [[Klaus Schwab]] while ignoring the influence of what [[Fuentes]] called the "[[Jewish]] mafia." (01:03:06:84) [[Nicholas J. Fuentes]] acknowledged that some conspiracy theories, such as flat [[Earth]], chemtrails, and QAnon narratives, are counterproductive to building a serious populist movement. (01:05:05:57) [[Apple Inc.|Apple]] and [[Google]] implemented Bluetooth-based contact tracing systems into their mobile operating systems during the COVID-19 pandemic, creating a permanent infrastructure for proximity tracking.
 
 ### AF 2023-04-05 1142
 (01:08:05:20) [[Nicholas J. Fuentes]] evaluated political figures as "zero" or "not zero," stating [[Donald Trump]], Ron DeSantis, and [[Joe Biden]] were "zero," while a "guy that said he loved [[Adolf Hitler|Hitler]] on [[Alex Jones|InfoWars]]" ([[Alex Jones]]) was "not zero."
@@ -1386,7 +1386,7 @@
 (00:40:59) [[Nicholas J. Fuentes]] argued that both [[Joe Biden]] and Ron DeSantis represent a compromise between the political regime and the [[MAGA]] constituency, appealing to college-educated whites and white women.
 
 ### AF 2023-02-09 1119
-(00:44:41) [[Nicholas J. Fuentes]] characterized Ron DeSantis as a "[[Jewish]] [[Israel|Israeli]] shill" who was a [[Republican Party|GOP]] establishment figure in [[Congress]], unsuccessful in his culture war against [[Disney|Disney]], and comparable to [[Marco Rubio]] or [[Ted Cruz]].
+(00:44:41) [[Nicholas J. Fuentes]] characterized Ron DeSantis as a "[[Jewish]] [[Israel|Israeli]] shill" who was a [[Republican Party|GOP]] establishment figure in [[Congress]], unsuccessful in his culture war against [[Disney]], and comparable to [[Marco Rubio]] or [[Ted Cruz]].
 
 ### AF 2023-02-09 1119
 (01:08:05) [[Nicholas J. Fuentes]] stated that a revolutionary challenge to the political system could only come from [[Donald Trump]], [[Kanye West|Ye]], or himself, and not from figures like Ron DeSantis, [[Marjorie Taylor Greene]], [[Sarah Huckabee Sanders]], [[Blaze Media|The Blaze]], [[The Daily Wire]], or [[Matt Walsh]].
@@ -1398,7 +1398,7 @@
 (04:04:26) [[Nicholas J. Fuentes]] listed [[Mike Pompeo]], [[Nikki Haley]], [[Josh Hawley]], [[Steve Bannon]], [[Ted Cruz]], [[Donald Trump]], and Ron DeSantis as part of a new political consensus pushing anti-[[China]] rhetoric.
 
 ### AF 2023-02-02 1116
-(01:04:02:660) During a dinner at [[Mar-a-Lago]] in November, [[Nicholas J. Fuentes]] advised [[Trump]] to attack the [[Republican Party]] establishment and figures like Ron DeSantis and [[Mike Johnson|Kevin McCarthy]], urging a return to his unscripted 2015-2016 style.
+(01:04:02:660) During a dinner at [[Mar-a-Lago]] in November, [[Nicholas J. Fuentes]] advised [[Trump]] to attack the [[Republican Party]] establishment and figures like Ron DeSantis and [[Kevin McCarthy]], urging a return to his unscripted 2015-2016 style.
 
 ### AF 2023-02-02 1116
 (01:06:17:840) In the same post, [[Trump]] called Ron DeSantis a "globalist" and noted that former Governor [[Jeb Bush]] was recently seen with him.
@@ -1446,7 +1446,7 @@
 (00:30:23) [[Nicholas J. Fuentes]] criticized Ron DeSantis for being "mobbed up with [[Israel]]," citing his 2017 trip to [[Israel]] to demand [[Donald Trump]] move the [[United States Embassy in Jerusalem|U.S. embassy]] and for signing an anti-[[BDS]] bill there after winning the governorship.
 
 ### AF 2023-01-09 1104
-(00:41:14) [[Nicholas J. Fuentes]] criticized the [[Republican Party]]'s agenda as represented by [[Mike Johnson|Kevin McCarthy]], Ron DeSantis, and [[Tucker Carlson]], dismissing it as limited to "multiracial working class populism" and support for gay marriage and war with [[China]].
+(00:41:14) [[Nicholas J. Fuentes]] criticized the [[Republican Party]]'s agenda as represented by [[Kevin McCarthy]], Ron DeSantis, and [[Tucker Carlson]], dismissing it as limited to "multiracial working class populism" and support for gay marriage and war with [[China]].
 
 ### AF 2022-12-03 1102
 (02:45:50) [[Nicholas J. Fuentes]] argued that the debate between [[Donald Trump]] and Ron DeSantis is over, and [[Google|YouTube]] algorithms pushing [[Donald Trump]] content again indicate the [[Jewish]] establishment sees [[Donald Trump]] as their best chance to maintain control.
@@ -1518,7 +1518,7 @@
 (00:48:41) In an interview with Politico, [[Ken Griffin]] stated he flipped from [[Trump]] to DeSantis because [[Trump]] was too divisive and targeted people based on race, though he liked [[Trump]]'s "rock star economy."
 
 ### AF 2022-11-11 1096
-(00:48:58) [[Ken Griffin]] expressed disapproval of DeSantis sending illegal immigrants to Martha's Vineyard, passing the "Don't Say Gay" bill, and waging war with [[Disney|Disney]] and the cruise ship industry.
+(00:48:58) [[Ken Griffin]] expressed disapproval of DeSantis sending illegal immigrants to Martha's Vineyard, passing the "Don't Say Gay" bill, and waging war with [[Disney]] and the cruise ship industry.
 
 ### AF 2022-11-11 1096
 (00:49:47) [[Nicholas J. Fuentes]] argued that the [[The Wall Street Journal|Wall Street]] donors financing DeSantis's campaign are primarily interested in profit and oppose the culture war fights DeSantis is promoted for.
@@ -1791,7 +1791,7 @@
 (01:04:40) [[Nicholas J. Fuentes]] reported that the [[State of Florida|Florida]] [[Senate]] approved a bill dissolving the special self-governing status of the [[Disney|Disney World]] property, [[known]] as the Reedy Creek Improvement Act, a day after Ron DeSantis called on the legislature to take up the measure.
 
 ### AF 2022-04-20 0981
-(01:05:20) [[Nicholas J. Fuentes]] stated that Ron DeSantis argued he did not support special legal privileges for powerful companies like [[Disney|Disney]], framing the bill as creating an even playing field rather than being retaliatory for the company's opposition to the parental rights bill.
+(01:05:20) [[Nicholas J. Fuentes]] stated that Ron DeSantis argued he did not support special legal privileges for powerful companies like [[Disney]], framing the bill as creating an even playing field rather than being retaliatory for the company's opposition to the parental rights bill.
 
 ### AF 2022-04-16 0979
 (01:14:30) [[Nicholas J. Fuentes]] posited a hypothetical future where [[state]] governments like [[State of Florida|Florida]] or [[State of Texas|Texas]], led by figures such as Ron DeSantis, might defy federal law, necessitating a federal military response.
@@ -1809,7 +1809,7 @@
 (01:16:07) [[Nicholas J. Fuentes]] argued that the anti-[[China]] rhetoric from figures like Ron DeSantis, [[Tucker Carlson]], [[Mike Pompeo]], [[Mike Pence]], and [[Steve Bannon]] is a coordinated diversion by the [[United States|American]] elite to redirect focus from domestic problems.
 
 ### AF 2022-03-31 0970
-(01:21:24) Ron DeSantis flew to [[Israel]] to sign an anti-[[BDS]] bill, which [[Nicholas J. Fuentes]] contrasted with his criticism of [[Disney|Disney]]'s ties to [[China]].
+(01:21:24) Ron DeSantis flew to [[Israel]] to sign an anti-[[BDS]] bill, which [[Nicholas J. Fuentes]] contrasted with his criticism of [[Disney]]'s ties to [[China]].
 
 ### AF 2022-03-30 0969
 (00:12:26) The [[State of Florida|Florida]] [[State]] [[House]] passed a bill banning public school teachers from discussing LGBT topics and gender ideology in grades K through three, which Ron DeSantis later signed.
@@ -1869,7 +1869,7 @@
 (01:34:21) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] animated people like him and the right demographic, and that the right would not win by being effeminate or soft to appeal to women, as exemplified by Ron DeSantis.
 
 ### AF 2022-01-05 0929
-(00:48:27) [[Nicholas J. Fuentes]] predicted that the [[Republican Party|Republican]] strategy would be to gear up for the midterms to elect [[Mike Johnson|Kevin McCarthy]] as Speaker and [[Mitch McConnell]], followed by Ron DeSantis in 2024, resulting in "more of the same."
+(00:48:27) [[Nicholas J. Fuentes]] predicted that the [[Republican Party|Republican]] strategy would be to gear up for the midterms to elect [[Kevin McCarthy]] as Speaker and [[Mitch McConnell]], followed by Ron DeSantis in 2024, resulting in "more of the same."
 
 ### AF 2021-12-23 0926
 (01:13:26) [[Nicholas J. Fuentes]] argued that Ron DeSantis had the same "Zionist capture" problems as [[Donald Trump]], was a creature of the [[Republican Party|GOP]] establishment, and was receiving positive coverage from mainstream media outlets like *[[The Atlantic]]*.
@@ -2242,3 +2242,12 @@
 
 ### AF 2018-11-06 0277
 (02:45:26) Ron DeSantis won the [[State of Florida|Florida]] gubernatorial election, after which his opponent [[Andrew Gillum]] conceded.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:29:00:60) [[Pam Bondi]], the Attorney General, was the AG under Ron DeSantis and said the worst thing about the [[Joe Biden|Biden administration]] was that it was anti-[[Israel]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:55:07) [[Nicholas J. Fuentes]] recalled the Ron DeSantis phenomenon of 2021-2022 as an example of the "Trumpism without [[Donald Trump|Trump]]" narrative, which was built on the premise that [[Donald Trump]] failed and that someone else was needed.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:43:30:00) [[Nicholas J. Fuentes]] claimed that after [[October 7th Attack|October 7th]], the "[[Jews]] decided a [[Republican Party|Republican]] had to win," first Ron DeSantis, then [[Nikki Haley]], but [[Donald Trump]] fought them to get the nomination.

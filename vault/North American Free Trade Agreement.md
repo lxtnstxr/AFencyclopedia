@@ -54,7 +54,7 @@
 (31:36:00) [[Donald Trump]] fulfilled a campaign promise by renegotiating the NAFTA, replacing it with the [[United States–Mexico–Canada Agreement|USMCA]].
 
 ### AF 2018-10-01 0251
-(39:24:00) [[Nicholas J. Fuentes]] stated that the successful renegotiation of NAFTA into the [[United States–Mexico–Canada Agreement|USMCA]] gave [[Donald Trump]] political capital and credibility for future negotiations with [[China]] and the [[Europe|European Union]].
+(39:24:00) [[Nicholas J. Fuentes]] stated that the successful renegotiation of NAFTA into the [[United States–Mexico–Canada Agreement|USMCA]] gave [[Donald Trump]] political capital and credibility for future negotiations with [[China]] and the [[European Union]].
 
 ### AF 2018-10-01 0251
 (43:19:00) [[Nicholas J. Fuentes]] stated that organizations led by figures like [[Ben Shapiro]] and [[Charlie Kirk]] were pushing free-market propaganda to indoctrinate younger people, despite older generations knowing that NAFTA was bad for manufacturing.
@@ -63,7 +63,7 @@
 (00:02:09) The [[United States]] and [[Mexico]] announced a bilateral trade deal, moving forward after NAFTA negotiations that had been ongoing for seven months.
 
 ### AF 2018-06-05 0178
-(00:45:09) The [[Donald Trump|Trump]] administration renegotiated the North American Free Trade Agreement and initiated a trade war involving tariffs on the [[Europe|European Union]], [[China]], [[Dominion of Canada|Canada]], and [[Mexico]].
+(00:45:09) The [[Donald Trump|Trump]] administration renegotiated the North American Free Trade Agreement and initiated a trade war involving tariffs on the [[European Union]], [[China]], [[Dominion of Canada|Canada]], and [[Mexico]].
 
 ### AF 2018-05-31 0175
 (00:06:31) [[Nicholas J. Fuentes]] stated that free trade has been a dominant policy in the [[United States]] for about 30 years, supported by administrations from [[Ronald Reagan]] to [[Barack Obama]], including the passage of NAFTA under [[Bill Clinton]].

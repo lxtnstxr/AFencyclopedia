@@ -356,7 +356,7 @@
 (01:00:10) A [[United States]]-led coalition conducted an airstrike against pro-Assad forces in [[Syria]].
 
 ### AF 2018-01-22 0091
-(00:36:42) Bashar al-Assad has been [[Donald Trump|the president]] of [[Syria]] since the year 2000, leading pro-government forces backed by [[Iran]], [[Russia]], and [[China]] during the [[Syria|Syrian]] [[Civil War]].
+(00:36:42) Bashar al-Assad has been [[the president]] of [[Syria]] since the year 2000, leading pro-government forces backed by [[Iran]], [[Russia]], and [[China]] during the [[Syria|Syrian]] [[Civil War]].
 
 ### AF 2018-01-19 0090
 (17:28:80) [[Nicholas J. Fuentes]] described the [[Kurdistan|Kurds]] as seizing an opportunity for autonomy during the [[Syrian Civil War]] in the power vacuum created by the weakened government of Bashar al-Assad.
@@ -378,3 +378,21 @@
 
 ### AF 2017-09-14 0010
 (00:16:45) [[Nicholas J. Fuentes]] states that Bashar al-Assad was winning the [[Syria|Syrian]] [[civil war]] with the help of [[Vladimir Putin]] before the alleged chemical attack.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(24:42:35:00) [[Nicholas J. Fuentes]] stated that what the [[Donald Trump|Trump]] administration has done is remove Bashar al-Assad and set up a war with [[Iran]], while [[Harvard University|Harvard]] now has a [[Jews|Jewish]] [[president]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:07:10) [[Nicholas J. Fuentes]] argued that [[Israel]] does not want [[Iran]] to have centrifuges and missiles for the same reason that [[Israel]] destroyed [[Hezbollah]], Assad, and the [[Houthis]] - to make [[Iran]] defenseless.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:52:24) [[Israel]] has defeated [[Hamas]], [[Hezbollah]], and Bashar al-Assad, and removed the [[Iran|Revolutionary Guard]] from [[Syria]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:11:58) [[Nicholas J. Fuentes]] argued that [[Israel]] wants [[Iran]] destroyed, just as it wanted [[Saddam Hussein]] and Bashar al-Assad destroyed.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:56:50) [[Nicholas J. Fuentes]] described how [[Israel]] has systematically dismantled [[Iran]]'s proxy network since [[October 7th Attack|October 7th]], including confronting [[Hamas]] in [[Gaza Strip|Gaza]], compelling [[Hezbollah]] to surrender in [[Lebanon]], and collapsing the Assad regime in [[Syria]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:28:50) [[Nicholas J. Fuentes]] described [[Iran]] as a "hardened, fortified regime" with missiles stored in underground cities, and argued that defeating it would require a ground war, which he said would be an even greater undertaking than the wars against [[Hezbollah]] or Bashar al-Assad.

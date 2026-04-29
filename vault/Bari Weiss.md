@@ -25,7 +25,7 @@
 (06:25:200) [[Nicholas J. Fuentes]] asserted that [[Peter Thiel]] was not an ally, citing his funding of [[Jewish]] nationalist projects like [[Youram Hazony]]'s NatCon, [[Curtis Yarvin]]'s Passage Press, and his association with figures like Bari Weiss and [[Mark Andreessen]].
 
 ### AF 2025-07-28 1540
-(03:05:10) [[Nicholas J. Fuentes]] noted that Bari Weiss and [[Costin Alamariu]] ([[Costin Alamariu|Bronze Age Pervert]]) were part of [[the David Project]] at [[Colombia]] in 2004-2005, campaigning to fire a pro-[[Gaza Strip|Palestine]] professor.
+(03:05:10) [[Nicholas J. Fuentes]] noted that Bari Weiss and [[Costin Alamariu]] ([[Costin Alamariu|Bronze Age Pervert]]) were part of [[the David Project]] at [[Colombia]] in 2004-2005, campaigning to fire a pro-[[Palestine]] professor.
 
 ### AF 2025-07-28 1540
 (03:05:26) Bari Weiss later interned under [[Youram Hazony]] in [[Israel]], and [[Costin Alamariu]] received funding from [[Peter Thiel]].
@@ -134,3 +134,78 @@
 
 ### AF 2018-05-08 0160
 (00:48:06) [[Nicholas J. Fuentes]] criticized a [[The New York Times|New York Times]] article by Bari Weiss that profiled the "Intellectual Dark Web," including figures like [[Sam Harris]], [[Christina Hoff Sommers]], [[Ben Shapiro]], and [[Dave Rubin]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:33:21) [[Larry Ellison]] put Bari Weiss in charge of [[CBS News]], turning it into a pro-[[Israel]] propaganda outlet.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:33:33) Bari Weiss’s The Free Press outlet was funded by [[a16z|Andreessen Horowitz]], which [[Nicholas J. Fuentes]] described as part of the “[[Peter Thiel|PayPal]] mafia” including [[Peter Thiel]] and [[Joe Lonsdale]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:34:23) [[Youram Hazony|Yoram Hazony]] trained Bari Weiss.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:37:53) [[Nicholas J. Fuentes]] stated that he did not want anyone involved with Bari Weiss to lead the movement.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:16:57:63) [[Nicholas J. Fuentes]] described [[Jews|Jewish]] nationalists like [[Joe Lonsdale]], [[Alex Karp]], and Bari Weiss as having a story of enmity with the Persians, Babylonians, [[Rome|Romans]], [[Catholic Church|Catholic]] monarchs, Tsars, and [[Germany|Germans]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:29:06) [[Joe Lonsdale]] co-founded the [[University of Austin, Texas]] with Bari Weiss.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:29:12) [[Joe Lonsdale]] is an investor in Bari Weiss, [[who]] became the head of [[CBS]] under [[Larry Ellison]] through [[David Ellison|Ellison]]'s connections to [[Donald Trump]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:09:26) [[Nicholas J. Fuentes]] cited a report from Bari Weiss's [[CBS News]] claiming that between 12,000 and 20,000 protesters have been killed in [[Iran]], which he dismissed as atrocity propaganda.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:24:56) [[Nicholas J. Fuentes]] reported that Bari Weiss was put in charge of [[CBS]] News as editor-in-chief by [[David Ellison]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:25:22) [[Nicholas J. Fuentes]] reported that Bari Weiss appointed Tony Dokoupil as the new nightly news anchor for [[CBS News]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:03:39) [[Nicholas J. Fuentes]] quoted that Bari Weiss, founder of The Free Press, has taken over the news division of [[CBS]] as editor-in-chief.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:05:36) [[Nicholas J. Fuentes]] reported that the first thing the Ellisons did after acquiring [[CBS]] was to hire Bari Weiss as editor-in-chief.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:05:54) [[Nicholas J. Fuentes]] described Bari Weiss as a self-identified liberal with "center-right politics" and said her website, The Free Press, is center-right.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:15:46) [[Nicholas J. Fuentes]] stated that the first move by the Ellisons at [[CBS]] was to put Bari Weiss in charge as editor-in-chief.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:16:28) [[Nicholas J. Fuentes]] described Bari Weiss as "most likely an [[Israel|Israeli]] spy," citing her travels to [[Israel]] for fellowships and her founding of the "[[The David Project|David Project]]" at [[Columbia|Columbia University]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:17:02) [[Nicholas J. Fuentes]] stated that Bari Weiss worked under [[Bret Stephens]] at [[The Wall Street Journal]] and [[The New York Times]], and founded The Free Press with money from [[a16z|Andreessen Horowitz]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:17:38) [[Nicholas J. Fuentes]] described Bari Weiss as a "self-described fanatical [[Jews|Zionist]]" [[who]] is now the editor-in-chief of [[CBS News]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:17:52) [[Nicholas J. Fuentes]] reported that Bari Weiss selected Tony Dokoupil as the new nighttime news anchor for [[CBS News]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:18:28) [[Nicholas J. Fuentes]] said he would amend the description of Dokoupil to note he is "[[Jews|Jewish]]," [[who]] got the job because his views align with Bari Weiss on [[Israel]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:19:22) [[Nicholas J. Fuentes]] reported that The Free Press defended Dokoupil and that since Bari Weiss was installed, Dokoupil scored an exclusive interview with [[Benjamin Netanyahu]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:35:07:65) [[Piers Morgan]] began the interview by playing a clip from [[Coleman Hughes]], a writer at The Free Press publication owned by Bari Weiss.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:35:41:07) [[Nicholas J. Fuentes]] described Bari Weiss as an "[[Israel|Israeli]] spy" and a trained propagandist, alleging she started a pro-[[Israel]] campus group at [[Columbia|Columbia University]] and worked under [[Yoaz Hendel]] in [[Israel]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:35:13:16) [[Nicholas J. Fuentes]] noted that Bari Weiss was in the same pro-[[Israel]] campus group at [[Columbia|Columbia University]] as [[Costin Alamariu|Bronze Age Pervert]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:37:13:76) [[Nicholas J. Fuentes]] reported that [[David Ellison]] acquired Bari Weiss's publication, The Free Press, for over $100 million and then made her the editor-in-chief of [[CBS]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:37:25:06) [[Nicholas J. Fuentes]] claimed that [[CBS]] news reporting about [[Israel]] is now extremely pro-[[Israel]] as a result of Bari Weiss's leadership.

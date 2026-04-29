@@ -45,7 +45,7 @@
 (00:38:03) [[Facebook]] expanded its bans to include [[Alex Jones]], [[Laura Loomer]], Louis Farrakhan, [[Paul Joseph Watson]], and [[Milo Yiannopoulos]].
 
 ### AF 2019-01-29 0320
-(00:11:23) [[Barack Obama]]'s past associations included figures like [[Saul Alinsky]], [[Jeremiah Wright]], and Louis Farrakhan, and he worked as a community organizer in [[City of Chicago|Chicago]].
+(00:11:23) [[Barack Obama]]'s past associations included figures like [[Saul Alinsky]], [[Jeremiah Wright]], and Louis Farrakhan, and he worked as a community organizer in [[Chicago]].
 
 ### AF 2018-10-18 0264
 (00:38:36) Louis Farrakhan tweeted a video with the caption "I'm not an anti-semite, I'm anti-termite," a statement that did not result in a suspension from [[Twitter]] according to [[BuzzFeed]].

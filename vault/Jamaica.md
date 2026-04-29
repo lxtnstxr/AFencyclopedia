@@ -13,3 +13,6 @@
 
 ### AF 2019-01-29 0320
 (01:01:18) [[Kamala Harris]]'s parents were immigrants from Jamaica and [[India]] [[who]] arrived in [[United States|America]] within the last 50 years.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:51:14) [[China]] enrolled the majority of Latin [[United States|American]] countries in the Belt and Road Initiative and began building deep water ports in Jamaica, [[Mexico]], [[Cuba]], [[Venezuela]], [[Peru]], [[Ecuador]], and [[Argentina]].

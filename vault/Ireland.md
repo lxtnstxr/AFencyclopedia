@@ -6,7 +6,7 @@
 
 
 ### AF 2025-07-25 1539
-(01:09:49) [[Spain]], Ireland, and [[Norway]] recognized [[Gaza Strip|Palestine]] in 2024, but [[France]]'s decision is of a different order due to its status as a nuclear power, a permanent member of the [[United Nations Security Council]], and home to the largest [[Jewish]] and [[Muslim]] populations in Western [[Europe]].
+(01:09:49) [[Spain]], Ireland, and [[Norway]] recognized [[Palestine]] in 2024, but [[France]]'s decision is of a different order due to its status as a nuclear power, a permanent member of the [[United Nations Security Council]], and home to the largest [[Jewish]] and [[Muslim]] populations in Western [[Europe]].
 
 ### AF 2024-09-18 1391
 (01:02:55:28) [[Nicholas J. Fuentes]] stated that [[Belgium]], the [[Kingdom of the Netherlands|Netherlands]], Ireland, and [[Spain]] have talked about suspending arms to [[Israel]], while [[Hungary]] remains a tried and true ally.
@@ -21,22 +21,22 @@
 (00:57:52) Supporters of [[Nicholas J. Fuentes]] include [[Keith Wood|Keith Woods]] from Ireland, [[Lucas Gage]], fighter [[Jake Shields]], and professional gambler [[Dan Bilzerian]].
 
 ### AF 2024-05-27 1335
-(00:15:29) [[Nicholas J. Fuentes]] cited reactions from "Western [[Jews]]" to Ireland, [[Spain]], and [[Norway]] recognizing [[Gaza Strip|Palestine]], which included fantasies about Irish politicians being raped and killed and claims that all of Spanish culture is [[Jews]] laughing at them.
+(00:15:29) [[Nicholas J. Fuentes]] cited reactions from "Western [[Jews]]" to Ireland, [[Spain]], and [[Norway]] recognizing [[Palestine]], which included fantasies about Irish politicians being raped and killed and claims that all of Spanish culture is [[Jews]] laughing at them.
 
 ### AF 2024-05-23 1334
-(00:04:57) Ireland, [[Norway]], and [[Spain]] formally recognized the statehood of [[Gaza Strip|Palestine]], a move widely interpreted as a diplomatic rebuke against [[Israel]].
+(00:04:57) Ireland, [[Norway]], and [[Spain]] formally recognized the statehood of [[Palestine]], a move widely interpreted as a diplomatic rebuke against [[Israel]].
 
 ### AF 2024-05-22 1333
-(17:20:12) [[Spain]], Ireland, and [[Norway]] formally recognized the statehood of [[Gaza Strip|Palestine]], a move characterized as a major rebuke of [[Israel]].
+(17:20:12) [[Spain]], Ireland, and [[Norway]] formally recognized the statehood of [[Palestine]], a move characterized as a major rebuke of [[Israel]].
 
 ### AF 2024-05-21 1332
-(01:45:07) [[Nicholas J. Fuentes]] acknowledged that [[Spain]], [[Norway]], and Ireland had officially recognized [[Gaza Strip|Palestine]] as a state.
+(01:45:07) [[Nicholas J. Fuentes]] acknowledged that [[Spain]], [[Norway]], and Ireland had officially recognized [[Palestine]] as a state.
 
 ### AF 2022-03-02 0951
 (00:46:00) [[Nicholas J. Fuentes]] questioned whether community policing had been tried in Ireland.
 
 ### AF 2021-12-20 0924
-(00:52:24) [[Austria]] banned entry for unvaccinated travelers, [[Government of France|France]] banned travel from the [[United Kingdom]], Ireland imposed an 8 p.m. curfew on hospitality venues, and [[Spain]] and [[Italian Republic|Italy]] were meeting to discuss new containment measures.
+(00:52:24) [[Austria]] banned entry for unvaccinated travelers, [[France]] banned travel from the [[United Kingdom]], Ireland imposed an 8 p.m. curfew on hospitality venues, and [[Spain]] and [[Italian Republic|Italy]] were meeting to discuss new containment measures.
 
 ### AF 2021-08-20 0860
 (03:10:37) [[Nicholas J. Fuentes]] called for solidarity among white ethnic groups, stating that [[Anglos]], [[Slavs]], Irish, [[Swedes]], [[Germany|Germans]], [[Spanish]], and [[Portuguese]] all have great histories to preserve.
@@ -61,3 +61,9 @@
 
 ### AF 2017-09-25 0017
 (01:19:15) [[Nicholas J. Fuentes]] rejected an analogy comparing immigrant crime to crime by descendants of past immigrant groups like the Irish or [[Italian Republic|Italians]], arguing it ignores the current risk assessment of new immigrant sources.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:38:13) [[Nicholas J. Fuentes]] noted that [[Keith Wood|Keith Woods]] asked him about his red beard, using it as evidence of his Irish ancestry.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:39:00) [[Nicholas J. Fuentes]] attributed his pale complexion, green eyes, and red beard to his Irish genetics overriding his [[Italian]] and [[Mexican]] [[heritage]].

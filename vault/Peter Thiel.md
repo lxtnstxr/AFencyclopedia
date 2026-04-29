@@ -283,7 +283,7 @@
 (01:24:12:910) [[Donald Trump]]'s 2016 "[[United States|America]] first" platform opposed "[[Jewish]] money" and "immigrants" and was "implicitly pro-white," but ten years later, [[JD Vance]] is positioned as vice president, and [[Donald Trump]] is surrounded by [[Chabad]] Lubavitchers, [[Claremont Institute|Claremont]] "shills," Peter Thiel's people, and [[Jared Kushner]]'s people.
 
 ### AF 2024-10-23 1411
-(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], Peter Thiel, [[Alex Karp]], [[Thomas Klingenstein]], [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Sheldon Adelson|Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
+(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], Peter Thiel, [[Alex Karp]], [[Thomas Klingenstein]], [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
 
 ### AF 2024-10-23 1411
 (01:26:09:390) Peter Thiel, whose net worth is half derived from [[Palantir Technologies]] (co-founded with [[Alex Karp]]), gave $15 million to [[JD Vance]] and helped him become a senator, and [[Thomas Klingenstein]] backs the [[Claremont Institute]] and [[Compact Magazine]].
@@ -406,7 +406,7 @@
 (01:30:07) [[Tucker Carlson]] encouraged [[Donald Trump]] to pick [[JD Vance]] as his vice president; [[JD Vance|Vance]] is a freshman senator who got the [[Donald Trump|Trump]] endorsement and $15 million from Peter Thiel, who also funded his venture capital firm.
 
 ### AF 2024-09-02 1381
-(00:36:30) [[Nicholas J. Fuentes]] expressed frustration that there is no viable political candidate or movement exclusively for [[United States|Americans]], criticizing the influence of non-[[United States|Americans]] like Peter Thiel, [[Elon Musk]], and [[Sheldon Adelson|Miriam Adelson]] in [[United States]] politics.
+(00:36:30) [[Nicholas J. Fuentes]] expressed frustration that there is no viable political candidate or movement exclusively for [[United States|Americans]], criticizing the influence of non-[[United States|Americans]] like Peter Thiel, [[Elon Musk]], and [[Miriam Adelson]] in [[United States]] politics.
 
 ### AF 2024-08-14 1374
 (02:08:55) [[Nicholas J. Fuentes]] stated that Peter Thiel was an [[Federal Bureau of Investigation|FBI]] informant and that his company [[Palantir Technologies]] exclusively contracted with the [[Central Intelligence Agency]] from 2001 to 2008.
@@ -652,7 +652,7 @@
 (02:00:17) [[Nicholas J. Fuentes]] stated that Peter Thiel bankrolls [[Curtis Yarvin]] and that while Thiel once supported figures like [[Joe Kent]] after [[January 6th Attack|January 6th]], his companies' output revealed he was not ideologically aligned with the [[United States|America]] First movement.
 
 ### AF 2024-01-06 1274
-(01:14:28) [[Nicholas J. Fuentes]] noted that he had been labeled a Nazi and anti-Semite since the 2017 [[City of Charlottesville|Charlottesville]] rally and was banned from [[Google|YouTube]] and PayPal even before [[January 6th Attack|January 6th]].
+(01:14:28) [[Nicholas J. Fuentes]] noted that he had been labeled a Nazi and anti-Semite since the 2017 [[Charlottesville]] rally and was banned from [[Google|YouTube]] and PayPal even before [[January 6th Attack|January 6th]].
 
 ### AF 2023-12-16 1264
 (00:16:25) [[Nicholas J. Fuentes]] alleged that [[Joe Kent]], a former congressional candidate, was a [[Central Intelligence Agency|CIA]] agent for 20 years and received money from Peter Thiel, who founded [[Palantir Technologies|Palantir]], a contractor for the [[Central Intelligence Agency|CIA]].
@@ -805,7 +805,7 @@
 (01:23:10) [[Nicholas J. Fuentes]] claimed the [[U.S. Department of Justice|Department of Justice]] uncovered information about [[Joseph Brody]] and [[John Lezak]] by subpoenaing their phone records, PayPal, and geolocation data from [[January 6th Attack|January 6th]].
 
 ### AF 2022-09-22 1065
-(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], [[Jared Holt]], [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[City of Charlottesville|Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], PayPal, and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
+(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], [[Jared Holt]], [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], PayPal, and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
 
 ### AF 2022-09-16 1062
 (01:01:41) [[Nicholas J. Fuentes]] cited [[Nadav Eismann]], a [[Jewish]] film producer funded by Peter Thiel, as an example of a conservative Zionist who had accosted him, accused him of being an [[Iran|Iranian]] spy, and threatened him for discussing the USS Liberty incident.
@@ -1028,3 +1028,195 @@
 
 ### AF 2018-02-01 0099
 (00:56:57) [[Nicholas J. Fuentes]] countered by citing the same Gospel where [[Jesus Christ]] tells Peter "you are the rock on which I found my church," asserting this establishes the supremacy of the Bishop of [[Rome]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:04:26) [[David Sacks]] was identified as a [[Jews|Jewish]] figure [[who]] had been in Peter Thiel's orbit since 1992 when they attended [[Stanford University]] together and co-wrote a book.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:04:45) [[Tucker Carlson]] had [[known]] Peter Thiel since 1992, having met him in [[Washington D.C.]]
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:05:26) [[JD Vance]] was identified as a creation of Peter Thiel.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:05:38) [[JD Vance]] considered his meeting with Peter Thiel while at [[Yale Law School|Yale University]] to be the most important meeting of his lifetime.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:08) Peter Thiel provided $15 million in funding for [[JD Vance]]'s [[U.S. Congress|Senate]] campaign, while [[David Sacks]] gave $1 million.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:18) Peter Thiel, [[Elon Musk]], [[David Sacks]], and [[Tucker Carlson]] persuaded [[Donald Trump|Trump]] to nominate [[JD Vance]] for the [[vice]] presidency.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:07:13) Peter Thiel maxed out his campaign contribution for [[Joe Kent]]'s 2022 congressional run, and [[Tucker Carlson]] promoted [[Joe Kent|Kent]]'s campaign on his show.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:07:24) [[Joe Kent]] was in the [[Central Intelligence Agency|CIA]], [[Tucker Carlson]]'s father was in the [[Central Intelligence Agency|CIA]], and Peter Thiel was identified as a [[Central Intelligence Agency|CIA]] contractor through his company [[Palantir Technologies|Palantir]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:25:56) [[Tucker Carlson]], [[JD Vance]], Peter Thiel, and [[Steve Bannon]] were identified as [[China]] hawks.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:26:48) Peter Thiel, [[Tucker Carlson]], and the broader faction were described as incidentally critical of [[Israel]] because [[Israel|Israeli]] hardliners wanted the [[United States]] to fight [[Iran]] and not [[China]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:32:03) [[Nicholas J. Fuentes]] criticized [[Whitney Webb]] for speculating on [[Jimmy Dore]]'s show that [[Joe Kent]]'s resignation was part of a plan to "groom far-right terrorists for pre-crime," instead of understanding the simple political operation involving [[David Sacks]] and Peter Thiel.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:20:50) [[David Sacks]] maintained close relationships with [[Elon Musk]] and Peter Thiel, having [[known]] Peter Thiel for 35 years as part of the “PayPal mafia.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:21:06) [[Joe Kent]], whom [[Nicholas J. Fuentes]] described as funded by Peter Thiel, appeared on [[Tucker Carlson]]’s show, a show funded by [[JD Vance]]’s Rockbridge Network, which also spawned 1789 [[United States Capitol|Capitol]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:23:40) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]]’s father, [[Joe Kent]], and Peter Thiel all had connections to the [[Central Intelligence Agency|CIA]], and that [[JD Vance]] worked for Peter Thiel, a [[Central Intelligence Agency|CIA]] contractor.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:25:38) [[Nicholas J. Fuentes]] distinguished ordinary people from figures like [[JD Vance]], [[Tucker Carlson]], Peter Thiel, and [[Joe Kent]], claiming these individuals were not having epiphanies but were operatives engaged in a political power play.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:29:59) [[David Sacks]] had [[known]] Peter Thiel since 1992 and was part of the PayPal merger of Confinity and [[Twitter|X]].com.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:30:26) [[David Sacks]] ran [[Elon Musk]]’s political operation and donated to [[JD Vance]] in 2022, as did Peter Thiel.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:00) [[Tucker Carlson]] said he consulted Peter Thiel before making major life decisions.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:30) [[Joe Kent]] received money from Peter Thiel in 2022 and was promoted by [[Tucker Carlson]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:32:10) 1789 Capital was conceived at the Rockbridge Network, a venture capital firm run by [[JD Vance]], where Peter Thiel, [[Tucker Carlson]], and [[David Sacks]] had spoken.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:33:33) [[Bari Weiss]]’s [[Bari Weiss|The Free Press]] outlet was funded by [[a16z|Andreessen Horowitz]], which [[Nicholas J. Fuentes]] described as part of the “PayPal mafia” including Peter Thiel and [[Joe Lonsdale]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:34:14) [[JD Vance]] rehabilitated his image from “Never Trumper” to pro-[[Israel]] through [[Youram Hazony|Yoram Hazony]], [[who]] lived in [[Israel]] and whose [[National Conservatism|NatCon]] conference was funded by Peter Thiel.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:34:33) Peter Thiel worked with [[Alex Karp]], [[who]] was to become an [[Artificial Intelligence|AI]] czar in the administration.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:34:49) [[Nicholas J. Fuentes]] stated that everything Peter Thiel funded was “[[Jews|Jewish]] supremacy.”
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:03:21) [[Nicholas J. Fuentes]] described [[David Sacks]] as a close personal friend of Peter Thiel since 1992 and a close confidant of [[JD Vance]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:04:40) [[Nicholas J. Fuentes]] stated that [[Joe Kent]] received money from Peter Thiel when he ran for [[U.S. Congress|Congress]] in 2022.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:08:27) [[Nicholas J. Fuentes]] pointed out that [[Tucker Carlson|Tucker]]'s dad was in the [[Central Intelligence Agency|CIA]], [[Joe Kent]] is in the [[Central Intelligence Agency|CIA]], Peter Thiel is a [[Central Intelligence Agency|CIA]] contractor, and that [[JD Vance]] was recruited out of [[Yale Law School]], a recruiting ground for the [[Central Intelligence Agency|CIA]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:33:25) [[Nicholas J. Fuentes]] cited Peter Thiel as an example of a powerful [[person]] [[who]] has a vote in how things work.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:50:21) After [[Donald Trump]] was shot in the ear, [[Tucker Carlson]], [[Elon Musk]], and Peter Thiel called [[Donald Trump]] and encouraged him to select [[JD Vance]] as his nominee.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:20:31) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] is covering up the [[Jeffrey Epstein|Epstein]] files to protect Peter Thiel, [[Ronald Lauder]], [[Leon Black]], and [[Les Wexner]], [[who]] are in the files.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:14:50) [[Nicholas J. Fuentes]] described the Milady rave party as a Peter Thiel-adjacent project in [[New York|New York City]], where people pretend to be fashion people and artists but are subsidized by Peter Thiel and his cronies, and are pro-[[JD Vance|Vance]] and pro-[[Donald Trump|Trump]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:16:52) [[Nicholas J. Fuentes]] remarked that "Clavicular" went into the "belly of the beast," the Peter Thiel art collective in [[New York|New York City]], and that the timing of his release from jail and his invitation to the party was suspicious.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:20:17) [[Nicholas J. Fuentes]] characterized [[JD Vance]] as a puppet of Peter Thiel and [[Elon Musk]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(58:15:00) [[Nicholas J. Fuentes]] joked that Peter Thiel is giving [[Clavicular]] "billions of dollars."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:00:47:00) [[Nicholas J. Fuentes]] stated that Peter Thiel is giving [[Clavicular]] "billions of dollars."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:21:00:00) [[Jeffrey Epstein]] introduced [[Ehud Barak]] to Peter Thiel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:21:34:00) [[Jeffrey Epstein]] introduced [[Ehud Barak]] to Peter Thiel and tried to get [[Ehud Barak|Barak]] to invest in Thiel's company, [[Palantir Technologies|Palantir]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:56:01) [[Joe Lonsdale]], the [[Jews|Jewish]] head of Peter Thiel's [[Founders Fund]], and [[Ben Black]], [[Leon Black]]'s son, wrote an op-ed about using [[Donald Trump|Trump's]] [[Development Finance Corporation]] to take money away from [[United States Agency for International Development|USAID]] so it does not fall into the hands of [[United Nations Relief and Works Agency|UNRWA]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:04:27) [[Jeffrey Epstein]] did deals with Peter Thiel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:06:09) Files released from the [[U.S. Department of Justice|DOJ]] revealed that [[Jeffrey Epstein]] had a big relationship with Peter Thiel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:06:34) By 2014, [[Jeffrey Epstein]] took an interest in [[Palantir Technologies|Palantir]] and suggested to [[Ehud Barak]] that he speak with Peter Thiel about an advisory role at the company.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:06:47) [[Jeffrey Epstein]] was scheduled to meet with Peter Thiel several times in 2014 and had started emailing him for investment advice.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:07:09) Peter Thiel advised [[Jeffrey Epstein]] to hold off on investing in [[Spotify]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:07:16) [[Jeffrey Epstein]] invested $40 million in one of Peter Thiel's venture capital firms, [[Valar Ventures]], across two separate transactions, and [[Jeffrey Epstein|Epstein]]'s estate still possessed these holdings, which were worth about $170 million as of last summer.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:08:03) [[Donald Trump]] has a close relationship with Peter Thiel and [[Palantir Technologies|Palantir]], and the suite of Thiel companies has become important to the [[U.S. Department of Defense|Department of Defense]] and the [[U.S. National Security Council|National Security Council]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:08:53) [[JD Vance|J.D. Vance]], the current [[vice]] [[president]], owes his entire career to Peter Thiel, [[who]] got him his first job in [[San Francisco Bay Area|Silicon Valley]], his first job in venture capital, hired him at his venture capital firm, funded his own venture capital firm, gave him $15 million for his [[U.S. Congress|Senate]] run, and secured the [[Donald Trump]] endorsement for him.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:09:31) Peter Thiel, [[Elon Musk]], and [[Tucker Carlson]] pleaded with [[Donald Trump]] to make [[JD Vance|J.D. Vance]] his [[vice]] presidential nominee in 2024.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:10:05) [[Jeffrey Epstein]] invested money with Peter Thiel and tried to introduce [[Ehud Barak]] to Thiel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:12:21) [[Palmer Luckey]] was rescued by Peter Thiel when he was fired from [[Facebook]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:12:29) When Peter Thiel invested in [[Anduril]], the investment was handled by [[JD Vance|J.D. Vance]] when he was working for Thiel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:29:34) [[Joe Lonsdale]] is a founding father of [[Palantir Technologies|Palantir]], which was created by Peter Thiel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:56) Peter Thiel has a financial interest in [[JD Vance|J.D. Vance]] and was an acolyte of [[Jeffrey Epstein]]'s.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:31:12) When asked about his connections to [[Jeffrey Epstein]] on [[The Joe Rogan Experience|Joe Rogan]], Peter Thiel pushed the lie that [[Jeffrey Epstein|Epstein]] was a financial genius.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:00:37) [[Nicholas J. Fuentes]] condemned [[JD Vance|J.D. Vance]], his wife, Peter Thiel, and the "[[United States|America]] last administration," accusing [[JD Vance|J.D. Vance]] of failing to deport people and of resisting the release of the [[Jeffrey Epstein|Epstein]] files.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:01:55) [[Nicholas J. Fuentes]] accused [[JD Vance|J.D. Vance]] of being a creation of the "deep [[state]]" backed by Peter Thiel, [[David Sacks]], and [[Tucker Carlson]], and representing [[San Francisco Bay Area|Silicon Valley]] and the intelligence agencies.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:04) Peter Thiel, [[Tucker Carlson]], and [[Central Intelligence Agency|CIA]] connected individuals planned for [[JD Vance]] to become the [[Republican Party|Republican]] nominee for [[president]] in 2028.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:31) Peter Thiel financially supported [[JD Vance]]'s political career.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:47:58) [[Jeffrey Epstein|Epstein]] files have exposed [[Howard Lutnick]], Peter Thiel, [[Reid Hoffman]], "the [[Israel|Israelis]]," and [[Donald Trump]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:59:00) [[Nicholas J. Fuentes]] stated that [[Jeffrey Epstein]] knew business leaders and government officials in [[Israel]], the [[United Kingdom]], and the [[United States]], including people at [[JPMorgan Chase & Co.|JP Morgan]], [[Yale Law School|Yale University]], and individuals such as [[Reid Hoffman]], Peter Thiel, and [[Marc Andreessen]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:09:45) [[Nicholas J. Fuentes]] announced a "super show" for Friday to map out the entire "[[Jeffrey Epstein|Epstein]] network," including [[Leon Black]], [[Les Wexner]], Peter Thiel, members of the [[Donald Trump|Trump administration]], and allies in [[Israel]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:26:41) [[Nicholas J. Fuentes]] asked Peter Thiel to put his brain in a robot.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:57:34) [[Nicholas J. Fuentes]] claimed that [[JD Vance]]'s fundraising and connections with Peter Thiel and [[Elon Musk]] were designed to funnel money into defense contractors and to use [[Artificial Intelligence|AI]] software to ingest data from government agencies.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:29:04) [[Nicholas J. Fuentes]] demanded that [[JD Vance]] provide "a firm answer" on whether he will support an "immigration moratorium," whether he will "restrain [[Israel]]," and what his relationship is with Peter Thiel and [[Elon Musk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:57:12) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]]'s best friend [[Joe Kent]] is a [[Central Intelligence Agency|CIA]] officer, and that [[Tucker Carlson]] is in favor of Peter Thiel, [[who]] is a [[Central Intelligence Agency|CIA]] contractor.

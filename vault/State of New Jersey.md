@@ -67,7 +67,7 @@
 (01:30:27) [[Jeffrey Epstein]] was arrested at Teterboro Airport in New Jersey upon returning from [[Paris]] and charged with sex trafficking and sex trafficking conspiracy.
 
 ### AF 2019-01-25 0318
-(00:21:40) [[Warner Bros. Discovery|CNN]] reported that the government shutdown caused flight delays at major airports in [[New York]], New Jersey, [[City of Philadelphia|Philadelphia]], [[City of Orlando|Orlando]], and [[Atlanta]] due to staffing shortages at air traffic control centers.
+(00:21:40) [[Warner Bros. Discovery|CNN]] reported that the government shutdown caused flight delays at major airports in [[New York]], New Jersey, [[Philadelphia]], [[Orlando]], and [[Atlanta]] due to staffing shortages at air traffic control centers.
 
 ### AF 2018-11-07 0278
 (00:05:59) The [[Republican Party]] lost [[United States Senate]] races in [[State of West Virginia|West Virginia]] and New Jersey, with [[Nicholas J. Fuentes]] attributing the [[State of West Virginia|West Virginia]] loss to a Libertarian candidate splitting the vote.
@@ -76,4 +76,4 @@
 (00:26:09) [[Robert Menendez|Bob Menendez]], a [[Democratic Party|Democratic]] Senator from New Jersey facing corruption charges, was projected to win re-election according to [[Nicholas J. Fuentes]].
 
 ### AF 2018-01-04 0079
-(00:21:18) [[Laura Loomer]] cited a recent instance in New Jersey where an imam told a mosque it was okay to kill [[Jews]] in retaliation for [[Donald Trump|Trump]]'s decision on [[City of Jerusalem|Jerusalem]].
+(00:21:18) [[Laura Loomer]] cited a recent instance in New Jersey where an imam told a mosque it was okay to kill [[Jews]] in retaliation for [[Donald Trump|Trump]]'s decision on [[Jerusalem]].

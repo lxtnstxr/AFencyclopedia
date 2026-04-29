@@ -15,10 +15,10 @@
 (01:21:10) Andrew Pollack accused the media of turning his daughter's murder into a coordinated attack on [[Donald Trump]], [[Republican Party|Republicans]], and the [[U.S. Constitution|Second Amendment]].
 
 ### AF 2020-08-24 0668
-(01:22:17) Andrew Pollack blamed the [[City of Parkland|Parkland]] shooting on the school district's implementation of "restorative justice" policies, which he said were pioneered by the [[Obama]]-[[Joe Biden|Biden]] administration and which [[Donald Trump]] later rescinded.
+(01:22:17) Andrew Pollack blamed the [[Parkland]] shooting on the school district's implementation of "restorative justice" policies, which he said were pioneered by the [[Obama]]-[[Joe Biden|Biden]] administration and which [[Donald Trump]] later rescinded.
 
 ### AF 2020-08-24 0668
-(01:23:08) Andrew Pollack criticized [[Joe Biden]] for campaigning on bringing back restorative justice and for incorrectly stating he was [[Vice]] President when the [[City of Parkland|Parkland]] shooting occurred.
+(01:23:08) Andrew Pollack criticized [[Joe Biden]] for campaigning on bringing back restorative justice and for incorrectly stating he was [[Vice]] President when the [[Parkland]] shooting occurred.
 
 ### AF 2020-08-24 0668
 (01:24:03) Andrew Pollack argued that the safety of [[United States|American]] children depended on the re-election of [[Donald Trump]].

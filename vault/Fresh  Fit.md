@@ -103,3 +103,15 @@
 
 ### AF 2023-03-02 1126
 (14:59:98) [[Nicholas J. Fuentes]] states he will soon appear on the Fresh and Fit podcast.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:32:28:740) [[Nicholas J. Fuentes]] reported that the [[Andrew Tate|Tate brothers]] and Fresh and Fit were in town and at the party.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:59:57:220) [[Nicholas J. Fuentes]] described the group that went to the club as including the [[Andrew Tate|Tate brothers]], Fresh and Fit, [[Sneeko]], and [[Clavicular]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:00:28:140) [[Nicholas J. Fuentes]] stated that Fresh arranged the trip to the club.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:52:37:610) [[Nicholas J. Fuentes]] thanked the [[Tates]], [[Clav]], [[Sneeko]], and Fresh and Fit for getting him out of his comfort zone.

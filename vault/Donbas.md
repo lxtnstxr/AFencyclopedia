@@ -21,10 +21,10 @@
 (00:16:50) [[Nicholas J. Fuentes]] claimed that once the Donbas [[region]] was fully liberated, there would be no fortified [[Ukraine|Ukrainian]] resistance until [[Kyiv|Kiev]].
 
 ### AF 2022-04-26 0984
-(59:31:70) [[Nicholas J. Fuentes]] stated that [[Europe|European]] leaders were beginning to acknowledge the futility of the proxy war in [[Ukraine]], with some, like [[Germany|German]] officials, advising [[Volodymyr Zelenskyy|Zelensky]] to cede [[City of Sevastopol|Crimea]] and the Donbas.
+(59:31:70) [[Nicholas J. Fuentes]] stated that [[Europe|European]] leaders were beginning to acknowledge the futility of the proxy war in [[Ukraine]], with some, like [[Germany|German]] officials, advising [[Volodymyr Zelenskyy|Zelensky]] to cede [[Crimea]] and the Donbas.
 
 ### AF 2022-04-26 0984
-(01:14:01:60) [[Nicholas J. Fuentes]] reported that [[Germany|German]] officials had advised [[Volodymyr Zelenskyy|Zelensky]] to give up [[City of Sevastopol|Crimea]] and the Donbas, but he refused.(01:50:44) [[Nicholas J. Fuentes]] stated he would not betray his friends, specifically [[Baked Alaska]] and [[Beardson]], for political reasons, citing their past loyalty and support during his early career when he had nothing to offer in return.
+(01:14:01:60) [[Nicholas J. Fuentes]] reported that [[Germany|German]] officials had advised [[Volodymyr Zelenskyy|Zelensky]] to give up [[Crimea]] and the Donbas, but he refused.(01:50:44) [[Nicholas J. Fuentes]] stated he would not betray his friends, specifically [[Baked Alaska]] and [[Beardson]], for political reasons, citing their past loyalty and support during his early career when he had nothing to offer in return.
 
 ### AF 2020-05-04 0597
-(02:03:07) [[Nicholas J. Fuentes]] stated his favorite [[United Nations|Model UN]] topics were broad economics issues, as well as recurring security crises involving [[Islamic State of Iraq and Syria|ISIS]], the militarization of the [[Southern United States|South]] [[China]] Sea, and the [[Russian]] incursion in [[City of Sevastopol|Crimea]] and the Donbas.
+(02:03:07) [[Nicholas J. Fuentes]] stated his favorite [[United Nations|Model UN]] topics were broad economics issues, as well as recurring security crises involving [[Islamic State of Iraq and Syria|ISIS]], the militarization of the [[Southern United States|South]] [[China]] Sea, and the [[Russian]] incursion in [[Crimea]] and the Donbas.

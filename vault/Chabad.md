@@ -27,7 +27,7 @@
 (01:19:12) [[Robert F. Kennedy Jr.]] defended [[Mendel Menachem Schneerson]], the head of the Lubavitchers, after [[Candace Owens]] criticized him.
 
 ### AF 2024-10-07 1401
-(00:09:49) [[Donald Trump]] held two events commemorating the [[October 7th Attack]], one with Chabad and another with [[Sheldon Adelson|Miriam Adelson]].
+(00:09:49) [[Donald Trump]] held two events commemorating the [[October 7th Attack]], one with Chabad and another with [[Miriam Adelson]].
 
 ### AF 2024-10-07 1401
 (01:42:09) [[Donald Trump|Trump]] attended two [[October 7th Attack|October 7th]] vigils, the first at the grave of Rebbe Menachem Schneerson of the Chabad Lubavitch dynasty in [[Brooklyn]] with [[Howard Lutnick]] and [[Ben Shapiro]].
@@ -103,3 +103,9 @@
 
 ### AF 2021-11-02 0905
 (00:15:41) [[Nicholas J. Fuentes]] announced two new streamers had joined [[Cozy.TV]]: [[Kai Schwemmer]] (Kai Clips) with a show called "Out of Touch" and Bosef, a [[United Kingdom|British]] commentator.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:16:41.460) [[Nicholas J. Fuentes]] referenced an event in 2024 where [[Jared Kushner]] and [[Ben Shapiro]] took [[Donald Trump]] to the grave of the Lubavitcher Rebbe at the headquarters of Habad Lubavitch in [[New York|Brooklyn]], [[New York]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:39:22) [[Nicholas J. Fuentes]] argued that the [[American Israel Public Affairs Committee|Israel lobby]] is how [[Jews]] "steal billions," not through welfare fraud in the Hasidic community.

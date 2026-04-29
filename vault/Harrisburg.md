@@ -2,38 +2,38 @@
 #city
 
 ### AF 2024-08-13 1373
-(00:11:28) After the 2020 election, [[Nicholas J. Fuentes]] organized or participated in "Stop the Steal" rallies in [[Lansing]], [[Atlanta]], Harrisburg, [[City of Phoenix|Phoenix]], and [[Washington D.C.]].
+(00:11:28) After the 2020 election, [[Nicholas J. Fuentes]] organized or participated in "Stop the Steal" rallies in [[Lansing]], [[Atlanta]], Harrisburg, [[Phoenix]], and [[Washington D.C.]].
 
 
 ### AF 2023-03-09 1127
-(01:42:00) [[Nicholas J. Fuentes]] participated in "Stop the Steal" rallies in [[Atlanta]], [[Lansing]], [[City of Phoenix|Phoenix]], Harrisburg, and [[Washington D.C.|Washington, D.C.]] in the weeks following the 2020 election.
+(01:42:00) [[Nicholas J. Fuentes]] participated in "Stop the Steal" rallies in [[Atlanta]], [[Lansing]], [[Phoenix]], Harrisburg, and [[Washington D.C.|Washington, D.C.]] in the weeks following the 2020 election.
 
 ### AF 2022-11-26 1101
-(00:26:28) [[Nicholas J. Fuentes]] told [[Donald Trump]] at the dinner that he was one of the greatest [[United States|Americans]] ever, campaigned for him in 2016, and participated in "Stop the Steal" rallies in Harrisburg, [[Lansing]], [[Atlanta]], [[Washington D.C.|Washington, D.C.]], and [[City of Phoenix|Phoenix]].
+(00:26:28) [[Nicholas J. Fuentes]] told [[Donald Trump]] at the dinner that he was one of the greatest [[United States|Americans]] ever, campaigned for him in 2016, and participated in "Stop the Steal" rallies in Harrisburg, [[Lansing]], [[Atlanta]], [[Washington D.C.|Washington, D.C.]], and [[Phoenix]].
 
 ### AF 2021-06-11 0827
-(01:02:56) [[Nicholas J. Fuentes]] recounted that he, along with [[Alex Jones]] and [[Ali Alexander]], organized Stop the Steal events in [[Atlanta]], [[City of Phoenix|Phoenix]], [[Lansing]], Harrisburg, and [[Washington D.C.|Washington, D.C.]], demanding an independently monitored audit of the ballots.
+(01:02:56) [[Nicholas J. Fuentes]] recounted that he, along with [[Alex Jones]] and [[Ali Alexander]], organized Stop the Steal events in [[Atlanta]], [[Phoenix]], [[Lansing]], Harrisburg, and [[Washington D.C.|Washington, D.C.]], demanding an independently monitored audit of the ballots.
 
 ### AF 2021-03-18 0774
-(01:55:18) [[Nicholas J. Fuentes]] claimed he is greeted like a rock star at political rallies in cities like [[Washington D.C.|Washington, D.C.]], [[Atlanta]], [[City of Phoenix|Phoenix]], and Harrisburg, with hundreds of people gathering for his speeches.
+(01:55:18) [[Nicholas J. Fuentes]] claimed he is greeted like a rock star at political rallies in cities like [[Washington D.C.|Washington, D.C.]], [[Atlanta]], [[Phoenix]], and Harrisburg, with hundreds of people gathering for his speeches.
 
 ### AF 2021-03-18 0774
-(02:25:48) [[Nicholas J. Fuentes]] claimed that everywhere he goes, from [[Washington D.C.|Washington, D.C.]] to [[Atlanta]], [[City of Phoenix|Phoenix]], and Harrisburg, hundreds of people gather for his speeches, and that his movement has held conferences with sitting [[Republican Party|congressmen]] as keynote speakers.
+(02:25:48) [[Nicholas J. Fuentes]] claimed that everywhere he goes, from [[Washington D.C.|Washington, D.C.]] to [[Atlanta]], [[Phoenix]], and Harrisburg, hundreds of people gather for his speeches, and that his movement has held conferences with sitting [[Republican Party|congressmen]] as keynote speakers.
 
 ### AF 2020-12-14 0733
-(00:15:03) [[Nicholas J. Fuentes]] noted that he had traveled to rally at state capitals in [[City of Phoenix|Phoenix]], Harrisburg, [[Atlanta]], and [[City of Lansing|Lansing]] during the Stop the Steal effort but was not permitted to speak at the official [[Washington D.C.|Washington, D.C.]] events.
+(00:15:03) [[Nicholas J. Fuentes]] noted that he had traveled to rally at state capitals in [[Phoenix]], Harrisburg, [[Atlanta]], and [[Lansing]] during the Stop the Steal effort but was not permitted to speak at the official [[Washington D.C.|Washington, D.C.]] events.
 
 ### AF 2020-12-07 0729
 (00:02:45) [[Nicholas J. Fuentes]] traveled to Harrisburg, [[Commonwealth of Pennsylvania|Pennsylvania]] to lead a rally at the state [[United States Capitol|Capitol]] on Saturday.
 
 ### AF 2020-12-07 0729
-(00:13:54) [[Nicholas J. Fuentes]] arrived in Harrisburg at approximately 3 or 4 a.m. after a delayed flight and a two-hour drive from [[City of Philadelphia|Philadelphia]].
+(00:13:54) [[Nicholas J. Fuentes]] arrived in Harrisburg at approximately 3 or 4 a.m. after a delayed flight and a two-hour drive from [[Philadelphia]].
 
 ### AF 2020-12-07 0729
 (00:14:06) A hotel clerk in Harrisburg initially told [[Nicholas J. Fuentes]] he would be charged a no-show fee for his late arrival before waiving it.
 
 ### AF 2020-12-07 0729
-(00:20:20) [[Nicholas J. Fuentes]]'s rally in Harrisburg was the first event organized exclusively by his [[America First]] movement since a rally in [[City of Lansing|Lansing]], [[State of Michigan|Michigan]].
+(00:20:20) [[Nicholas J. Fuentes]]'s rally in Harrisburg was the first event organized exclusively by his [[America First]] movement since a rally in [[Lansing]], [[State of Michigan|Michigan]].
 
 ### AF 2020-12-07 0729
 (00:21:18) The Harrisburg rally drew an estimated 300 to 500 people, predominantly young men, to the [[Commonwealth of Pennsylvania|Pennsylvania]] State [[United States Capitol|Capitol]].
@@ -120,7 +120,10 @@
 (01:26:48) [[Nicholas J. Fuentes]] stated he was considering attending a rally in Harrisburg, [[Commonwealth of Pennsylvania|Pennsylvania]], or returning to [[Atlanta]], [[Country of Georgia|Georgia]], for the upcoming weekend, pending consultations with contacts in the [[White House]] and the [[Donald Trump|Trump]] campaign.
 
 ### AF 2020-11-06 0718
-(04:51:40) Organized protests were scheduled for November 7th, 2020, at noon at the state capitols in [[City of Phoenix|Phoenix]], [[Arizona]]; Harrisburg, [[Commonwealth of Pennsylvania|Pennsylvania]]; [[Atlanta]], [[Country of Georgia|Georgia]]; [[Carson City]], [[State of Nevada|Nevada]]; [[City of Lansing|Lansing]], [[State of Michigan|Michigan]]; and [[Madison]], [[Wisconsin]].
+(04:51:40) Organized protests were scheduled for November 7th, 2020, at noon at the state capitols in [[Phoenix]], [[Arizona]]; Harrisburg, [[Commonwealth of Pennsylvania|Pennsylvania]]; [[Atlanta]], [[Country of Georgia|Georgia]]; [[Carson City]], [[State of Nevada|Nevada]]; [[Lansing]], [[State of Michigan|Michigan]]; and [[Madison]], [[Wisconsin]].
 
 ### AF 2021-05-13 0000
-(00:15:18) [[Nicholas J. Fuentes]] personally attended protest rallies in the [[state]] capitals of [[City of Lansing|Lansing]], [[City of Phoenix|Phoenix]], [[Atlanta]], and Harrisburg to demand independent audits of the 2020 election.
+(00:15:18) [[Nicholas J. Fuentes]] personally attended protest rallies in the [[state]] capitals of [[Lansing]], [[Phoenix]], [[Atlanta]], and Harrisburg to demand independent audits of the 2020 election.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:04:10:59) [[Nicholas J. Fuentes]] stated he knocked on doors for [[Donald Trump]] in 2016, took volunteers to [[Manchester]], [[New Hampshire]], after the Billy [[George W. Bush|Bush]] tape, and flew to [[Atlanta]], Harrisburg, [[Phoenix]], [[Lansing]], and [[Washington D.C.|D.C.]] to protest a stolen election in 2020.

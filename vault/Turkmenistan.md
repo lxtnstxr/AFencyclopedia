@@ -9,3 +9,6 @@
 
 ### AF 2018-02-05 0101
 (40:35:34) [[Nicholas J. Fuentes]] argued that [[United States]] military presence in [[Afghanistan]] served as a strategic base to project power against [[Iran]], [[Pakistan]], [[China]], and [[Russian]] influence in Central Asia, including Turkmenistan, [[Uzbekistan]], [[Tajikistan]], and [[Kyrgyzstan]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:21:03) [[Nicholas J. Fuentes]] asserted that if the negotiations fail, the [[United States]] is going to war with [[Iran]], citing the deployment of major cargo aircraft into Turkmenistan, a second carrier strike group, [[MIM-104 Patriot|Patriot]] missile batteries, [[Terminal High Altitude Area Defense|THAAD systems]], B-52 bombers, and B-2 bombers.

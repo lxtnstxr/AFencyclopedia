@@ -18,13 +18,13 @@
 (00:02:25) [[Nicholas J. Fuentes]] noted a pattern connecting a migrant stabbing attack in [[United Kingdom|England]] that targeted girls at a [[Taylor Swift]] dance class and the [[Islamic State of Iraq and Syria|ISIS]] threat against a [[Taylor Swift]] concert in Austria.
 
 ### AF 2024-05-23 1334
-(01:01:13) Austria and [[Hungary]] blocked the [[Europe|European Union]] from adopting a unified, more critical stance towards [[Israel]] following the war in the [[Gaza Strip]].
+(01:01:13) Austria and [[Hungary]] blocked the [[European Union]] from adopting a unified, more critical stance towards [[Israel]] following the war in the [[Gaza Strip]].
 
 ### AF 2024-05-22 1333
-(17:36:22) Within the [[Europe|European Union]], only Austria and [[Hungary]] refused to condemn [[Israel]]'s conduct in the war in [[Gaza Strip|Gaza]], preventing a unified [[EU]] position shift.
+(17:36:22) Within the [[European Union]], only Austria and [[Hungary]] refused to condemn [[Israel]]'s conduct in the war in [[Gaza Strip|Gaza]], preventing a unified [[EU]] position shift.
 
 ### AF 2024-05-22 1333
-(19:00:00) The [[Likud]] party in [[Israel]] maintains a strong influence over the governments of Austria and [[Hungary]], which blocked a broader [[Europe|European Union]] course correction on [[Israel]].
+(19:00:00) The [[Likud]] party in [[Israel]] maintains a strong influence over the governments of Austria and [[Hungary]], which blocked a broader [[European Union]] course correction on [[Israel]].
 
 ### AF 2022-03-29 0968
 (00:01:17) Austria renewed its [[COVID-19]] vaccine and mask mandates in response to a surge in cases from an Omicron subvariant.
@@ -72,7 +72,7 @@
 (00:00:15) Governments across [[Europe]] were considering or implementing hard lockdowns in countries including the [[Kingdom of the Netherlands|Netherlands]], [[Germany]], [[Spain]], and Austria due to the spread of a new coronavirus variant, despite full vaccination and booster shot campaigns.
 
 ### AF 2021-12-20 0924
-(00:52:24) Austria banned entry for unvaccinated travelers, [[Government of France|France]] banned travel from the [[United Kingdom]], [[Ireland]] imposed an 8 p.m. curfew on hospitality venues, and [[Spain]] and [[Italian Republic|Italy]] were meeting to discuss new containment measures.
+(00:52:24) Austria banned entry for unvaccinated travelers, [[France]] banned travel from the [[United Kingdom]], [[Ireland]] imposed an 8 p.m. curfew on hospitality venues, and [[Spain]] and [[Italian Republic|Italy]] were meeting to discuss new containment measures.
 
 ### AF 2021-12-07 0917
 (00:05:46) [[Nicholas J. Fuentes]] stated that Austria was proposing fines and jail [[time]] for citizens who refused to get vaccinated against [[COVID-19]].
@@ -84,7 +84,7 @@
 (01:06:00) Major anti-lockdown protests occurred across [[Europe]], including in the [[Kingdom of the Netherlands|Netherlands]], [[Belgium]], Austria, [[Hungary]], the [[Czech Republic]], and [[Israel|Poland]].
 
 ### AF 2021-02-02 0753
-(01:16:00) Around 5,000 people defied a ban to march in [[City of Vienna|Vienna]], Austria in protest against a curfew and lockdown, in a march organized by the far-right [[FPOE party]].
+(01:16:00) Around 5,000 people defied a ban to march in [[Vienna]], Austria in protest against a curfew and lockdown, in a march organized by the far-right [[FPOE party]].
 
 ### AF 2020-03-20 0569
 (35:59:34) [[Nicholas J. Fuentes]] stated that [[Europe]] was being ravaged by the coronavirus, with significant outbreaks also occurring in [[Switzerland]], the [[United Kingdom]], the [[Kingdom of the Netherlands|Netherlands]], Austria, [[Norway]], and [[Belgium]].
@@ -99,7 +99,7 @@
 (01:01:48) [[E. Michael Jones]] addressed the "lavender mafia" in the [[Vatican]], linking it to a plan by [[Wilhelm Reich]] in 1930s Austria to sexualize the clergy, causing heterosexuals to leave and concentrating homosexuals [[who]] then rose to power.
 
 ### AF 2019-04-10 0364
-(01:26:40) [[Benjamin Netanyahu|Netanyahu]]'s [[Labor Party|Likud]] party maintained close relationships with right-wing nationalist governments in [[Czech Republic]], [[Hungary]], [[Israel|Poland]], and Austria.
+(01:26:40) [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party maintained close relationships with right-wing nationalist governments in [[Czech Republic]], [[Hungary]], [[Israel|Poland]], and Austria.
 
 ### AF 2019-02-08 0328
 (01:25:48) [[Nicholas J. Fuentes]] disputed [[Candace Owens]]'s characterization, arguing that [[Adolf Hitler|Hitler]]'s expansionist projects like the Anschluss with Austria and taking the Sudetenland were aimed at uniting historically [[Germany|German]] peoples, not global conquest.
@@ -108,7 +108,7 @@
 (00:12:12) [[Nicholas J. Fuentes]] mentioned that [[Steven King|Steve King]] had retweeted supporters and rubbed shoulders with them in Austria, drawing attacks from political opponents hoping to swing a [[House]] seat.
 
 ### AF 2018-09-13 0239
-(11:09:00) A clash within the [[Europe|European Union]] existed between Eastern and Central [[Europe|European]] countries like [[Hungary]], Austria, and [[Czech Republic|Czechia]], and dominant liberal countries like [[Germany]] and [[France]], primarily over immigration policy.
+(11:09:00) A clash within the [[European Union]] existed between Eastern and Central [[Europe|European]] countries like [[Hungary]], Austria, and [[Czech Republic|Czechia]], and dominant liberal countries like [[Germany]] and [[France]], primarily over immigration policy.
 
 ### AF 2018-09-13 0239
 (15:12:00) Eastern [[Europe|European]] countries like [[Hungary]], Austria, [[Czech Republic|Czechia]], and [[Israel|Poland]] implemented strict immigration policies and erected fences to stem mass migration from the [[Middle East]].
@@ -123,7 +123,7 @@
 (00:31:44) The [[Nazi regime]] sought to unite all [[Germany|German]] people from [[Czechoslovakia]], Austria, and [[Israel|Poland]], which contributed to the outbreak of [[World War II]].
 
 ### AF 2018-02-28 0115
-(12:54:64) Austria elected a far-right Prime Minister months prior, joining [[Hungary]] and [[Israel|Poland]] in ethnic nationalist resistance to [[Europe|European Union]] migration policies.
+(12:54:64) Austria elected a far-right Prime Minister months prior, joining [[Hungary]] and [[Israel|Poland]] in ethnic nationalist resistance to [[European Union]] migration policies.
 
 ### AF 2017-12-18 0071
 (01:08:50) [[Nicholas J. Fuentes]] noted that Austria had recently installed a far-right government, and referenced a prediction that all governments in Central and [[Europe|Eastern Europe]] would be populist and far-right by 2021.

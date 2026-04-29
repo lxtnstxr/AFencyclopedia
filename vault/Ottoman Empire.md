@@ -12,7 +12,7 @@
 (00:27:50) [[Nicholas J. Fuentes]] stated that a hundred years ago, there was no [[Israel|Jewish state]] in the [[Middle East]], and the [[region]] was under Ottoman then [[United Kingdom|British]] rule, largely Arab and [[Islam|Muslim]].
 
 ### AF 2021-05-11 0809
-(00:47:48) [[Nicholas J. Fuentes]] stated that following [[World War III|World War I]], the Ottoman Empire was partitioned, and the [[British Empire]] received the Mandate of [[Gaza Strip|Palestine]].
+(00:47:48) [[Nicholas J. Fuentes]] stated that following [[World War III|World War I]], the Ottoman Empire was partitioned, and the [[British Empire]] received the Mandate of [[Palestine]].
 
 ### AF 2020-05-21 0610
 (01:24:59) During [[World War III|World War I]], [[France]] and the [[United Kingdom]] promised Arab tribes independence from the Ottoman Empire in exchange for their support, a promise broken by the subsequent Sykes-Picot Agreement.

@@ -81,7 +81,22 @@
 (00:12:12) Figures like Glenn Greenwald, [[Michael Tracey]], and [[Tulsi Gabbard]] have argued that prosecuting [[Julian Assange]] represents a threat to journalistic freedom and free speech.
 
 ### AF 2019-02-11 0329
-(00:46:40) [[Ilhan Omar]] responded to a tweet from Glenn Greenwald about [[Mike Johnson|Kevin McCarthy]] threatening punishment for her criticism of [[Israel]] by stating, "it's all about the Benjamins, baby," implying financial motives.
+(00:46:40) [[Ilhan Omar]] responded to a tweet from Glenn Greenwald about [[Kevin McCarthy]] threatening punishment for her criticism of [[Israel]] by stating, "it's all about the Benjamins, baby," implying financial motives.
 
 ### AF 2019-02-11 0329
 (00:48:20) Glenn Greenwald highlighted the paradox of [[United States|U.S.]] political leaders spending significant [[time]] defending [[Israel]], a foreign nation, even at the expense of [[United States|American]] free speech rights.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:47:39.080) [[Nicholas J. Fuentes]] named Dan Bilzerian as an example of someone [[who]] is "probably as right-wing as it gets" but could be won over by a [[Democratic Party|Democrat]] like Glenn Greenwald [[who]] is non-interventionist, [[Israel]]-critical, and doesn't hate white men.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:49:21.410) [[Nicholas J. Fuentes]] named [[Ryan Grim]], [[Hasan Piker]], [[The Young Turks|Cenk Uygur]], Glenn Greenwald, and [[Max Blumenthal]] as leftists [[who]] use a similar "third worldist" ideology.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:07:07:56) Glenn Greenwald accused federal agents of killing an [[United States|American]], calling it the "Israelization of [[the United States]]."
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:12:10) [[Nicholas J. Fuentes]] stated that he likes Glenn Greenwald, [[Dave Smith]], and [[Sneeko|Sneako]] but disagrees with them on the [[Venezuela]] intervention.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:12:13) [[Dave Smith]] is a libertarian and Glenn Greenwald is a liberal.

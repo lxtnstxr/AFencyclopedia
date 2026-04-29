@@ -2,7 +2,7 @@
 #Unknown
 
 ### AF 2023-12-09 1260
-(00:30:04) [[Nicholas J. Fuentes]] cited [[Adam 22]], Hunter Avalon, and [[Destiny|Destiny]] as figures shamelessly popularizing cuckoldry and polyamorous relationships.
+(00:30:04) [[Nicholas J. Fuentes]] cited [[Adam 22]], Hunter Avalon, and [[Destiny]] as figures shamelessly popularizing cuckoldry and polyamorous relationships.
 
 
 ### AF 2023-06-28 1182

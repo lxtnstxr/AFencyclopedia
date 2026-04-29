@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2020-07-28 0650
-(02:06:46) [[Nicholas J. Fuentes]] recounted that his parents' small business in [[City of Chicago|Chicago]] had to comply with a [[city]] program supporting minority-owned businesses, which in practice meant finding a [[black]] [[person]] to act as a front to purchase items like computers from stores like Best Buy.
+(02:06:46) [[Nicholas J. Fuentes]] recounted that his parents' small business in [[Chicago]] had to comply with a [[city]] program supporting minority-owned businesses, which in practice meant finding a [[black]] [[person]] to act as a front to purchase items like computers from stores like Best Buy.
 
 
 ### AF 2020-03-20 0569

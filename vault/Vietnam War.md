@@ -6,7 +6,7 @@
 
 
 ### AF 2024-04-18 1321
-(03:10:00) Over 100 pro-[[Gaza Strip|Palestine]] protesters, including the daughter of [[Ilhan Omar]], were arrested at [[Columbia|Columbia University]] after a multi-day demonstration, marking the largest mass arrest at the university since the Vietnam War.
+(03:10:00) Over 100 pro-[[Palestine]] protesters, including the daughter of [[Ilhan Omar]], were arrested at [[Columbia|Columbia University]] after a multi-day demonstration, marking the largest mass arrest at the university since the Vietnam War.
 
 ### AF 2023-08-23 1203
 (01:15:04) [[Vivek Ramaswamy]] argued for achieving peace through strength, stating the [[Russia]]-[[China]] military alliance was the greatest threat and that the [[United States]] should not start another "no-win war" like [[Iraq]] or Vietnam.
@@ -34,3 +34,6 @@
 
 ### AF 2018-01-30 0097
 (16:10:88) [[Donald Trump]] addressed the opioid crisis, citing a statistic that opioid addiction deaths in one year exceeded the total deaths of the entire Vietnam War.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:18:01) [[Nicholas J. Fuentes]] compared the current situation to the slow escalation of the Vietnam War and [[Iraq War]], fearing further deep involvement.

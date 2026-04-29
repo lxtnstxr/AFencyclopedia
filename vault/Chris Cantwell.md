@@ -2,17 +2,17 @@
 #person
 
 ### AF 2023-11-02 1242
-(00:24:27) An organizer of the [[City of Charlottesville|Charlottesville rally]] approached [[Nicholas J. Fuentes]] in April or May 2017 to speak, but he declined after seeing the speaker list included [[Mike Cernovich|Mike Enoch]], Chris Cantwell, and [[David Duke]].
+(00:24:27) An organizer of the [[Charlottesville rally]] approached [[Nicholas J. Fuentes]] in April or May 2017 to speak, but he declined after seeing the speaker list included [[Mike Cernovich|Mike Enoch]], Chris Cantwell, and [[David Duke]].
 
 
 ### AF 2023-03-17 1131
 (00:52:30) [[Douglas Mackey]] was doxed in 2018 by Chris Cantwell or [[Paul Nehlen]] before facing federal charges in 2021.
 
 ### AF 2021-11-08 0909
-(01:09:40:35) [[Nicholas J. Fuentes]] referenced ongoing civil lawsuits against [[Richard Spencer]], Chris Cantwell, [[Matt Heimbach]], and [[Nathan Damigo]] related to the 2017 [[City of Charlottesville|Charlottesville]] rally.
+(01:09:40:35) [[Nicholas J. Fuentes]] referenced ongoing civil lawsuits against [[Richard Spencer]], Chris Cantwell, [[Matt Heimbach]], and [[Nathan Damigo]] related to the 2017 [[Charlottesville]] rally.
 
 ### AF 2021-10-29 0903
-(02:00:02) [[Nicholas J. Fuentes]] stated he did not feel sympathy for Chris Cantwell and others on trial related to the [[City of Charlottesville|Charlottesville]] rally, noting they would not wish him well in a similar situation.
+(02:00:02) [[Nicholas J. Fuentes]] stated he did not feel sympathy for Chris Cantwell and others on trial related to the [[Charlottesville]] rally, noting they would not wish him well in a similar situation.
 
 ### AF 2021-08-13 0856
 (01:19:56.450) [[Nicholas J. Fuentes]] stated that in 2017, discussing "white genocide" led to being blacklisted, and the people promoting those ideas, like [[Richard Spencer]] and Chris Cantwell, were "toxic" and likely federal infiltrates or dysfunctional.
@@ -27,7 +27,7 @@
 (02:16:03) [[Nicholas J. Fuentes]] confirmed that [[Chris]] (likely Chris Cantwell), [[Emerson]], and [[Ethan Ralph]] were all in attendance at [[AFPAC]].
 
 ### AF 2019-03-08 0343
-(01:03:20) [[Nicholas J. Fuentes]], referencing his attendance at the 2017 [[City of Charlottesville|Charlottesville]] rally, dismissed a critic's defense of "Seaville Patriots" and Chris Cantwell, calling Cantwell a buffoon and lunatic whose behavior was detrimental to the movement.
+(01:03:20) [[Nicholas J. Fuentes]], referencing his attendance at the 2017 [[Charlottesville]] rally, dismissed a critic's defense of "Seaville Patriots" and Chris Cantwell, calling Cantwell a buffoon and lunatic whose behavior was detrimental to the movement.
 
 ### AF 2018-05-28 0172
 (01:02:04) Figures within the alt-right, such as Chris Cantwell and [[Richard Spencer]], have argued for the legality of abortion for eugenic purposes to eliminate non-white populations.

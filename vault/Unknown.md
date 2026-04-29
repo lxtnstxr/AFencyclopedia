@@ -12,19 +12,19 @@
 (22:52:91) Women are gaining financial independence and performing well in jobs due to Title IX and anti-discrimination laws based on the [[Fourteenth Amendment]].
 
 ### AF 2021-08-12 0859
-(00:11:20) [[Nicholas J. Fuentes]] was invited to [[City of Charlottesville|Charlottesville]] by [[Faith Goldy]], who was with Rebel Media at the [[time]], and he flew out last-minute to protest what he termed "white replacement" and the removal of the Robert E. Lee Monument.
+(00:11:20) [[Nicholas J. Fuentes]] was invited to [[Charlottesville]] by [[Faith Goldy]], who was with Rebel Media at the [[time]], and he flew out last-minute to protest what he termed "white replacement" and the removal of the Robert E. Lee Monument.
 
 ### AF 2021-08-12 0859
-(00:12:04) [[Nicholas J. Fuentes]] believed the [[City of Charlottesville|Charlottesville rally]] was intended to reunite a right wing that had splintered after the [[Donald Trump|Trump]] election, citing divisions involving figures like [[Mike Cernovich]], Jeff Giza, and [[Richard Spencer]].
+(00:12:04) [[Nicholas J. Fuentes]] believed the [[Charlottesville rally]] was intended to reunite a right wing that had splintered after the [[Donald Trump|Trump]] election, citing divisions involving figures like [[Mike Cernovich]], Jeff Giza, and [[Richard Spencer]].
 
 ### AF 2021-08-12 0859
-(00:17:05) At the [[City of Charlottesville|Charlottesville rally]], [[Nicholas J. Fuentes]] met several figures for the first [[time]], including [[Timothy Gionet|Baked Alaska]], Millennial Matt, Bryden, [[Brittany Venti]], and [[James Allsup]].
+(00:17:05) At the [[Charlottesville rally]], [[Nicholas J. Fuentes]] met several figures for the first [[time]], including [[Timothy Gionet|Baked Alaska]], Millennial Matt, Bryden, [[Brittany Venti]], and [[James Allsup]].
 
 ### AF 2021-08-12 0859
 (00:20:52) [[Nicholas J. Fuentes]] compared the growth of his platform, AmericaFirst.live, to his previous bans on [[Google|YouTube]] and DLive, noting it took eight months to reach 65,000 followers on his own site.
 
 ### AF 2021-08-12 0859
-(01:19:46) [[Nicholas J. Fuentes]] recalled that an after-party was held by [[James Allsup]], [[Brittany Venti]], Bryden, and Millennial Matt after [[City of Charlottesville|Charlottesville]], but he was not invited and spent the night alone in his hotel room on the Weekly Sweat podcast.
+(01:19:46) [[Nicholas J. Fuentes]] recalled that an after-party was held by [[James Allsup]], [[Brittany Venti]], Bryden, and Millennial Matt after [[Charlottesville]], but he was not invited and spent the night alone in his hotel room on the Weekly Sweat podcast.
 
 ### AF 2020-12-03 0728
 (01:57:06) [[Nicholas J. Fuentes]] stated that DLive treats him "like shit" by not allowing him on the front [[page]], but added "we won't be on here forever," hinting at a future proprietary platform.
@@ -162,7 +162,7 @@
 (11:36:71) At an [[Arizona]] protest, [[Nicholas J. Fuentes]] recounted that a [[Black Lives Matter]] protester took the glasses of his associate, Millennial Matt, leading to an altercation where [[Nicholas J. Fuentes]] told the crowd the police would "kneel on that guy's neck."
 
 ### AF 2020-06-08 0616
-(01:18:12:67) A [[The New York Times|New York Times]] article quoted Omar Jamal, a [[Somalia|Somali]] immigrant in [[City of St. Paul|St. Paul]], [[who]] said the heavy security presence during the riots made the [[United States]] indistinguishable from [[Somalia]], a failed state he had fled.
+(01:18:12:67) A [[The New York Times|New York Times]] article quoted Omar Jamal, a [[Somalia|Somali]] immigrant in [[St. Paul]], [[who]] said the heavy security presence during the riots made the [[United States]] indistinguishable from [[Somalia]], a failed state he had fled.
 
 ### AF 2020-06-08 0616
 (01:47:53) [[Nicholas J. Fuentes]] expressed affection for his friend Patrick Casey.
@@ -582,7 +582,7 @@
 (02:09:49) [[Nicholas J. Fuentes]] praised Jake Lloyd's speech at the [[Groyper Leadership Summit]], saying he was a professional-level speaker with a novel message.
 
 ### AF 2019-12-23 0517
-(02:15:02) [[Nicholas J. Fuentes]] saw *Star Wars: Episode IX* in [[City of Las Vegas|Las Vegas]] with [[Jaden]], Jake Lloyd, and another person, noting the film's themes mirrored their movement's struggle.
+(02:15:02) [[Nicholas J. Fuentes]] saw *Star Wars: Episode IX* in [[Las Vegas]] with [[Jaden]], Jake Lloyd, and another person, noting the film's themes mirrored their movement's struggle.
 
 ### AF 2019-12-23 0517
 (02:20:21) [[Nicholas J. Fuentes]] remembered being excited in 2016 by Milo Yiannopoulos's reactions, which showed how fake political civility is.
@@ -681,7 +681,7 @@
 (02:11:55) [[Nicholas J. Fuentes]] commented that "white pill weirdos" such as Greg Johnson, [[Pat Little]], and [[JFG]] were losing relevance for focusing on "being white," and stated he preferred to focus on [[Charlie Kirk]].
 
 ### AF 2019-11-04 0491
-(02:45:47) Milo Yiannopoulos leaked a secret audio recording from August 2017 of [[Richard Spencer]] ranting against [[City of Charlottesville|Charlottesville]], [[Jews|Jewish people]], and mixed-race people in the aftermath of the Unite the Right rally.
+(02:45:47) Milo Yiannopoulos leaked a secret audio recording from August 2017 of [[Richard Spencer]] ranting against [[Charlottesville]], [[Jews|Jewish people]], and mixed-race people in the aftermath of the Unite the Right rally.
 
 ### AF 2019-11-04 0491
 (01:39:57) [[Nicholas J. Fuentes]] discussed Milo Yiannopoulos's article about [[Richard Spencer]], stating he asked Yiannopoulos about his motive and received a "dodgy answer," but had to deal with the article's publication.
@@ -729,10 +729,10 @@
 (00:33:00) An alliance was forming between figures like [[Nicholas J. Fuentes]], Patrick Casey, [[Faith Goldy]], [[Steve Franson]], and Jake Lloyd, [[who]] were developing a cohesive platform and infrastructure to influence [[United States|American]] conservatism.
 
 ### AF 2019-10-14 0476
-(26:56:38) [[Nicholas J. Fuentes]] speculated that internet personality Jacob Sartorius might be speaking at a future event, referencing "[[City of Charlottesville|Charlottesville]] 4."
+(26:56:38) [[Nicholas J. Fuentes]] speculated that internet personality Jacob Sartorius might be speaking at a future event, referencing "[[Charlottesville]] 4."
 
 ### AF 2019-10-01 0470
-(00:27:64) The Demand Free Speech event in [[City of Miami|Miami]] was originally conceived as a roast of Milo, with [[Nicholas J. Fuentes]] scheduled for an undercard debate.
+(00:27:64) The Demand Free Speech event in [[Miami]] was originally conceived as a roast of Milo, with [[Nicholas J. Fuentes]] scheduled for an undercard debate.
 
 ### AF 2019-10-01 0470
 (00:34:48) Milo withdrew from the Demand Free Speech event, leading organizers to promote [[Nicholas J. Fuentes]] and [[Jacob Wall]] as the main event.
@@ -750,10 +750,10 @@
 (02:32:00) [[Felix Kjellberg|PewDiePie]] was a major supporter of the decentralized, cryptocurrency-based streaming platform DLive.
 
 ### AF 2019-09-09 0457
-(01:13:48) [[Nicholas J. Fuentes]] confirmed that Milo Yiannopoulos was initially the headliner for the [[City of Miami|Miami]] yacht event, with himself as a guest debater, and that ticket prices were lowered from an early bird price of $200 to $150.
+(01:13:48) [[Nicholas J. Fuentes]] confirmed that Milo Yiannopoulos was initially the headliner for the [[Miami]] yacht event, with himself as a guest debater, and that ticket prices were lowered from an early bird price of $200 to $150.
 
 ### AF 2019-09-09 0457
-(01:14:14) [[Nicholas J. Fuentes]] revealed that Milo Yiannopoulos was initially the headliner for the [[City of Miami|Miami]] yacht event, with himself as a guest debater.
+(01:14:14) [[Nicholas J. Fuentes]] revealed that Milo Yiannopoulos was initially the headliner for the [[Miami]] yacht event, with himself as a guest debater.
 
 ### AF 2019-09-09 0457
 (02:01:50) [[Nicholas J. Fuentes]] mentioned that Patrick Casey had visited his studio and met his dog, Albert.
@@ -882,7 +882,7 @@
 (47:38:24) [[Nicholas J. Fuentes]] outlined a strategy to redpill influencers like Jacob Sartorius, [[Logan Paul]], and [[Jake Paul]] to reach the masses, similar to [[Felix Kjellberg|PewDiePie]], but noted it was unlikely due to cost.
 
 ### AF 2019-02-07 0327
-(01:48:20) Following the [[City of Charlottesville|Charlottesville]] rally and the declaration of an unlawful assembly, [[Nicholas J. Fuentes]] retreated to a hotel with [[Steven Crowder]], Millennial Matt, [[James Allsup]], and [[Timothy Gionet|Baked Alaska]].
+(01:48:20) Following the [[Charlottesville]] rally and the declaration of an unlawful assembly, [[Nicholas J. Fuentes]] retreated to a hotel with [[Steven Crowder]], Millennial Matt, [[James Allsup]], and [[Timothy Gionet|Baked Alaska]].
 
 ### AF 2019-02-07 0327
 (01:53:56) [[Nicholas J. Fuentes]] encountered [[Ezra Levant]] of Rebel Media at [[Conservative Political Action Conference|CPAC]] in 2018, where Levant recognized him and dismissed his request for a photo.
@@ -897,7 +897,7 @@
 (00:22:30) [[Nicholas J. Fuentes]] stated that Jeff Giza was smart to leave the "alt-light" due to its silliness.
 
 ### AF 2019-01-28 0319
-(00:30:38) [[Nicholas J. Fuentes]] attended a secret weekend meetup in downtown [[City of Chicago|Chicago]] with Patrick Casey of [[American Identity Movement|Identity Europa]] and [[Jared Taylor]] of [[American Renaissance]], where he participated in a speaking engagement.
+(00:30:38) [[Nicholas J. Fuentes]] attended a secret weekend meetup in downtown [[Chicago]] with Patrick Casey of [[American Identity Movement|Identity Europa]] and [[Jared Taylor]] of [[American Renaissance]], where he participated in a speaking engagement.
 
 ### AF 2019-01-11 0311
 (01:05:12:00) [[Nicholas J. Fuentes]] said he made a conscious decision to effect political change from outside the establishment, believing that figures like [[Gavin McInnes]] and Milo Yiannopoulos were sidelined after revealing their true views.
@@ -906,7 +906,7 @@
 (01:06:07:00) [[Nicholas J. Fuentes]] stated that Milo Yiannopoulos received $15 million from the [[Mercer family]] after his pedophile scandal but blew through the money.
 
 ### AF 2019-01-11 0311
-(01:07:36:00) [[Nicholas J. Fuentes]] recounted that Milo Yiannopoulos's "Free Speech Week" event at [[University of California, Berkeley|UC Berkeley]] failed because he had not actually invited the speakers like [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] that he had publicly listed.
+(01:07:36:00) [[Nicholas J. Fuentes]] recounted that Milo Yiannopoulos's "Free Speech Week" event at [[University of California, Berkeley|UC Berkeley]] failed because he had not actually invited the speakers like [[Steve Bannon]] and [[Ann Coulter]] that he had publicly listed.
 
 ### AF 2018-12-28 0303
 (09:03:00) [[Nicholas J. Fuentes]] was asked if he would rather do a speaking tour for [[Turning Point USA|TPUSA]] with [[Charlie Kirk]] while acting like a "boomer" or blog for Milo Yiannopoulos for a decade; he chose the tour, stating that "boomer" attitudes, while misguided, are "kind of chad."
@@ -987,7 +987,7 @@
 (00:39:00) [[Nicholas J. Fuentes]] announced he would cover the upcoming midterm election results live on his next show with commentators Bryden, [[Jazz Hands]], [[McFeels]], and an invited [[Republican Party|Red Elephants]].
 
 ### AF 2018-11-02 0275
-(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[City of Charlottesville|Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], Milo Yiannopoulos, [[Chuck Johnson]], and [[Andrew Anglin]], and later included [[Gavin McInnes]].
+(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], Milo Yiannopoulos, [[Chuck Johnson]], and [[Andrew Anglin]], and later included [[Gavin McInnes]].
 
 ### AF 2018-10-18 0264
 (00:47:40) [[Nicholas J. Fuentes]] stated that the movement for white identity must be [[Catholic Church|Catholic]] or [[Christianity|Christian]], rejecting the inclusion of atheists, pagans, feminists, and homosexuals like Greg Johnson.
@@ -1029,7 +1029,7 @@
 (00:53:48) [[Nicholas J. Fuentes]] stated that [[Alex Jones]] of [[Alex Jones|InfoWars]] would never have him on his show, unlike Jake Lloyd, and criticized [[Gavin McInnes]] and [[Cabot Phillips]] for similarly excluding him, attributing it to his advocacy for white people.
 
 ### AF 2018-08-09 0218
-(00:14:00) [[Nicholas J. Fuentes]] noted that [[Ashton Witte]] had previously appeared on streams with [[James Allsup|James Alsup]] and was assisted by Jake Lloyd in [[City of Portland|Portland]].
+(00:14:00) [[Nicholas J. Fuentes]] noted that [[Ashton Witte]] had previously appeared on streams with [[James Allsup|James Alsup]] and was assisted by Jake Lloyd in [[Portland]].
 
 ### AF 2018-08-09 0218
 (03:15:00) [[Nicholas J. Fuentes]] noted that Vince James of [[Republican Party|Red Elephants]] has been a prominent advocate for an internet bill of rights.
@@ -1038,7 +1038,7 @@
 (28:32:00) [[Nicholas J. Fuentes]] stated that Jake Lloyd was smeared as a white nationalist and Nazi by [[Right Wing Watch]] for hosting him and [[Faith Goldie]] on his show.
 
 ### AF 2018-08-06 0215
-(02:22:28) Following the [[City of Charlottesville|Charlottesville rally]], figures like [[James Allsup|James Alsup]] ([[Timothy Gionet|Baked Alaska]]) and Millennial Matt were removed from services like [[Uber]] and [[Airbnb]].
+(02:22:28) Following the [[Charlottesville rally]], figures like [[James Allsup|James Alsup]] ([[Timothy Gionet|Baked Alaska]]) and Millennial Matt were removed from services like [[Uber]] and [[Airbnb]].
 
 ### AF 2018-08-02 0213
 (00:10:00) Patrick Casey is the leader of [[American Identity Movement|Identity Europa]] and a personal friend of [[Nicholas J. Fuentes]].
@@ -1056,10 +1056,10 @@
 (08:37:00) [[American Identity Movement|Identity Europa]] faces opposition from the [[Southern Poverty Law Center|SPLC]] and the [[Anti-Defamation League|ADL]], which Patrick Casey characterized as portraying them as bogeymen.
 
 ### AF 2018-08-02 0213
-(12:39:00) Patrick Casey attributed the chaos at the [[City of Charlottesville|Charlottesville rally]] to the alt-right being "green" at activism and to failures by the [[city]] council and police department.
+(12:39:00) Patrick Casey attributed the chaos at the [[Charlottesville rally]] to the alt-right being "green" at activism and to failures by the [[city]] council and police department.
 
 ### AF 2018-08-02 0213
-(13:56:00) Individuals [[who]] attended the [[City of Charlottesville|Charlottesville rally]] were convicted and sentenced to prison for beating [[DeAndre Harris]], whom Patrick Casey identified as the aggressor.
+(13:56:00) Individuals [[who]] attended the [[Charlottesville rally]] were convicted and sentenced to prison for beating [[DeAndre Harris]], whom Patrick Casey identified as the aggressor.
 
 ### AF 2018-08-02 0213
 (14:13:00) Patrick Casey stated that [[American Identity Movement|Identity Europa]] is not a sustainable number of fistfights away from achieving an ethnostate or defeating globalism.
@@ -1200,7 +1200,7 @@
 (00:09:03) [[Nicholas J. Fuentes]] argued that figures like Milo Yiannopoulos and [[Ben Shapiro]] achieved prominence through financial backing from billionaire families like the [[Mercer family]].
 
 ### AF 2018-07-17 0202
-(00:09:29) [[Nicholas J. Fuentes]] stated that Milo Yiannopoulos's career was launched after he became friends with [[Steven Crowder|Steve Bannon]] and received funding from the [[Mercer family]].
+(00:09:29) [[Nicholas J. Fuentes]] stated that Milo Yiannopoulos's career was launched after he became friends with [[Steve Bannon]] and received funding from the [[Mercer family]].
 
 ### AF 2018-07-17 0202
 (00:10:32) [[Nicholas J. Fuentes]] stated that [[Kassy Dillon|Cassie Dillon]] was once a friend of Milo Yiannopoulos during his feud with [[Ben Shapiro]].
@@ -1236,7 +1236,7 @@
 (00:19:51) [[Nicholas J. Fuentes]] agreed with Milo Yiannopoulos's characterization of [[Kassy Dillon|Cassie Dillon]] as a "jihadi war bride," extending the critique to all women in politics.
 
 ### AF 2018-07-17 0202
-(00:21:26) [[Nicholas J. Fuentes]] recounted that Milo Yiannopoulos invited him for an interview in [[City of Miami|Miami]] but canceled it after [[Nicholas J. Fuentes]] had already landed, which he interpreted as a sign that he was "too controversial for Milo."
+(00:21:26) [[Nicholas J. Fuentes]] recounted that Milo Yiannopoulos invited him for an interview in [[Miami]] but canceled it after [[Nicholas J. Fuentes]] had already landed, which he interpreted as a sign that he was "too controversial for Milo."
 
 ### AF 2018-07-17 0202
 (00:22:12) [[Nicholas J. Fuentes]] stated he was now friends with many of Milo Yiannopoulos's former associates, such as [[Timothy Gionet|Baked Alaska]], while others worked at [[Breitbart News|Breitbart]].
@@ -1254,7 +1254,7 @@
 (00:01:34) Jake Lloyd grew up in [[State of Texas|Texas]] and joined the [[United States]] Army at 17 years old, serving during the 2016 election.
 
 ### AF 2018-07-09 0196
-(00:02:10) After leaving the Army, Jake Lloyd began writing for a startup conservative publication and documented political rallies in [[City of Berkeley|Berkeley]] and [[City of Portland|Portland]] throughout 2017.
+(00:02:10) After leaving the Army, Jake Lloyd began writing for a startup conservative publication and documented political rallies in [[Berkeley]] and [[Portland]] throughout 2017.
 
 ### AF 2018-07-09 0196
 (00:02:54) Jake Lloyd met someone from [[Alex Jones|InfoWars]] at a protest, which led to him securing a position at the [[organization]].
@@ -1317,7 +1317,7 @@
 (00:27:27) Jake Lloyd expressed hope that future [[Supreme Court of the United States|Supreme Court]] rulings would help ensure the [[United States]] remained a [[country]] in the next 40-50 years.
 
 ### AF 2018-07-09 0196
-(00:27:57) Jake Lloyd called it embarrassing that the judicial system was acting as a veto power against [[Donald Trump|the president]], contrary to the [[U.S. Constitution|Constitution]]'s design.
+(00:27:57) Jake Lloyd called it embarrassing that the judicial system was acting as a veto power against [[the president]], contrary to the [[U.S. Constitution|Constitution]]'s design.
 
 ### AF 2018-07-09 0196
 (00:28:10) Jake Lloyd suggested breaking up the [[United States Court of Appeals for the Ninth Circuit|Ninth Circuit]] as a potential remedy for judicial obstruction but admitted he was not a judicial scholar.
@@ -1467,7 +1467,7 @@
 (00:45:38) [[J.F. Gariepy]] revealed he had discussed [[Donald Trump]]'s political approach with Mark Collett just prior to appearing on the show.
 
 ### AF 2018-06-21 0185
-(00:01:54) [[Nicholas J. Fuentes]] identified the "[[City of Charlottesville|Charlottesville]] coalition" as including himself, [[Faith Goldy]], Millennial Matt, [[Timothy Gionet|Baked Alaska]], and [[James Bryden]].
+(00:01:54) [[Nicholas J. Fuentes]] identified the "[[Charlottesville]] coalition" as including himself, [[Faith Goldy]], Millennial Matt, [[Timothy Gionet|Baked Alaska]], and [[James Bryden]].
 
 ### AF 2018-06-08 0181
 (00:10:44) [[Nicholas J. Fuentes]] appeared on [[Alex Jones|InfoWars]] for a two-hour interview with Jake Lloyd on *The War Room*.
@@ -1476,13 +1476,13 @@
 (01:03:54) [[Ben Shapiro]] and Milo Yiannopoulos watched the live-stream of [[Nicholas J. Fuentes]]'s [[Boston University]] debate and were initially impressed by his performance.
 
 ### AF 2018-06-01 0176
-(00:04:06) [[Donald Trump|Trump]] canceled a planned summit with [[North Korea]] one week prior, citing a souring of relations. (00:06:09) [[North Korea]] adopted a conciliatory tone towards [[Donald Trump|Trump]] following the cancellation, calling him a bold leader and expressing a desire to negotiate. (00:06:20) [[Donald Trump|Trump]] met with [[North Korea|North Korean]] envoy [[Kim Yong-chol]] for 80 minutes, during which he received a letter from [[Kim Jong Un|Kim Jong-un]]. (00:06:48) [[Donald Trump|Trump]] announced the summit with [[North Korea]] was back on for June 12th in [[Singapore]], following the meeting with [[Kim Yong-chol]]. (00:07:10) [[Donald Trump|Trump]] stated both the [[United States]] and [[North Korea]] were moving towards denuclearization, a position [[North Korea]] had reiterated. (00:08:14) The Goodlatte bill proposed a DACA amnesty in exchange for funding for a border wall, an end to chain migration, and an end to the diversity visa lottery system. (00:10:14) A narrative suggested [[John Bolton]] controlled [[Donald Trump|Trump]]'s foreign policy and had ruined [[North Korea]] negotiations by invoking the [[Libya]] model. (00:13:04) Unemployment in the [[United States]] reached 3.8%, its lowest level in 18 years, while wages rose 2.7%. (00:14:24) A major problem with immigration is that it drives down wages by increasing the labor supply, according to an economic argument. (00:15:33) A booming economy, deregulation, lower taxes, and reduced immigration contributed to rising wages and low unemployment. (00:16:15) The [[United States]] economy saw a net increase of 223,000 jobs. (00:17:32) [[Donald Trump|Trump]]'s ability to maneuver on immigration was restricted by [[Congress]] refusing to appropriate money for a border wall and courts tying up his executive orders. (00:18:38) A strong economy in 2018 was seen as suppressing a [[Democratic Party|Democratic]] "blue wave" and encouraging [[Republican Party|Republican]] turnout in the midterm elections. (00:19:14) [[Nicholas J. Fuentes]] announced a special guest, Jason "Party Goy," would join to discuss [[Kanye West]]'s new album "[[Kanye West|Ye]]." (00:25:01) [[Patrick Little]]'s 2018 [[Senate]] campaign in [[State of California|California]] focused on issues like [[Jews|Jewish]] supremacy and the [[USS Liberty]] incident. (00:25:59) [[Ben Shapiro]] argued that suggesting a [[Jews|Jew]] has dual loyalty is anti-Semitic, during an early [[Twitter]] argument with [[Nicholas J. Fuentes]]. (00:28:30) [[Paul Nehlen]]'s public statements on controversial issues created baggage for others attempting to discuss similar topics, according to [[Nicholas J. Fuentes]]. (00:29:00) The "Unite the Right" rally in [[City of Charlottesville|Charlottesville]] made it more difficult to convert people to dissident right-wing views, according to [[Nicholas J. Fuentes]]. (00:29:41) Figures like Milo Yiannopoulos and [[Mike Cernovich]] being labeled "alt-right" allowed dissident views to spread under the radar like a "Trojan horse." (00:30:14) [[Paul Nehlen]] performed poorly in an interview with [[John Cardillo]], appearing unprepared on basic questions about his views. (00:32:02) Guest Jason "Party Goy" identified as a conservative [[who]] agreed with [[Nicholas J. Fuentes]] on most issues. (00:32:28) [[Kanye West]] streamed his new album "[[Kanye West|Ye]]" via a listening party in [[Wyoming]] on an app called Wave, attended by journalists, celebrities, and featured artists. (00:33:17) Guest Jason "Party Goy" stated [[Kanye West]]'s album "[[Kanye West|Ye]]" embodied a "classic, but current" feeling and improved with repeated listens. (00:34:08) [[Nicholas J. Fuentes]]'s initial reaction to "[[Kanye West|Ye]]" was positive, then negative, before ultimately concluding the album was "epic" after multiple listens. (00:35:56) Guest Jason "Party Goy]] characterized "[[Kanye West|Ye]]" as a mix between [[Kanye West]]'s albums "Yeezus" and "My Beautiful Dark Twisted Fantasy." (00:36:46) [[Kanye West]]'s "old" sound from his first three albums involved sampling sped-up soul songs, distinct from the sound on "[[Kanye West|Ye]]." (00:37:18) [[Kanye West]]'s music took a negative and depressing turn after the death of his mother, with "[[Kanye West|Ye]]" representing a return to a more joyful tone. (00:39:06) [[Nicholas J. Fuentes]] proposed that [[Kanye West]]'s albums "Yeezus," "Life of Pablo," and "[[Kanye West|Ye]]" formed a new triumvirate similar to his first three albums. (00:39:48) [[Kanye West]]'s album "[[Kanye West|Ye]]" consisted of seven songs totaling 23 minutes, a concise format with [[little]] filler compared to "Life of Pablo." (00:40:44) [[Kanye West]]'s album "Life of Pablo" had a sloppy, delayed release with changing details, while "[[Kanye West|Ye]]" was seen as crisp and professionally mastered. (00:42:19) [[Kanye West]]'s personal life, including having children with [[Kim Kardashian]], contributed to a matured and happier sound on "[[Kanye West|Ye]]." (00:44:11) [[Kanye West]]'s support for [[Donald Trump|Trump]] did not prevent his album "[[Kanye West|Ye]]" from receiving largely positive critical reviews. (00:45:51) [[Pusha T]] had rumored that [[Kanye West]]'s album would be super political, but "[[Kanye West|Ye]]" contained minimal overt political content beyond a mention of [[Donald Trump|MAGA]] hats. (00:46:59) [[Kanye West]]'s album "[[Kanye West|Ye]]" had a low-key release without a major [[ad]] campaign, which [[Nicholas J. Fuentes]] saw as evidence of his genuineness. (00:48:25) The song "I Thought About Killing You" on "[[Kanye West|Ye]]" explores dark thoughts, with [[Kanye West]] stating "the brightest thoughts are often next to the darkest thoughts." (00:50:51) [[Kim Kardashian]] consistently defended [[Kanye West]] against critics like [[Taylor Swift]] and in media appearances, demonstrating loyalty. (00:52:29) [[Nicholas J. Fuentes]] argued that artists like [[Kanye West]] have an obligation to explore ideas beyond spousal approval, similar to politicians. (00:54:51) Guest Jason "Party Goy]] ranked [[Kanye West]]'s top three albums as "College Dropout," "Late Registration," and "Graduation." (00:55:53) [[Nicholas J. Fuentes]] ranked [[Kanye West]]'s top three albums as "Graduation," "My Beautiful Dark Twisted Fantasy," and "Yeezus." (00:57:35) [[Nicholas J. Fuentes]] considered the songs "Paranoid" and "Streetlights" on [[Kanye West]]'s "808s & Heartbreak" to be severely underrated. (00:59:10) Guest Jason "Party Goy]] stated he autistically listens to the same songs, like [[Steven Crowder|Steve]] Winwood's "Higher Love," repeatedly due to specific chord progressions. (01:00:45) Music critic [[Anthony Fauci|Anthony]] Fantano ("The Needle Drop") blocked [[Nicholas J. Fuentes]] on [[Twitter]], likely due to political differences. (01:01:07) [[Nicholas J. Fuentes]] expressed disappointment that figures he admires, like [[Samuel J. Hyde|Sam Hyde]], do not reciprocate his appreciation for their work. (01:01:30) Rapper [[Vic Mensa]] tweeted a negative response calling [[Nicholas J. Fuentes]] a "white nationalist," despite [[Nicholas J. Fuentes]] regularly listening to his music. (01:02:50) [[Nicholas J. Fuentes]] described driving through the [[Southern United States|South]] Side of [[City of Chicago|Chicago]] as akin to a war zone, feeling unsafe when lost and low on gas. (01:04:29) Guest Jason "Party Goy]] offered to produce trap music for [[Nicholas J. Fuentes]] if he wanted to start a music career. (01:05:00) [[Nicholas J. Fuentes]] played the euphonium in high school marching band, memorizing fingerings without deeply learning music theory. (01:06:50) [[Nicholas J. Fuentes]] announced he would take a vacation from his show the week of June 11th-15th to work on new projects in seclusion.
+(00:04:06) [[Donald Trump|Trump]] canceled a planned summit with [[North Korea]] one week prior, citing a souring of relations. (00:06:09) [[North Korea]] adopted a conciliatory tone towards [[Donald Trump|Trump]] following the cancellation, calling him a bold leader and expressing a desire to negotiate. (00:06:20) [[Donald Trump|Trump]] met with [[North Korea|North Korean]] envoy [[Kim Yong-chol]] for 80 minutes, during which he received a letter from [[Kim Jong Un|Kim Jong-un]]. (00:06:48) [[Donald Trump|Trump]] announced the summit with [[North Korea]] was back on for June 12th in [[Singapore]], following the meeting with [[Kim Yong-chol]]. (00:07:10) [[Donald Trump|Trump]] stated both the [[United States]] and [[North Korea]] were moving towards denuclearization, a position [[North Korea]] had reiterated. (00:08:14) The Goodlatte bill proposed a DACA amnesty in exchange for funding for a border wall, an end to chain migration, and an end to the diversity visa lottery system. (00:10:14) A narrative suggested [[John Bolton]] controlled [[Donald Trump|Trump]]'s foreign policy and had ruined [[North Korea]] negotiations by invoking the [[Libya]] model. (00:13:04) Unemployment in the [[United States]] reached 3.8%, its lowest level in 18 years, while wages rose 2.7%. (00:14:24) A major problem with immigration is that it drives down wages by increasing the labor supply, according to an economic argument. (00:15:33) A booming economy, deregulation, lower taxes, and reduced immigration contributed to rising wages and low unemployment. (00:16:15) The [[United States]] economy saw a net increase of 223,000 jobs. (00:17:32) [[Donald Trump|Trump]]'s ability to maneuver on immigration was restricted by [[Congress]] refusing to appropriate money for a border wall and courts tying up his executive orders. (00:18:38) A strong economy in 2018 was seen as suppressing a [[Democratic Party|Democratic]] "blue wave" and encouraging [[Republican Party|Republican]] turnout in the midterm elections. (00:19:14) [[Nicholas J. Fuentes]] announced a special guest, Jason "Party Goy," would join to discuss [[Kanye West]]'s new album "[[Kanye West|Ye]]." (00:25:01) [[Patrick Little]]'s 2018 [[Senate]] campaign in [[State of California|California]] focused on issues like [[Jews|Jewish]] supremacy and the [[USS Liberty]] incident. (00:25:59) [[Ben Shapiro]] argued that suggesting a [[Jews|Jew]] has dual loyalty is anti-Semitic, during an early [[Twitter]] argument with [[Nicholas J. Fuentes]]. (00:28:30) [[Paul Nehlen]]'s public statements on controversial issues created baggage for others attempting to discuss similar topics, according to [[Nicholas J. Fuentes]]. (00:29:00) The "Unite the Right" rally in [[Charlottesville]] made it more difficult to convert people to dissident right-wing views, according to [[Nicholas J. Fuentes]]. (00:29:41) Figures like Milo Yiannopoulos and [[Mike Cernovich]] being labeled "alt-right" allowed dissident views to spread under the radar like a "Trojan horse." (00:30:14) [[Paul Nehlen]] performed poorly in an interview with [[John Cardillo]], appearing unprepared on basic questions about his views. (00:32:02) Guest Jason "Party Goy" identified as a conservative [[who]] agreed with [[Nicholas J. Fuentes]] on most issues. (00:32:28) [[Kanye West]] streamed his new album "[[Kanye West|Ye]]" via a listening party in [[Wyoming]] on an app called Wave, attended by journalists, celebrities, and featured artists. (00:33:17) Guest Jason "Party Goy" stated [[Kanye West]]'s album "[[Kanye West|Ye]]" embodied a "classic, but current" feeling and improved with repeated listens. (00:34:08) [[Nicholas J. Fuentes]]'s initial reaction to "[[Kanye West|Ye]]" was positive, then negative, before ultimately concluding the album was "epic" after multiple listens. (00:35:56) Guest Jason "Party Goy]] characterized "[[Kanye West|Ye]]" as a mix between [[Kanye West]]'s albums "Yeezus" and "My Beautiful Dark Twisted Fantasy." (00:36:46) [[Kanye West]]'s "old" sound from his first three albums involved sampling sped-up soul songs, distinct from the sound on "[[Kanye West|Ye]]." (00:37:18) [[Kanye West]]'s music took a negative and depressing turn after the death of his mother, with "[[Kanye West|Ye]]" representing a return to a more joyful tone. (00:39:06) [[Nicholas J. Fuentes]] proposed that [[Kanye West]]'s albums "Yeezus," "Life of Pablo," and "[[Kanye West|Ye]]" formed a new triumvirate similar to his first three albums. (00:39:48) [[Kanye West]]'s album "[[Kanye West|Ye]]" consisted of seven songs totaling 23 minutes, a concise format with [[little]] filler compared to "Life of Pablo." (00:40:44) [[Kanye West]]'s album "Life of Pablo" had a sloppy, delayed release with changing details, while "[[Kanye West|Ye]]" was seen as crisp and professionally mastered. (00:42:19) [[Kanye West]]'s personal life, including having children with [[Kim Kardashian]], contributed to a matured and happier sound on "[[Kanye West|Ye]]." (00:44:11) [[Kanye West]]'s support for [[Donald Trump|Trump]] did not prevent his album "[[Kanye West|Ye]]" from receiving largely positive critical reviews. (00:45:51) [[Pusha T]] had rumored that [[Kanye West]]'s album would be super political, but "[[Kanye West|Ye]]" contained minimal overt political content beyond a mention of [[Donald Trump|MAGA]] hats. (00:46:59) [[Kanye West]]'s album "[[Kanye West|Ye]]" had a low-key release without a major [[ad]] campaign, which [[Nicholas J. Fuentes]] saw as evidence of his genuineness. (00:48:25) The song "I Thought About Killing You" on "[[Kanye West|Ye]]" explores dark thoughts, with [[Kanye West]] stating "the brightest thoughts are often next to the darkest thoughts." (00:50:51) [[Kim Kardashian]] consistently defended [[Kanye West]] against critics like [[Taylor Swift]] and in media appearances, demonstrating loyalty. (00:52:29) [[Nicholas J. Fuentes]] argued that artists like [[Kanye West]] have an obligation to explore ideas beyond spousal approval, similar to politicians. (00:54:51) Guest Jason "Party Goy]] ranked [[Kanye West]]'s top three albums as "College Dropout," "Late Registration," and "Graduation." (00:55:53) [[Nicholas J. Fuentes]] ranked [[Kanye West]]'s top three albums as "Graduation," "My Beautiful Dark Twisted Fantasy," and "Yeezus." (00:57:35) [[Nicholas J. Fuentes]] considered the songs "Paranoid" and "Streetlights" on [[Kanye West]]'s "808s & Heartbreak" to be severely underrated. (00:59:10) Guest Jason "Party Goy]] stated he autistically listens to the same songs, like [[Steven Crowder|Steve]] Winwood's "Higher Love," repeatedly due to specific chord progressions. (01:00:45) Music critic [[Anthony Fauci|Anthony]] Fantano ("The Needle Drop") blocked [[Nicholas J. Fuentes]] on [[Twitter]], likely due to political differences. (01:01:07) [[Nicholas J. Fuentes]] expressed disappointment that figures he admires, like [[Samuel J. Hyde|Sam Hyde]], do not reciprocate his appreciation for their work. (01:01:30) Rapper [[Vic Mensa]] tweeted a negative response calling [[Nicholas J. Fuentes]] a "white nationalist," despite [[Nicholas J. Fuentes]] regularly listening to his music. (01:02:50) [[Nicholas J. Fuentes]] described driving through the [[Southern United States|South]] Side of [[Chicago]] as akin to a war zone, feeling unsafe when lost and low on gas. (01:04:29) Guest Jason "Party Goy]] offered to produce trap music for [[Nicholas J. Fuentes]] if he wanted to start a music career. (01:05:00) [[Nicholas J. Fuentes]] played the euphonium in high school marching band, memorizing fingerings without deeply learning music theory. (01:06:50) [[Nicholas J. Fuentes]] announced he would take a vacation from his show the week of June 11th-15th to work on new projects in seclusion.
 
 ### AF 2018-05-31 0175
-(00:03:51) Wilbur Ross, the [[United States]] Commerce Secretary, announced the expiration of tariff exemptions for [[Mexico]], [[Dominion of Canada|Canada]], and the [[Europe|European Union]], imposing 25% tariffs on steel and 10% on aluminum starting at midnight.
+(00:03:51) Wilbur Ross, the [[United States]] Commerce Secretary, announced the expiration of tariff exemptions for [[Mexico]], [[Dominion of Canada|Canada]], and the [[European Union]], imposing 25% tariffs on steel and 10% on aluminum starting at midnight.
 
 ### AF 2018-05-31 0175
-(00:10:39) Wilbur Ross announced from [[Paris]] that [[Mexico]], [[Dominion of Canada|Canada]], and the [[Europe|European Union]] would lose their tariff exemptions, leading to retaliatory measures and complaints to the [[World Trade Organization]].
+(00:10:39) Wilbur Ross announced from [[Paris]] that [[Mexico]], [[Dominion of Canada|Canada]], and the [[European Union]] would lose their tariff exemptions, leading to retaliatory measures and complaints to the [[World Trade Organization]].
 
 ### AF 2018-05-31 0175
 (01:04:01) [[Nicholas J. Fuentes]] referenced Greg Johnson, [[who]] challenged him to a debate, as an example of a pagan [[who]] admitted he does not actually believe in pagan gods like [[Odin]].
@@ -1515,10 +1515,10 @@
 (01:26:51) [[Nicholas J. Fuentes]] concluded the show by reminding viewers of the next day's debate with [[Jacob Wohl]] on [[Iran]], his planned absence on Thursday to attend a [[Donald Trump|Trump]] rally in [[India|Indiana]], and a Friday Fortnite stream with [[Timothy Gionet|Baked Alaska]], [[Daryl Cooper|Beardson]], and Party Goy.
 
 ### AF 2018-05-07 0159
-(02:52:48) [[Nicholas J. Fuentes]] planned to discuss the "Day for Freedom" or "Free Speech Day" event in [[City of London|London]] featuring Milo Yiannopoulos, [[Lauren Southern]], and [[Tommy Robinson]].
+(02:52:48) [[Nicholas J. Fuentes]] planned to discuss the "Day for Freedom" or "Free Speech Day" event in [[London]] featuring Milo Yiannopoulos, [[Lauren Southern]], and [[Tommy Robinson]].
 
 ### AF 2018-05-07 0159
-(36:59:00) [[Nicholas J. Fuentes]] cited hypocrisy, noting that Milo Yiannopoulos canceled an interview with him for being "too controversial," and [[Gavin McInnes]] told his [[Proud Boys]] to disavow the [[City of Charlottesville|Charlottesville]] rally.
+(36:59:00) [[Nicholas J. Fuentes]] cited hypocrisy, noting that Milo Yiannopoulos canceled an interview with him for being "too controversial," and [[Gavin McInnes]] told his [[Proud Boys]] to disavow the [[Charlottesville]] rally.
 
 ### AF 2018-05-07 0159
 (38:56:48) [[Nicholas J. Fuentes]] criticized the rally's lineup, which included a drag queen, [[Raheem Kassam]] from [[Breitbart News|Breitbart]], Milo Yiannopoulos, and [[Lauren Southern]], calling it a "parade of freaks" and a "leftist circus."
@@ -1566,10 +1566,10 @@
 (00:02:20) [[Nicholas J. Fuentes]] announced a debate with Mike Tokes on the [[Timothy Gionet|Baked Alaska]] livestream, scheduled for Friday at 7 p.m. Central [[time]], to argue for ethnic nationalism against civic nationalism.
 
 ### AF 2018-03-19 0127
-(00:57:28) Milo and [[Laura Loomer]] were scheduled to hold an event in [[City of Las Vegas|Las Vegas]] on April 13th, which was expected to draw counter-protests from [[Antifa]].
+(00:57:28) Milo and [[Laura Loomer]] were scheduled to hold an event in [[Las Vegas]] on April 13th, which was expected to draw counter-protests from [[Antifa]].
 
 ### AF 2018-03-19 0127
-(00:57:45) [[Nicholas J. Fuentes]] had a personal grievance with Milo, [[who]] canceled a planned interview with him in [[City of Miami|Miami]], [[State of Florida|Florida]] in August 2017 after the [[City of Charlottesville|Charlottesville]] rally.
+(00:57:45) [[Nicholas J. Fuentes]] had a personal grievance with Milo, [[who]] canceled a planned interview with him in [[Miami]], [[State of Florida|Florida]] in August 2017 after the [[Charlottesville]] rally.
 
 ### AF 2018-03-19 0127
 (01:04:05) Milo presents himself as "[[America First]]" while also being a Zionist, which [[Nicholas J. Fuentes]] views as a subversion of the [[United States|American]] nationalist position.
@@ -1584,10 +1584,10 @@
 (07:25:15) [[Nicholas J. Fuentes]] praised Patrick Casey for being "really progressive" after he invited a speaker with Down Syndrome to an [[American Identity Movement|Identity Evropa]] meeting, comparing it to a Make-A-Wish Foundation event.
 
 ### AF 2018-03-08 0121
-(15:02:860) During the 2017 [[City of Charlottesville|Charlottesville]] rally, [[Nicholas J. Fuentes]] was in a hotel lobby with [[James Allsup]], [[Timothy Gionet|Baked Alaska]], and Millennial Matt when [[Donald Trump]] stated there were "very fine people on both sides," which they cheered.
+(15:02:860) During the 2017 [[Charlottesville]] rally, [[Nicholas J. Fuentes]] was in a hotel lobby with [[James Allsup]], [[Timothy Gionet|Baked Alaska]], and Millennial Matt when [[Donald Trump]] stated there were "very fine people on both sides," which they cheered.
 
 ### AF 2018-03-08 0121
-(15:03:440) [[Nicholas J. Fuentes]] attended the [[City of Charlottesville|Charlottesville]] rally to protest the removal of a Robert E. Lee statue and the renaming of [[Lee Park]].
+(15:03:440) [[Nicholas J. Fuentes]] attended the [[Charlottesville]] rally to protest the removal of a Robert E. Lee statue and the renaming of [[Lee Park]].
 
 ### AF 2018-03-05 0118
 (00:03:00) [[Antifa]] disrupted events featuring [[Christina Hoff Summers]], [[Carl Benjamin|Sargon of Akkad]], [[Mike Cernovich]], Milo Yiannopoulos, and [[Richard Spencer]].
@@ -1635,7 +1635,7 @@
 (00:08:03) On National Compliment Day, [[Nicholas J. Fuentes]] complimented [[Tara McCarthy]] for her beautiful smile and Patrick Casey for his calm demeanor.
 
 ### AF 2017-12-22 0075
-(00:51:11) [[Nicholas J. Fuentes]] credited Milo Yiannopoulos as one of the best things to happen to the alt-right for creating a funnel from mainstream conservative commentators like [[Ben Shapiro]] and [[Steven Crowder]] into the nationalist movement, a pathway also facilitated by figures like [[Gavin McInnes]], [[Alex Jones]], and [[Paul Miller|Paul Joseph Watson]].
+(00:51:11) [[Nicholas J. Fuentes]] credited Milo Yiannopoulos as one of the best things to happen to the alt-right for creating a funnel from mainstream conservative commentators like [[Ben Shapiro]] and [[Steven Crowder]] into the nationalist movement, a pathway also facilitated by figures like [[Gavin McInnes]], [[Alex Jones]], and [[Paul Joseph Watson]].
 
 ### AF 2017-12-22 0075
 (01:10:55) [[Nicholas J. Fuentes]] proposed that the way to drive people from the "normie tier" red-pill audience of [[Ben Shapiro]] and Milo Yiannopoulos into the [[America First]] movement is by producing quality content that creates a pathway, and through cross-pollination by appearing on shows hosted by figures like [[Mike Cernovich]] and [[Alex Jones]].
@@ -1680,7 +1680,7 @@
 (00:32:42) Millennial Matt criticized [[Nicholas J. Fuentes]] for associating with an individual (Sean/Hubris) [[who]] was kicked out of [[American Identity Movement|Identity Evropa]] and has since been anti-alt-right.
 
 ### AF 2017-12-06 0065
-(00:35:19) [[Nicholas J. Fuentes]] referenced the [[City of Charlottesville|Charlottesville]] rally, noting that he and Millennial Matt had been together in a hotel room facing arrest, and argued they should not let internal drama divide the movement.
+(00:35:19) [[Nicholas J. Fuentes]] referenced the [[Charlottesville]] rally, noting that he and Millennial Matt had been together in a hotel room facing arrest, and argued they should not let internal drama divide the movement.
 
 ### AF 2017-12-06 0065
 (00:40:30) Millennial Matt countered that female commentators might be keeping pregnancies secret due to security concerns from daily death threats and assaults.
@@ -1731,7 +1731,7 @@
 (00:19:48) [[Nicholas J. Fuentes]] argued that the "Hailgate" incident at the NPI conference, where attendees gave Roman salutes, served to keep figures like Milo Yiannopoulos from co-opting the alt-right but now necessitated a new movement with better optics.
 
 ### AF 2017-11-01 0044
-(10:44:020) [[Nicholas J. Fuentes]] was scheduled for an interview with Milo Yiannopoulos and [[Allum Bokhari]] in [[City of Miami|Miami, Florida]] shortly after the [[City of Charlottesville|Charlottesville]] rally, but the interview was canceled.
+(10:44:020) [[Nicholas J. Fuentes]] was scheduled for an interview with Milo Yiannopoulos and [[Allum Bokhari]] in [[Miami, Florida]] shortly after the [[Charlottesville]] rally, but the interview was canceled.
 
 ### AF 2017-10-31 0043
 (01:12:12) [[Nicholas J. Fuentes]] and a caller discussed the interview between [[Gavin McInnes]] and Milo Yiannopoulos, with the caller noting it felt unserious compared to alt-right content, and [[Nicholas J. Fuentes]] jokingly suggested testing if McInnes was allowed to say "bug man" on air.
@@ -1740,13 +1740,13 @@
 (04:56:28) [[Nicholas J. Fuentes]] pointed to the large crowds drawn by [[Ben Shapiro]] and Milo Yiannopoulos on their speaking tours as evidence of their significant cultural influence, despite his personal disagreements with them.
 
 ### AF 2017-10-24 0038
-(05:24:17) [[Nicholas J. Fuentes]] cited the ascendancy of [[Alex Jones|InfoWars]], [[Paul Miller|Paul Joseph Watson]], Milo Yiannopoulos, [[Ben Shapiro]], and [[Mike Cernovich]] as examples of successful cultural movements, contrasting them with what he viewed as the failed mass appeal of events like the [[City of Charlottesville|Charlottesville]] rally.
+(05:24:17) [[Nicholas J. Fuentes]] cited the ascendancy of [[Alex Jones|InfoWars]], [[Paul Joseph Watson]], Milo Yiannopoulos, [[Ben Shapiro]], and [[Mike Cernovich]] as examples of successful cultural movements, contrasting them with what he viewed as the failed mass appeal of events like the [[Charlottesville]] rally.
 
 ### AF 2017-10-23 0037
-(30:34:350) [[Nicholas J. Fuentes]] planned to discuss a story about [[Steven Crowder|Steve Bannon]] disavowing Milo Yiannopoulos after a [[BuzzFeed]] expose.
+(30:34:350) [[Nicholas J. Fuentes]] planned to discuss a story about [[Steve Bannon]] disavowing Milo Yiannopoulos after a [[BuzzFeed]] expose.
 
 ### AF 2017-10-23 0037
-(30:48:450) [[Steven Crowder|Steve Bannon]] declared Milo Yiannopoulos "dead to him" and cut all ties after a [[BuzzFeed]] expose showed Yiannopoulos with alt-right figures giving Roman salutes.
+(30:48:450) [[Steve Bannon]] declared Milo Yiannopoulos "dead to him" and cut all ties after a [[BuzzFeed]] expose showed Yiannopoulos with alt-right figures giving Roman salutes.
 
 ### AF 2017-10-23 0037
 (31:04:210) [[Richard Spencer]] was present in a video where Milo Yiannopoulos sang "[[United States|America]] the Beautiful" to a crowd giving Roman salutes.
@@ -1791,10 +1791,10 @@
 (00:04:19) [[Ann Coulter]] confirmed to the [[Associated Press]] that she would not be attending Milo Yiannopoulos's event at [[Berkeley]].
 
 ### AF 2017-09-22 0016
-(00:04:21) [[Steven Crowder|Steve Bannon]] confirmed he would not be attending Milo Yiannopoulos's event at [[Berkeley]].
+(00:04:21) [[Steve Bannon]] confirmed he would not be attending Milo Yiannopoulos's event at [[Berkeley]].
 
 ### AF 2017-09-22 0016
-(00:04:32) [[Lucian Wintrich]], appearing on a livestream with [[Ali Akbar]], argued that Milo Yiannopoulos had been bluffing about the viability of his [[Berkeley]] event, using the names of [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] to generate publicity without their confirmed participation.
+(00:04:32) [[Lucian Wintrich]], appearing on a livestream with [[Ali Akbar]], argued that Milo Yiannopoulos had been bluffing about the viability of his [[Berkeley]] event, using the names of [[Steve Bannon]] and [[Ann Coulter]] to generate publicity without their confirmed participation.
 
 ### AF 2017-09-22 0016
 (00:05:46) [[Lucian Wintrich]] argued it was unethical for Milo Yiannopoulos to continue promoting his [[Berkeley]] event, knowing it would not happen, after the university had committed to spending a million dollars on security.
@@ -1806,7 +1806,7 @@
 (00:10:08) [[Mike Cernovich]] stated that some elements of Milo Yiannopoulos's [[Berkeley]] plans might still occur, but not as originally advertised.
 
 ### AF 2017-09-22 0016
-(00:10:17) [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] were confirmed as not attending Milo Yiannopoulos's [[Berkeley]] event.
+(00:10:17) [[Steve Bannon]] and [[Ann Coulter]] were confirmed as not attending Milo Yiannopoulos's [[Berkeley]] event.
 
 ### AF 2017-09-22 0016
 (00:13:25) Milo Yiannopoulos received $15 million in funding from the [[Mercer family]] for his projects, including a planned college tour and "Free Speech Week."
@@ -1839,22 +1839,22 @@
 (00:27:21) Milo Yiannopoulos planned a free speech festival at [[Berkeley]] for September 23-25, which he described as a "Woodstock for the right wing" and an "Avengers event" for conservative media figures.
 
 ### AF 2017-09-21 0015
-(00:42:57) Milo Yiannopoulos released a list of speakers for his [[City of Berkeley|Berkeley]] event that included [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[Katie Hopkins]], [[Lucian Wintrich]], [[Mike Cernovich]], and [[Jordan Peterson]].
+(00:42:57) Milo Yiannopoulos released a list of speakers for his [[Berkeley]] event that included [[Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[Katie Hopkins]], [[Lucian Wintrich]], [[Mike Cernovich]], and [[Jordan Peterson]].
 
 ### AF 2017-09-21 0015
-(00:53:31) [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[James Damore]], and [[Lucian Wintrich]] all dropped out of Milo Yiannopoulos's [[City of Berkeley|Berkeley]] free speech event, leaving only four confirmed speakers.
+(00:53:31) [[Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[James Damore]], and [[Lucian Wintrich]] all dropped out of Milo Yiannopoulos's [[Berkeley]] free speech event, leaving only four confirmed speakers.
 
 ### AF 2017-09-21 0015
-(01:10:53) Milo Yiannopoulos's company, Milo Inc., informed speakers not to book travel for the [[City of Berkeley|Berkeley]] event and stated their flight and hotel details would be revealed only 48 hours prior, despite paperwork being delivered five weeks earlier.
+(01:10:53) Milo Yiannopoulos's company, Milo Inc., informed speakers not to book travel for the [[Berkeley]] event and stated their flight and hotel details would be revealed only 48 hours prior, despite paperwork being delivered five weeks earlier.
 
 ### AF 2017-09-21 0015
 (01:15:16) The [[Berkeley]] [[MIM-104 Patriot|Patriot]], the student group organizing Milo Yiannopoulos's event, never signed the required paperwork to book space or security for the free speech week.
 
 ### AF 2017-09-21 0015
-(01:17:07) Many speculated Milo Yiannopoulos never intended his [[City of Berkeley|Berkeley]] free speech week to happen, but instead planned for it to fail so he could blame the university for shutting him down.
+(01:17:07) Many speculated Milo Yiannopoulos never intended his [[Berkeley]] free speech week to happen, but instead planned for it to fail so he could blame the university for shutting him down.
 
 ### AF 2017-09-21 0015
-(01:18:18) In mid-August, Milo Yiannopoulos's team invited [[Nicholas J. Fuentes]] to [[City of Miami|Miami]] for an interview, flying him down before canceling the interview via email after he had already landed.
+(01:18:18) In mid-August, Milo Yiannopoulos's team invited [[Nicholas J. Fuentes]] to [[Miami]] for an interview, flying him down before canceling the interview via email after he had already landed.
 
 ### AF 2017-09-21 0015
 (01:21:31) Milo Yiannopoulos received tens of millions of dollars in investment for a tour that never materialized and failed to disperse a promised $250,000 privilege grant.
@@ -1863,4 +1863,4 @@
 (01:30:27) [[Nicholas J. Fuentes]] argued that the "alt-cuck" or "alt-light" movement, represented by figures like Milo Yiannopoulos, lacked political convictions and cared more about sensation than ideology.
 
 ### AF 2017-09-21 0015
-(01:32:23) Milo Yiannopoulos's failed [[City of Berkeley|Berkeley]] event placed [[Ann Coulter]], [[Steven Crowder|Steve Bannon]], [[Jordan Peterson]], and [[Lucian Wintrich]] in a bad position by listing them as speakers without their confirmation, generating negative press for them.
+(01:32:23) Milo Yiannopoulos's failed [[Berkeley]] event placed [[Ann Coulter]], [[Steve Bannon]], [[Jordan Peterson]], and [[Lucian Wintrich]] in a bad position by listing them as speakers without their confirmation, generating negative press for them.

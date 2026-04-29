@@ -78,4 +78,4 @@
 (02:49:400) The NBA did not allow custom jerseys on its website to feature phrases such as "Winnie the Pooh" or "Taiwan," which were considered against [[China]]'s interests.
 
 ### AF 2021-05-26 0817
-(26:48:880) Many conservatives called out the NBA for being influenced by [[China]] after the league prohibited custom jerseys with phrases offensive to [[City of Beijing|Beijing]].
+(26:48:880) Many conservatives called out the NBA for being influenced by [[China]] after the league prohibited custom jerseys with phrases offensive to [[Beijing]].

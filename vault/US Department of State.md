@@ -4,7 +4,7 @@
 
 ### AF 2024-11-08 1420
 (01:31:860) [[Nicholas J. Fuentes]] identified the Secretary of U.S. Department of State, Secretary of [[Treasury Department|Department of the Treasury]], and Secretary of [[U.S. Department of Defense|Department of Defense]] as the three most important roles in the [[Donald Trump]] administration.
-(02:29:850) [[Nicholas J. Fuentes]] outlined how policy options during a foreign policy crisis are developed by experts in departments like the U.S. Department of State or [[U.S. Department of Defense]] before being presented to [[Donald Trump|the president]].
+(02:29:850) [[Nicholas J. Fuentes]] outlined how policy options during a foreign policy crisis are developed by experts in departments like the U.S. Department of State or [[U.S. Department of Defense]] before being presented to [[the president]].
 (04:42:790) [[Brian Hook]], a former [[Donald Trump]] official and his envoy to [[Iran]], was tasked with leading the new administration's U.S. Department of State transition team.
 (04:47:950) [[Brian Hook]] was considered for a senior position within the U.S. Department of State.
 (04:52:570) [[Nicholas J. Fuentes]] emphasized the Secretary of U.S. Department of State as one of the most important positions, alongside [[U.S. Department of Defense|Department of Defense]] and [[Treasury Department|Department of the Treasury]].
@@ -89,7 +89,7 @@
 (01:25:00) [[Central Intelligence Agency|CIA]] Director [[William Burns]], [[Southcom]] Commander [[Laura Richardson]], and Secretary of State [[Antony Blinken]] all visited [[Argentina]] this year.
 
 ### AF 2024-07-30 1363
-(00:39:30) [[Nicolás Maduro]] won a third six-year term as President of [[Venezuela]] in a presidential election whose results were not accepted by the U.S. Department of State or by many of [[Venezuela]]'s neighbors, including [[Columbia|Colombia]] and [[Brazil]].
+(00:39:30) [[Nicolás Maduro]] won a third six-year term as President of [[Venezuela]] in a presidential election whose results were not accepted by the U.S. Department of State or by many of [[Venezuela]]'s neighbors, including [[Colombia]] and [[Brazil]].
 
 ### AF 2024-07-30 1363
 (00:45:56) The U.S. Department of State and many countries denounced the results of the [[Venezuela]] presidential election, accusing the government of widespread fraud and refusing to release detailed vote counts.
@@ -264,3 +264,12 @@
 
 ### AF 2017-11-01 0044
 (03:39:640) [[Hillary Clinton]]'s State Department was involved in placing [[Somalia|Somali]] migrants into predominantly white communities as part of a diversification effort.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:43:10) Many left-wing activist groups and nonprofits reportedly receive direct funding from the [[United States]] government through agencies such as the State Department, the [[National Endowment for Democracy]], and [[United States Agency for International Development|USAID]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:26:08) The State Department and [[U.S. Department of Homeland Security|DHS]] are actively deporting anyone [[who]] criticizes [[Israel]] on social media.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:56:14.700) [[Nicholas J. Fuentes]] expressed suspicion about people hanging out in [[Saudi Arabia]], buying real estate in [[Qatar]], and living in [[Serbia]] and [[Russian Federation|Russia]] while getting money from the State Department.

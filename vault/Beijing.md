@@ -61,3 +61,9 @@
 
 ### AF 2021-09-21 0880
 (00:25:18) [[Nicholas J. Fuentes]] argued that adversaries of the [[United States|American]] regime, such as the governments in Beijing and [[Moscow]], would not necessarily hate [[United States|American]] dissidents and could potentially view them as assets, similar to how the [[United States]] props up [[Russian]] dissidents like [[Alexei Navalny]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:53:08) [[Xi Jinping]] and Beijing set a deadline of 2027 as the earliest date they want to be prepared for [[China]] to invade [[Taiwan]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:58:52) [[Rick Grenell|Rick Grinnell]] worked out a deal where [[Nicolás Maduro]] would remain in power but give the [[United States]] his oil and gold and reorient from Beijing and [[Moscow]] to [[Washington D.C.|Washington]].

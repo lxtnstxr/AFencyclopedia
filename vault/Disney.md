@@ -195,7 +195,7 @@
 (01:05:30) [[Nicholas J. Fuentes]] argued that the proliferation of [[black]] and female characters in [[Organization|Marvel]] and Disney films, such as a [[black]] Ariel, constituted a form of "redpilling" by demonstrating a deliberate shift away from white representation.
 
 ### AF 2019-07-10 0422
-(00:24:13) [[Nicholas J. Fuentes]] connected the [[City of Chicago|Chicago]] violence to other incidents, including a "flash mob" robbery at a [[Walgreens]] in [[City of Philadelphia|Philadelphia]] and a brawl at Disneyland.
+(00:24:13) [[Nicholas J. Fuentes]] connected the [[Chicago]] violence to other incidents, including a "flash mob" robbery at a [[Walgreens]] in [[Philadelphia]] and a brawl at Disneyland.
 
 ### AF 2019-07-08 0420
 (01:20:75) [[Nicholas J. Fuentes]] cited a viral video of a large fight breaking out at Disneyland in [[Los Angeles]] as another example of deteriorating social norms.
@@ -256,3 +256,6 @@
 
 ### AF 2017-11-20 0054
 (36:54:52) [[Nicholas J. Fuentes]] argued that [[Mitch McConnell]] and establishment figures were desperate to stop [[Roy Moore]], and that companies like Disney were risking commercial backlash with ideological messaging, because they were "scared shitless" of the rising political movement.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:40:52) [[Nicholas J. Fuentes]] claimed that for generations, almost all major media conglomerates have been owned and managed by people [[who]] are "ethnically [[Jews|Jewish]]," citing [[Bob Iger]] at Disney, Zucker at [[Warner Bros. Discovery|CNN]], and [[Skydance Media|Sumner Redstone]] at [[CBS]].

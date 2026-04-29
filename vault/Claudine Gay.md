@@ -2,7 +2,7 @@
 #person
 
 ### AF 2025-11-25 1604
-(00:33:22) [[Nicholas J. Fuentes]] claimed [[Jewish]] groups used their concentrated power to get [[Donald Trump|the president]] of [[Harvard University]] fired for not cracking down hard enough on dissent against [[Israel]], and to direct power against [[Marjorie Taylor Greene]], Claudine Gay, and [[Elon Musk]] when he tolerated criticism of [[Israel]].
+(00:33:22) [[Nicholas J. Fuentes]] claimed [[Jewish]] groups used their concentrated power to get [[the president]] of [[Harvard University]] fired for not cracking down hard enough on dissent against [[Israel]], and to direct power against [[Marjorie Taylor Greene]], Claudine Gay, and [[Elon Musk]] when he tolerated criticism of [[Israel]].
 
 
 ### AF 2024-10-29 1415
@@ -15,7 +15,7 @@
 (53:27:970) [[Alan Garber]], a [[Jewish]] doctor, replaced Claudine Gay as president of [[Harvard University]].
 
 ### AF 2024-10-23 1411
-(30:06:470) [[William Ackman]] specifically targeted Claudine Gay, [[Donald Trump|the president]] of [[Harvard University]], in a "high pressure campaign" aimed at her removal, which was motivated by her refusal to suppress pro-[[Palestine]] activism.
+(30:06:470) [[William Ackman]] specifically targeted Claudine Gay, [[the president]] of [[Harvard University]], in a "high pressure campaign" aimed at her removal, which was motivated by her refusal to suppress pro-[[Palestine]] activism.
 
 ### AF 2024-10-23 1411
 (30:53:590) Claudine Gay was forced to resign in January 2024 due to a plagiarism scandal.
@@ -78,7 +78,7 @@
 (01:32:44:28) [[Nicholas J. Fuentes]] criticized commentators like [[Christopher Rufo|Chris Rufo]], [[James Lindsay]], and [[Jeremy Kofnuss]] for engaging in a cover-up by attacking [[Chris Burnett]] as an "unhinged anti-Semite" while ignoring the substance of the plagiarism allegations against Claudine Gay and the involved [[Jewish]] employees.
 
 ### AF 2024-10-17 1408
-(00:13:03) [[Christopher Rufo|Christopher Brunet]] and [[Christopher Rufo]] broke the plagiarism scandal that led to the firing of Claudine Gay, [[Donald Trump|the president]] of [[Harvard University]].
+(00:13:03) [[Christopher Rufo|Christopher Brunet]] and [[Christopher Rufo]] broke the plagiarism scandal that led to the firing of Claudine Gay, [[the president]] of [[Harvard University]].
 
 ### AF 2024-10-17 1408
 (00:15:54) Major [[Jewish]] donors threatened to withhold donations to [[Harvard University]] after Claudine Gay did not support [[Israel]] sufficiently following the [[October 7th Attack]].
@@ -130,3 +130,9 @@
 
 ### AF 2024-05-02 1327
 (00:30:00) [[Nicholas J. Fuentes]] stated that the campaign resulted in the firing of Claudine Gay at [[Harvard University]] and [[Elizabeth Magill]] at the [[University of Pennsylvania]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:33:52) [[Nicholas J. Fuentes]] recalled that after the [[October 7th Attack|October 7th]] protests, a campaign to fire university presidents for tolerating anti-[[Israel]] protests failed for a year, but succeeded when [[Christopher Rufo|Chris Rufo]] of the [[Manhattan Institute]] published a plagiarism report on [[Harvard University|Harvard]] [[White House|President]] Claudine Gay, forcing her out.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:34:06) [[Nicholas J. Fuentes]] noted that while Claudine Gay was exposed for plagiarism, so was the wife of [[William Ackman|Bill Ackman]], a billionaire pushing for her firing, but there were no calls for her to resign.

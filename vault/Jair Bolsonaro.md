@@ -6,7 +6,7 @@
 
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], Jair Bolsonaro of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], Jair Bolsonaro of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 ### AF 2024-05-28 1336
 (00:51:30) Figures like [[Patrick Casey]] and [[Costin Alamariu]] support [[Donald Trump]] because they believe his administration would support leaders like [[Javier Milei]], Jair Bolsonaro, [[Viktor Orbán]], [[Vox]], and [[Benjamin Netanyahu]].
@@ -54,7 +54,7 @@
 (00:14:49) Jair Bolsonaro was not taking the coronavirus outbreak seriously despite [[Brazil]] having approximately 1,600 confirmed cases.
 
 ### AF 2019-12-16 0514
-(00:15:09) [[Nicholas J. Fuentes]] noted that [[Brazil]] was moving its [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]], and that leaders like Jair Bolsonaro and [[Matteo Salvini]] were advocating for Zionism.
+(00:15:09) [[Nicholas J. Fuentes]] noted that [[Brazil]] was moving its [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]], and that leaders like Jair Bolsonaro and [[Matteo Salvini]] were advocating for Zionism.
 
 ### AF 2019-09-17 0463
 (00:24:04) [[Benjamin Netanyahu|Bibi]] supported right-wing leaders globally such as Jair Bolsonaro in [[Brazil]], [[Matteo Salvini]] in [[Italian Republic|Italy]], and [[Viktor Orbán]] in [[Hungary]].
@@ -108,7 +108,7 @@
 (00:40:00) Jair Bolsonaro's electoral success exemplifies a global trend of right-wing populist victories, seen also in [[Hungary]] with [[Viktor Orbán]], [[Italian Republic|Italy]] with [[Matteo Salvini]], [[Russia]] with [[Vladimir Putin]], and [[Turkey]] with [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]].
 
 ### AF 2018-10-08 0256
-(00:45:00) [[Steven Crowder|Steve Bannon]] characterized [[Paul Ryan]] as a product of a "Petri dish" at the [[Heritage Foundation]], representing a policy-focused Republicanism that [[Nicholas J. Fuentes]] argues is less effective than the charismatic, strongman politics of figures like Jair Bolsonaro.
+(00:45:00) [[Steve Bannon]] characterized [[Paul Ryan]] as a product of a "Petri dish" at the [[Heritage Foundation]], representing a policy-focused Republicanism that [[Nicholas J. Fuentes]] argues is less effective than the charismatic, strongman politics of figures like Jair Bolsonaro.
 
 ### AF 2018-09-15 0240
 (11:50:90) Bolsonaro, a right-wing populist presidential candidate in [[Brazil]], was stabbed by a communist assailant.

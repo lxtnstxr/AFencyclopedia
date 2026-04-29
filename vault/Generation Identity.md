@@ -25,10 +25,10 @@
 (02:58:830) The identitarian [[organization]] Generation Identity launched its [[United Kingdom]] division with a public banner display.
 
 ### AF 2017-10-23 0037
-(03:34:530) Generation Identity's [[United Kingdom]] branch unveiled a banner with the message "Defend [[City of London|London]], Stop Islamization" as part of its launch.
+(03:34:530) Generation Identity's [[United Kingdom]] branch unveiled a banner with the message "Defend [[London]], Stop Islamization" as part of its launch.
 
 ### AF 2017-10-23 0037
-(04:11:830) Generation Identity's banner used a concise, defensive message of "Defend [[City of London|London]], Stop Islamization" to appeal to a broad audience, including potential members of the [[Conservative Party]] and [[UK Independence Party|UKIP]].
+(04:11:830) Generation Identity's banner used a concise, defensive message of "Defend [[London]], Stop Islamization" to appeal to a broad audience, including potential members of the [[Conservative Party]] and [[UK Independence Party|UKIP]].
 
 ### AF 2017-10-23 0037
 (09:42:930) Activists from Generation Identity's [[United Kingdom]] launch wore regular civilian clothing instead of uniforms to present a mainstream, accessible appearance.
@@ -37,7 +37,7 @@
 (12:36:270) [[Brittany Pettibone]] and her boyfriend were involved in the coordinated Generation Identity banner operation in the [[United Kingdom]].
 
 ### AF 2017-10-23 0037
-(13:22:670) [[Nicholas J. Fuentes]] argued that the tightly controlled Generation Identity operation avoided the chaos seen at events like [[City of Gainesville|Gainesville]], where individuals showed up with [[Germany|Nazi]] tattoos.
+(13:22:670) [[Nicholas J. Fuentes]] argued that the tightly controlled Generation Identity operation avoided the chaos seen at events like [[Gainesville]], where individuals showed up with [[Germany|Nazi]] tattoos.
 
 ### AF 2017-10-23 0037
 (15:10:990) [[Nicholas J. Fuentes]] stated that Generation Identity's [[Europe|European]]-style symbolism and tactics were not directly transferable or ideal for activism in the [[United States]].

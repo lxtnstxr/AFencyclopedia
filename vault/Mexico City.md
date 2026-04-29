@@ -17,3 +17,6 @@
 
 ### AF 2017-11-24 0057
 (01:02:48.890) [[Nicholas J. Fuentes]] stated his Mexican ancestors are from Mexico City, describing them as Spanish [[city]]-dwellers, not [[India|Indians]] from the mountains.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:30:58.870) [[Nicholas J. Fuentes]] stated that the culture shown in the halftime show was the kind of culture he grew up with in Mexico City.

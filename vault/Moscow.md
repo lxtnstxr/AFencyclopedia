@@ -42,7 +42,7 @@
 (01:17:280) Social media speculation following the Moscow attack suggested potential involvement by [[Israel|Israeli]] intelligence, given the historical relationship between [[Israel]] and [[Islamic State of Iraq and Syria|ISIS]], or by [[United States|American]] or [[United Kingdom|British]] intelligence.
 
 ### AF 2024-03-26 1309
-(01:46:820) [[Government of France|France]] joined the [[United States]] in stating that intelligence showed the Islamic State was responsible for the Moscow concert hall attack, while [[Russia]] continued to suggest [[Ukraine]] was to blame.
+(01:46:820) [[France]] joined the [[United States]] in stating that intelligence showed the Islamic State was responsible for the Moscow concert hall attack, while [[Russia]] continued to suggest [[Ukraine]] was to blame.
 
 ### AF 2024-03-26 1309
 (02:11:460) [[Vladimir Putin]] stated that the attackers in the Moscow assault had been trying to escape to [[Ukraine]] and that some people on the [[Ukraine|Ukrainian]] side had been prepared to spirit them across the border, a claim [[Ukraine]] denied.
@@ -88,3 +88,6 @@
 
 ### AF 2020-09-29 0691
 (40:55:63) [[Donald Trump]] accused [[Joe Biden]]'s son, [[Hunter Biden]], of taking "billions of dollars" from [[China]] and [[Ukraine]], and specifically mentioned [[Hunter Biden]] receiving "three and a half million dollars" from the wife of the mayor of Moscow.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:58:52) [[Rick Grenell|Rick Grinnell]] worked out a deal where [[Nicolás Maduro]] would remain in power but give the [[United States]] his oil and gold and reorient from [[Beijing]] and Moscow to [[Washington D.C.|Washington]].

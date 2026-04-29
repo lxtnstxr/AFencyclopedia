@@ -39,7 +39,7 @@
 (00:40:01) Sean began disclosing "dirty laundry" on Paul Nealon, directing viewers to public FEC inquiry records for Nealon's campaign to see where money was allocated.
 
 ### AF 2018-04-06 0140
-(00:40:29) Sean gave a "shout out" to "[[Washington D.C.|DC]] Pilots" (Coach Finstock) and "Fasci Goys in [[City of Chicago|Chicago]]," thanking them for blocking him on [[Twitter]] and for each raising over $10,000 for Paul Nealon.
+(00:40:29) Sean gave a "shout out" to "[[Washington D.C.|DC]] Pilots" (Coach Finstock) and "Fasci Goys in [[Chicago]]," thanking them for blocking him on [[Twitter]] and for each raising over $10,000 for Paul Nealon.
 
 ### AF 2018-04-06 0140
 (00:40:59) Sean sarcastically suggested the funds raised for Paul Nealon were being wisely spent, implying they were not going toward a political campaign.
@@ -75,7 +75,7 @@
 (00:51:27) [[Nicholas J. Fuentes]] concluded the interview with Sean, thanking him for the "dirty laundry" on Paul Nealon and [[Chris Cantwell]].
 
 ### AF 2018-04-03 0137
-(01:15:44) [[Nicholas J. Fuentes]] disavowed and ended his association with Paul Nealon, citing campaign finance irregularities, doxxing of [[Douglas Mackey|Ricky Vaughn]], and behavior that made him a liability to supporters including [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], and [[Donald Trump]].
+(01:15:44) [[Nicholas J. Fuentes]] disavowed and ended his association with Paul Nealon, citing campaign finance irregularities, doxxing of [[Douglas Mackey|Ricky Vaughn]], and behavior that made him a liability to supporters including [[Steve Bannon]], [[Ann Coulter]], and [[Donald Trump]].
 
 ### AF 2018-02-08 0104
 (01:05:50) [[Nicholas J. Fuentes]] endorsed "shall not censor" legislation proposed by Paul Nealon as a solution, arguing that platforms like [[Twitter]], [[Google|YouTube]], and [[Facebook]] are monopolistic trusts that must either be broken up or submit to government regulation to protect free speech.

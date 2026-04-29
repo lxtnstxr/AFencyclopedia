@@ -150,13 +150,13 @@
 (01:57:500) [[John Cena]] issued an apology after mistakenly referring to Taiwan as a [[country]] in a public statement.
 
 ### AF 2021-05-26 0817
-(02:05:600) [[John Cena]] made a statement in Mandarin apologizing to [[City of Beijing|Beijing]] and the [[China|Chinese]] people for saying that Taiwan was a [[state]].
+(02:05:600) [[John Cena]] made a statement in Mandarin apologizing to [[Beijing]] and the [[China|Chinese]] people for saying that Taiwan was a [[state]].
 
 ### AF 2021-05-26 0817
 (17:23:620) During an interview with Taiwanese broadcaster [[TVBS]], [[John Cena]] stated that Taiwan was the "first [[country]] to watch Fast and Furious 9," which sparked controversy.
 
 ### AF 2021-05-26 0817
-(17:38:840) [[City of Beijing|Beijing]] claims Taiwan as part of its territory and has threatened annexation by force.
+(17:38:840) [[Beijing]] claims Taiwan as part of its territory and has threatened annexation by force.
 
 ### AF 2021-05-26 0817
 (17:42:860) Taiwan maintains its own government, [[democratic]] elections, and army, but most global governments do not recognize it as a [[country]].
@@ -174,7 +174,31 @@
 (22:00:300) [[Nicholas J. Fuentes]] believes he would be safer under the control of [[Honorable Chairman Xi Jinping]] in Taiwan than in a [[democratic]] Taiwan linked to Western civilization.
 
 ### AF 2021-05-26 0817
-(23:17:780) [[City of Beijing|Beijing]]'s animosity towards Taiwan and rebels in [[Hong Kong]] mirrors [[Washington D.C.|Washington, D.C.]]'s animosity towards [[Nicholas J. Fuentes]].
+(23:17:780) [[Beijing]]'s animosity towards Taiwan and rebels in [[Hong Kong]] mirrors [[Washington D.C.|Washington, D.C.]]'s animosity towards [[Nicholas J. Fuentes]].
 
 ### AF 2021-05-26 0817
 (23:41:300) [[Washington D.C.|Washington, D.C.]] supports Taiwan, [[Hong Kong]] rebels, [[Alexei Navalny]], and the government in [[Kyiv|Kiev]], similar to how [[Russia]] offered hospitality to [[Edward Snowden]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:24:33) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] wants [[Iran]] to believe it has less leverage over the [[United States]] than it does, while also pressuring [[India]], [[South Korea]], [[State of Japan|Japan]], [[Malaysia]], Taiwan, and [[Europe]]—[[who]] are more dependent on the [[Persian Gulf]] for oil and liquefied natural gas from [[Qatar]]—to step in.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:26:21) The economic pain from the closure of the Strait of Hormuz will be felt first by [[Asia]] ([[India]], [[China]], [[South Korea]], Taiwan, [[State of Japan|Japan]], [[Malaysia]], [[Philippines]]) and then by [[Europe]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:27:05) The faction was against the war in [[Ukraine]] and the war in the [[Gulf]] because they wanted to focus military resources on Taiwan to defend against [[China]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:02:20) [[Nicholas J. Fuentes]] noted that the [[Politico]] article also said [[the Pentagon]] was worried that a war with [[Iran]] would stretch [[United States|US]] capabilities thin and allow [[China]] to make a move on Taiwan.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:53:34) [[Nicholas J. Fuentes]] argued that the [[United States]] does not want a ground war in the [[Middle East]] because of debt and other responsibilities including fighting [[Russian Federation|Russia]] in [[Ukraine]] and planning to fight [[China]] in Taiwan.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:53:08) [[Xi Jinping]] and [[Beijing]] set a deadline of 2027 as the earliest date they want to be prepared for [[China]] to invade Taiwan.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:53:55) [[China]]’s potential takeover of Taiwan would give them a breakout into the [[Pacific Ocean]], making it difficult to monitor their submarines, aircraft carriers, and destroyers.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:08:55) [[Nicholas J. Fuentes]] stated that [[United States|America]] has sat back and watched [[Russian Federation|Russia]] invade [[Ukraine]], [[Iran]] invade other places, and [[China]] get ready to invade Taiwan.

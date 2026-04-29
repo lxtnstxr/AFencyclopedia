@@ -32,13 +32,13 @@
 (47:54:56) [[Nicholas J. Fuentes]] cited a *[[The New York Times|New York Times]]* report that [[Joe Biden]] had ordered [[U.S. National Security Council|National Security Advisor]] Jake Sullivan to review [[the Pentagon]]'s revised plan for military action against [[Iran]].
 
 ### AF 2021-08-26 0867
-(00:25:31) John Kirby stated evacuation operations in [[City of Kabul|Kabul]] would not be wrapping up in 36 hours.
+(00:25:31) John Kirby stated evacuation operations in [[Kabul]] would not be wrapping up in 36 hours.
 
 ### AF 2021-08-27 0864
 (00:34:25) John Kirby, the [[U.S. Department of Defense|Pentagon]] press secretary, confirmed that the evacuation mission in [[Afghanistan]] would not be concluding imminently.
 
 ### AF 2021-08-14 0857
-(46:06:00) [[Nicholas J. Fuentes]] cited [[U.S. Department of Defense|Pentagon]] spokesman John Kirby calling the [[Afghanistan|Taliban]] advances "deeply concerning" but downplaying an imminent threat to [[City of Kabul|Kabul]].
+(46:06:00) [[Nicholas J. Fuentes]] cited [[U.S. Department of Defense|Pentagon]] spokesman John Kirby calling the [[Afghanistan|Taliban]] advances "deeply concerning" but downplaying an imminent threat to [[Kabul]].
 
 ### AF 2022-04-09 0975
 (01:05:28:040) Jake Sullivan, the [[U.S. National Security Council|National Security Advisor]], stated that [[Russia]]'s withdrawal from areas around [[Kyiv]] was a redeployment, signaling a significant assault on eastern and southern [[Ukraine]].

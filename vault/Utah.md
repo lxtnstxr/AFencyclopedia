@@ -89,3 +89,6 @@
 
 ### AF 2017-12-07 0066
 (01:41:05) [[Nicholas J. Fuentes]] described [[Donald Trump]]'s travels to states like [[State of West Virginia|West Virginia]], [[Commonwealth of Pennsylvania|Pennsylvania]], [[Arizona]], and Utah as strategic efforts to build a new political coalition and secure a congressional majority for future policy goals like immigration reform.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:49:48) [[Nicholas J. Fuentes]] argued that the [[Federal Bureau of Investigation|FBI]] director, [[Kash Patel]], and the [[state]] of Utah have addressed questions, but are constrained by the constitutional rights of the defendant.

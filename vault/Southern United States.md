@@ -31,7 +31,7 @@
 (03:04:09) A viewer from the American South claimed that in his school, 80% of white males were right-wing, strongly [[Christianity|Christian]], anti-SJW gamers, which [[Nicholas J. Fuentes]] acknowledged was likely a
 
 ### AF 2020-02-10 0543
-(01:21:03) [[Nicholas J. Fuentes]] stated that rural people in the [[Midwest]], South, and mountainous regions are "the most based [[United States|Americans]]," not necessarily by [[region]] but by level of development, contrasting them with cities like [[City of Chicago|Chicago]].
+(01:21:03) [[Nicholas J. Fuentes]] stated that rural people in the [[Midwest]], South, and mountainous regions are "the most based [[United States|Americans]]," not necessarily by [[region]] but by level of development, contrasting them with cities like [[Chicago]].
 
 ### AF 2019-12-16 0514
 (00:50:31) [[Nicholas J. Fuentes]] argued that white [[United States|Americans]] would become a minority in [[United States|America]] within approximately 28 years due to immigration, drawing parallels to the historical experiences of [[Jews]] in [[Germany|Nazi Germany]] and [[blacks]] in the post-war American South.

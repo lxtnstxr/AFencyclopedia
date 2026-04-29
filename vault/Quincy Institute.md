@@ -28,3 +28,6 @@
 
 ### AF 2024-05-23 1334
 (02:52:89) [[JD Vance]] delivered a speech at the Quincy Institute outlining a foreign policy vision he characterized as a "pro-[[Israel]] version of [[United States|America]] First."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:51:34) [[JD Vance]] gave a speech at the Quincy Institute, an anti-war nonprofit, where he said "we have to arm [[Israel]] so they can bomb [[Iran]]."

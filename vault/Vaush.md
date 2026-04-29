@@ -45,7 +45,7 @@
 (01:05:40) Vaush advocated for "structural reparations" based on class and neighborhood need rather than race, targeting the revitalization of impoverished areas.
 
 ### AF 2021-08-03 0853
-(01:08:40) Vaush argued that the class divide in [[United States|America]] is racially cut due to historical policies like redlining, the effects of which remain visible in [[city]] layouts like [[City of Chicago|Chicago]]'s 47th Street or [[Los Angeles]].
+(01:08:40) Vaush argued that the class divide in [[United States|America]] is racially cut due to historical policies like redlining, the effects of which remain visible in [[city]] layouts like [[Chicago]]'s 47th Street or [[Los Angeles]].
 
 ### AF 2021-08-03 0853
 (01:12:40) Vaush stated that [[Ibram X. Kendi]]'s argument that "the only remedy to past discrimination is present discrimination" is misguided, though a charitable interpretation could mean favorable treatment for the historically disadvantaged.

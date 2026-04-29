@@ -243,7 +243,7 @@
 (00:12:42) Christopher Brunet, a protege at the [[Manhattan Institute]], claimed he was fired for refusing to toe the line on open borders and support for [[Israel]].
 
 ### AF 2024-10-17 1408
-(00:13:03) Christopher Brunet and Christopher Rufo broke the plagiarism scandal that led to the firing of [[Claudine Gay]], [[Donald Trump|the president]] of [[Harvard University]].
+(00:13:03) Christopher Brunet and Christopher Rufo broke the plagiarism scandal that led to the firing of [[Claudine Gay]], [[the president]] of [[Harvard University]].
 
 ### AF 2024-10-17 1408
 (00:16:36) Christopher Brunet discovered plagiarism by the wife of [[William Ackman]], an [[Israel|Israeli]] designer, but the [[Manhattan Institute]] declined to cover the story.
@@ -433,3 +433,12 @@
 
 ### AF 2021-05-27 0818
 (01:51:620) Journalist Christopher Rufo covered [[Raytheon Technologies Corporation|Lockheed Martin]]'s anti-white racial sensitivity training on [[Twitter]], detailing the experiences of white employees.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:33:52) [[Nicholas J. Fuentes]] recalled that after the [[October 7th Attack|October 7th]] protests, a campaign to fire university presidents for tolerating anti-[[Israel]] protests failed for a year, but succeeded when Chris Rufo of the [[Manhattan Institute]] published a plagiarism report on [[Harvard University|Harvard]] [[White House|President]] [[Claudine Gay]], forcing her out.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:34:23) [[Nicholas J. Fuentes]] stated that Chris Rufo of the [[Manhattan Institute]] contacted him for a "hit piece".
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:35:00) [[Nicholas J. Fuentes]] stated that Chris Rufo is married to an illegal immigrant, has "trannies on the team," and expressed a desire for white people to go extinct through intermarriage for [[United States|America]] to become a "brown cappuccino colored [[country]]."

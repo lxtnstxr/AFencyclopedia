@@ -22,10 +22,10 @@
 (00:37:40) [[Hasan Piker]] participated in a debate on Trainwrecks TV in April alongside [[Nicholas J. Fuentes]], [[Destiny]], and Sargon of Akkad.
 
 ### AF 2019-05-20 0391
-(00:42:32) During the [[Europe|European Union]] election campaign, [[Nigel Farage]] was doused with a milkshake in [[Newcastle]], following similar attacks on Carl Benjamin and [[Tommy Robinson]].
+(00:42:32) During the [[European Union]] election campaign, [[Nigel Farage]] was doused with a milkshake in [[Newcastle]], following similar attacks on Carl Benjamin and [[Tommy Robinson]].
 
 ### AF 2019-04-09 0363
-(05:00:54) [[Nicholas J. Fuentes]] and Sargon of Akkad won a debate against [[Destiny|Destiny]] and [[Hasan Piker]], with a post-debate poll showing Team Right winning 56% to 44%.
+(05:00:54) [[Nicholas J. Fuentes]] and Sargon of Akkad won a debate against [[Destiny]] and [[Hasan Piker]], with a post-debate poll showing Team Right winning 56% to 44%.
 
 ### AF 2019-04-05 0361
 (01:06:30) [[Nicholas J. Fuentes]] participated in a multi-hour political debate on [[Twitch Inc.|Twitch]] with streamers [[Destiny]], [[Hasan Piker]], Sargon of Akkad, and [[Trainwrecks]], which reached approximately 28,000 live viewers.
@@ -79,7 +79,7 @@
 (56:38:36) Sargon of Akkad and libertarian skeptics were criticized for failing to understand phenomenological arguments about lived experience versus idealistic principles.
 
 ### AF 2017-09-25 0017
-(00:01:26) [[Nicholas J. Fuentes]] stated he had watched [[Destiny|Destiny]]'s previous debates with Sargon and [[John Tron]].
+(00:01:26) [[Nicholas J. Fuentes]] stated he had watched [[Destiny]]'s previous debates with Sargon and [[John Tron]].
 
 ### AF 2017-09-25 0017
-(00:03:03) [[Nicholas J. Fuentes]] recalled [[Destiny|Destiny]] saying on Sargon's show that neither side would change the other's mind on contentious issues.
+(00:03:03) [[Nicholas J. Fuentes]] recalled [[Destiny]] saying on Sargon's show that neither side would change the other's mind on contentious issues.

@@ -6,7 +6,7 @@
 
 
 ### AF 2022-11-03 1092
-(07:08:94) [[Nicholas J. Fuentes]] reported meeting up with people he knew at the [[City of Charlottesville|Charlottesville]] rally, including [[James Allsup]] and Brittany Venti, before returning to his hotel and flying out the next morning.
+(07:08:94) [[Nicholas J. Fuentes]] reported meeting up with people he knew at the [[Charlottesville]] rally, including [[James Allsup]] and Brittany Venti, before returning to his hotel and flying out the next morning.
 
 ### AF 2022-10-11 1076
 (00:05:23) The documentary *He Will Not Divide [[Us]]*, featuring [[Nicholas J. Fuentes]], premiered on Thursday, chronicling the 2017 art installation protest in [[New York|New York City]] involving [[Shia LaBeouf]], [[Samuel J. Hyde|Sam Hyde]], and Brittany Venti.
@@ -42,10 +42,10 @@
 (58:53:000) [[Nicholas J. Fuentes]] again refused to engage with Brittany Venti, reiterating his rule against "E-Girls."
 
 ### AF 2021-08-12 0859
-(00:17:05) At the [[City of Charlottesville|Charlottesville rally]], [[Nicholas J. Fuentes]] met several figures for the first [[time]], including [[Timothy Gionet|Baked Alaska]], [[Millennial Matt]], [[Bryden]], Brittany Venti, and [[James Allsup]].
+(00:17:05) At the [[Charlottesville rally]], [[Nicholas J. Fuentes]] met several figures for the first [[time]], including [[Timothy Gionet|Baked Alaska]], [[Millennial Matt]], [[Bryden]], Brittany Venti, and [[James Allsup]].
 
 ### AF 2021-08-12 0859
-(01:19:46) [[Nicholas J. Fuentes]] recalled that an after-party was held by [[James Allsup]], Brittany Venti, [[Bryden]], and [[Millennial Matt]] after [[City of Charlottesville|Charlottesville]], but he was not invited and spent the night alone in his hotel room on the Weekly Sweat podcast.
+(01:19:46) [[Nicholas J. Fuentes]] recalled that an after-party was held by [[James Allsup]], Brittany Venti, [[Bryden]], and [[Millennial Matt]] after [[Charlottesville]], but he was not invited and spent the night alone in his hotel room on the Weekly Sweat podcast.
 
 ### AF 2020-09-15 0681
 (01:42:23:87) [[Nicholas J. Fuentes]] stated he does not watch commentator Brittany Venti, calling her "a fucking pig" and "disgusting," and criticizing her physique as unfeminine.
@@ -84,7 +84,7 @@
 (01:44:16) [[Nicholas J. Fuentes]] disavowed a viewer's question about a romantic getaway with Brittany Venti, stating it was just a "fun week" with friends.
 
 ### AF 2019-04-22 0371
-(00:10:58) [[Nicholas J. Fuentes]] participated in a stream earlier in the day with Brittany Venti, relating to her as a fellow streamer and "[[City of Charlottesville|Charlottesville]] alumnus."
+(00:10:58) [[Nicholas J. Fuentes]] participated in a stream earlier in the day with Brittany Venti, relating to her as a fellow streamer and "[[Charlottesville]] alumnus."
 
 ### AF 2018-10-30 0272
 (00:39:44) [[Nicholas J. Fuentes]] asked Brittany Venti to leave him alone, claiming she was obsessed with him, watched his show, and frequently tweeted about him, though he was not interested in a relationship.

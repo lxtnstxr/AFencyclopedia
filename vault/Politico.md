@@ -91,7 +91,7 @@
 (00:13:44) Politico reported that the [[Senate]] failed to advance a [[Republican Party|Republican]] coronavirus stimulus plan, with the vote falling 52-47 after all present [[Democratic Party|Democrats]] and [[Ron Paul|Rand Paul]] of [[State of Kentucky|Kentucky]] opposed it.
 
 ### AF 2020-09-01 0672
-(01:10:32) Politico reported that [[Donald Trump]] and his campaign accused commentators [[Matt Drudge]] and [[Joe Lockhart]] of spreading rumors about [[Donald Trump|the president's]] health.
+(01:10:32) Politico reported that [[Donald Trump]] and his campaign accused commentators [[Matt Drudge]] and [[Joe Lockhart]] of spreading rumors about [[the president's]] health.
 
 ### AF 2020-05-13 0604
 (00:35:51) Politico reported that [[Republican Party|Republican]] candidate [[Mike Garcia]] won a special election for [[State of California|California]]'s 25th congressional district, defeating [[Democratic Party|Democrat]] [[Christy Smith]].
@@ -112,4 +112,22 @@
 (36:10:00) A report in Politico stated that [[Stephen Miller]] and other [[White House]] aides were aggressively prosecuting illegal immigrants and cutting down on immigration to present progress on enforcement to voters by September.
 
 ### AF 2017-08-30 0005
-(40:37:59) [[Nicholas J. Fuentes]] cited a Politico exclusive revealing that the [[U.S. Department of Homeland Security|DHS]] issued a confidential warning to [[State of Virginia|Virginia]] law enforcement three days before [[City of Charlottesville|Charlottesville]] predicting "among the most violence to date" between [[Antifa]] and the alt-right.
+(40:37:59) [[Nicholas J. Fuentes]] cited a Politico exclusive revealing that the [[U.S. Department of Homeland Security|DHS]] issued a confidential warning to [[State of Virginia|Virginia]] law enforcement three days before [[Charlottesville]] predicting "among the most violence to date" between [[Antifa]] and the alt-right.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:55:07) [[Nicholas J. Fuentes]] reported that a report in the ''[[Washington Post]]'' and ''Politico'' a week before the war stated the generals were not on board.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:13:37) Politico reported that the logic inside the administration was that they may have wanted [[Israel]] to attack [[Iran]] first to create a better justification for the [[United States]] to enter the war.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:02:08) [[Nicholas J. Fuentes]] cited a Politico article reporting that the [[United States|US]] may want [[Israel]] to hit [[Iran]] first, to make it easier for the [[United States|US]] to enter a war with a casus belli.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:02:20) [[Nicholas J. Fuentes]] noted that the Politico article also said [[the Pentagon]] was worried that a war with [[Iran]] would stretch [[United States|US]] capabilities thin and allow [[China]] to make a move on [[Taiwan]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:07:52) [[Nicholas J. Fuentes]] cited a Politico article stating that lawmakers left [[Washington D.C.|Washington]] for a recess with no urgency to avert a shutdown at the [[U.S. Department of Homeland Security|Department of Homeland Security]] that took effect on Saturday.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:46:45) [[Nicholas J. Fuentes]] quoted Politico reporting that [[Stephen Miller]] was distancing himself from [[U.S. Department of Homeland Security|DHS]] and claiming his labeling of [[Alex Jones|Alex]] Pretty as a terrorist was based on bad intelligence from the agency.

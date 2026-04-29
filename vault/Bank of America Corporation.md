@@ -24,7 +24,7 @@
 (00:09:19) [[Nicholas J. Fuentes]] listed the [[U.S. Department of Justice|United States Department of Justice]], the [[Federal Bureau of Investigation]], [[Twitter]], [[Facebook]], [[Amazon Inc.|Amazon]], and Bank of America as institutions arrayed against nationalists, "[[United States|America]] firsters," and [[Donald Trump]] supporters following the [[United States Capitol|Capitol]] riot.
 
 ### AF 2021-02-04 0755
-(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as Bank of America, the [[Federal Bureau of Investigation]], [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the [[United Nations]], the [[World Health Organization]], the [[Centers for Disease Control and Prevention]], the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the [[World Economic Forum]], and the [[Europe|European Union]].
+(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as Bank of America, the [[Federal Bureau of Investigation]], [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the [[United Nations]], the [[World Health Organization]], the [[Centers for Disease Control and Prevention]], the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the [[World Economic Forum]], and the [[European Union]].
 
 ### AF 2021-02-04 0755
 (00:12:03) [[Nicholas J. Fuentes]] stated that Bank of America, the second-largest bank in the [[United States]], teamed up with the [[Federal Bureau of Investigation]] to target "baby boomer [[Donald Trump|Trump]] supporters" who protested election fraud at the [[United States Capitol|U.S. Capitol]].
@@ -33,10 +33,10 @@
 (00:15:18) [[Nicholas J. Fuentes]] urged viewers to close their accounts with Bank of America immediately, citing the bank's actions and referencing the freezing of [[|Proud Boys]] accounts in [[Dominion of Canada|Canada]].
 
 ### AF 2021-02-03 0754
-(01:52:860) [[Jared Holt]] of the [[Atlantic Council]], which is funded by [[North Atlantic Treaty Organization|NATO]], the [[Europe|European Union]], the [[U.S. Department of Defense]], Bank of America, [[Raytheon Technologies Corporation|Lockheed Martin]], [[Pfizer]], and [[JPMorgan Chase & Co.|JPMorgan Chase]], works to deplatform right-wing figures by pressuring payment processors and social media companies.
+(01:52:860) [[Jared Holt]] of the [[Atlantic Council]], which is funded by [[North Atlantic Treaty Organization|NATO]], the [[European Union]], the [[U.S. Department of Defense]], Bank of America, [[Raytheon Technologies Corporation|Lockheed Martin]], [[Pfizer]], and [[JPMorgan Chase & Co.|JPMorgan Chase]], works to deplatform right-wing figures by pressuring payment processors and social media companies.
 
 ### AF 2021-01-29 0751
-(04:15:00) [[Nicholas J. Fuentes]] stated that the [[Atlantic Council]] is funded by the [[U.S. Department of Defense|Department of Defense]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], Bank of America, [[Pfizer]], [[AIPAC]], the [[Europe|European Union]], [[JPMorgan Chase & Co.|JPMorgan Chase]], [[Israel]], and the [[United Arab Emirates]].
+(04:15:00) [[Nicholas J. Fuentes]] stated that the [[Atlantic Council]] is funded by the [[U.S. Department of Defense|Department of Defense]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], Bank of America, [[Pfizer]], [[AIPAC]], the [[European Union]], [[JPMorgan Chase & Co.|JPMorgan Chase]], [[Israel]], and the [[United Arab Emirates]].
 
 ### AF 2020-07-13 0639
 (00:03:01) During the [[George Floyd]] protests, major corporations including [[Nike]] and Bank of America pledged financial support to [[Black Lives Matter]], with Bank of America committing $1 billion over ten years.
@@ -55,3 +55,6 @@
 
 ### AF 2018-10-10 0258
 (00:35:40) The [[Helen Diller Family Foundation]], a supporting charity of the [[Jewish Community Federation of San Francisco]] whose board members include former Bank of America chairman [[Richard Rosenberg]], was found to have earmarked $100,000 for [[Canary Mission]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:06:01) The hostile takeover bid for [[Warner Bros. Discovery|Warner Bros.]] by [[Skydance Media]] is being financed by Bank of America, [[Apollo Global Management]] (owned by [[William Ackman|Bill Ackman]]), the [[David Ellison|Ellison]] family, and [[Jared Kushner]]'s private equity firm.

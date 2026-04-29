@@ -204,4 +204,217 @@
 (01:00:48) A senior [[Iran|Iranian]] military advisor stated that [[Iran]]'s response to the killing of Qasem Soleimani would "for sure be military" and would [[target]] [[U.S. Department of Defense|U.S. military]] sites in the [[Middle East]] and possibly [[Europe]].
 
 ### AF 2020-01-06 0519
-(01:25:46) [[Nicholas J. Fuentes]] noted that the [[United States]] informed [[Israel]] about the strike that killed Qasem Soleimani before notifying the [[United States Capitol|U.S. Congress]] or [[Europe|European]] allies, and that [[Israel]] subsequently stated it would not get involved in the conflict.(01:30:04) [[Iran]] has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and [[Syria]].
+(01:25:46) [[Nicholas J. Fuentes]] noted that the [[United States]] informed [[Israel]] about the strike that killed Qasem Soleimani before notifying the [[U.S. Congress]] or [[Europe|European]] allies, and that [[Israel]] subsequently stated it would not get involved in the conflict.(01:30:04) [[Iran]] has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and [[Syria]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:44.800) The shadow war between the [[United States]] and [[Iran]] escalated to the assassination of Qasem Soleimani in January 2020.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:50.200) Qasem Soleimani developed and established the Axis of Resistance, which includes [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:02:08.280) [[Donald Trump]]'s election strategy involved applying "maximum pressure" on [[Iran]] and initiating an escalation by withdrawing from the nuclear deal, designating the [[Iran|IRGC]] as terrorists, and assassinating its leader, Qasem Soleimani, while imposing sanctions on the [[Iran|Iranian regime]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:27) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump|Trump]] declared the [[Iran|IRGC]] a terrorist [[organization]] and assassinated Qasem Soleimani in January 2020.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:52) [[Nicholas J. Fuentes]] described Qasem Soleimani as the architect of the axis of resistance, including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:09:45) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump|Trump]] declared the [[Iran|IRGC]] a terrorist group and that this culminated in the January 2020 assassination of Qasem Soleimani.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:01:50) The January 2020 assassination of Qasem Sulaimandi culminated a [[United States|U.S]]. shadow war with [[Iran]], which began after the [[United States|U.S]]. withdrawal from the nuclear deal in 2018.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:01:52) Qasem Soleimani was the architect of the axis of resistance, which includes [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:44) [[Nicholas J. Fuentes]] defined the [[United States]]' "escalation ladder" against [[Iran]], citing the assassination of Qasem Soleimani, the withdrawal from the nuclear deal, and cyber attacks as steps that led to the current air campaign.Here is the chronological knowledge log derived from the monologue segment of the video transcript.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:01:50) [[Nicholas J. Fuentes]] stated that the shadow war culminated in January 2020 in the assassination of Qasem Soleimani, whom he described as the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:01:44) [[Nicholas J. Fuentes]] claimed that the shadow war with [[Iran]] culminated in January 2020 with the assassination of Qasem Soleimani, [[who]] he described as the architect of the "axis of resistance" including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:10:07) [[Nicholas J. Fuentes]] repeated that the shadow war culminated in the assassination of Qasem Soleimani.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:48:14) [[Nicholas J. Fuentes]] gave [[Joe Kent]]'s statement a grade of "B+," noting that [[Joe Kent]] called the killing of Qasem Soleimani "[[America First]]" but also said the war in [[Iran]] was "[[United States|America]] Last" and influenced by the [[Israel|Israelis]], arguing that the killing of Soleimani directly led to the conflict.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:50:10) [[Nicholas J. Fuentes]] referenced the bombing of "midnight hammer" and the killing of Qasem Soleimani as steps that made eventual war inevitable, and admitted that he might have not understood the bigger picture in 2020.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:42:89) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump]] declared the [[Iran|IRGC]] a terrorist group, and the shadow war with [[Iran]] culminated in the assassination of Qasem Soleimani in January 2020.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:01:44.820) [[Nicholas J. Fuentes]] noted that the shadow war with [[Iran]] culminated in the assassination of Qasem Soleimani in January 2020.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:01:50.160) [[Nicholas J. Fuentes]] identified Qasem Soleimani as the architect of the axis of resistance, which he listed as including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:38:16.630) [[Nicholas J. Fuentes]] stated that the Adelsons put up $100 million in 2016 and another $100 million in 2018, and in return, Qasem Soleimani was killed and the [[United States Embassy in Jerusalem|embassy]] in [[Jerusalem]] was completed.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:01:44:710) [[Nicholas J. Fuentes]] stated that the situation culminated in January 2020 with the assassination of Qasem Soleimani, whom he called the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:01:44:710) [[Nicholas J. Fuentes]] repeated that the situation culminated in the assassination of Qasem Soleimani.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:10:07:310) [[Nicholas J. Fuentes]] repeated that the shadow war culminated in the assassination of Qasem Soleimani, the architect of the Axis of Resistance.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:01:44:77) The assassination of Qasem Soleimani in January 2020 was a culmination of the [[United States|U.S]]. shadow war with [[Iran]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:01:44:77) Qasem Soleimani was the architect of the "axis of resistance," which includes [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:10:02:05) The [[United States|U.S]]. shadow war with [[Iran]] culminated in the January 2020 assassination of Qasem Soleimani.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:10:07:39) Qasem Soleimani was the architect of [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:49) The assassination of Qasem Soleimani occurred in January 2020.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:56) Qasem Soleimani was the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:57) [[Nicholas J. Fuentes]] stated that the shadow war between the [[United States]] and [[Iran]] culminated in January 2020 with the assassination of Qasem Soleimani.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:08:11) [[Nicholas J. Fuentes]] described Qasem Soleimani as the architect of the "Axis of Resistance," which includes [[Hamas]] and [[Hezbollah]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:01:27:74) [[Nicholas J. Fuentes]] stated that in 2018, [[Donald Trump|Trump]] declared the [[Iran|IRGC]] a terrorist [[organization]], leading to a shadow war with [[Iran]] that culminated in the assassination of Qasem Soleimani in January 2020.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:01:56:62) [[Nicholas J. Fuentes]] described Qasem Soleimani as the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:10:01.970) [[Nicholas J. Fuentes]] stated that the [[United States]] shadow war with [[Iran]] culminated in January 2020 with the assassination of Qasem Soleimani.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:10:07.270) [[Nicholas J. Fuentes]] described Qasem Soleimani as the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:01:49) The [[United States]] culminated a shadow war with [[Iran]] in January 2020 with the assassination of Qasem Soleimani.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:00:05) [[Nicholas J. Fuentes]] claimed that in 2018 [[Donald Trump]] declared the [[Iran|IRGC]] a terrorist group and that the [[United States]] is now in a "shadow war" with [[Iran]], culminating in the assassination of Qasem Soleimani.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:00:32) [[Nicholas J. Fuentes]] argued that Qasem Soleimani was the architect of the "Axis of Resistance," building [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:59:53) [[Nicholas J. Fuentes]] stated that the shadow war with [[Iran]] culminated in January 2020 with the assassination of Qasem Soleimani, [[who]] was the architect of the Axis of Resistance including [[Hamas]] and [[Hezbollah]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:01:50:00) [[Nicholas J. Fuentes]] stated that the shadow war culminated in the assassination of Qasem Soleimani in January 2020.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:02:00:00) [[Nicholas J. Fuentes]] claimed that Qasem Soleimani built the "axis of resistance," including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:02:06:00) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the [[Iran]] issue with the deal, but [[Israel]] colluded with [[Donald Trump]] to get him elected so he would create a ladder of escalation by pulling out of the deal and killing Qasem Soleimani.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:00:35) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in January 2020 with the assassination of Qasem Soleimani, whom [[Nicholas J. Fuentes|Fuentes]] described as the architect of the "axis of resistance" including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:49:00) The [[United States]] culminated its shadow war with [[Iran]] by January 2020 with the assassination of Qasem Soleimani.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:54:00) Qasem Soleimani was the architect of the "Axis of Resistance," which included [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:01:00) The [[United States]] culminated its shadow war with [[Iran]] by January 2020 with the assassination of Qasem Soleimani.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:08:00) Qasem Soleimani was the architect of the "Axis of Resistance," which included [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:42) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in the assassination of Qasem Soleimani in January 2020, whom he described as the architect of the axis of resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:03:55) [[Donald Trump]] authorized the January 2020 assassination of Qasem Soleimani.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:50) [[Nicholas J. Fuentes]] recounted that by January 2020, the shadow war with [[Iran]] culminated in the assassination of Qasem Soleimani, the architect of the "Axis of Resistance" including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:10:07) [[Nicholas J. Fuentes]] repeated the statement that the shadow war with [[Iran]] culminated in the assassination of Qasem Soleimani in January 2020.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:13:30.000) [[Nicholas J. Fuentes]] stated that by January 2020, the shadow war between the [[United States]] and [[Iran]] culminated in the assassination of Qasem Soleimani.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:13:55.000) [[Nicholas J. Fuentes]] described Qasem Soleimani as the architect of the Axis of Resistance, including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:50) [[Nicholas J. Fuentes]] said the conflict culminated in January 2020 with the assassination of Qasem Soleimani.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:59) [[Nicholas J. Fuentes]] credited Qasem Soleimani as the architect of the "Axis of Resistance," including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:09:44) [[Nicholas J. Fuentes]] repeated that in 2018, [[Donald Trump]] declared the [[Iran|IRGC]] a terrorist group, leading to a shadow war and the assassination of Qasem Soleimani.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:10:16) [[Nicholas J. Fuentes]] repeated that Qasem Soleimani was the architect of the Axis of Resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:08:20) [[Nicholas J. Fuentes]] argued that the [[Israel|Israelis]] poisoned [[Donald Trump|Trump]]'s relationship with [[Iran]] by pushing him to assassinate Qasem Soleimani, rip up the nuclear deal, and brand the [[Iran|IRGC]] a terrorist group, making diplomacy impossible.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:01:44) [[Nicholas J. Fuentes]] stated that the shadow war with [[Iran]] culminated in the January 2020 assassination of Qasem Soleimani, whom he described as the architect of the "Axis of Resistance."
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(01:01:50:33) [[Donald Trump]] assassinated Qasem Soleimani, the architect of the axis of resistance of [[Hamas]], [[Hezbollah]], and the [[Houthis]], in January 2020.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:01:50) The shadow war between the [[United States]] and [[Iran]] culminated by January 2020 in the assassination of Qasem Soleimani, [[who]] was the architect of the axis of resistance ([[Hamas]], [[Hezbollah]], the [[Houthis]]).
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:01:44) [[Nicholas J. Fuentes]] stated that the war with [[Iran]] culminated in January 2020 with the assassination of Qasem Soleimani, the architect of the Axis of Resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:01:49) The [[United States]] assassinated Qasem Soleimani in January 2020, [[who]] [[Nicholas J. Fuentes]] described as the architect of the axis of resistance, including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:37) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in January 2020 with the assassination of Qasem Soleimani, whom he described as the architect of the "axis of resistance" ([[Hamas]], [[Hezbollah]], the [[Houthis]]).
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:50) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] situation with the nuclear deal, but [[Israel]] colluded with [[Donald Trump]] to get him elected, leading to a ladder of escalation that included withdrawing from the deal, declaring the [[Iran|IRGC]] terrorists, and killing Soleimani.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:01:37) [[Nicholas J. Fuentes]] stated that the assassination of Qasem Soleimani in January 2020 culminated the shadow war between the [[United States]] and [[Iran]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:22) [[Nicholas J. Fuentes]] stated that the [[United States]] and [[Iran]] are in a "shadow war" that culminated in the January 2020 assassination of Qasem Soleimani, whom he described as the architect of the axis of resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:02:11) [[Nicholas J. Fuentes]] stated that the [[United States|U.S]]. shadow war with [[Iran]] culminated in January 2020 in the assassination of Qasem Soleimani.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:12:06) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] escalated the shadow war with [[Iran]] which culminated in the assassination of Qasem Soleimani in January 2020.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:12:13) [[Nicholas J. Fuentes]] stated that Qasem Soleimani was the architect of the "axis of resistance" including [[Hamas]], [[Hezbollah]], and the [[Houthis]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:01:41) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]]'s declaration of the [[Iran|IRGC]] as a terrorist [[organization]] in 2018 and the subsequent assassination of Qasem Soleimani in 2020 were part of a "ladder of escalation" put the [[United States|U.S]]. into a "shadow war" with [[Iran]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:09:45) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] declared the [[Iran|IRGC]] a terrorist group in 2018 and assassinated Qasem Soleimani in 2020, starting a "shadow war" that has been ongoing for seven years.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:01:44:81) [[Nicholas J. Fuentes]] stated that the shadow war with [[Iran]] culminated in January 2020 with the assassination of Qasem Soleimani, whom he described as the architect of the axis of resistance including [[Hamas]], [[Hezbollah]], and the [[Houthis]].

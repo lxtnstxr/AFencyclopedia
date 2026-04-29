@@ -204,7 +204,7 @@
 (01:01:39:83) The [[The New York Times|New York Times]] reported that the FBI considered charging [[Nicholas J. Fuentes]] with conspiracy for [[January 6th Attack|January 6th]] but did not.
 
 ### AF 2023-05-23 1164
-(02:44:30) [[Nicholas J. Fuentes]] referenced the case of [[Derek Chauvin]], noting that while daily murder rates in [[City of Chicago|Chicago]] rival wartime casualties, the [[U.S. Department of Justice|DOJ]] and FBI only intervened to charge an officer involved in a high-profile arrest death.
+(02:44:30) [[Nicholas J. Fuentes]] referenced the case of [[Derek Chauvin]], noting that while daily murder rates in [[Chicago]] rival wartime casualties, the [[U.S. Department of Justice|DOJ]] and FBI only intervened to charge an officer involved in a high-profile arrest death.
 
 ### AF 2023-05-17 1162
 (46:37:72) [[John Durham]], a special counsel appointed by the [[United States]] [[U.S. Department of Justice|Department of Justice]], released a report criticizing the FBI for its handling of the Crossfire Hurricane investigation into [[Donald Trump]]'s 2016 campaign.
@@ -216,7 +216,7 @@
 (51:21:54) [[Nicholas J. Fuentes]] claimed that a major part of the [[Republican Party|Republican]] campaign in the 2022 midterm elections was a promise to hold federal law enforcement accountable and to defund agencies like the FBI, promises which he argued were not fulfilled after the party gained a [[House]] majority.
 
 ### AF 2023-05-05 1156
-(00:24:00) Members of the far-right group [[Proud Boys]], including former leader [[Enrique Tarrio]], were convicted for their role in the [[January 6th Attack|January 6th]] Capitol riot, with four found guilty of seditious conspiracy and all five guilty of obstructing an official proceeding. (00:46:00) [[Enrique Tarrio]] was not in [[Washington D.C.|Washington, D.C.]] on [[January 6th Attack|January 6th]], having been arrested two days prior for burning a [[Black Lives Matter]] banner and on weapons charges. (00:48:00) Co-defendant [[Joe Biggs]], a [[United States|U.S]]. Army veteran and former broadcaster for [[Infowars]], was seen on video leading members of the [[Proud Boys]] around the Capitol on [[January 6th Attack|January 6th]]. (00:48:00) Co-defendant [[Zachary Rehl]], a former [[United States|U.S]]. Marine and leader of the [[City of Philadelphia|Philadelphia]] chapter of the [[Proud Boys]], was part of the group that stormed the Capitol building. (00:49:00) Co-defendant [[Dominic Pezzola]], a former Marine, was found not guilty of seditious conspiracy but was convicted of assaulting a police officer after taking a riot shield and smashing a window. (00:49:00) [[Dominic Pezzola]] testified in his own defense that he was acting alone on [[January 6th Attack|January 6th]] and had not met his co-defendants prior to that day. (00:53:00) [[Nicholas J. Fuentes]] argued that the convictions of the [[Proud Boys]] represent the regime's effort to eliminate opposition, comparing the defendants to participants in the Boston Tea Party and stating the government views them as terrorists. (01:04:00) [[Nicholas J. Fuentes]] stated that the FBI and [[U.S. Department of Justice|DOJ]] have a conviction rate over 95% and do not charge people unless they have an airtight case, implying the [[Proud Boys]] are unlikely to win on appeal. (01:05:00) [[Nicholas J. Fuentes]] advised against joining militias or breaking laws as a high-risk strategy, citing the prosecutions of the [[Proud Boys]] and [[Douglas Mackey|Ricky Vaughn]] as examples of the regime's pressure tactics. (01:05:00) [[Nicholas J. Fuentes]] stated that after [[January 6th Attack|January 6th]], 2021, many people decided political activism was "not worth it" due to the demonstrated brutality of the regime, leading to a change in tone. (01:08:00) [[Nicholas J. Fuentes]] argued that the only way to oppose the current regime is to ensure a favorable candidate wins the 2024 election, explicitly stating "not [[Joe Biden|Biden]], not [[Ron DeSantis|DeSantis]]."
+(00:24:00) Members of the far-right group [[Proud Boys]], including former leader [[Enrique Tarrio]], were convicted for their role in the [[January 6th Attack|January 6th]] Capitol riot, with four found guilty of seditious conspiracy and all five guilty of obstructing an official proceeding. (00:46:00) [[Enrique Tarrio]] was not in [[Washington D.C.|Washington, D.C.]] on [[January 6th Attack|January 6th]], having been arrested two days prior for burning a [[Black Lives Matter]] banner and on weapons charges. (00:48:00) Co-defendant [[Joe Biggs]], a [[United States|U.S]]. Army veteran and former broadcaster for [[Infowars]], was seen on video leading members of the [[Proud Boys]] around the Capitol on [[January 6th Attack|January 6th]]. (00:48:00) Co-defendant [[Zachary Rehl]], a former [[United States|U.S]]. Marine and leader of the [[Philadelphia]] chapter of the [[Proud Boys]], was part of the group that stormed the Capitol building. (00:49:00) Co-defendant [[Dominic Pezzola]], a former Marine, was found not guilty of seditious conspiracy but was convicted of assaulting a police officer after taking a riot shield and smashing a window. (00:49:00) [[Dominic Pezzola]] testified in his own defense that he was acting alone on [[January 6th Attack|January 6th]] and had not met his co-defendants prior to that day. (00:53:00) [[Nicholas J. Fuentes]] argued that the convictions of the [[Proud Boys]] represent the regime's effort to eliminate opposition, comparing the defendants to participants in the Boston Tea Party and stating the government views them as terrorists. (01:04:00) [[Nicholas J. Fuentes]] stated that the FBI and [[U.S. Department of Justice|DOJ]] have a conviction rate over 95% and do not charge people unless they have an airtight case, implying the [[Proud Boys]] are unlikely to win on appeal. (01:05:00) [[Nicholas J. Fuentes]] advised against joining militias or breaking laws as a high-risk strategy, citing the prosecutions of the [[Proud Boys]] and [[Douglas Mackey|Ricky Vaughn]] as examples of the regime's pressure tactics. (01:05:00) [[Nicholas J. Fuentes]] stated that after [[January 6th Attack|January 6th]], 2021, many people decided political activism was "not worth it" due to the demonstrated brutality of the regime, leading to a change in tone. (01:08:00) [[Nicholas J. Fuentes]] argued that the only way to oppose the current regime is to ensure a favorable candidate wins the 2024 election, explicitly stating "not [[Joe Biden|Biden]], not [[Ron DeSantis|DeSantis]]."
 
 ### AF 2023-04-26 1153
 (00:06:28) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] never mentioned his name after [[Nicholas J. Fuentes]] was placed on a no-fly list and was investigated by the Federal Bureau of Investigation.
@@ -315,7 +315,7 @@
 (00:18:08) [[Nicholas J. Fuentes]] listed the consequences he has faced for his activism, including being placed on a no-fly list, having money seized by the FBI, being censored online, being debanked, and being the subject of critical hit pieces in the media.
 
 ### AF 2023-02-16 1123
-(00:47:01) [[Nicholas J. Fuentes]] stated he was subpoenaed by the [[United States Capitol|U.S. Congress]], was contacted by [[United States|U.S]]. attorneys, and was under investigation by the FBI as of January 2022 regarding [[January 6th Attack|January 6]].
+(00:47:01) [[Nicholas J. Fuentes]] stated he was subpoenaed by the [[U.S. Congress]], was contacted by [[United States|U.S]]. attorneys, and was under investigation by the FBI as of January 2022 regarding [[January 6th Attack|January 6]].
 
 ### AF 2023-02-10 1120
 (00:00:00) [[Nicholas J. Fuentes]] began his broadcast by announcing the night's featured story would concern a major whistleblower report about the FBI.
@@ -516,31 +516,31 @@
 (00:02:50) [[Nicholas J. Fuentes]] argued that the primary sources of gun violence in the [[United States]] are [[black]] individuals and federal law enforcement agencies like the FBI and the [[Central Intelligence Agency|CIA]].
 
 ### AF 2022-06-02 1006
-(00:03:28) [[Nicholas J. Fuentes]] claimed the FBI had prior knowledge of the [[City of Buffalo|Buffalo]] mass shooting, citing that one of six people informed in advance was an FBI agent.
+(00:03:28) [[Nicholas J. Fuentes]] claimed the FBI had prior knowledge of the [[Buffalo]] mass shooting, citing that one of six people informed in advance was an FBI agent.
 
 ### AF 2022-06-02 1006
-(00:30:09) [[Nicholas J. Fuentes]] reiterated that the [[City of Buffalo|Buffalo]] shooter was in contact with at least six people, one of whom was a retired FBI agent.
+(00:30:09) [[Nicholas J. Fuentes]] reiterated that the [[Buffalo]] shooter was in contact with at least six people, one of whom was a retired FBI agent.
 
 ### AF 2022-06-02 1006
 (00:33:12) [[Nicholas J. Fuentes]] proposed that to reduce gun violence, the FBI, [[NSA]], and [[Central Intelligence Agency|CIA]] should be investigated and the [[U.S. Department of Defense|Pentagon]] audited.
 
 ### AF 2022-05-27 1003
-(02:13:47) One of the six people the [[City of Buffalo|Buffalo]] shooter communicated with for months before his attack was a retired FBI agent.
+(02:13:47) One of the six people the [[Buffalo]] shooter communicated with for months before his attack was a retired FBI agent.
 
 ### AF 2022-05-27 1003
-(48:46:80) The [[City of Buffalo|Buffalo]] shooter published detailed plans for his attack online to a small group for months, and one of the six recipients was a retired FBI agent.
+(48:46:80) The [[Buffalo]] shooter published detailed plans for his attack online to a small group for months, and one of the six recipients was a retired FBI agent.
 
 ### AF 2022-05-27 1003
-(53:19:86) The FBI is attempting to find and interview the retired agent and six others who regularly chatted with the [[City of Buffalo|Buffalo]] shooter.
+(53:19:86) The FBI is attempting to find and interview the retired agent and six others who regularly chatted with the [[Buffalo]] shooter.
 
 ### AF 2022-05-27 1003
-(54:46:78) The FBI is investigating why one of its own retired agents was told 30 minutes before the [[City of Buffalo|Buffalo]] attack that it was about to occur and did not intervene.
+(54:46:78) The FBI is investigating why one of its own retired agents was told 30 minutes before the [[Buffalo]] attack that it was about to occur and did not intervene.
 
 ### AF 2022-05-27 1003
 (57:52:96) Unindicted co-conspirators and individuals whose faces were on camera during the [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] riot were never charged, and FBI agents were embedded in militia groups for years prior.
 
 ### AF 2022-05-27 1003
-(58:55:20) [[Nicholas J. Fuentes]] argued that a new Speaker of the [[House]], not [[Mike Johnson|Kevin McCarthy]], is needed to investigate the FBI.
+(58:55:20) [[Nicholas J. Fuentes]] argued that a new Speaker of the [[House]], not [[Kevin McCarthy]], is needed to investigate the FBI.
 
 ### AF 2022-05-19 0997
 (26:07:00) [[Nicholas J. Fuentes]] characterized the [[U.S. Department of Homeland Security|DHS]], FBI, and [[U.S. Department of Justice|DOJ]] as the enforcement arm of the [[Joe Biden|Biden administration]] and the "[[United States|American]] regime."
@@ -936,7 +936,7 @@
 (00:09:19) [[Nicholas J. Fuentes]] listed the [[U.S. Department of Justice|United States Department of Justice]], the Federal Bureau of Investigation, [[Twitter]], [[Facebook]], [[Amazon Inc.|Amazon]], and [[Bank of America Corporation|Bank of America]] as institutions arrayed against nationalists, "[[United States|America]] firsters," and [[Donald Trump]] supporters following the [[United States Capitol|Capitol]] riot.
 
 ### AF 2021-02-04 0755
-(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as [[Bank of America Corporation|Bank of America]], the Federal Bureau of Investigation, [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the [[United Nations]], the [[World Health Organization]], the [[Centers for Disease Control and Prevention]], the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the [[World Economic Forum]], and the [[Europe|European Union]].
+(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as [[Bank of America Corporation|Bank of America]], the Federal Bureau of Investigation, [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the [[United Nations]], the [[World Health Organization]], the [[Centers for Disease Control and Prevention]], the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the [[World Economic Forum]], and the [[European Union]].
 
 ### AF 2021-02-04 0755
 (00:12:03) [[Nicholas J. Fuentes]] stated that [[Bank of America Corporation|Bank of America]], the second-largest bank in the [[United States]], teamed up with the Federal Bureau of Investigation to target "baby boomer [[Donald Trump|Trump]] supporters" who protested election fraud at the [[United States Capitol|U.S. Capitol]].
@@ -1068,7 +1068,7 @@
 (01:53:61) [[Donald Trump]] deployed federal agents from the FBI, [[Bureau of Alcohol, Tobacco, Firearms and Explosives|ATF]], and [[Drug Enforcement Administration|DEA]] to [[Cleveland]], [[City|Detroit]], and [[Milwaukee]] under Operation Legend to combat surges in violent crime.
 
 ### AF 2020-06-26 0630
-(02:06:27) [[Nicholas J. Fuentes]] noted a breaking news report that [[Person|Milo Yiannopoulos]] was giving the FBI information from his "vault" to help convict people arrested at the [[City of Charlottesville|Charlottesville rally]].
+(02:06:27) [[Nicholas J. Fuentes]] noted a breaking news report that [[Person|Milo Yiannopoulos]] was giving the FBI information from his "vault" to help convict people arrested at the [[Charlottesville rally]].
 
 ### AF 2020-06-23 0627
 (01:55:76) An FBI investigation concluded the object found in [[Bubba Wallace]]'s garage was not a noose but a pull-down rope for the garage door that had been in place since October 2019.
@@ -1089,13 +1089,13 @@
 (02:31:00) [[Nicholas J. Fuentes]] referenced FBI documents alleging [[Martin Luther King Jr.]] was present and laughed during a rape, participated in group sex, and took money from [[Communist Party]] member [[Stanley Levison]].
 
 ### AF 2019-10-02 0471
-(00:01:27) [[Nicholas J. Fuentes]] stated that the featured story for the episode was the two-year anniversary of the [[City of Las Vegas|Las Vegas]] shooting, an event for which the FBI closed its case in August 2018 without determining a motive.
+(00:01:27) [[Nicholas J. Fuentes]] stated that the featured story for the episode was the two-year anniversary of the [[Las Vegas]] shooting, an event for which the FBI closed its case in August 2018 without determining a motive.
 
 ### AF 2019-10-02 0471
-(00:45:52) The FBI and [[City of Las Vegas|Las Vegas]] police closed their investigation into the 2017 shooting in August 2018 without establishing a motive for [[Stephen Paddock]]'s attack that killed 58 people.
+(00:45:52) The FBI and [[Las Vegas]] police closed their investigation into the 2017 shooting in August 2018 without establishing a motive for [[Stephen Paddock]]'s attack that killed 58 people.
 
 ### AF 2019-10-02 0471
-(00:50:50) [[Nicholas J. Fuentes]] contrasted the rapid attribution of motives in shootings like El Paso and New Zealand with the FBI's failure to determine a motive for the [[City of Las Vegas|Las Vegas]] shooting after a year-long investigation.
+(00:50:50) [[Nicholas J. Fuentes]] contrasted the rapid attribution of motives in shootings like El Paso and New Zealand with the FBI's failure to determine a motive for the [[Las Vegas]] shooting after a year-long investigation.
 
 ### AF 2019-09-24 0468
 (06:00:40) The [[United States|United States Army]] and the FBI issued warnings about potential threats surrounding the premiere of the film *Joker*, with the [[Army]] stating it became aware of threats after receiving a bulletin from the FBI.
@@ -1248,31 +1248,31 @@
 (21:47:88) During the [[Inspector General]] investigation, former FBI Director [[James Comey]] left the [[country]] to avoid testifying, while former Deputy Director [[Andrew McCabe]] pled the Fifth Amendment.
 
 ### AF 2018-06-18 0182
-(40:20:91) [[Laura Loomer]] stated that a source within the FBI suggested the agency could have prevented the [[City of Las Vegas|Las Vegas]] shooting if it had investigated [[Stephen Paddock]] after his bank account was flagged for suspicious activity.
+(40:20:91) [[Laura Loomer]] stated that a source within the FBI suggested the agency could have prevented the [[Las Vegas]] shooting if it had investigated [[Stephen Paddock]] after his bank account was flagged for suspicious activity.
 
 ### AF 2018-06-18 0182
 (42:36:45) [[Laura Loomer]] accused the [[LVMPD]] and FBI of distorting released documents by placing them on a granular background to prevent optimal keyword searches for terms like "[[Islamic State of Iraq and Syria|ISIS]]" or "terrorism."
 
 ### AF 2018-06-18 0182
-(44:08:21) [[Laura Loomer]] stated that [[City of Las Vegas|Las Vegas]] media outlets were complicit in a cover-up by not criticizing [[Clark County]] Sheriff [[Joe Lombardo]] or the FBI despite suing for transparency.
+(44:08:21) [[Laura Loomer]] stated that [[Las Vegas]] media outlets were complicit in a cover-up by not criticizing [[Clark County]] Sheriff [[Joe Lombardo]] or the FBI despite suing for transparency.
 
 ### AF 2018-06-18 0182
-(47:36:77) [[Laura Loomer]] noted that [[Islamic State of Iraq and Syria|ISIS]] claimed responsibility for the [[City of Las Vegas|Las Vegas]] shooting immediately after it occurred, but the FBI dismissed any connection within a day.
+(47:36:77) [[Laura Loomer]] noted that [[Islamic State of Iraq and Syria|ISIS]] claimed responsibility for the [[Las Vegas]] shooting immediately after it occurred, but the FBI dismissed any connection within a day.
 
 ### AF 2018-06-18 0182
-(48:12:69) [[Laura Loomer]] stated that [[Islamic State of Iraq and Syria|ISIS]] has never taken responsibility for an attack it did not commit, countering the FBI's quick dismissal of their claim regarding the [[City of Las Vegas|Las Vegas]] shooting.
+(48:12:69) [[Laura Loomer]] stated that [[Islamic State of Iraq and Syria|ISIS]] has never taken responsibility for an attack it did not commit, countering the FBI's quick dismissal of their claim regarding the [[Las Vegas]] shooting.
 
 ### AF 2018-06-18 0182
 (50:41:99) [[Laura Loomer]] cited text messages from the [[Inspector General]] report where FBI agents [[Peter Strzok]] and [[Lisa Page]] disparaged [[Donald Trump]] supporters as "stupid," "hillbillies," and "pieces of shit."
 
 ### AF 2018-06-18 0182
-(53:48:65) [[Laura Loomer]] noted that [[Omar Mateen]], the perpetrator of the [[City of Orlando|Orlando]] Pulse nightclub shooting, had a father [[who]] was a FBI informant, a fact not revealed until two years after the attack.
+(53:48:65) [[Laura Loomer]] noted that [[Omar Mateen]], the perpetrator of the [[Orlando]] Pulse nightclub shooting, had a father [[who]] was a FBI informant, a fact not revealed until two years after the attack.
 
 ### AF 2018-06-18 0182
 (57:55:67) [[Laura Loomer]] reported that [[Douglas Haig]] was arrested by the FBI only after he gave a press conference following the accidental leak of his name, not in the immediate aftermath of the shooting.
 
 ### AF 2018-06-18 0182
-(01:00:59:09) [[Laura Loomer]] reported that the [[LVMPD]] and FBI issued a comment ban preventing all employees from making statements to the media about the [[City of Las Vegas|Las Vegas]] shooting.
+(01:00:59:09) [[Laura Loomer]] reported that the [[LVMPD]] and FBI issued a comment ban preventing all employees from making statements to the media about the [[Las Vegas]] shooting.
 
 ### AF 2018-05-17 0166
 (00:56:58) Inspector General [[Michael Horowitz]] completed a draft report on the FBI and [[U.S. Department of Justice|DOJ]]'s handling of the [[Hillary Clinton]] email probe, with the final version expected to be released after a three-to-four-week review period for national security concerns.
@@ -1308,10 +1308,10 @@
 (02:11:54) [[Nicholas J. Fuentes]] noted that one student activist touring the [[country]] for gun control, David Hogg, is the son of a former FBI agent.
 
 ### AF 2018-02-20 0112
-(02:15:54) [[Nicholas J. Fuentes]] pointed out that the [[City of Parkland|Parkland]] shooter, [[Nikolas Cruz]], had been visited by police 36 times and that the FBI had been tipped off twice prior to the attack.
+(02:15:54) [[Nicholas J. Fuentes]] pointed out that the [[Parkland]] shooter, [[Nikolas Cruz]], had been visited by police 36 times and that the FBI had been tipped off twice prior to the attack.
 
 ### AF 2018-02-19 0111
-(00:17:56) [[Nicholas J. Fuentes]] detailed numerous warning signs exhibited by [[City of Parkland|Parkland]] shooter Nikolas [[Ted Cruz|Cruz]], including 36 police visits to his home, two tips to the FBI, expulsion for bringing bullets to school, and explicit threats on social media.
+(00:17:56) [[Nicholas J. Fuentes]] detailed numerous warning signs exhibited by [[Parkland]] shooter Nikolas [[Ted Cruz|Cruz]], including 36 police visits to his home, two tips to the FBI, expulsion for bringing bullets to school, and explicit threats on social media.
 
 ### AF 2018-02-15 0109
 (04:42:26) The FBI received a tip about a [[Google|YouTube]] comment from the shooter stating "I'm going to become a professional school shooter" but failed to identify him after a 20-minute phone call with the tipster.
@@ -1368,7 +1368,7 @@
 (09:33:38) [[Nicholas J. Fuentes]] reported the [[House Oversight Committee]] had been subpoenaing the FBI and [[U.S. Department of Justice|Department of Justice]] for missing documents and witnesses to substantiate the dossier's claims, which [[Devin Nunes]] called "total BS."
 
 ### AF 2018-01-29 0096
-(11:06:10) [[Nicholas J. Fuentes]] connected the memo's release to the previous week's news that the FBI announced it was missing 50,000 text messages between agents [[Peter Strzok]] and [[Lisa Page]] from December 2016 to May 2017, allegedly related to a "secret society" conspiring against [[Donald Trump|the president]].
+(11:06:10) [[Nicholas J. Fuentes]] connected the memo's release to the previous week's news that the FBI announced it was missing 50,000 text messages between agents [[Peter Strzok]] and [[Lisa Page]] from December 2016 to May 2017, allegedly related to a "secret society" conspiring against [[the president]].
 
 ### AF 2018-01-29 0096
 (19:31:10) [[Nicholas J. Fuentes]] reported that FBI Deputy Director [[Andrew McCabe]] resigned that afternoon after being named in the memo as complicit in the construction and weaponization of the dossier.
@@ -1413,13 +1413,13 @@
 (20:25:28) [[Lindsey Graham]] and [[Chuck Grassley]] referred [[Christopher Steele]] to FBI Director [[Christopher Wray]] and Deputy Attorney General [[Rod Rosenstein]] for criminal investigation regarding the [[Donald Trump|Trump]]-[[Russia]] dossier.
 
 ### AF 2018-01-05 0080
-(21:08:76) The [[Donald Trump|Trump]]-[[Russia]] dossier, published by [[BuzzFeed]], contained fabricated allegations about [[Donald Trump]]'s activities in [[City of Moscow|Moscow]] and was used by the FBI as the basis for opening the [[Russia]] investigation.
+(21:08:76) The [[Donald Trump|Trump]]-[[Russia]] dossier, published by [[BuzzFeed]], contained fabricated allegations about [[Donald Trump]]'s activities in [[Moscow]] and was used by the FBI as the basis for opening the [[Russia]] investigation.
 
 ### AF 2018-01-04 0079
-(00:02:04) [[Laura Loomer]] asserted that the FBI and the [[LVMPD]] had been caught lying about the official timeline of the [[City of Las Vegas|Las Vegas]] shooting due to her investigative journalism.
+(00:02:04) [[Laura Loomer]] asserted that the FBI and the [[LVMPD]] had been caught lying about the official timeline of the [[Las Vegas]] shooting due to her investigative journalism.
 
 ### AF 2018-01-04 0079
-(00:02:30) [[Laura Loomer]] expressed her conviction that the [[City of Las Vegas|Las Vegas]] shooting was the work of [[Islamic State of Iraq and Syria|ISIS]] and that the FBI and police departments were deceiving the public about the true terror threat.
+(00:02:30) [[Laura Loomer]] expressed her conviction that the [[Las Vegas]] shooting was the work of [[Islamic State of Iraq and Syria|ISIS]] and that the FBI and police departments were deceiving the public about the true terror threat.
 
 ### AF 2018-01-03 0078
 (01:17:840) Information emerged regarding the FBI investigation into [[Hillary Clinton]]'s use of a private email server from a year prior.
@@ -1452,7 +1452,7 @@
 (00:07:07) The [[National Socialist Movement]] is a neo-[[Germany|Nazi]] [[organization]] whose [[State of Florida|Florida]] division was infiltrated in 2007 by an FBI informant named [[David Gleddy]] (or Getty), [[who]] orchestrated a large rally and later exposed attendees.
 
 ### AF 2017-10-25 0039
-(07:02:00) The father of [[Stephen Paddock]] and [[Bruce Paddock]] was a bank robber in [[City of Las Vegas|Las Vegas]] [[who]] was arrested by the FBI multiple times and escaped prison twice.
+(07:02:00) The father of [[Stephen Paddock]] and [[Bruce Paddock]] was a bank robber in [[Las Vegas]] [[who]] was arrested by the FBI multiple times and escaped prison twice.
 
 ### AF 2017-10-05 0025
 (01:32:04) The FBI initially asserted [[Stephen Paddock]] acted alone as a lone wolf, a conclusion contradicted by a hotel receipt showing two people checked in and eyewitness accounts of a second shooter.
@@ -1464,13 +1464,58 @@
 (01:34:35) [[Stephen Paddock]]'s father was a bank robber on the FBI's Most Wanted list [[who]] escaped jail twice.
 
 ### AF 2017-10-03 0023
-(00:09:00) The FBI stated within 12 hours of the [[City of Las Vegas|Las Vegas]] shooting that the shooter had no connection to [[Islamic State of Iraq and Syria|ISIS]].
+(00:09:00) The FBI stated within 12 hours of the [[Las Vegas]] shooting that the shooter had no connection to [[Islamic State of Iraq and Syria|ISIS]].
 
 ### AF 2017-10-03 0023
-(00:09:20) The [[City of Las Vegas|Las Vegas]] shooter was the son of an infamous bank robber [[who]] had been on the FBI's Ten Most Wanted list.
+(00:09:20) The [[Las Vegas]] shooter was the son of an infamous bank robber [[who]] had been on the FBI's Ten Most Wanted list.
 
 ### AF 2017-10-03 0023
-(00:10:40) The FBI leaked graphic crime scene photographs from the [[City of Las Vegas|Las Vegas]] shooter's hotel room, including images of the deceased and his arsenal.
+(00:10:40) The FBI leaked graphic crime scene photographs from the [[Las Vegas]] shooter's hotel room, including images of the deceased and his arsenal.
 
 ### AF 2017-10-02 0022
 (04:40:64) Following the attack, the [[Islamic State of Iraq and Syria]] ([[Islamic State of Iraq and Syria|ISIS]]) claimed four separate times that [[Stephen Paddock]] had converted to [[Islam]] earlier in the year and that the attack was conducted on their behalf, though the FBI and [[Las Vegas police]] stated there was no connection.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:23:50) [[Nicholas J. Fuentes]] reported a story that the FBI was telling police to "stand down" and not worry about an [[Iran|Iranian]] sleeper cell terrorist attack.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:07:23.370) [[Nicholas J. Fuentes]] argued that the public release of the files necessitates a proper investigation by the FBI and the [[U.S. Department of Justice|DOJ]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:12:20.590) [[Nicholas J. Fuentes]] reported that the FBI charged and indicted [[Don Lemon]] and others for the incident.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:14:49) [[Nicholas J. Fuentes]] reported that the released [[Jeffrey Epstein]] files include emails, tips to the FBI, images, and news reports, totaling three million documents.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:16:40) [[Nicholas J. Fuentes]] reported that at least 4,500 documents in the [[Jeffrey Epstein]] files mentioned [[Donald Trump]], including an FBI summary of more than a dozen public tips involving [[Donald Trump|Trump]] and [[Jeffrey Epstein|Epstein]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:22:31) [[Donald Trump]] asked the FBI if his name appeared in the [[Jeffrey Epstein]] files, and the FBI spent hundreds of hours finding every mention, totaling thousands of mentions.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:22:51) [[Donald Trump]] denied asking the FBI to look for his name in the [[Jeffrey Epstein]] files, calling that a lie.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:29:26) [[Nicholas J. Fuentes]] argued that it is the obligation of the representative government, including the FBI and the [[U.S. Department of Justice|DOJ]], to investigate the accusations in the [[Jeffrey Epstein]] files against [[Howard Lutnick]], [[Bill Gates]], [[Elon Musk]], [[Richard Branson]], [[Steve Bannon]], and [[Donald Trump]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:39:41) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] is named in FBI documents that say he was "taking turns raping kids" and that they were "killed in front of him," calling the release of these files a catastrophe for [[Donald Trump|Trump]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:04) [[Dan Bongino]] was hired as Deputy Director of the FBI by the administration.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:18) [[Dan Bongino]] went to the media crying that he misses his wife and kids while serving as Deputy Director of the FBI.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:51:14) [[Dan Bongino]] resigned from the FBI to go back on his podcast.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:25:16) [[Nicholas J. Fuentes]] stated that the conspiracy started as [[Israel]] being responsible for [[Charlie Kirk]]'s death, then widened to include the FBI, the [[Donald Trump|Trump]] administration, [[France]], and [[Arab Republic of Egypt|Egypt]], and now implicates [[Charlie Kirk]]'s family and wife.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:49:48) [[Nicholas J. Fuentes]] argued that the FBI director, [[Kash Patel]], and the [[state]] of [[Utah]] have addressed questions, but are constrained by the constitutional rights of the defendant.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:48:20) The Center for Critical Intelligence Studies (CCIS) receives grants from the [[Defense Intelligence Agency]] (DIA) and has classes taught by agents from the Federal Bureau of Investigation (FBI) and the [[Central Intelligence Agency]] ([[Central Intelligence Agency|CIA]]).

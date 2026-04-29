@@ -2,7 +2,7 @@
 #Unknown
 
 ### AF 2023-10-05 1230
-(00:18:10) [[Nicholas J. Fuentes]] compared [[Alternative for Germany]] to other right-wing [[Europe|European]] parties like the [[National Rally|National Front]] in [[Government of France|France]], [[UK Independence Party|UKIP]] in the [[United Kingdom]], the [[BNP]], and Lega Nord in [[Italian Republic|Italy]].
+(00:18:10) [[Nicholas J. Fuentes]] compared [[Alternative for Germany]] to other right-wing [[Europe|European]] parties like the [[National Rally|National Front]] in [[France]], [[UK Independence Party|UKIP]] in the [[United Kingdom]], the [[BNP]], and Lega Nord in [[Italian Republic|Italy]].
 
 
 ### AF 2022-09-27 1067
@@ -27,7 +27,7 @@
 (00:21:00) [[Matteo Salvini]]'s League party, polling at 36%, needed at least 40% of seats to form a government or would ally with [[Brothers of Italy]] or [[Silvio Berlusconi]]'s [[Forza Italia]].
 
 ### AF 2019-05-27 0395
-(00:38:40) [[Nicholas J. Fuentes]] reported that in [[Italian Republic|Italy]], [[Matteo Salvini]]'s League party won a sweeping victory with 34% of the vote, making it one of the largest single parties in the [[Europe|European Union]] and prompting Salvini to call for new national elections.
+(00:38:40) [[Nicholas J. Fuentes]] reported that in [[Italian Republic|Italy]], [[Matteo Salvini]]'s League party won a sweeping victory with 34% of the vote, making it one of the largest single parties in the [[European Union]] and prompting Salvini to call for new national elections.
 
 ### AF 2018-09-13 0239
 (11:43:00) In [[Italian Republic|Italy]], a coalition government was formed between the anti-[[EU]] [[Five Star Movement]] and the right-wing, anti-[[EU]] Lega.

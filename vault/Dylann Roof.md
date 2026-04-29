@@ -15,7 +15,7 @@
 (00:40:44) [[Nicholas J. Fuentes]] noted it was curious that manifestos from mass shooters like [[Brenton Tarrant]] (Christchurch) and Dylann Roof did not mention [[Jewish]] power.
 
 ### AF 2021-06-14 0828
-(57:00:68) [[Nicholas J. Fuentes]] argued that the reaction to the 2015 Dylann Roof shooting in [[Charleston]] and the 2017 [[City of Charlottesville|Charlottesville]] death were used as a pretext for a cultural revolution far more damaging than the original sporadic acts of violence.
+(57:00:68) [[Nicholas J. Fuentes]] argued that the reaction to the 2015 Dylann Roof shooting in [[Charleston]] and the 2017 [[Charlottesville]] death were used as a pretext for a cultural revolution far more damaging than the original sporadic acts of violence.
 
 ### AF 2021-03-23 0778 (2)
 (03:17:30) [[Nicholas J. Fuentes]] noted that the manifestos of Dylann Roof and [[Brenton Tarrant]], perpetrators of high-profile attacks in [[Charleston]] and [[Christchurch]], contained no significant mention of [[Jews|Jewish]] power, which he found conspicuous for alleged white supremacist extremists.
@@ -33,7 +33,7 @@
 (00:08:30) [[Nicholas J. Fuentes]] advised his supporters to ask [[Charlie Kirk]] about his past statement that [[Nikki Haley]] would be president and to contrast it with [[Nikki Haley]]'s comparison of [[Donald Trump]] to Dylann Roof.
 
 ### AF 2018-11-14 0282
-(00:05:50) [[Jack Posobiec]] was connected to neo-Nazi brothers [[Jeffrey Clark]] and [[Edward Clark]], [[who]] honored Dylann Roof and attended the [[Unite the Right]] rally in [[City of Charlottesville|Charlottesville]], with photographs showing them filming [[Jack Posobiec|Posobiec]] for a project about [[Seth Rich]].
+(00:05:50) [[Jack Posobiec]] was connected to neo-Nazi brothers [[Jeffrey Clark]] and [[Edward Clark]], [[who]] honored Dylann Roof and attended the [[Unite the Right]] rally in [[Charlottesville]], with photographs showing them filming [[Jack Posobiec|Posobiec]] for a project about [[Seth Rich]].
 
 ### AF 2017-10-06 0026
 (01:41:10) [[Nicholas J. Fuentes]] stated he had not read Dylann Roof's manifesto, opining that most manifestos besides [[Ted Kaczynski]]'s are poorly written and not worth reading.

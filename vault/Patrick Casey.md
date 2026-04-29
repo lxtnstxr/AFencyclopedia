@@ -86,7 +86,7 @@
 (01:43:880) [[Nicholas J. Fuentes]] claimed that figures like [[Scott Greer]] and Patrick Casey, whom he described as secular or pagan white identitarians, are keen to downplay criticism of [[Jewish]] influence while emphasizing racial politics.
 
 ### AF 2023-02-10 1120
-(01:26:17:24) [[Nicholas J. Fuentes]] cited the case of Patrick Casey, the former leader of [[Identity Evropa]], who was named in the [[City of Charlottesville|Charlottesville]] lawsuit and labeled a neo-Nazi, but who saw his problems "go away" after publicly attacking [[Nicholas J. Fuentes]] in February 2021.
+(01:26:17:24) [[Nicholas J. Fuentes]] cited the case of Patrick Casey, the former leader of [[Identity Evropa]], who was named in the [[Charlottesville]] lawsuit and labeled a neo-Nazi, but who saw his problems "go away" after publicly attacking [[Nicholas J. Fuentes]] in February 2021.
 
 ### AF 2023-02-10 1120
 (01:27:13:78) [[Nicholas J. Fuentes]] noted that after attacking him, Patrick Casey became employable at [[Chronicle Magazine]] and was amplified by commentators in the [[Peter Thiel]] and [[Darren Beattie]] circle.
@@ -116,13 +116,13 @@
 (00:37:44) [[Matt Walsh|Matt Kip]] claimed in replies to Patrick Casey's thread that Canadians are the "number one Cy-oppers in the [[Kanye West|West]]."
 
 ### AF 2022-09-22 1065
-(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], [[Jared Holt]], [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[City of Charlottesville|Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], Patrick Casey, and [[Jake Lloyd]].
+(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], [[Jared Holt]], [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], Patrick Casey, and [[Jake Lloyd]].
 
 ### AF 2022-09-22 1065
 (01:43:45) Patrick Casey lied about an investigation into [[Nicholas J. Fuentes]] and bailed out of [[AFPAC]].
 
 ### AF 2022-08-11 1045
-(12:52:20) [[Nicholas J. Fuentes]] recounted meeting [[Richard Spencer]], Patrick Casey, and [[Jared Taylor]] at a gathering at [[Richard Spencer|Spencer]]'s townhouse in [[City of Alexandria|Alexandria]], which attendees called "the hate lair," after a [[U.S. Inc.]] conference in September 2017.
+(12:52:20) [[Nicholas J. Fuentes]] recounted meeting [[Richard Spencer]], Patrick Casey, and [[Jared Taylor]] at a gathering at [[Richard Spencer|Spencer]]'s townhouse in [[Alexandria]], which attendees called "the hate lair," after a [[U.S. Inc.]] conference in September 2017.
 
 ### AF 2022-05-06 0990
 (03:10:05) [[Nicholas J. Fuentes]] dismissed the departures of Patrick Casey, [[Jake Lloyd]], and [[Jaden McNeil]] from [[America First]], stating their absence had no impact and that McNeil was practically fired months before resigning as treasurer.
@@ -134,10 +134,10 @@
 (02:36:15) [[Nicholas J. Fuentes]] stated that [[Matt Walsh|Matt Kipta]] and Patrick Casey were close and that [[Matt Walsh|Matt Kipta]] had backed Patrick Casey after Patrick Casey's split from him.
 
 ### AF 2022-04-26 0984
-(02:37:52) [[Nicholas J. Fuentes]] accused Patrick Casey of betraying him by telling people he was on a no-fly list and that his money had been seized by the government—information [[Nicholas J. Fuentes]] claimed he did not yet know himself—and noted Patrick Casey's [[organization]], [[Identity Evropa]], was currently embroiled in a lawsuit over the [[City of Charlottesville|Charlottesville]] rally.
+(02:37:52) [[Nicholas J. Fuentes]] accused Patrick Casey of betraying him by telling people he was on a no-fly list and that his money had been seized by the government—information [[Nicholas J. Fuentes]] claimed he did not yet know himself—and noted Patrick Casey's [[organization]], [[Identity Evropa]], was currently embroiled in a lawsuit over the [[Charlottesville]] rally.
 
 ### AF 2021-06-15 0829
-(03:08:05) [[Nicholas J. Fuentes]] discussed Patrick Casey, founder of [[Identity Evropa]] and [[American Identity Movement]], expressing uncertainty about his background and noting it was suspicious that Casey did not disclose his impending court date related to [[City of Charlottesville|Charlottesville]] before inserting himself into [[AFPAC]] and [[Nicholas J. Fuentes|Groyper]] events.
+(03:08:05) [[Nicholas J. Fuentes]] discussed Patrick Casey, founder of [[Identity Evropa]] and [[American Identity Movement]], expressing uncertainty about his background and noting it was suspicious that Casey did not disclose his impending court date related to [[Charlottesville]] before inserting himself into [[AFPAC]] and [[Nicholas J. Fuentes|Groyper]] events.
 
 ### AF 2021-06-15 0829
 (03:09:20) [[Nicholas J. Fuentes]] reflected on the prevalence of federal informants in groups like the [[|Proud Boys]] and [[Oath Keepers]], and wondered aloud if long-[[time]], secretive activists like Patrick Casey could also be informants, though he stated he does not think it is likely.
@@ -266,7 +266,7 @@
 (02:38:20) [[Nicholas J. Fuentes]] praised streamers within the "[[United States|America]] First" movement like [[Jaden McNeil]], Patrick Casey, [[Steve]], and [[Jake]] for building substantial audiences, contrasting them with mainstream conservative commentators [[who]] had institutional support.
 
 ### AF 2020-10-22 0707
-(02:44:48) [[Nicholas J. Fuentes]] teased Patrick Casey for his strict diet of boiled chicken and microwave potatoes, contrasting it with his own preference for pizza and burgers when they met in [[City of Chicago|Chicago]].
+(02:44:48) [[Nicholas J. Fuentes]] teased Patrick Casey for his strict diet of boiled chicken and microwave potatoes, contrasting it with his own preference for pizza and burgers when they met in [[Chicago]].
 
 ### AF 2020-10-19 0704
 (00:48:34) [[Nicholas J. Fuentes]] placed [[Ben Shapiro]] and [[Charlie Kirk]] on the "Roger Cohen side" for supporting mass migration, contrasting them with figures like himself, Patrick Casey, [[Michelle Malkin]], [[Alex Jones]], and [[Paul Joseph Watson]].
@@ -302,7 +302,7 @@
 (00:36:50) [[Nicholas J. Fuentes]] and Patrick Casey listed [[Andy Samberg]], [[Jerry Seinfeld]], and [[Larry David]] as examples of good [[Jews|Jewish]] comedians.
 
 ### AF 2020-08-20 0665
-(00:38:47) [[Nicholas J. Fuentes]] and Patrick Casey discussed the arrest of [[Steven Crowder|Steve Bannon]] for fraud related to a "We Build the Wall" fundraising campaign, calling it emblematic of grifting in conservative politics.
+(00:38:47) [[Nicholas J. Fuentes]] and Patrick Casey discussed the arrest of [[Steve Bannon]] for fraud related to a "We Build the Wall" fundraising campaign, calling it emblematic of grifting in conservative politics.
 
 ### AF 2020-08-20 0665
 (00:39:49) Patrick Casey detailed allegations that [[Brian Kolfage]] amassed a massive donor list and planned to rent it out for a 50% cut, making hundreds of thousands from the wall project, and that [[Mike Coudrey]]'s firm might be implicated.
@@ -399,3 +399,12 @@
 
 ### AF 2020-06-16 0622
 (01:52:20) [[Nicholas J. Fuentes]] gave a shout-out to Patrick Casey.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:35:07) [[Nicholas J. Fuentes]] called Patrick Casey a "loser" [[who]] jumped off the [[Nicholas J. Fuentes|Groyper]] bandwagon.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:37:19) Patrick Casey was a former white nationalist [[who]] ran [[American Identity Movement|Identity Evropa]] before joining the [[Nicholas J. Fuentes|Groyper]] movement.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:49:51) [[Nicholas J. Fuentes]] criticized "white pill" parties hosted by Patrick Casey and [[Scott Greer]] as ineffective.

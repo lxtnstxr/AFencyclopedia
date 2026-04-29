@@ -25,3 +25,6 @@
 
 ### AF 2018-07-12 0199
 (02:30:08) [[Nicholas J. Fuentes]] identified understanding [[SpongeBob SquarePants]] references as a cultural marker for Generation Z.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:20:34) [[Nicholas J. Fuentes]] asserted that Gen Z and [[Hispanic]] men [[who]] voted for [[Donald Trump]] in 2024 are turning against him because of the [[U.S. Immigration and Customs Enforcement|ICE]] ([[U.S. Immigration and Customs Enforcement]]) video coverage.

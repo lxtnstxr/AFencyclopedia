@@ -2,8 +2,8 @@
 #organization
 
 ### AF 2025-09-09 1563
-(08:08:00) [[France]], the [[United Kingdom]], [[Canada]], [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Gaza Strip|Palestine]] at the United Nations General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
-(08:23:00) [[Israel]] was preparing an offensive in [[Gaza Strip|Gaza City]] to annex the territory before potential United Nations recognition of [[Gaza Strip|Palestine]] could take effect.
+(08:08:00) [[France]], the [[United Kingdom]], [[Canada]], [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Palestine]] at the United Nations General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
+(08:23:00) [[Israel]] was preparing an offensive in [[Gaza Strip|Gaza City]] to annex the territory before potential United Nations recognition of [[Palestine]] could take effect.
 ### AF 2025-09-25 1571
 (00:47:57) At the United Nations General Assembly earlier in the week, [[France]] led a wave of recognition of [[Palestinian]] statehood, joined by [[Canada]], the [[United Kingdom]], [[Australia]], and other countries.
 (01:04:05:03) [[Emmanuel Macron]] announced that [[France]] would move to recognize a [[Palestinian]] state at the United Nations to create a diplomatic red line and potential sanctions against [[Israel]].
@@ -27,7 +27,7 @@
 
 
 ### AF 2025-08-04 1544
-(00:06:08) Prominent members of the [[Group of Seven|G7]] group of industrialized economies are moving on an accelerated timeline to recognize [[Gaza Strip|Palestine]]'s statehood at the United Nations General Assembly, anticipating there may be no [[Gaza Strip|Palestine]] [[left]] to recognize by the end of the year.
+(00:06:08) Prominent members of the [[Group of Seven|G7]] group of industrialized economies are moving on an accelerated timeline to recognize [[Palestine]]'s statehood at the United Nations General Assembly, anticipating there may be no [[Palestine]] [[left]] to recognize by the end of the year.
 
 ### AF 2025-07-29 1541
 (01:18:40) [[Keir Starmer]] stated the [[United Kingdom]] would recognize a [[Palestinian]] state in September unless [[Israel]] took substantive steps to end the situation in [[Gaza Strip|Gaza]], agreed to a ceasefire, committed to a long-term sustainable peace delivering a two-state solution, and allowed the United Nations to restart aid supplies.
@@ -36,7 +36,7 @@
 (04:35:40) [[Viktor Orbán]] and [[Benjamin Netanyahu|Netanyahu]] have maintained a close relationship for approximately 20 years, and [[Hungary]] consistently supports [[Israel]] in the [[European Union]] and the United Nations.
 
 ### AF 2025-07-25 1539
-(00:01:02) [[Emmanuel Macron]] announced his intention as President of [[France]] to recognize [[Gaza Strip|Palestine]] as a state, with plans to make a formal announcement at the United Nations General Assembly in September.
+(00:01:02) [[Emmanuel Macron]] announced his intention as President of [[France]] to recognize [[Palestine]] as a state, with plans to make a formal announcement at the United Nations General Assembly in September.
 
 ### AF 2024-10-28 1414
 (01:12:54) [[Iran]]'s military blamed the [[United States]] for allowing [[Iraq]]'s airspace to be used, and [[Iran]]'s mission to the United Nations accused the [[United States]] of complicity.
@@ -60,7 +60,7 @@
 (01:53:29:76) [[Nicholas J. Fuentes]] jokingly thanked his sponsors, listing entities like the United Nations, [[BlackRock]], [[Qatar Airways]], [[Pfizer]], [[NATO]], the [[U.S. Department of Defense]], and the [[Trilateral Commission]].
 
 ### AF 2024-10-17 1408
-(01:27:51) Several [[Europe|European]] countries, including [[Government of France|France]] and [[Italian Republic|Italy]], embargoed weapons sales to [[Israel]] in protest of its war in [[Lebanon]] and attacks on United Nations peacekeepers.
+(01:27:51) Several [[Europe|European]] countries, including [[France]] and [[Italian Republic|Italy]], embargoed weapons sales to [[Israel]] in protest of its war in [[Lebanon]] and attacks on United Nations peacekeepers.
 
 ### AF 2024-09-27 1396
 (34:45:35) [[Benjamin Netanyahu]] laid out in his address to the UN General Assembly that the [[Middle East]] can either be dominated by the "curse" ([[Shiite]] Muslim countries) or the "blessing" ([[Israel]], [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], etc.).
@@ -156,7 +156,7 @@
 (02:20:30) [[Israel]] and the [[United States]] began discussing post-conflict plans for the [[Gaza Strip]], referred to as "the day after," which included potential governance by a coalition of Arab states or a United Nations peacekeeping force.
 
 ### AF 2023-10-17 1236
-(01:03:12) On October 12, [[Israel]] ordered the evacuation of 1.1 million people from northern [[Gaza Strip|Gaza]] within 24 hours, a directive criticized as impossible by the United Nations, [[Europe|European Union]], and [[United States]], leading to a delayed timeline.
+(01:03:12) On October 12, [[Israel]] ordered the evacuation of 1.1 million people from northern [[Gaza Strip|Gaza]] within 24 hours, a directive criticized as impossible by the United Nations, [[European Union]], and [[United States]], leading to a delayed timeline.
 
 ### AF 2023-10-14 1235
 (00:27:46) [[Nicholas J. Fuentes]] cited a [[The New York Times]] report stating that the United Nations and international aid groups called [[Israel]]'s evacuation order for northern [[Gaza Strip|Gaza]] unworkable and unlawful, leading [[Israel]] to soften its deadline.
@@ -243,7 +243,7 @@
 (30:55:98) The international transport groups called for the United Nations to standardize vaccine requirements worldwide, which [[Nicholas J. Fuentes]] argued would set a precedent for a global government to control international travel and override national sovereignty.
 
 ### AF 2021-09-29 0887
-(32:01:16) [[Nicholas J. Fuentes]] predicted that rich countries and entities like the [[Group of Seven|G7]], [[G20]], [[Europe|European Union]], and big banks would use the United Nations to bully other nations into accepting an international vaccine standard, enforced through trade and investment restrictions.
+(32:01:16) [[Nicholas J. Fuentes]] predicted that rich countries and entities like the [[Group of Seven|G7]], [[G20]], [[European Union]], and big banks would use the United Nations to bully other nations into accepting an international vaccine standard, enforced through trade and investment restrictions.
 
 ### AF 2021-09-30 0886
 (18:28:840) The [[International Chamber of Shipping]], the [[International Air Transport Association]], the [[International Road Transport Union]], and the [[International Transport Workers' Federation]] sent an open letter to heads of [[state]] attending the United Nations General Assembly.
@@ -303,7 +303,7 @@
 (00:03:12) [[Nikki Haley]] served as the [[United States|U.S]]. Ambassador to the United Nations in the [[Donald Trump|Trump]] administration before going to work for [[Boeing]].
 
 ### AF 2021-02-04 0755
-(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as [[Bank of America Corporation|Bank of America]], the [[Federal Bureau of Investigation]], [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the United Nations, the [[World Health Organization]], the [[Centers for Disease Control and Prevention]], the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the [[World Economic Forum]], and the [[Europe|European Union]].
+(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as [[Bank of America Corporation|Bank of America]], the [[Federal Bureau of Investigation]], [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the United Nations, the [[World Health Organization]], the [[Centers for Disease Control and Prevention]], the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the [[World Economic Forum]], and the [[European Union]].
 
 ### AF 2020-12-18 0736
 (00:48:40) [[Nicholas J. Fuentes]] stated he is more afraid of the COVID-19 vaccine, [[World Economic Forum|Klaus Schwab]], and the UN than of [[Chuck Schumer]], socialism, or the Green New Deal.
@@ -447,7 +447,7 @@
 (00:19:33) [[Nicholas J. Fuentes]] criticized the withdrawal from the U.N. Arms Trade Treaty as a deceptive, symbolic "red meat" action that did not address substantive issues like immigration, trade, and foreign wars.
 
 ### AF 2019-04-26 0375
-(00:22:05) [[Nicholas J. Fuentes]] pointed to [[Donald Trump|Trump]]'s bump [[stock]] ban as an example of [[Donald Trump|the president]] not being a reliable defender of gun rights, despite the symbolic action on the U.N. treaty.
+(00:22:05) [[Nicholas J. Fuentes]] pointed to [[Donald Trump|Trump]]'s bump [[stock]] ban as an example of [[the president]] not being a reliable defender of gun rights, despite the symbolic action on the U.N. treaty.
 
 ### AF 2019-02-14 0332
 (20:20:77) The bill allocated an additional $3.1 billion for foreign health assistance through the United Nations.
@@ -528,7 +528,7 @@
 (00:37:12) [[Nicholas J. Fuentes]] contended that the entire post-Westphalian international order, including the United Nations and [[North Atlantic Treaty Organization|NATO]], was unraveling due to the collapse of the nation-[[state]] model.
 
 ### AF 2018-01-30 0097
-(35:07:74) [[Donald Trump]] cited his recognition of [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]] and subsequent defunding of the United Nations as examples of his foreign policy stance.
+(35:07:74) [[Donald Trump]] cited his recognition of [[Jerusalem]] as the capital of [[Israel]] and subsequent defunding of the United Nations as examples of his foreign policy stance.
 
 ### AF 2018-01-15 0086
 (00:20:26) [[Jacob Wohl]] cited [[Israel]]'s record of voting with the [[United States]] in the United Nations 94% of the [[time]] as evidence of a strong alliance.
@@ -540,7 +540,7 @@
 (00:33:50) [[Nikki Haley]], the [[United States]] ambassador to the United Nations, announced that the [[United States]] expected [[North Korea]] to launch a ballistic missile test sometime during the week.
 
 ### AF 2017-12-20 0073
-(03:48:02) [[Donald Trump]] threatened to cut off foreign aid to any [[country]] that voted in favor of a United Nations General Assembly resolution opposing [[United States|U.S]]. recognition of [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]].
+(03:48:02) [[Donald Trump]] threatened to cut off foreign aid to any [[country]] that voted in favor of a United Nations General Assembly resolution opposing [[United States|U.S]]. recognition of [[Jerusalem]] as the capital of [[Israel]].
 
 ### AF 2017-12-04 0063
 (14:50:98) [[Michael Flynn]] revealed that his first directive was to contact the [[Russian]] ambassador to delay or defeat a United Nations Security Council vote condemning illegal [[Israel|Israeli]] settlements in the [[Gaza Strip|West Bank]].
@@ -586,3 +586,9 @@
 
 ### AF 2021-05-27 0818
 (04:02:020) [[Nicholas J. Fuentes]] believes that "almost everyone in the world" supports the UN investigation into [[Israel]]'s human rights abuses.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:09:10) [[Barack Obama]] would take complaints about the [[United States]] to the United Nations.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:45:47) [[Joel Finkelstein]] is the founder of the [[Network Contagion Research Institute]] (NCRI), whose partner organizations include the United Nations, the [[Anti-Defamation League]] ([[Anti-Defamation League|ADL]]), and [[George Soros]]'s [[Open Society Foundations]].

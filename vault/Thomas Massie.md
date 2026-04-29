@@ -140,3 +140,54 @@
 
 ### AF 2018-01-08 0081
 (18:26:11) [[Paul Nehlen]] described Thomas Massie of [[State of Kentucky|Kentucky]] as a principled congressman [[who]] ranks 439th in fundraising despite there being only 435 [[members of Congress]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:39:14.350) [[Marjorie Taylor Greene]] and Thomas Massie were previously criticized by [[Donald Trump]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:18:36) The [[Epstein Files]] were initially withheld by the administration but were publicly released after Thomas Massie forced their disclosure.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:06:58) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] has used his political capital to bludgeon people [[who]] critique him, such as [[Tucker Carlson]], [[Megyn Kelly|Meghan Kelly]], [[Marjorie Taylor Greene]], and Thomas Massie, thereby preventing them from taking the baton.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:52:30) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] is holding back progress on anti-war sentiment, and that people [[who]] are against the war, like [[Marjorie Taylor Greene]], Thomas Massie, and [[Tucker Carlson]], are being ostracized and destroyed by him.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:24:28:82) Thomas Massie stated that every [[Republican Party|Republican]] member of the [[U.S. Congress|House]] and [[U.S. Congress|Senate]] has an [[American Israel Public Affairs Committee|AIPAC]] handler or representative.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(04:46:15) Thomas Massie is a single congressman [[who]] can bring a handful of people with him to flip the government.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:13:18:00) [[Nicholas J. Fuentes]] reported that Thomas Massie has seen the unredacted files and knows all six names, and has asked the [[U.S. Department of Justice|DOJ]] to unredact them.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:13:27:00) [[Nicholas J. Fuentes]] stated that Thomas Massie has offered two names: "the billionaire [[Jews|Jewish]] benefactor of [[Jeffrey Epstein]]" and an Emirati billionaire.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:21:09:00) [[Nicholas J. Fuentes]] reported that Thomas Massie questioned [[Pam Bondi]] about failures including the release of victim details and redaction of famous names.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:21:14:00) [[Nicholas J. Fuentes]] quoted Thomas Massie as telling [[Pam Bondi]], "Literally, the worst thing you could do to the survivors, you did."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:21:30:00) [[Nicholas J. Fuentes]] reported that [[Pam Bondi]] said Thomas Massie has "[[Donald Trump|Trump]] derangement syndrome" and called him a "failed politician."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:37:28:00) [[Nicholas J. Fuentes]] stated that Thomas Massie and [[Democratic Party|Democrats]] are now interrogating [[Donald Trump]]'s attorney general, [[who]] is protecting the privileged, pedophiles, and elites.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:03:28.840) [[Nicholas J. Fuentes]] reported that Thomas Massie and [[Ro Khanna]] have pushed the [[U.S. Department of Justice|DOJ]] to release unredacted files, leading to a concession where members of [[U.S. Congress|Congress]] can view the files unredacted but under supervision, without electronic devices, and with 24-hour notice.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:04:27.270) [[Nicholas J. Fuentes]] reported that Thomas Massie and [[Ro Khanna]] have said that one of the six unnamed accomplices is a "very prominent [[person]]" and another is a "high ranking member of a foreign government."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:43:20) [[Nicholas J. Fuentes]] stated that he would burn down every [[Republican Party|Republican]] [[who]] was not Thomas Massie.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:10:00.000) [[Nicholas J. Fuentes]] named Thomas Massie for his role in getting the government to release the [[Jeffrey Epstein]] files.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:04:32) [[Donald Trump]] did not ask [[Jasmine Crockett]] or Thomas Massie for permission to use military force.

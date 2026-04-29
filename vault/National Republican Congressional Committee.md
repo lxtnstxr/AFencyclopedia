@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2021-03-08 0767
-(00:57:33) [[Nicholas J. Fuentes]] criticized the current [[Republican Party]] leadership, including the NRCC, [[Mitch McConnell]], and [[Mike Johnson|Kevin McCarthy]], for not learning any lessons after their losses in the [[Country of Georgia|Georgia]] [[Senate]] runoffs.
+(00:57:33) [[Nicholas J. Fuentes]] criticized the current [[Republican Party]] leadership, including the NRCC, [[Mitch McConnell]], and [[Kevin McCarthy]], for not learning any lessons after their losses in the [[Country of Georgia|Georgia]] [[Senate]] runoffs.
 
 
 ### AF 2018-03-13 0124

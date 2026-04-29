@@ -21,10 +21,10 @@
 (00:21:52) [[Nicholas J. Fuentes]] listed [[Ben Sasse]], [[John McCain]], [[Lindsey Graham]], [[Bill Kristol]], [[Paul Ryan]], and [[Neil Cavuto]] as figures [[who]] publicly criticized [[Donald Trump|Trump]]'s performance at the Helsinki press conference.
 
 ### AF 2018-07-12 0199
-(00:30:38) [[Donald Trump]] traveled from [[Brussels]] to [[City of London|London]] to meet with [[Theresa May]] and was scheduled to meet the [[United Kingdom|British]] monarch the following day before proceeding to [[Country of Scotland|Scotland]] and then Helsinki.
+(00:30:38) [[Donald Trump]] traveled from [[Brussels]] to [[London]] to meet with [[Theresa May]] and was scheduled to meet the [[United Kingdom|British]] monarch the following day before proceeding to [[Country of Scotland|Scotland]] and then Helsinki.
 
 ### AF 2018-07-12 0199
 (01:33:02) [[Donald Trump]] was scheduled to meet [[Vladimir Putin]] in Helsinki after a stop in [[Country of Scotland|Scotland]].
 
 ### AF 2018-07-11 0198
-(36:24:10) [[Donald Trump]]'s schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[City of London|London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in Helsinki, [[Finland]].
+(36:24:10) [[Donald Trump]]'s schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in Helsinki, [[Finland]].

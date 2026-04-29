@@ -73,3 +73,33 @@
 
 ### AF 2024-10-02 1398
 (06:13:29) [[Nicholas J. Fuentes]] cited Chicago's growing Mexican population as an example of non-assimilation, where they do not stand for the Pledge of Allegiance, do not learn English, and take over the city for Mexican Independence Day.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(22:55:06:00) [[Nicholas J. Fuentes]] argued that the [[Donald Trump|Trump]] administration claims it cannot restore order in Chicago or [[Minneapolis]] because it is too complicated, but it has half the military in the [[Middle East]] to topple another government for the benefit of [[Israel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:40:05.310) [[Nicholas J. Fuentes]] stated that Chicago was a "white working-class [[city]]" until 25 years ago, and that it was destroyed.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:08:05) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democrats]] had rallied and organized an organized resistance to deportations, which was visible in Chicago, [[Los Angeles]], [[New York]], and [[Minneapolis]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:08:24) [[Nicholas J. Fuentes]] reported that [[JD Vance]] said the unrest was only happening in [[Minneapolis]], which [[Nicholas J. Fuentes|Fuentes]] disputed, noting similar events in Chicago.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:44:17) [[Nicholas J. Fuentes]] stated that ethnic enclaves in major cities will continue to grow "until there's nothing left," citing [[London]], [[Paris]], [[Berlin]], [[Rome]], [[Madrid]], [[New York]], Chicago, and [[Los Angeles]] as already lost.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:12:14) [[Nicholas J. Fuentes]] stated that he does not perceive any positive change in Chicago under [[Donald Trump]]'s administration, noting the absence of [[U.S. Department of Defense|National Guard]] deployments, ongoing lawlessness, and continued control of the [[city]] by illegal immigrants.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:31:38) [[Nicholas J. Fuentes]] referenced a famous man in Chicago [[who]] goes around punching women in the face, noting the man is [[black]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:32:40) [[Nicholas J. Fuentes]] stated that in Chicago, the race of violent suspects is often not reported.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:50:08) [[Nicholas J. Fuentes]] described a major [[U.S. Immigration and Customs Enforcement|ICE]] deployment in Chicago called “Midway Blitz,” where demonstrators used their cars to follow, block, and box in [[U.S. Immigration and Customs Enforcement|ICE]] vehicles, sometimes while armed, which he argued is not a [[Concept|First Amendment]] protected protest.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:59:47) [[Nicholas J. Fuentes]] refused to name his favorite Italian beef spot in Chicago because he does not want to see any of his viewers there.

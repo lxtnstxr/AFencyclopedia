@@ -9,7 +9,7 @@
 (00:07:13) [[Nicholas J. Fuentes]] announced a collaborative stream scheduled for Saturday on [[Michael Alberto]]'s channel, featuring himself, [[Steven Crowder|Steven Vinyl]], [[Destiny]], Kai Clips, [[Turkey Tom]], and [[Augie RFC]].
 
 ### AF 2022-06-01 1005
-(01:23:14) [[Nicholas J. Fuentes]] announced he would participate in a multi-guest panel stream on Saturday at 11 a.m. Central [[Time]], hosted by [[Michael Alberto]] on [[Cozy.tv]], featuring [[Destiny|Destiny]], Kai Clips, [[Turkey Tom]], and [[Augie RFC]].
+(01:23:14) [[Nicholas J. Fuentes]] announced he would participate in a multi-guest panel stream on Saturday at 11 a.m. Central [[Time]], hosted by [[Michael Alberto]] on [[Cozy.tv]], featuring [[Destiny]], Kai Clips, [[Turkey Tom]], and [[Augie RFC]].
 
 ### AF 2022-02-12 0946
 (00:06:50) Special guests announced for [[AFPAC|AFPAC 3]] included [[Jada McNeil]], [[Timothy Gionet|Baked Alaska]], [[John Doyle]], [[Lauren Witzke]], [[Milo Yiannopoulos]], [[Gavin McInnes|Gavin McInnis]], [[Bryson Gray]], [[Michelle Malkin]], [[Jonathan Miller|John Miller]], [[Beardson Beardley]], [[Jared Taylor]], [[Lance Videos]], [[Tyler Russell]], [[Patrick Howley]], [[Cassandra Fairbanks]], Kai Clips, and [[Peter Brimelow]].

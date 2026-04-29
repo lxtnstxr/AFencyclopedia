@@ -36,7 +36,7 @@
 (01:46:57) [[Michael Bloomberg]] stated the [[United States Embassy in Jerusalem|U.S. embassy]] should not be moved back to [[Rishon LeZion|Tel Aviv]] after being moved to Jerusalem, as it was done without getting anything from the [[Israel|Israeli government]], and advocated for a two-state solution as the only answer.
 
 ### AF 2020-02-25 0554
-(01:58:52) On the issue of [[Israel]] and [[Gaza Strip|Palestine]], [[Michael Bloomberg]] stated the [[United States|US]] [[United States Embassy in Jerusalem|embassy]] should not be moved back from Jerusalem and advocated for a two-state solution, asking [[Israel]] to temper some settlements.
+(01:58:52) On the issue of [[Israel]] and [[Palestine]], [[Michael Bloomberg]] stated the [[United States|US]] [[United States Embassy in Jerusalem|embassy]] should not be moved back from Jerusalem and advocated for a two-state solution, asking [[Israel]] to temper some settlements.
 
 ### AF 2020-01-28 0534
 (00:37:36) [[Donald Trump]] stated that Jerusalem would remain [[Israel]]'s "undivided capital" under the peace plan, but that a future [[Palestinian]] state could have its capital in eastern Jerusalem.
@@ -78,7 +78,7 @@
 (09:37:00) The individual [[who]] accused [[Nicholas J. Fuentes]] of being an [[Iran|Iranian]] proxy was reportedly born in Jerusalem and is an [[Israel|Israeli]] Zionist.
 
 ### AF 2019-04-22 0371
-(01:39:21) The [[World Jewish Congress]], founded in [[Geneva]] in 1936, is an international federation of [[Jews|Jewish]] communities and organizations with headquarters in [[New York|New York City]] and offices in [[Brussels]], Jerusalem, [[Paris]], [[City of Moscow|Moscow]], [[Buenos Aires]], and [[Geneva]].
+(01:39:21) The [[World Jewish Congress]], founded in [[Geneva]] in 1936, is an international federation of [[Jews|Jewish]] communities and organizations with headquarters in [[New York|New York City]] and offices in [[Brussels]], Jerusalem, [[Paris]], [[Moscow]], [[Buenos Aires]], and [[Geneva]].
 
 ### AF 2019-04-09 0363
 (41:13:94) [[Donald Trump]]'s pro-[[Israel]] actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to Jerusalem, recognizing [[Israeli sovereignty over the Golan Heights]], affirming foreign aid, attacking Congresswoman [[Ilhan Omar]], and attending the [[AIPAC]] conference.
@@ -90,7 +90,7 @@
 (14:02:56) The [[Donald Trump|Trump]] administration successfully moved the [[United States Embassy in Jerusalem|U.S. embassy]] in [[Israel]] to Jerusalem and formally recognized Jerusalem as [[Israel]]'s capital.
 
 ### AF 2019-03-14 0347
-(24:32:30) [[Nicholas J. Fuentes]] listed policy victories for other groups during [[Donald Trump]]'s term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to Jerusalem, recognizing Jerusalem as [[Israel]]'s capital, withdrawing from the [[Iran]] nuclear deal, cutting aid to [[Gaza Strip|Palestine]], and changing language on the [[Israel|Golan Heights]].
+(24:32:30) [[Nicholas J. Fuentes]] listed policy victories for other groups during [[Donald Trump]]'s term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to Jerusalem, recognizing Jerusalem as [[Israel]]'s capital, withdrawing from the [[Iran]] nuclear deal, cutting aid to [[Palestine]], and changing language on the [[Israel|Golan Heights]].
 
 ### AF 2019-03-08 0343
 (01:01:50) [[Nicholas J. Fuentes]] listed [[Donald Trump]]'s pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to Jerusalem, recognizing Jerusalem as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the [[Palestinian Authority]].
@@ -126,13 +126,13 @@
 (00:30:58) The 1995 Jerusalem [[Embassy]] Act stated that Jerusalem should not be controlled by any one party and that everyone should have access to holy sites, a position rejecting [[Benjamin Netanyahu|Bibi]]'s policy of annexing East Jerusalem.
 
 ### AF 2018-05-14 0163
-(00:31:19) Official [[United States]] policy maintained that Jerusalem, while recognized as the capital of [[Israel]], should be shared between [[Israel]] and [[Gaza Strip|Palestine]].
+(00:31:19) Official [[United States]] policy maintained that Jerusalem, while recognized as the capital of [[Israel]], should be shared between [[Israel]] and [[Palestine]].
 
 ### AF 2018-05-14 0163
 (00:43:26) Some Orthodox [[Jews]] believe that rebuilding the Third Temple in Jerusalem would bring about the end of the world, a motivation cited for seeking to remove threats to [[Israel]].
 
 ### AF 2018-04-11 0143
-(01:18:00) [[Nicholas J. Fuentes]] suggested that the only foreign intervention he would support would be to liberate early [[Christianity|Christian]] sites like Jerusalem, [[Antioch]], and [[City of Istanbul|Constantinople]].
+(01:18:00) [[Nicholas J. Fuentes]] suggested that the only foreign intervention he would support would be to liberate early [[Christianity|Christian]] sites like Jerusalem, [[Antioch]], and [[Constantinople]].
 
 ### AF 2018-04-04 0138
 (15:54:970) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s foreign policy decisions, such as recognizing Jerusalem as the capital of [[Israel]], were influenced by the need to court donors like [[Sheldon Adelson]] and the [[Charles Koch|Koch brothers]] for the 2018 midterm elections.
@@ -180,7 +180,7 @@
 (01:18:44) [[Nicholas J. Fuentes]] reported that [[Donald Trump]]'s decision to move the [[United States Embassy in Jerusalem|U.S. embassy]] to Jerusalem and recognize it as [[Israel|Israel's]] capital would effectively legitimize [[Israel]]'s annexation of East Jerusalem, breaking with 50 years of [[United States|American]] precedent.
 
 ### AF 2017-12-05 0064
-(01:20:48) [[Nicholas J. Fuentes]] noted that the foreign ministers of [[Germany]], the [[Europe|European Union]], and [[France]] all criticized [[Donald Trump]]'s move to recognize Jerusalem as [[Israel|Israel's]] capital as counterproductive.
+(01:20:48) [[Nicholas J. Fuentes]] noted that the foreign ministers of [[Germany]], the [[European Union]], and [[France]] all criticized [[Donald Trump]]'s move to recognize Jerusalem as [[Israel|Israel's]] capital as counterproductive.
 
 ### AF 2017-12-04 0063
 (29:24:66) [[Donald Trump]] was rumored to be preparing an announcement to recognize Jerusalem as the official capital of [[Israel]], a move warned against by [[Mahmoud Abbas]], [[Jim Jordan|Jordan]], and [[Arab Republic of Egypt|Egypt]].

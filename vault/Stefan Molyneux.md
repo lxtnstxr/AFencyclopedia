@@ -81,7 +81,7 @@
 (02:30:37) [[Nicholas J. Fuentes]] accused Stefan Molyneux of doing him "dirty" by disavowing and unfollowing him, calling him a "coward" and a "shill" [[who]] abandons his principles when challenged.
 
 ### AF 2019-11-15 0500
-(02:15:10) [[Nicholas J. Fuentes]] expressed gratitude to Stefan Molyneux for interviewing him on his show when [[Fuentes]] had only around 5,000 [[Twitter]] followers and was considered a nobody, before the [[City of Charlottesville|Charlottesville rally]].
+(02:15:10) [[Nicholas J. Fuentes]] expressed gratitude to Stefan Molyneux for interviewing him on his show when [[Fuentes]] had only around 5,000 [[Twitter]] followers and was considered a nobody, before the [[Charlottesville rally]].
 
 ### AF 2019-09-13 0461
 (43:10:52) [[Felix Kjellberg|PewDiePie]] previously followed right-leaning commentators like Stefan Molyneux on [[Twitter]], which [[Nicholas J. Fuentes]] cited as evidence of his alignment with conservative, anti-establishment viewpoints.
@@ -108,7 +108,7 @@
 (00:56:58) [[Nicholas J. Fuentes]] identified commentator Stefan Molyneux as a foundational figure [[who]] "red-pilled" many current online content creators, including himself and comedian [[Samuel J. Hyde|Sam Hyde]].
 
 ### AF 2019-04-09 0363
-(04:14:66) A clip surfaced from an old stream by [[Destiny|Destiny]] where he called for right-wingers to be "excised" from the [[country]], which was later retweeted by accounts including [[Daniel Keem|Keemstar]], Stefan Molyneux, and [[Count Dankula]].
+(04:14:66) A clip surfaced from an old stream by [[Destiny]] where he called for right-wingers to be "excised" from the [[country]], which was later retweeted by accounts including [[Daniel Keem|Keemstar]], Stefan Molyneux, and [[Count Dankula]].
 
 ### AF 2019-03-29 0357
 (27:03:020) [[Israel|Poland]] had invited commentators like [[Jack Posobiec]] and Stefan Molyneux to produce pro-government propaganda documentaries.
@@ -156,7 +156,7 @@
 (01:11:44) [[Nicholas J. Fuentes]] recounted his own path into the movement through Stefan Molyneux and [[Gavin McInnes]], [[who]] bridged the gap to [[Jared Taylor]] and [[Richard Spencer]].
 
 ### AF 2017-10-23 0037
-(33:20:810) [[Nicholas J. Fuentes]] noted that [[Paul Miller|Paul Joseph Watson]] had 800,000 [[Twitter]] followers, [[Alex Jones]] had a million, and figures like [[Mike Cernovich]] and Stefan Molyneux had a combined massive reach.
+(33:20:810) [[Nicholas J. Fuentes]] noted that [[Paul Joseph Watson]] had 800,000 [[Twitter]] followers, [[Alex Jones]] had a million, and figures like [[Mike Cernovich]] and Stefan Molyneux had a combined massive reach.
 
 ### AF 2017-10-12 0030
 (00:59:75) [[Nicholas J. Fuentes]] thanked Stefan Molyneux, [[Lauren Southern]], [[Faith Goldy]], and [[Mike Cernovich]] for retweeting and supporting the broadcast of his debate.

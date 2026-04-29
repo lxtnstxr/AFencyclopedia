@@ -28,3 +28,15 @@
 
 ### AF 2019-08-15 0441
 (03:06:580) [[Donald Trump]] publicly considered the possibility of the [[United States]] purchasing Greenland from [[Denmark]], a proposal [[Nicholas J. Fuentes]] supported as a strategic acquisition of territory.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:55:46) [[Nicholas J. Fuentes]] characterized the [[Donald Trump|Trump]] administration as a series of half-finished projects: the Liberation Day tariffs (which were walked back), the invasion of Greenland (which was backed down from), and the war in [[Iran]] (which is now facing a potential humiliating withdrawal).
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:01:20) [[Nicholas J. Fuentes]] summarized the administration's flaws by stating that [[Donald Trump|Trump]] "chickens out" on everything, from Greenland and tariffs to the [[Strait of Hormuz]], mass deportations, and the border wall.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:18:09) [[Donald Trump]] has no credibility with his threats, as shown by his past failures to follow through on ultimatums with [[Russian Federation|Russia]], [[China]], Greenland, and [[North Korea]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:08:54) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] chickens out on everything, including trade with [[China]] and [[Russian Federation|Russia]], and his policies on Greenland and [[Europe]].

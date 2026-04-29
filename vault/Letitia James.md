@@ -41,3 +41,6 @@
 
 ### AF 2020-08-06 0656
 (39:44:810) [[The New York Times]] reported that Letitia James's lawsuit against the [[National Rifle Association|NRA]] sought the [[organization]]'s dissolution due to alleged pervasive corruption, including the misuse of millions of dollars by executives like [[Wayne LaPierre]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:31:36) [[Nicholas J. Fuentes]] accused [[Donald Trump|Trump]] of "weaponizing [[the DOJ]] against [[James Comey]], [[Barack Obama]], [and] Letitia James" while inviting "a brutal retaliation" from the radical left.

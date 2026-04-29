@@ -45,4 +45,4 @@
 (02:12:52) [[Nicholas J. Fuentes]] announced he had unfollowed [[Doug Mastriano]] and Keemstar on social media.
 
 ### AF 2019-04-09 0363
-(04:14:66) A clip surfaced from an old stream by [[Destiny|Destiny]] where he called for right-wingers to be "excised" from the [[country]], which was later retweeted by accounts including Keemstar, [[Stefan Molyneux]], and [[Count Dankula]].
+(04:14:66) A clip surfaced from an old stream by [[Destiny]] where he called for right-wingers to be "excised" from the [[country]], which was later retweeted by accounts including Keemstar, [[Stefan Molyneux]], and [[Count Dankula]].

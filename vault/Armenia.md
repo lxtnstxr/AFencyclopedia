@@ -76,3 +76,6 @@
 
 ### AF 2018-04-24 0151
 (01:00:01) [[Nicholas J. Fuentes]] noted that Armenian Genocide Remembrance Day occurs on April 24th, a tragedy perpetrated by the [[Turks]] and [[Kurdistan|Kurds]] in the early 20th century that is not officially recognized by the [[United States]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], Armenia, [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].

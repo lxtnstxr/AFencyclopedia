@@ -21,7 +21,7 @@
 (01:08:07:330) Following the [[October 7th Attack]], Alex Karp brought the entire board of [[Palantir Technologies]] to [[Israel]], announcing that venture capital and private equity would unite behind [[Israel]], and stated his "biggest fear" was "[[Christianity|Christian]] nationalists" gaining power in the [[United States]].
 
 ### AF 2024-10-23 1411
-(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], [[Peter Thiel]], Alex Karp, [[Thomas Klingenstein]], [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Sheldon Adelson|Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
+(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], [[Peter Thiel]], Alex Karp, [[Thomas Klingenstein]], [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
 
 ### AF 2024-10-23 1411
 (01:26:09:390) [[Peter Thiel]], whose net worth is half derived from [[Palantir Technologies]] (co-founded with Alex Karp), gave $15 million to [[JD Vance]] and helped him become a senator, and [[Thomas Klingenstein]] backs the [[Claremont Institute]] and [[Compact Magazine]].
@@ -64,3 +64,18 @@
 
 ### AF 2024-06-24 1344
 (52:32:73) [[Jacob Helberg]] is a senior policy advisor to Alex Karp, the [[Jewish]] CEO of [[Palantir Technologies]], a major intelligence contractor with the [[United States]] and [[Israel]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:30:47) [[Jacob Helberg]] was identified as the first [[person]] to contribute to [[Donald Trump|Trump]]'s campaign from that world, is married to [[Keith Rabois]], and is the assistant to Alex Karp.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:34:33) [[Peter Thiel]] worked with Alex Karp, [[who]] was to become an [[Artificial Intelligence|AI]] czar in the administration.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:16:57:63) [[Nicholas J. Fuentes]] described [[Jews|Jewish]] nationalists like [[Joe Lonsdale]], Alex Karp, and [[Bari Weiss]] as having a story of enmity with the Persians, Babylonians, [[Rome|Romans]], [[Catholic Church|Catholic]] monarchs, Tsars, and [[Germany|Germans]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:11:07) [[Nicholas J. Fuentes]] stated that the deployment to [[Minneapolis]] led to the deaths of two protesters, [[Renee Good]] and Alex Pretti.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:15:00) [[Nicholas J. Fuentes]] argued that the deaths of Alex Pretti and [[Renee Good]] created a public backlash that gave [[Democratic Party|Democrats]] "political capital" to deny funding for [[U.S. Department of Homeland Security|Homeland Security]].

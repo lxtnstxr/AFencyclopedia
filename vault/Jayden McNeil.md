@@ -6,7 +6,7 @@
 
 
 ### AF 2020-11-25 0725
-(02:08:41) [[Nicholas J. Fuentes]] announced he would be in [[City of Phoenix|Phoenix]], [[Arizona]] at the state [[capitol]] on Saturday with figures including [[Steven Crowder|Steve Franzen]], [[Vince James]], Jayden McNeil, [[Josh Lacash]], and [[Timothy Gionet|Baked Alaska]] for a protest rally.
+(02:08:41) [[Nicholas J. Fuentes]] announced he would be in [[Phoenix]], [[Arizona]] at the state [[capitol]] on Saturday with figures including [[Steven Crowder|Steve Franzen]], [[Vince James]], Jayden McNeil, [[Josh Lacash]], and [[Timothy Gionet|Baked Alaska]] for a protest rally.
 
 ### AF 2020-10-30 0713
 (01:28:06) [[Nicholas J. Fuentes]] announced he would host a marathon election night stream starting at 6:00 PM Central [[Time]] on Tuesday, featuring scheduled appearances by [[Scott Greer]], [[Steve Franson]], [[Jake Lloyd]], [[Vince James]], and Jayden McNeil.

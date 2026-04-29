@@ -37,3 +37,9 @@
 
 ### AF 2018-11-02 0275
 (00:29:37) [[Nicholas J. Fuentes]] referenced an article [[Ben Shapiro]] wrote on March 12, 2003, criticizing [[Patrick Buchanan|Patrick J. Buchanan]] and The American Conservative magazine for opposing the [[Iraq War]] and discussing the [[Israel lobby]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:20:04.250) [[Nicholas J. Fuentes]] referenced [[Kurt Mills]], editor of The American Conservative, and [[Tucker Carlson]] as being bullish on the [[Donald Trump|Trump]] administration because they thought their associates in [[the Pentagon]] and [[U.S. National Security Council|National Security Council]] would steer it in a more "based" direction.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:40:51.190) [[Nicholas J. Fuentes]] referenced [[Kurt Mills]] of The American Conservative as someone [[who]] assured the audience that the [[United States]] would not go to war with [[Iran]] because he knew people in [[the Pentagon]] and [[U.S. National Security Council|National Security Council]].

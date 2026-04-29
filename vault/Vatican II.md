@@ -24,7 +24,7 @@
 (01:24:02:20) [[Nicholas J. Fuentes]] dismissed Sedevacantist theories that Vatican II was a false council run by the [[American Jewish Committee]], arguing it defeats the purpose of [[Catholic Church|Catholicism]] to reject papal authority.
 
 ### AF 2017-10-06 0026
-(00:29:30) [[Nicholas J. Fuentes]] declared [[Pope Francis]] a heretic and a Marxist, alleging his papacy resulted from a [[Freemason]] infiltration of the [[Pope Francis|Catholic Church]] during Vatican II.
+(00:29:30) [[Nicholas J. Fuentes]] declared [[Pope Francis]] a heretic and a Marxist, alleging his papacy resulted from a [[Freemason]] infiltration of the [[Catholic Church]] during Vatican II.
 
 ### AF 2017-10-06 0026
-(01:20:44) A viewer named "Spoiler Alert" noted that since Vatican II, the official position of the [[Pope Francis|Catholic Church]] has been that [[Jews]] do not need to believe in [[Jesus Christ]] to go to heaven, which [[Nicholas J. Fuentes]] agreed was heresy.
+(01:20:44) A viewer named "Spoiler Alert" noted that since Vatican II, the official position of the [[Catholic Church]] has been that [[Jews]] do not need to believe in [[Jesus Christ]] to go to heaven, which [[Nicholas J. Fuentes]] agreed was heresy.

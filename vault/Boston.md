@@ -30,7 +30,7 @@
 (02:25:17:55) [[Nicholas J. Fuentes]]'s favorite songs by the band Boston are "Foreplay/Long [[Time]]," "Peace of Mind," and "Rock and Roll Band."
 
 ### AF 2022-10-20 1082
-(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[City of Chicago|Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[City of Miami|Miami]], [[Baltimore]], Boston, [[St. Louis]], [[Cleveland]], [[City of Philadelphia|Philadelphia]], and [[City of Minneapolis|Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
+(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[Miami]], [[Baltimore]], Boston, [[St. Louis]], [[Cleveland]], [[Philadelphia]], and [[Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
 
 ### AF 2022-05-19 0997
 (07:27:10) [[Nicholas J. Fuentes]] recounted seeing [[Martin Shkreli]] give a talk at [[Suffolk University]] in Boston in 2017, where they briefly disagreed on the [[state]] of [[China]]'s economy.
@@ -42,7 +42,7 @@
 (27:27:38) [[Nicholas J. Fuentes]] cited the example of billionaire [[Sheldon Adelson]], who was born in Boston but was buried in [[Israel]] with an [[Israel|Israeli]] flag on his coffin, with [[Benjamin Netanyahu]] meeting the casket on the tarmac, as evidence of an "[[Israel first]]" allegiance. (27:34:78)
 
 ### AF 2020-09-16 0682
-(08:25:380) Following the [[City of Miami|Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[City of Phoenix|Phoenix]] and Boston with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
+(08:25:380) Following the [[Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[Phoenix]] and Boston with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
 
 ### AF 2020-07-27 0649
 (01:47:19) [[Nicholas J. Fuentes]] confirmed that Boston is segregated, with mostly [[Ireland|Irish]] in the [[south]], [[Italian Republic|Italians]] in the north, and [[blacks]] in [[Roxbury]] and [[Mattapan]], where most crime occurs.
@@ -60,10 +60,10 @@
 (40:23:60) Statues of [[Christopher Columbus]] were damaged or toppled by protesters in [[Minnesota]], Boston, and [[Richmond]], [[State of Virginia|Virginia]].
 
 ### AF 2020-03-27 0574
-(01:47:44) When asked his favorite [[city]] besides [[City of Chicago|Chicago]], [[Nicholas J. Fuentes]] stated he really likes [[Manchester]] and Boston, enjoys [[New England]], but hates [[Washington D.C.|DC]] and [[City of Miami|Miami]].
+(01:47:44) When asked his favorite [[city]] besides [[Chicago]], [[Nicholas J. Fuentes]] stated he really likes [[Manchester]] and Boston, enjoys [[New England]], but hates [[Washington D.C.|DC]] and [[Miami]].
 
 ### AF 2020-02-24 0553
-(01:27:48) [[Nicholas J. Fuentes]] stated that his schedule had been nonstop since a [[City of Miami|Miami]] event on September 28th, including appearances at Politicon, in [[State of Florida|Florida]], at SAS, in [[Iowa]] for a speech, on the Milo show, in [[City of Phoenix|Phoenix]], in Boston, and during the "Kruyper Wars."
+(01:27:48) [[Nicholas J. Fuentes]] stated that his schedule had been nonstop since a [[Miami]] event on September 28th, including appearances at Politicon, in [[State of Florida|Florida]], at SAS, in [[Iowa]] for a speech, on the Milo show, in [[Phoenix]], in Boston, and during the "Kruyper Wars."
 
 ### AF 2020-02-05 0540
 (01:57:17) [[Nicholas J. Fuentes]], when asked his favorite Italian restaurant in Boston, said he did not go often but recalled visiting [[Mike's Pastry]] in the North End.
@@ -75,7 +75,7 @@
 (01:24:34) [[Nicholas J. Fuentes]], [[who]] did not graduate undergraduate, offered no specific advice to a viewer attending law school in Boston but noted the [[city]]'s transportation and mediocre food scene.
 
 ### AF 2019-09-04 0454
-(01:57:10) [[Nicholas J. Fuentes]] defended his critique of Boston's food, calling its pizza trash and its burgers mediocre compared to [[City of Chicago|Chicago]]'s.
+(01:57:10) [[Nicholas J. Fuentes]] defended his critique of Boston's food, calling its pizza trash and its burgers mediocre compared to [[Chicago]]'s.
 
 ### AF 2019-06-12 0405
 (00:46:28) [[Nicholas J. Fuentes]] recalled the night of [[Donald Trump]]'s 2016 election victory, describing it as "pure ecstasy" and detailing how he and fellow [[Donald Trump|Trump]] supporters celebrated in Boston, visiting multiple election viewing parties and facing hostility from [[Hillary Clinton|Clinton]] supporters.
@@ -84,7 +84,7 @@
 (01:00:45) [[Nicholas J. Fuentes]] recommended the book "*Against Our Better Judgment*" by [[Alison Weir]] as a resource on [[Israel]], having seen her speak at a church in Boston where she discussed [[AIPAC]] and the [[PNAC]].
 
 ### AF 2019-02-11 0329
-(02:10:20) [[Nicholas J. Fuentes]] expressed a pro-Union, anti-Confederate stance, stating his allegiance was with the industrial North and cities like [[City of Chicago|Chicago]], [[New York|New York City]], and Boston.
+(02:10:20) [[Nicholas J. Fuentes]] expressed a pro-Union, anti-Confederate stance, stating his allegiance was with the industrial North and cities like [[Chicago]], [[New York|New York City]], and Boston.
 
 ### AF 2019-02-06 0326
 (06:19:38) [[State of Virginia|Virginia]] Lieutenant Governor [[Justin Fairfax]] was accused by Dr. [[Vanessa Tyson]] of forcing her to perform oral sex on him at the 2004 [[Democratic Party|DNC]] convention in Boston.
@@ -111,4 +111,10 @@
 (01:19:00) [[Nicholas J. Fuentes]] does not like the weather or rude people in Boston (calling them "massholes") but misses exploring the [[city]].
 
 ### AF 2017-11-03 0046
-(01:04:00) [[Nicholas J. Fuentes]] announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[City of Chicago|Chicago]], Boston, [[New York]], and [[Los Angeles]], with the goal of protesting daily until [[Donald Trump]] and [[Mike Pence]] were removed from power.
+(01:04:00) [[Nicholas J. Fuentes]] announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[Chicago]], Boston, [[New York]], and [[Los Angeles]], with the goal of protesting daily until [[Donald Trump]] and [[Mike Pence]] were removed from power.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:13:13:00) *[[Jacobin Magazine]]* looked at more than 1,000 documents from the latest trove and identified more than 60 instances between September 2010 and March 2019 in which [[Ehud Barak]] and [[Jeffrey Epstein]] arranged to meet face-to-face, including in [[New York|New York City]], [[State of Florida|Florida]], Boston, [[Paris]], and [[Little St. James]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(04:18:45) [[Nicholas J. Fuentes]] stated that he used to eat at the [[Cheesecake Factory]] in Boston but now avoids chains, preferring "good restaurants."

@@ -14,7 +14,7 @@
 (09:44:980) Rob Smith, who identifies as [[United States|America]]'s favorite gay [[black]] veteran, is a paid brand ambassador for [[Turning Point USA]].
 
 ### AF 2023-12-20 1265
-(17:10:800) During [[Turning Point USA]]'s AmericaFest in [[City of Phoenix|Phoenix]], a group of young men confronted Rob Smith, chanting "[[United States|America]] First" and homophobic slurs, which led to him leaving the event.
+(17:10:800) During [[Turning Point USA]]'s AmericaFest in [[Phoenix]], a group of young men confronted Rob Smith, chanting "[[United States|America]] First" and homophobic slurs, which led to him leaving the event.
 
 ### AF 2023-12-20 1265
 (17:44:180) Following the confrontation at AmericaFest, Rob Smith described the incident as a hate crime on [[Twitter]] and was subsequently interviewed by [[Warner Bros. Discovery|CNN]] in primetime.

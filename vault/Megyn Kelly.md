@@ -176,3 +176,72 @@
 
 ### AF 2018-03-12 0123
 (00:01:02) [[Vladimir Putin]] participated in an interview with Megyn Kelly over the weekend, during which he addressed allegations of [[Russian]] interference in the [[United States]] election.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:37:21.430) Earlier today, [[Donald Trump]] made a post on [[Cozy.tv|Truth Social]] criticizing [[Alex Jones]], Megan Kelly, [[Tucker Carlson]], and [[Candace Owens]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:38:07.370) [[Donald Trump]] published a 500-word post on [[Cozy.tv|Truth Social]], condemning major [[Israel]]-critical and anti-war commentators like [[Alex Jones]], [[Candace Owens]], [[Tucker Carlson]], and Megan Kelly, whom he referred to as "bankrupt," "crazy," and by other derogatory terms.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:29.710) All the individuals criticized by [[Donald Trump]] in his [[Cozy.tv|Truth Social]] post, including [[Tucker Carlson]], [[Candace Owens]], [[Alex Jones]], and Megan Kelly, had previously voted for him.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:45:58.180) *[[The Wall Street Journal]]* reported that [[Donald Trump]] labeled [[Tucker Carlson]], Megyn Kelly, [[Candace Owens]], and [[Alex Jones]] as "losers and stupid people" in a 500-word [[Cozy.tv|Truth Social]] post on Thursday, accusing them of seeking publicity and saying anything for it.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:46:52.730) [[Donald Trump]]'s 500-word post on [[Cozy.tv|Truth Social]] launched a "devastating" attack on [[Alex Jones]], Megyn Kelly, [[Candace Owens]], [[Tucker Carlson]], and [[Marjorie Taylor Greene|Marjorie Greene]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:47:17.360) [[Donald Trump]] stated that [[Tucker Carlson]], Megyn Kelly, [[Candace Owens]], and [[Alex Jones]] had "low IQs" and were "stupid people" [[who]] had been "fighting" him for years.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:47:51.790) [[Donald Trump]] asserted that [[Tucker Carlson]], Megyn Kelly, [[Candace Owens]], and [[Alex Jones]] had been "thrown off television" and "lost their shows" because "nobody cares about them."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:02.590) [[Donald Trump]] claimed that [[Tucker Carlson]], Megyn Kelly, [[Candace Owens]], and [[Alex Jones]] were "nutjobs" and "troublemakers" [[who]] would "say anything necessary for some free and cheap publicity."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:13.080) [[Donald Trump]] declared that the views of [[Tucker Carlson]], Megan Kelly, [[Candace Owens]], and [[Alex Jones]] were "the opposite of [[Donald Trump|MAGA]]."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:46.300) [[Donald Trump]] criticized Megyn Kelly for her "nastily" posed question about [[Rosie O'Donnell]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:03.830) Megyn Kelly reportedly "hates" [[Nicholas J. Fuentes]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:18.610) [[Alex Jones]], Megyn Kelly, [[Tucker Carlson]], and [[Candace Owens]] consistently supported and voted for [[Donald Trump]] for ten years.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:01:46.720) [[Tucker Carlson]], Megan Kelly, and [[Candace Owens]], along with [[Alex Jones]], encouraged voters to support [[Donald Trump]] in 2024.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:02:29.960) Megan Kelly stated she would continue to vote for [[Republican Party|Republicans]] in the midterms, even if [[Donald Trump]] were to initiate a nuclear attack on [[Iran]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:05:59.420) [[Donald Trump]] is damaging the [[Donald Trump|MAGA]] movement by using [[Cozy.tv|Truth Social]] to declare that supporters of [[Mark Levin]] or his war in [[Iran]] are not [[Donald Trump|MAGA]], and that [[Tucker Carlson]], Megan Kelly, [[Alex Jones]], [[Candace Owens]], and [[Marjorie Taylor Greene]] are "idiots."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:13:03.940) [[Donald Trump]], [[who]] advocated for "Golden Age, [[America First]], No New Wars, Mass Deportations," published a 500-word criticism of Megyn Kelly, [[Candace Owens]], [[Tucker Carlson]], [[Marjorie Taylor Greene]], and [[Alex Jones]] because they opposed a war with [[Iran]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:39.040) As of 2026, [[Donald Trump]]'s [[Donald Trump|MAGA]] movement advocates for war with [[Iran]], opposing the release of the [[Jeffrey Epstein|Epstein]] files, and supports figures like [[Mark Levin]], [[Laura Loomer]], and [[Lindsey Graham]] over [[Tucker Carlson]], [[Candace Owens]], Megyn Kelly, and [[Alex Jones]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:18:40) Key [[White House]] allies, including [[Marjorie Taylor Greene|Marjorie Greene]], [[Tucker Carlson]], and Megyn Kelly, openly criticize [[Donald Trump]] on a daily basis.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:28:45) Megyn Kelly, while critical of [[Donald Trump]] and [[Israel]], consistently affirmed her commitment to voting [[Republican Party|Republican]] regardless of circumstances.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:29:14) Megyn Kelly publicly declared her intention to "vote [[Republican Party|Republican]] every [[time]]," even if [[Donald Trump]] were to use nuclear weapons against [[Iran]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:56:24) Megyn Kelly and [[Piers Morgan]] are also explicitly confronting [[American Israel Public Affairs Committee|Israel First]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:06:58) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] has used his political capital to bludgeon people [[who]] critique him, such as [[Tucker Carlson]], Meghan Kelly, [[Marjorie Taylor Greene]], and [[Thomas Massie]], thereby preventing them from taking the baton.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:09:28) [[Nicholas J. Fuentes]] stated that [[Ben Shapiro]] gave a speech calling out [[Tucker Carlson]], [[Candace Owens]], [[Daryl Cooper]], [[Steve Bannon]], Megyn Kelly, [[Andrew Tate]], and [[Alex Jones]].

@@ -101,19 +101,19 @@
 (01:14:15) Major figures in conservative media such as [[Tucker Carlson]], Sean Hannity, and [[Ben Shapiro]] have [[Twitter]] followings in the range of a couple million, while [[Kanye West]] had approximately 15 million followers at the [[time]].
 
 ### AF 2018-03-30 0135
-(00:41:18) [[Nicholas J. Fuentes]] commented on [[Ann Coulter]]'s fluctuating support for [[Donald Trump]], suggesting she may be channeling public frustration with unmet campaign promises or strategically criticizing [[Donald Trump|the president]] to motivate him, as [[Donald Trump|Trump]] follows her on [[Twitter]] and listens to her along with Sean Hannity and [[Fox News]].
+(00:41:18) [[Nicholas J. Fuentes]] commented on [[Ann Coulter]]'s fluctuating support for [[Donald Trump]], suggesting she may be channeling public frustration with unmet campaign promises or strategically criticizing [[the president]] to motivate him, as [[Donald Trump|Trump]] follows her on [[Twitter]] and listens to her along with Sean Hannity and [[Fox News]].
 
 ### AF 2018-03-26 0131
 (00:36:35) [[Nicholas J. Fuentes]] stated that commentators like [[Mark Levin]], [[Glenn Beck]], [[Alex Jones]], and Sean Hannity had been vindicated in their warnings that gun control advocates would use children to push for firearm confiscation, as seen at the "March for Our Lives" rally.
 
 ### AF 2018-02-16 0110
-(00:41:40) [[Nicholas J. Fuentes]] stated that [[Steven Crowder|Steve Bannon]] told Sean Hannity the political battle would be won "every day for the next 20 years, every election year for the next 20 years."
+(00:41:40) [[Nicholas J. Fuentes]] stated that [[Steve Bannon]] told Sean Hannity the political battle would be won "every day for the next 20 years, every election year for the next 20 years."
 
 ### AF 2018-01-09 0082
 (02:14:32) In September 2017, a story emerged from [[Chuck Schumer]]'s office that [[Donald Trump]] had reached a deal with [[Nancy Pelosi]] and [[Chuck Schumer]] to protect [[Deferred Action for Childhood Arrivals|DACA]] recipients without funding a border wall, which sparked significant backlash from commentators like Sean Hannity and [[Ann Coulter]].
 
 ### AF 2017-12-13 0069
-(00:28:27) Following the sexual misconduct allegations against [[Roy Moore]], Sean Hannity stated the decision was up to the people of [[Alabama]], and [[Steven Crowder|Steve Bannon]] said he would "bury" Moore if the allegations were true.
+(00:28:27) Following the sexual misconduct allegations against [[Roy Moore]], Sean Hannity stated the decision was up to the people of [[Alabama]], and [[Steve Bannon]] said he would "bury" Moore if the allegations were true.
 
 ### AF 2017-11-22 0056
 (02:23:34) [[Nicholas J. Fuentes]] stated that commentators like [[Ann Coulter]], [[Rush Limbaugh]], and Sean Hannity remain relevant despite the shift to new media, due to their millions of followers, though their traditional mediums are fading.
@@ -126,3 +126,12 @@
 
 ### AF 2017-09-14 0010
 (00:14:46) [[Nicholas J. Fuentes]] states that figures like [[Ann Coulter]] and Sean Hannity criticized [[Donald Trump]] over his [[Deferred Action for Childhood Arrivals|DACA]] tweets, with [[Ann Coulter]] even calling for his impeachment.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:40:03) Sean Hannity and [[Mark Levin]] retain access to [[Donald Trump]], unlike [[Alex Jones]] after his 2015 interview, according to [[Nicholas J. Fuentes]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:21:07) [[JD Vance]] told Sean Hannity after receiving the [[vice]] presidential nomination that the [[United States|U.S]]. needed to “bomb [[Iran]].”
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:50:37) In his first interview as the VP nominee with Sean Hannity, [[JD Vance]] said, "We have to hit [[Iran]] hard. We have to punch them in the face."

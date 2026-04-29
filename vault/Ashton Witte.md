@@ -4,7 +4,7 @@
 ### AF 2018-08-09 0218
 (00:10:00) [[Nicholas J. Fuentes]] hosted a discussion with guest Ashton Witte on the censorship of [[Alex Jones]] and [[Alex Jones|InfoWars]].
 
-(00:14:00) [[Nicholas J. Fuentes]] noted that Ashton Witte had previously appeared on streams with [[James Allsup|James Alsup]] and was assisted by [[Jake Lloyd]] in [[City of Portland|Portland]].
+(00:14:00) [[Nicholas J. Fuentes]] noted that Ashton Witte had previously appeared on streams with [[James Allsup|James Alsup]] and was assisted by [[Jake Lloyd]] in [[Portland]].
 (02:30:00) Ashton Witte advocated for a "bill of rights for the internet" as a form of sensible regulation to protect public control over digital expression.
 (05:42:00) Ashton Witte described the goal of groups like [[Bilderberg]] as the creation of a "New World Order" with one government, religion, culture, and currency.
 (09:23:00) Ashton Witte argued that mass illegal immigration is driven by political parties seeking a more easily manipulated electorate.

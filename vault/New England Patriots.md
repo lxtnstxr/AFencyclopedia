@@ -13,7 +13,7 @@
 (03:47:70) [[Nicholas J. Fuentes]] was in [[Boston]] in 2017 when the New England Patriots won the Super Bowl and was recognized by a fan while celebrating in the streets.
 
 ### AF 2018-02-05 0101
-(01:02:16) The [[Philadelphia Eagles]] defeated the New England Patriots in the Super Bowl, a game followed by riots in [[City of Philadelphia|Philadelphia]].
+(01:02:16) The [[Philadelphia Eagles]] defeated the New England Patriots in the Super Bowl, a game followed by riots in [[Philadelphia]].
 
 ### AF 2018-02-05 0101
 (03:38:00) The [[Philadelphia Eagles]] were one of the only teams in the [[National Football League|NFL]] without a single player kneeling during the national anthem, unlike the New England Patriots [[who]] had multiple incidents.

@@ -45,4 +45,4 @@
 (00:12:05) [[Nicholas J. Fuentes]] argued that the political right in [[United States|America]], [[France]], the [[United Kingdom]], and [[Italian Republic|Italy]] is characterized by internal turmoil between insurgent factions and their own establishments, citing the Conservatives not implementing Brexit and [[Marian Le Pen]] fighting center-right candidates as examples.
 
 ### AF 2017-10-23 0037
-(04:11:830) [[Generation Identity]]'s banner used a concise, defensive message of "Defend [[City of London|London]], Stop Islamization" to appeal to a broad audience, including potential members of the Conservative Party and [[UK Independence Party|UKIP]].
+(04:11:830) [[Generation Identity]]'s banner used a concise, defensive message of "Defend [[London]], Stop Islamization" to appeal to a broad audience, including potential members of the Conservative Party and [[UK Independence Party|UKIP]].

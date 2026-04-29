@@ -70,7 +70,7 @@
 (01:16:59) Stephen Miller, [[Sheldon Adelson]], and [[Jared Kushner]] were cited by a viewer as figures [[who]] would frame a counter-movement as supremacist aggression.
 
 ### AF 2020-05-08 0601
-(00:33:45) Stephen Miller, an architect of [[Donald Trump]]'s immigration agenda, told conservative groups on an April conference call that [[Donald Trump|the president's]] action to curtail family immigration could pave the way for more permanent limits.
+(00:33:45) Stephen Miller, an architect of [[Donald Trump]]'s immigration agenda, told conservative groups on an April conference call that [[the president's]] action to curtail family immigration could pave the way for more permanent limits.
 
 ### AF 2020-01-27 0533
 (00:02:58) [[Nicholas J. Fuentes]] suggested Stephen Miller or [[Ken Cuccinelli]] might be the architect behind a series of recent immigration regulations from the [[Donald Trump]] administration.
@@ -121,7 +121,7 @@
 (00:19:14) Stephen Miller stated that the [[White House]] was systematically reviewing all authorities to crack down on illegal immigration and abuse of the legal immigration system.
 
 ### AF 2019-02-13 0331
-(01:51:00) [[Nicholas J. Fuentes]] stated that the firing of [[Steven Crowder|Steve Bannon]] was a substantial loss for the [[Donald Trump|Trump]] administration, leaving Stephen Miller as the only remaining prominent advocate for the [[United States|America]] First agenda in [[the White House]].
+(01:51:00) [[Nicholas J. Fuentes]] stated that the firing of [[Steve Bannon]] was a substantial loss for the [[Donald Trump|Trump]] administration, leaving Stephen Miller as the only remaining prominent advocate for the [[United States|America]] First agenda in [[the White House]].
 
 ### AF 2019-02-06 0326
 (03:13:90) [[Donald Trump]]'s speechwriters, including Stephen Miller, worked for weeks closely with him to tailor the [[State of Illinois|State]] of the Union address.
@@ -130,7 +130,7 @@
 (15:47:40) Stephen Miller was one of the speechwriters [[who]] worked closely with [[Donald Trump]] on the [[State of Illinois|State]] of the Union address.
 
 ### AF 2019-02-05 0325
-(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that [[Nicholas J. Fuentes]] characterized as a major disappointment and a strategic failure. (00:59:82) The address, which [[Nicholas J. Fuentes]] analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject [[Nicholas J. Fuentes]] identified as [[Donald Trump|the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on [[Tucker Carlson]]'s program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to [[Nicholas J. Fuentes]]. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but [[Nicholas J. Fuentes]] noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for [[Israel]]. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which [[Nicholas J. Fuentes]] interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the [[Iran]] nuclear deal and framed [[Iran]]'s threats against [[Israel]] alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which [[Nicholas J. Fuentes]] characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) [[Nicholas J. Fuentes]] suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not Stephen Miller, given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Israel]]. (58:38:24) [[Nicholas J. Fuentes]] speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
+(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that [[Nicholas J. Fuentes]] characterized as a major disappointment and a strategic failure. (00:59:82) The address, which [[Nicholas J. Fuentes]] analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject [[Nicholas J. Fuentes]] identified as [[the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on [[Tucker Carlson]]'s program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to [[Nicholas J. Fuentes]]. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but [[Nicholas J. Fuentes]] noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for [[Israel]]. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which [[Nicholas J. Fuentes]] interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the [[Iran]] nuclear deal and framed [[Iran]]'s threats against [[Israel]] alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which [[Nicholas J. Fuentes]] characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) [[Nicholas J. Fuentes]] suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not Stephen Miller, given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Israel]]. (58:38:24) [[Nicholas J. Fuentes]] speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
 
 ### AF 2019-01-08 0308
 (05:16:00) [[Donald Trump]]'s [[White House|Oval Office]] address lasted approximately eight minutes and was reportedly written by his speechwriter Stephen Miller.
@@ -142,10 +142,10 @@
 (00:32:50) [[Nicholas J. Fuentes]] identified [[Donald Trump]] and Stephen Miller as the only two people in [[Washington D.C.|Washington, D.C.]] [[who]] were serious about addressing immigration.
 
 ### AF 2018-09-05 0233
-(00:14:55) The anonymous [[The New York Times]] op-ed positioned figures like Stephen Miller and [[Steven Crowder|Steve Bannon]] as [[Donald Trump]] loyalists, in contrast to establishment "guardians" within the administration.
+(00:14:55) The anonymous [[The New York Times]] op-ed positioned figures like Stephen Miller and [[Steve Bannon]] as [[Donald Trump]] loyalists, in contrast to establishment "guardians" within the administration.
 
 ### AF 2018-08-20 0222
-(00:55:42) [[Daryl Cooper|Darren Beattie]], a [[Donald Trump]] speechwriter [[who]] worked with Stephen Miller, was fired from [[the White House]] after [[Warner Bros. Discovery|CNN]] reported his attendance at the H.L. Mencken Club conference where [[Richard Spencer]] was also present.
+(00:55:42) [[Darren Beattie]], a [[Donald Trump]] speechwriter [[who]] worked with Stephen Miller, was fired from [[the White House]] after [[Warner Bros. Discovery|CNN]] reported his attendance at the H.L. Mencken Club conference where [[Richard Spencer]] was also present.
 
 ### AF 2018-06-29 0191
 (37:24:99) [[Nicholas J. Fuentes]] expressed strong hope that Stephen Miller would remain as [[Donald Trump]]'s immigration advisor, praising him as the most consistent and principled member of [[Donald Trump|Trump's]] cabinet.
@@ -205,7 +205,103 @@
 (33:44:34) Stephen Miller, a [[White House]] advisor, was responsible for scuttling an earlier [[Deferred Action for Childhood Arrivals|DACA]] deal in August by releasing a list of demands that included cutting chain migration, ending the visa lottery, and building the border wall.
 
 ### AF 2017-10-24 0038
-(08:30:34) [[Nicholas J. Fuentes]] suggested that Stephen Miller's role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with [[Donald Trump]]'s own opposition, and that [[Donald Trump|the president's]] actions serviced the political ascendancy of [[Steven Crowder|Steve Bannon]] and [[Roy Moore]] in [[Alabama]].
+(08:30:34) [[Nicholas J. Fuentes]] suggested that Stephen Miller's role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with [[Donald Trump]]'s own opposition, and that [[the president's]] actions serviced the political ascendancy of [[Steve Bannon]] and [[Roy Moore]] in [[Alabama]].
 
 ### AF 2017-08-28 0003
-(09:42:26) [[Nicholas J. Fuentes]] stated that Stephen Miller was the last [[person]] in the [[Donald Trump|Trump]] [[White House]], besides [[Donald Trump|the president]] himself, [[who]] still believed in the "[[America First]]" revolution, following the ousting of [[Sebastian Gorka]] and [[Steven Crowder|Steve Bannon]].
+(09:42:26) [[Nicholas J. Fuentes]] stated that Stephen Miller was the last [[person]] in the [[Donald Trump|Trump]] [[White House]], besides [[the president]] himself, [[who]] still believed in the "[[America First]]" revolution, following the ousting of [[Sebastian Gorka]] and [[Steve Bannon]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:53:49) [[Nicholas J. Fuentes]] stated that after the "kids in cages" controversy, [[Donald Trump]] called Stephen Miller and ended the family separation policy.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:54:51) [[Nicholas J. Fuentes]] argued that in the second term, unlike the first, the personnel are not the problem; Stephen Miller has way more power, and there are good people in [[U.S. Department of Homeland Security|DHS]] and [[U.S. Immigration and Customs Enforcement|ICE]] [[who]] want the deportations to happen but are running into the obstacle of [[Donald Trump]] himself.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:56:10) [[Nicholas J. Fuentes]] brought up the example of Secretary of Agriculture [[Brooke Rollins]], [[who]] represents big agriculture interests and is against deportations and migrant farm labor, while [[Kristi Noem]] and Stephen Miller are for them.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:19:04) [[Nicholas J. Fuentes]] identified Stephen Miller as an embodiment of "kosher nativism."
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:19:28) [[Nicholas J. Fuentes]] argued that Stephen Miller agitates for war with [[Iran]] while his wife appears on [[Piers Morgan]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:29:55:22) Stephen Miller is [[Jews|Jewish]] and married to his [[Jews|Jewish]] wife, with his children by a rabbi [[who]] works with the [[United States|U.S]]. ambassador to [[Israel]], [[David Friedman]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:52:25:44) [[Nicholas J. Fuentes]] criticized Stephen Miller, saying he needs to assimilate because he is an "arrogant [[Jews|Jew]]" with his [[Jews|Jewish]] wife and [[Jews|Jewish]] kids [[who]] talk about how [[Jews|Jewish]] and pro-[[Israel]] they are.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:25:29.510) [[Nicholas J. Fuentes]] argued that political analysis must focus on the anatomy of the power structure and the true seat of power, rather than sentiment or feelings about [[Donald Trump]] or Stephen Miller.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:55:11.500) [[Nicholas J. Fuentes]] reported that [[Donald Trump]], Stephen Miller, and [[Brooke Rollins]] were devising a plan to give H2A visas to illegal immigrants working on farms, effectively an amnesty or "carve out."
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:10:18.390) [[Nicholas J. Fuentes]] stated that [[U.S. Immigration and Customs Enforcement|ICE]] was accidentally deporting people from their jobs at the beginning of the [[Donald Trump|Trump administration]], but [[Donald Trump]] told Stephen Miller to stop because he "got the call" from asset managers, banks, and [[The Wall Street Journal|Wall Street]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:56:53) [[Nicholas J. Fuentes]] noted that Stephen Miller has to live on a military base due to death threats.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:13:42) [[Nicholas J. Fuentes]] blamed [[Tom Homan]], Stephen Miller, [[Kristi Noem]], and [[Donald Trump]] for the failure.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:19:40) [[Nicholas J. Fuentes]] called Stephen Miller a "[[Jews|Jew]]" [[who]] does not care about [[United States|Americans]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:29:42) [[Nicholas J. Fuentes]] called for the ritual humiliation of everyone [[who]] posted a Stephen Miller meme, calling Stephen Miller a "[[Jews|Zionist]] [[Jews|Jew]]" [[who]] is smug, arrogant, flippant, and loyal to [[Israel]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:30:16) [[Nicholas J. Fuentes]] called people [[who]] trust Stephen Miller "cucks" and "idiots."
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:30:28) [[Nicholas J. Fuentes]] mocked the idea of Stephen Miller being a "base [[Jews|Jew]]" [[who]] will "stick up for [[us]] stupid white people."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:14:07.630) [[Nicholas J. Fuentes]] criticized Stephen Miller and his wife for saying the [[Jeffrey Epstein|Epstein]] files are a "[[Democratic Party|Democrat]] hoax," asking "I wonder why they're saying that."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:10:53) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] told aides he was not comfortable with how far Stephen Miller had gone on immigration enforcement, according to the [[The Wall Street Journal|Wall Street Journal]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:13:10) [[Nicholas J. Fuentes]] described Stephen Miller as playing the "blame game" by saying he only called [[Alex Jones|Alex]] Pretty a terrorist because [[U.S. Department of Homeland Security|DHS]] said so, and that he told [[Christine Ohm]] to change the rules of engagement but she did not listen.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:43:27) Stephen Miller is retweeting [[Lindsey Graham]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:43:40) [[Nicholas J. Fuentes]] questioned why Stephen Miller and [[JD Vance]] cannot "get the job done" on immigration policy.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:44:05) [[Nicholas J. Fuentes]] sarcastically referred to Stephen Miller as "our base [[Jews|Jew]]" and [[JD Vance]] as "our base halo."
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:45:10) [[Nicholas J. Fuentes]] stated that Stephen Miller was piling on [[Kristi Noem]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:45:31) [[Nicholas J. Fuentes]] mocked Stephen Miller, calling him "our number one [[Jews|Jew]]" and questioning his absence from the public debate.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:46:30) [[Nicholas J. Fuentes]] accused Stephen Miller of moving behind the scenes to blame [[Kristi Noem]] and make her the fall girl for the shooting.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:46:45) [[Nicholas J. Fuentes]] quoted [[Politico]] reporting that Stephen Miller was distancing himself from [[U.S. Department of Homeland Security|DHS]] and claiming his labeling of [[Alex Jones|Alex]] Pretty as a terrorist was based on bad intelligence from the agency.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:49:21) [[Nicholas J. Fuentes]] referred to Stephen Miller as a [[Jews|Jew]], stating that the audience "trusted a [[Jews|Jew]]" and got what they deserved.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:53:31) [[Nicholas J. Fuentes]] described Stephen Miller as a craven, unscrupulous, political opportunist and a [[Jews|Jew]] [[who]] does not care about mass deportations.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:03:58) Stephen Miller and [[Tom Homan]] implemented a family separation policy at the border under the [[Donald Trump]] administration.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:05:05) Some argued that [[Barack Obama]] also built the cages, but [[Donald Trump]] called Stephen Miller and said they needed to shut down the family separation policy because they were "getting killed" in the media.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:06:30) [[Nicholas J. Fuentes]] stated that the same cast of characters is in place for the second [[Donald Trump|Trump]] administration, with [[Tom Homan]], Stephen Miller, and [[Kristi Noem]] replacing [[Kirstjen Nielsen]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:09:13) [[Nicholas J. Fuentes]] predicted that [[Donald Trump]] would throw [[Kristi Noem]] and [[Tom Homan]] under the bus while Stephen Miller would likely keep his job.

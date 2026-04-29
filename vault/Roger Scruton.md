@@ -9,7 +9,7 @@
 (00:55:50) [[Nicholas J. Fuentes]] argued against the "trad meme" and figures like Roger Scruton, criticizing the focus on aesthetics like ugly buildings and loud music instead of substantive political issues.
 
 ### AF 2018-02-20 0112
-(04:04:26) [[Nicholas J. Fuentes]] listed his top philosophers as [[Friedrich Nietzsche|Nietzsche]], [[Thomas Aquinas]], [[Aristotle]], [[Plato]], [[Thomas Hobbes]], [[Rousseau]], [[City of St. Augustine|St. Augustine]], [[Kant]], and Roger Scruton.
+(04:04:26) [[Nicholas J. Fuentes]] listed his top philosophers as [[Friedrich Nietzsche|Nietzsche]], [[Thomas Aquinas]], [[Aristotle]], [[Plato]], [[Thomas Hobbes]], [[Rousseau]], [[St. Augustine]], [[Kant]], and Roger Scruton.
 
 ### AF 2018-01-26 0095
 (48:49:50) [[Nicholas J. Fuentes]] recommended studying foundational Western philosophers like [[Plato]] and [[Aristotle]], as well as medieval thinkers like [[Augustine]] and [[Aquinas]], and modern conservatives like Roger Scruton.

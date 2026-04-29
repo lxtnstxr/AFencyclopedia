@@ -9,4 +9,4 @@
 (00:35:48) [[Nicholas J. Fuentes]] cited Wayne LaPierre's [[Conservative Political Action Conference|CPAC]] speech, which argued that existing gun regulations are not being properly enforced, such as states failing to submit criminal records to background check databases.
 
 ### AF 2018-03-09 0122
-(00:03:47) Wayne LaPierre, the head of the [[National Rifle Association|NRA]], used the term "[[Europe|European]]-style socialist" at [[Conservative Political Action Conference|CPAC]] in reference to figures like [[George Soros]] and the leadership of the [[Europe|European Union]] and [[European Central Bank]].
+(00:03:47) Wayne LaPierre, the head of the [[National Rifle Association|NRA]], used the term "[[Europe|European]]-style socialist" at [[Conservative Political Action Conference|CPAC]] in reference to figures like [[George Soros]] and the leadership of the [[European Union]] and [[European Central Bank]].

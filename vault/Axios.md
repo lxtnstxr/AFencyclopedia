@@ -81,7 +81,7 @@
 (00:54:23) In an interview with Axios, [[Donald Trump|Trump]] stated the [[United States|U.S]]. would draw down troops in [[Afghanistan]] to about 8,000 and then to 4,000-5,000 by the November election, in accordance with a deal brokered with the [[Afghanistan|Taliban]] in February.
 
 ### AF 2020-07-01 0632
-(02:04:07) [[Nicholas J. Fuentes]] transitioned to discussing a potential "white pill" regarding [[Donald Trump]], citing an Axios report that [[Donald Trump|the president]] was souring on [[Jared Kushner]]'s political advice.
+(02:04:07) [[Nicholas J. Fuentes]] transitioned to discussing a potential "white pill" regarding [[Donald Trump]], citing an Axios report that [[the president]] was souring on [[Jared Kushner]]'s political advice.
 
 ### AF 2020-07-01 0632
 (02:06:37) The Axios report, citing three sources, stated [[Donald Trump]] regretted following [[Jared Kushner]]'s advice on issues like criminal justice reform and would stick closer to his own instincts going forward.
@@ -132,4 +132,55 @@
 (02:17:56) The Axios news outlet reported that [[Donald Trump]] was preparing significant new tariffs on [[China]].
 
 ### AF 2017-12-01 0062
-(00:31:18) Axios reported that [[White House|President]] [[Donald Trump]] would announce within four days that [[City of Jerusalem|Jerusalem]] is the capital of [[Israel]].
+(00:31:18) Axios reported that [[White House|President]] [[Donald Trump]] would announce within four days that [[Jerusalem]] is the capital of [[Israel]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:12:03) An Axios report stated that [[JD Vance]] was preparing to take on the assignment of steering [[United States|U.S]]. efforts to end the war, and that he was expected to be the top [[United States|U.S]]. negotiator in potential peace talks.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:16) An administration official told Axios that the narrative that the [[Iran|Iranians]] saw [[JD Vance]] as inclined to cut a deal was an [[Israel|Israeli]] op against him.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:10:08) [[Nicholas J. Fuentes]] cited reports from the [[The Wall Street Journal|Wall Street Journal]] and Axios that a group of [[Middle East|Middle Eastern]] countries were acting as intermediaries between the [[United States]] and [[Iran]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:28:19.640) [[Nicholas J. Fuentes]] reported on an exclusive from Axios that [[White House]] Deputy Chief of Staff [[James Blair]] told [[Republican Party|House Republicans]] at their annual retreat never to use the phrase "mass deportations" because it is a loser issue.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:56:18.000) [[Nicholas J. Fuentes]] quoted an Axios report stating that the [[United States]] asked [[Israel]] to halt strikes on [[Iran]]'s energy infrastructure.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:11) [[Nicholas J. Fuentes]] quoted an Axios report stating that [[Donald Trump]] spoke by phone with [[Kurdish]] leaders in [[Iraq]] on Sunday after the bombing campaign began.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:27) [[Nicholas J. Fuentes]] reported that the Axios article said the calls were the culmination of months of behind-the-scenes lobbying by [[Prime Minister Netanyahu]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:17:43) [[Barak Ravid]] and Axios have been reporting on the buildup to war with [[Iran]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:23:11) [[United States|The United States]] will be in a position to launch an all-out attack on [[Iran]] as soon as Saturday, according to information from Axios and other administration sources.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:05:27.300) [[Nicholas J. Fuentes]] criticized the writing of an Axios article about the files, saying "some brown [[person]] wrote this" and "what monkey wrote this?"
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:59:14) Axios published an exclusive report stating that [[Donald Trump]]'s administration officials were thinking about walking back the mass deportation policy.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:00:03) [[Nicholas J. Fuentes]] argued the Axios report indicated that the administration was reviewing polling data showing the mass deportation policy was unpopular and that they were turning against the idea of massive deportations and against [[Donald Trump]] himself.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:19:19) Axios reported that [[Donald Trump]]’s team reviewed private [[Republican Party|GOP]] polling that showed support for his immigration policies falling.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:20:02) Axios reported that the public is turning against mass deportations and [[U.S. Immigration and Customs Enforcement|ICE]] ([[U.S. Immigration and Customs Enforcement]]) because of social media coverage of the raids.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:21:22) Axios reported that [[Donald Trump]] advisors were quietly talking about recalibrating [[the White House]]'s approach to mass deportations.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:21:49) Axios reported that the worries within [[Donald Trump]]'s brain trust were the first signs of internal second-guessing of his [[U.S. Immigration and Customs Enforcement|ICE]] ([[U.S. Immigration and Customs Enforcement]]) tactics.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:22:47) A top [[Donald Trump]] advisor told Axios that the [[White House|President]] wants mass deportations but doesn't like the way it looks.

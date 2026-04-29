@@ -25,3 +25,6 @@
 
 ### AF 2021-09-09 0872
 (00:40:41) Data from the U.S. Department of Health and Human Services showed nearly 79% of all ICU beds in the [[United States]] were full, with over 30% occupied by [[COVID-19]] patients.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:24:33:00) [[Palantir Technologies|Palantir]] software has been introduced to various government departments and agencies under the second [[Donald Trump]] administration, including the [[Treasury Department]], the [[Social Security|Social Security Administration]], and Health and Human Services.

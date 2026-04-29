@@ -115,7 +115,7 @@
 (24:48:96) [[Nicholas J. Fuentes]] asserted that immunity passports, which would require proof of COVID-19 vaccination for participation in society, are being pushed by the World Economic Forum, [[World Health Organization]], and [[Bill Gates]] as part of a "Great Reset."
 
 ### AF 2021-02-04 0755
-(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as [[Bank of America Corporation|Bank of America]], the [[Federal Bureau of Investigation]], [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the [[United Nations]], the [[World Health Organization]], the [[Centers for Disease Control and Prevention]], the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the World Economic Forum, and the [[Europe|European Union]].
+(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as [[Bank of America Corporation|Bank of America]], the [[Federal Bureau of Investigation]], [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the [[United Nations]], the [[World Health Organization]], the [[Centers for Disease Control and Prevention]], the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the World Economic Forum, and the [[European Union]].
 
 ### AF 2021-01-21 0747
 (00:49:05) [[Nicholas J. Fuentes]] stated that the World Economic Forum and global leaders advocated for a "Great Reset" and to "build back better" following the pandemic, increasing government control over economic development.
@@ -197,3 +197,15 @@
 
 ### AF 2018-01-26 0095
 (17:41:85) [[Donald Trump]] attended the World Economic Forum in Davos, [[Switzerland]], where he gave a speech on trade and the economy and met with business leaders and politicians.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:27:34) [[Larry Fink]], the [[Jews|Jewish]] head of [[BlackRock]], replaced Klaus Schwab as the head of the World Economic Forum.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:19:20.650) [[Nicholas J. Fuentes]] observed that elites at Davos, such as Klaus Schwab, [[Larry Fink]], and [[Hillary Clinton]], are now saying there might be too many migrants, not because they were "red-pilled," but because the [[United States]] and [[United Kingdom]] are beginning to see technological unemployment.Here is the chronological knowledge log derived from the monologue of the video transcript.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:28) [[Ronald Lauder]] is the chair of the [[World Jewish Congress]] and the World Economic Forum, succeeding [[Edgar Bronfman Sr.]]
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:33:53) [[Ronald Lauder]] is the head of the World Economic Forum, having succeeded Klaus Schwab.

@@ -116,7 +116,7 @@
 (00:30:08) The factions [[Israel]] was fighting—Hamas, [[Hezbollah]], the [[Houthis]], and militias in [[Iraq]] and [[Syria]]—are non-state actors backed by [[Iran]].
 
 ### AF 2023-12-27 1267
-(00:42:54) [[Nicholas J. Fuentes]] claimed the Hamas attack on October 7th was a "gift" to [[Benjamin Netanyahu|Bibi]], providing the fear and anxiety that drives the [[Labor Party|Likud]] agenda and giving him a mandate for right-wing maximalist aims.
+(00:42:54) [[Nicholas J. Fuentes]] claimed the Hamas attack on October 7th was a "gift" to [[Benjamin Netanyahu|Bibi]], providing the fear and anxiety that drives the [[Likud]] agenda and giving him a mandate for right-wing maximalist aims.
 
 ### AF 2023-12-23 1266
 (00:20:05) The war in the [[Gaza Strip]] was described as having four distinct phases: the initial Hamas attack on October 7th, the [[Israel]]i retaliation and blockade, the ground invasion beginning October 27th, and a humanitarian pause from November 24th to December 4th.
@@ -173,7 +173,7 @@
 (00:27:46) [[Israel]] knew about the Hamas attack on October 7th up to a year in advance, possessing detailed plans of the operation.
 
 ### AF 2023-12-05 1257
-(00:51:38) [[William Ackman|Bill Ackman]], an Ashkenazi [[Jewish]] billionaire hedge fund manager and [[Harvard University|Harvard]] alumnus, financed a campaign using electronic billboard trucks to dox pro-[[Gaza Strip|Palestine]] students at [[Harvard University]] who signed a letter blaming [[Israel]] for the Hamas attack.
+(00:51:38) [[William Ackman|Bill Ackman]], an Ashkenazi [[Jewish]] billionaire hedge fund manager and [[Harvard University|Harvard]] alumnus, financed a campaign using electronic billboard trucks to dox pro-[[Palestine]] students at [[Harvard University]] who signed a letter blaming [[Israel]] for the Hamas attack.
 
 ### AF 2023-12-05 1257
 (01:54:50) [[Bernard Marcus]], the [[Jewish]] billionaire founder of [[Home Depot]] and a donor to [[Turning Point USA]], wrote a letter endorsing [[Donald Trump]] over [[Ron DeSantis]] in the [[Republican Party|Republican]] primary, arguing [[Donald Trump|Trump]] would have prevented the Hamas attack on [[Israel]].
@@ -323,10 +323,10 @@
 (00:12:54) [[Nicholas J. Fuentes]] cited instances of doctors being fired for supporting Hamas and a [[The Wall Street Journal|Wall Street]] billionaire funding a campaign to dox and blacklist [[Harvard University|Harvard]] students who condemned [[Israel]].
 
 ### AF 2023-10-23 1240
-(00:13:19) Governments in [[United Kingdom|England]] and [[Government of France|France]] began deporting individuals for expressing support for Hamas.
+(00:13:19) Governments in [[United Kingdom|England]] and [[France]] began deporting individuals for expressing support for Hamas.
 
 ### AF 2023-10-23 1240
-(00:16:49) [[Rishi Sunak]]'s government in the [[United Kingdom]] and [[Emmanuel Macron]]'s government in [[Government of France|France]] announced plans to deport [[Islam|Muslims]] who support Hamas.
+(00:16:49) [[Rishi Sunak]]'s government in the [[United Kingdom]] and [[Emmanuel Macron]]'s government in [[France]] announced plans to deport [[Islam|Muslims]] who support Hamas.
 
 ### AF 2023-10-23 1240
 (00:18:22) [[Nicholas J. Fuentes]] argued that [[Joe Biden]]'s administration, which he characterized as generally ineffective, swiftly mobilized aircraft carriers and civil society against Hamas when [[Israel]] was attacked.
@@ -386,7 +386,7 @@
 (01:32:52) A theory posited that [[Israel]]'s intelligence failure regarding the Hamas attack was deliberate, providing a pretext for a long-desired military solution in [[Gaza Strip|Gaza]] and a potential wider regional war with [[Iran]].
 
 ### AF 2023-10-14 1235
-(00:04:00) [[Nicholas J. Fuentes]] reported that [[Government of France|France]] had banned pro-[[Gaza Strip|Palestine]] demonstrations and the [[United Kingdom]] was considering deporting individuals who praised Hamas.
+(00:04:00) [[Nicholas J. Fuentes]] reported that [[France]] had banned pro-[[Palestine]] demonstrations and the [[United Kingdom]] was considering deporting individuals who praised Hamas.
 
 ### AF 2023-10-14 1235
 (00:22:49) [[Nicholas J. Fuentes]] described [[Israel]]'s strategy in [[Gaza Strip|Gaza]] as "collective punishment," holding the entire civilian population responsible for the actions of Hamas.
@@ -395,7 +395,7 @@
 (00:25:39) [[Nicholas J. Fuentes]] stated that 70% of [[Palestinians]] in the [[Gaza Strip]] are descendants of refugees displaced during the 1948 Nakba, and that groups like Hamas and [[Hezbollah]] emerged from this generational suffering.
 
 ### AF 2023-10-14 1235
-(01:03:08) [[Nicholas J. Fuentes]] reported that [[Government of France|France]] banned all pro-[[Gaza Strip|Palestine]] protests and the [[United Kingdom]] planned to deport foreign students and workers who praised Hamas or committed "anti-Semitic acts."
+(01:03:08) [[Nicholas J. Fuentes]] reported that [[France]] banned all pro-[[Palestine]] protests and the [[United Kingdom]] planned to deport foreign students and workers who praised Hamas or committed "anti-Semitic acts."
 
 ### AF 2023-10-14 1235
 (01:08:31) [[Nicholas J. Fuentes]] noted that [[Jewish]] organizations were major patrons of the [[Black Lives Matter|BLM]] movement until [[Black Lives Matter|BLM]] expressed support for Hamas, after which they sought to distance themselves and condemn the movement.
@@ -452,7 +452,7 @@
 (00:04:46) [[Nicholas J. Fuentes]] characterized the Hamas invasion of [[Israel]] as a "very weird situation" with many unanswered questions.
 
 ### AF 2023-10-10 1231
-(00:10:15) [[Nicholas J. Fuentes]] explained that [[Gaza Strip|Palestine]] is not a coherent state, but consists of the [[Gaza Strip]], ruled by Hamas, and the [[Gaza Strip|West Bank]], partially ruled by the more moderate [[Palestinian Authority]].
+(00:10:15) [[Nicholas J. Fuentes]] explained that [[Palestine]] is not a coherent state, but consists of the [[Gaza Strip]], ruled by Hamas, and the [[Gaza Strip|West Bank]], partially ruled by the more moderate [[Palestinian Authority]].
 
 ### AF 2023-10-10 1231
 (00:11:17) On Saturday, Hamas invaded [[Israel]] from the [[Gaza Strip]] by land, air, and sea, seizing towns, taking hostages, and killing people, which totally caught [[Israel]] off guard.
@@ -485,7 +485,7 @@
 (00:58:00) [[Iran]], a major funder of Hamas, favored [[China]] and opposed the [[United States|U.S]].-backed trade corridor, making the attack a "master stroke" to thwart its adversaries.
 
 ### AF 2023-10-10 1231
-(01:03:10) [[Nicholas J. Fuentes]] theorized that the [[Benjamin Netanyahu|Netanyahu]] government may have allowed the Hamas invasion to unify the [[country]], regain his grip on power, and become a war hero, giving him a pretext to do extraordinary things domestically and in [[Gaza Strip|Palestine]].
+(01:03:10) [[Nicholas J. Fuentes]] theorized that the [[Benjamin Netanyahu|Netanyahu]] government may have allowed the Hamas invasion to unify the [[country]], regain his grip on power, and become a war hero, giving him a pretext to do extraordinary things domestically and in [[Palestine]].
 
 ### AF 2023-10-10 1231
 (01:05:47) Prior to the invasion, [[Joe Biden|Biden]] unfroze $6 billion in [[Iran|Iranian]] assets in [[South Korea]] as part of a prisoner swap, a move criticized by conservatives who claimed the money funded Hamas, though the [[State Department]] said the funds had not yet left [[Qatar]].
@@ -515,7 +515,7 @@
 (02:48:47) [[Nicholas J. Fuentes]] stated that [[Benjamin Netanyahu|Netanyahu]] would likely benefit from the crisis sparked by the Hamas attack, as a crisis of that magnitude grants a leader significant power and opportunity with "all upside."
 
 ### AF 2023-10-10 1231
-(02:59:56) [[Nicholas J. Fuentes]] stated that the [[Europe|European Union]]'s decision not to suspend aid to the [[Palestinian Authority]] was because it is distinct from Hamas and the [[EU]] is generally less captured by Zionist influence than the [[United States]].
+(02:59:56) [[Nicholas J. Fuentes]] stated that the [[European Union]]'s decision not to suspend aid to the [[Palestinian Authority]] was because it is distinct from Hamas and the [[EU]] is generally less captured by Zionist influence than the [[United States]].
 
 ### AF 2023-10-10 1231
 (03:00:30) [[Nicholas J. Fuentes]] dismissed the narrative that a recent [[United States|U.S.]]-[[Iran]] prisoner swap funded the Hamas attack as "cartoonish" misinformation designed to create a pretext for directing violence against [[Iran]].
@@ -551,7 +551,7 @@
 (00:40:55) [[Nicholas J. Fuentes]] contended that if [[Germany]] openly admits to running hundreds of provocative agent accounts, the [[United States]] likely operates a far more extensive and sophisticated version of the same program across platforms like [[Telegram]], [[Twitter]], [[Gab]], and True Social.
 
 ### AF 2022-09-22 1065
-(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], Right Wing Watch, [[Jared Holt]], [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[City of Charlottesville|Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
+(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], Right Wing Watch, [[Jared Holt]], [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
 
 ### AF 2022-07-07 1027
 (00:16:19) Right Wing Watch and [[The Jerusalem Post]] published articles criticizing [[Nicholas J. Fuentes]] for stating that [[Jewish]] [[Supreme Court]] justices stood in the way of overturning *Roe v. Wade*.
@@ -749,7 +749,7 @@
 (01:26:29) The Right Wing Watch article stated [[Caleb Hull]]'s professional history included work for [[Turning Point USA]], [[Independent Journal Review]], and being named to the [[Washington Examiner]]'s "30 Under 30" list alongside [[Candace Owens]] and [[Tommy Lahren]].
 
 ### AF 2020-06-08 0616
-(50:57:61) [[Nicholas J. Fuentes]] acknowledged that [[George Soros]]'s Open Society Foundation gave exorbitant amounts of money to [[Black Lives Matter]] and that [[Antifa]] was present at protests in strongholds like [[City of Portland|Portland]] and [[Washington D.C.|Washington, D.C.]].
+(50:57:61) [[Nicholas J. Fuentes]] acknowledged that [[George Soros]]'s Open Society Foundation gave exorbitant amounts of money to [[Black Lives Matter]] and that [[Antifa]] was present at protests in strongholds like [[Portland]] and [[Washington D.C.|Washington, D.C.]].
 
 ### AF 2020-06-08 0616
 (01:51:42) A viewer referenced a 2012 Vice article predicting a new 50-year cycle of violence in the [[United States]] beginning around 2020.
@@ -797,7 +797,7 @@
 (50:09:48) Fox News published an article reporting that [[Nicholas J. Fuentes]] had "fired back" at critics including [[Nikki Haley]], [[Meghan McCain]], [[Megyn Kelly]], and [[Michael Avenatti]] over the confrontation with [[Ben Shapiro]].
 
 ### AF 2019-12-23 0517
-(51:08:48) Fox News initially described [[Nicholas J. Fuentes]] as a "conservative activist" in its article about the [[Ben Shapiro]] confrontation, but later updated the article to describe him as a "far-right activist" and added background about [[City of Charlottesville|Charlottesville]] and [[United States Holocaust Memorial Museum|Holocaust]] denial allegations.
+(51:08:48) Fox News initially described [[Nicholas J. Fuentes]] as a "conservative activist" in its article about the [[Ben Shapiro]] confrontation, but later updated the article to describe him as a "far-right activist" and added background about [[Charlottesville]] and [[United States Holocaust Memorial Museum|Holocaust]] denial allegations.
 
 ### AF 2019-11-18 0501
 (01:26:20) [[Nicholas J. Fuentes]] speculated that someone from [[Turning Point USA]], [[Young America's Foundation|YAF]], or [[Jared Holt]] of Right Wing Watch had been archiving his private content for years to be used in a coordinated political hit job.
@@ -833,10 +833,10 @@
 (00:09:40) [[Nicholas J. Fuentes]] characterized the bans from [[Peter Thiel|PayPal]], Venmo, and Stripe as a form of financial censorship targeting his political views, noting these three companies collectively handled approximately 97% of online payment gateways.
 
 ### AF 2019-09-19 0465
-(12:00:64) Fox News obtained videos showing mob-style attacks in downtown [[City of Minneapolis|Minneapolis]] where vulnerable victims were brutally beaten for valuables like cell phones.
+(12:00:64) Fox News obtained videos showing mob-style attacks in downtown [[Minneapolis]] where vulnerable victims were brutally beaten for valuables like cell phones.
 
 ### AF 2019-09-19 0465
-(14:59:64) [[Nicholas J. Fuentes]] argued that mainstream conservative opinion, as seen on Fox News and from [[Turning Point USA]], attributes rising crime in cities like [[City of Minneapolis|Minneapolis]] solely to [[Democratic Party|Democratic]] policy, not racial demographics.
+(14:59:64) [[Nicholas J. Fuentes]] argued that mainstream conservative opinion, as seen on Fox News and from [[Turning Point USA]], attributes rising crime in cities like [[Minneapolis]] solely to [[Democratic Party|Democratic]] policy, not racial demographics.
 
 ### AF 2019-09-13 0461
 (31:00:78) [[Felix Kjellberg|PewDiePie]]'s decision to rescind his donation to the [[Anti-Defamation League|ADL]] was reported by major media outlets like The Verge and trended on social media, whereas his initial pledge received little coverage.

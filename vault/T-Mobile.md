@@ -6,7 +6,7 @@
 
 
 ### AF 2020-06-12 0620
-(01:41:15) [[Nicholas J. Fuentes]] listed [[Disney|Disney]], [[Papa John's]], [[Poshmark]], and T-Mobile as companies that had distanced themselves from advertising on [[Tucker Carlson]]'s show following criticism from the watchdog group [[Sleeping Giants]].
+(01:41:15) [[Nicholas J. Fuentes]] listed [[Disney]], [[Papa John's]], [[Poshmark]], and T-Mobile as companies that had distanced themselves from advertising on [[Tucker Carlson]]'s show following criticism from the watchdog group [[Sleeping Giants]].
 
 ### AF 2020-06-12 0620
 (01:41:56) [[Nicholas J. Fuentes]] quoted T-Mobile CEO [[Mike Sievert]]'s tweet saying "bye-bye, [[Tucker Carlson]]" in response to the advertiser pullout.

@@ -15,4 +15,4 @@
 (00:31:00) [[State of Texas|Texas]], through its Texas National Guard and state troopers, refused to comply with the Supreme Court's order, preventing federal agents from accessing Shelby Park in [[Eagle Pass]].
 
 ### AF 2024-01-25 1282
-(00:51:00) [[Greg Abbott]], the Governor of [[State of Texas|Texas]], deployed the Texas National Guard to install barbed wire along the [[Rio Grande]] and began busing illegal immigrants to cities like [[City of Chicago|Chicago]] and [[New York]], including the suburb of [[Hinsdale]].
+(00:51:00) [[Greg Abbott]], the Governor of [[State of Texas|Texas]], deployed the Texas National Guard to install barbed wire along the [[Rio Grande]] and began busing illegal immigrants to cities like [[Chicago]] and [[New York]], including the suburb of [[Hinsdale]].

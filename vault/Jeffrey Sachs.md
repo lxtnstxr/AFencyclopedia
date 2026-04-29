@@ -11,3 +11,15 @@
 
 ### AF 2025-08-20 1552
 (02:47:37) [[Nicholas J. Fuentes]] stated Jeffrey Sachs could discuss [[Israel]] mailing in [[U.S]]. elections since [[World War II]] and no president controlling the [[Central Intelligence Agency|CIA]] without censorship because he is [[Jewish]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:04:31) Jeffrey Sachs and [[Max Blumenthal]] make appearances on [[Judge Napolitano]] and [[Tucker Carlson]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:04:45) Jeffrey Sachs and [[Max Blumenthal]] are left-wing [[Jews]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:05:43) Jeffrey Sachs is another liberal [[Jews|Jew]] [[who]] is deeply critical of [[Israel]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:05:57) Jeffrey Sachs said in [[Serbia]] a few weeks ago that the era of [[Europe|European]] domination is coming to an end and it cannot come soon enough.

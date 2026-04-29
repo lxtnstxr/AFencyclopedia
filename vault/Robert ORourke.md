@@ -33,7 +33,7 @@
 (01:34:42) Figures like Beto O'Rourke, [[Ilhan Omar]], and [[Alexandria Ocasio-Cortez]] were pushing the [[Democratic Party]] away from its traditional support for [[Israel]].
 
 ### AF 2019-04-09 0363
-(44:42:98) Beto O'Rourke and other [[Democratic Party|Democrats]] positioned themselves as critics of [[Benjamin Netanyahu|Bibi]]'s [[Labor Party|Likud]] party, creating a political alignment where [[United States|American]] domestic politics became intertwined with [[Israel]]i factional politics.
+(44:42:98) Beto O'Rourke and other [[Democratic Party|Democrats]] positioned themselves as critics of [[Benjamin Netanyahu|Bibi]]'s [[Likud]] party, creating a political alignment where [[United States|American]] domestic politics became intertwined with [[Israel]]i factional politics.
 
 ### AF 2019-04-02 0359
 (00:49:09) [[Nicholas J. Fuentes]] posited that the 2020 [[Democratic Party|Democratic]] primary would be the first where the party's internal ideological divisions and contradictory principles would lead to significant dysfunction among candidates like [[Joe Biden]], [[Kamala Harris]], [[Elizabeth Warren]], Beto O'Rourke, [[Bernie Sanders]], and [[Tulsi Gabbard]].

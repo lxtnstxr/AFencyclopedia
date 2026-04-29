@@ -21,7 +21,7 @@
 (01:14:28) [[Nicholas J. Fuentes]] claimed that figures like Stacey Abrams, [[Lori Lightfoot]], [[Barack Obama]], [[Kamala Harris]], and [[Cory Booker]] represent the militant, resentful type of minority individual being elevated to power who will not govern sympathetically towards white people.
 
 ### AF 2021-05-20 0814
-(00:19:32) [[Nicholas J. Fuentes]] argued that politicians like [[Lori Lightfoot]] in [[City of Chicago|Chicago]], Stacey Abrams in [[Country of Georgia|Georgia]], and [[Andrew Gillum]] in [[State of Florida|Florida]] represent a demographic future where non-white politicians gain power and wield it against white people.
+(00:19:32) [[Nicholas J. Fuentes]] argued that politicians like [[Lori Lightfoot]] in [[Chicago]], Stacey Abrams in [[Country of Georgia|Georgia]], and [[Andrew Gillum]] in [[State of Florida|Florida]] represent a demographic future where non-white politicians gain power and wield it against white people.
 
 ### AF 2021-05-20 0814
 (00:25:42) [[Nicholas J. Fuentes]] stated that institutional racism in the [[United States]] is specifically anti-white, citing [[Lori Lightfoot]] and Stacey Abrams as examples of politicians promoting this sentiment.

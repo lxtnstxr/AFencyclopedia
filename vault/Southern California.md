@@ -6,4 +6,4 @@
 
 
 ### AF 2020-01-31 0537
-(00:36:34) [[Nicholas J. Fuentes]] noted that the quarantine of [[United States|Americans]] evacuated from [[City of Wuhan|Wuhan]] at March Air Reserve Base in Southern California marked the first federal quarantine order in the [[United States|U.S]]. in 50 years.
+(00:36:34) [[Nicholas J. Fuentes]] noted that the quarantine of [[United States|Americans]] evacuated from [[Wuhan]] at March Air Reserve Base in Southern California marked the first federal quarantine order in the [[United States|U.S]]. in 50 years.

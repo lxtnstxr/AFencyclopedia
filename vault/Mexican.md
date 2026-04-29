@@ -28,3 +28,6 @@
 
 ### AF 2017-11-08 0049
 (02:41:55) [[Nicholas J. Fuentes]] identified himself as "Castizo," meaning of predominantly Spanish descent from the [[Latin]] world, to distinguish his ethnicity from the broader Mexican or [[Hispanic]] categories.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:39:00) [[Nicholas J. Fuentes]] attributed his pale complexion, green eyes, and red beard to his [[Ireland|Irish]] genetics overriding his [[Italian]] and Mexican [[heritage]].

@@ -37,3 +37,12 @@
 
 ### AF 2018-05-03 0157
 (00:15:26) Major donors to [[People for the American Way]] include the Open Society Foundations, founded and chaired by [[George Soros]], which has a $20 billion endowment.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:17:30.660) [[Nicholas J. Fuentes]] stated that the open borders agenda is funded by [[George Soros]] through his non-profit, the Open Society Foundations.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:18:19.700) [[Nicholas J. Fuentes]] claimed that [[Drop Site News]] is funded by [[George Soros]]'s Open Society Foundations.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:45:47) [[Joel Finkelstein]] is the founder of the [[Network Contagion Research Institute]] (NCRI), whose partner organizations include the [[United Nations]], the [[Anti-Defamation League]] ([[Anti-Defamation League|ADL]]), and [[George Soros]]'s Open Society Foundations.

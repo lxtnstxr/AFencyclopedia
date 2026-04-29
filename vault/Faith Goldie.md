@@ -14,3 +14,6 @@
 
 ### AF 2018-05-28 0172
 (01:12:10) [[Ezra Levant]] fired staff from his media [[organization]], including Faith Goldie, after they raised questions about the overrepresentation of [[Jews|Jewish people]] in media.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:52:32:410) [[Nicholas J. Fuentes]] stated that he went to [[Charlottesville]] nine years ago last minute after Faith Goldie texted him encouraging him to go.

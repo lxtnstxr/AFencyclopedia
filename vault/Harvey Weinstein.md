@@ -117,3 +117,6 @@
 
 ### AF 2017-10-30 0042
 (00:42:21) Media mogul Harvey Weinstein faced daily new allegations of perverse sexual abuse, contributing to a wider scandal in [[Los Angeles|Hollywood]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:56:29) [[Nicholas J. Fuentes]] compared [[Jeffrey Epstein]]'s "I'll make you a model" recruitment tactic to Harvey Weinstein's "I'll make you a movie star" method of exploiting women.

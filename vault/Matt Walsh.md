@@ -252,7 +252,7 @@
 (00:15:55) [[Nicholas J. Fuentes]] proposed that a follow-up question for Matt Walsh should be whether he still believes in the existence of an organized [[American Israel Public Affairs Committee|Jewish lobby]] in [[United States|America]] as he stated a decade ago.
 
 ### AF 2023-04-18 1148
-(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as [[Tim Pool]], [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, [[Tucker Carlson]] being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Mike Johnson|Kevin McCarthy]], Matt Walsh making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling [[Blaze Media|The Blaze]] executives he loves [[Israel]].
+(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as [[Tim Pool]], [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, [[Tucker Carlson]] being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Kevin McCarthy]], Matt Walsh making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling [[Blaze Media|The Blaze]] executives he loves [[Israel]].
 
 ### AF 2023-04-13 1147
 (00:16:43) [[Nicholas J. Fuentes]] cited Matt Walsh and [[Christopher Rufo]] as figures who represent an improvement upon Trumpism by advocating for a [[Catholic Church|Catholic]] theocracy and a total revision of feminism.
@@ -523,3 +523,48 @@
 
 ### AF 2021-05-27 0818
 (07:16:420) Matt Walsh is [[Catholic]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:59:30) [[Nicholas J. Fuentes]] criticized Matt Walsh and other pro-[[Donald Trump]] influencers for telling people he was "obsessed with [[Palestine]]" and that [[Donald Trump|Trump's]] war rhetoric was a "throwaway comment."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(04:01:50) [[Nicholas J. Fuentes]] identified Matt Walsh as a primary problem for downplaying the influence of [[Israel]] over the past two and a half years.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:07:00) Matt Walsh, [[who]] works for [[Ben Shapiro]] at [[The Daily Wire]], tweeted that the war in [[Iran]] is a bad idea, a catastrophe, and that there is no exit plan.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:08:22) Matt Walsh previously argued that the real [[America First]] position is to be indifferent to developments in the [[Middle East]], including [[Palestine]], [[Iran]], [[Lebanon]], and [[Yemen]], and to fixate on domestic matters like school board meetings and the economy.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:38:58) Matt Walsh has been promoting indifference to developments in the [[Middle East]], a stance [[Nicholas J. Fuentes]] characterizes as obstruction and gaslighting that led to the current war with [[Iran]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:43:54) Matt Walsh is practically the chief propagandist promoting the war on [[Iran]], according to [[Nicholas J. Fuentes]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:44:00) [[Mark Levin]] is, along with Matt Walsh, a chief propagandist promoting the war with [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:37:34) Matt Kipta was described by [[Nicholas J. Fuentes]] as a "fucking loser" [[who]] could not get a job in the [[Donald Trump|Trump administration]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:38:41) Matt Walsh came out with a video strongly going after [[Candace Owens]] for attacking [[Erika Frantz Kirk|Erica Kirk]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:39:09) [[Nicholas J. Fuentes]] believes Matt Walsh should leave [[The Daily Wire|Daily Wire]] because he believes it is a [[Jews|Zionist]] [[Jews|Jewish]] operation that supports the pro-[[Israel]] agenda.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:40:34) Matt Walsh said that [[Charlie Kirk]] actually died and [[Erika Frantz Kirk|Erica Kirk]] is a widow, and it is wrong to attack and accuse somebody with no evidence.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:46:07) Matt Walsh has integrity and character.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:55:40.980) [[Nicholas J. Fuentes]] characterized the Matt Walsh type of "grumbling about the halftime show every year" as "unattractive."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:22:00.530) [[Nicholas J. Fuentes]] stated that he is "above it all" and compared people complaining about the show to "losers" [[who]] need "a release valve" for their outrage, which he said they can find on [[Blaze Media|Blaze TV]] or by watching Matt Walsh.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:54:08) Matt Walsh said that no [[country]] has a right to exist if it relies on the patronage and defense of some other [[country]].

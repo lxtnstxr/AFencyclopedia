@@ -55,3 +55,9 @@
 
 ### AF 2018-06-27 0189
 (01:25:50) The [[Republican Party]], controlling the [[Senate]], obstructed the confirmation of Merrick Garland for approximately ten months.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:55:20) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] was only able to recover politically because Merrick Garland and the [[Democratic Party|Democrats]] overplayed their hand by raiding [[Mar-a-Lago]] and indicting him.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:51:04:75) Merrick Garland, Attorney General under [[Joe Biden]], said the pandemic relief fraud in [[Minnesota]] was the largest in the [[country]].

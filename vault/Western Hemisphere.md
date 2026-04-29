@@ -9,4 +9,4 @@
 (01:09:36) The goal of [[United States|America]] First, according to [[Nicholas J. Fuentes]], is to free the [[United States]] from the influence of [[Jews]] and immigrants at home and from the threat of strategic competitors abroad, starting by turning the Western Hemisphere into a fortress.
 
 ### AF 2022-03-21 0962
-(01:33:14:81) [[Destiny|Destiny]] asserted that the [[United States]] does not exert influence over weaker neighbors, a claim [[Nicholas J. Fuentes]] dismissed by citing [[United States]] influence in [[Mexico]] and throughout the Western Hemisphere.
+(01:33:14:81) [[Destiny]] asserted that the [[United States]] does not exert influence over weaker neighbors, a claim [[Nicholas J. Fuentes]] dismissed by citing [[United States]] influence in [[Mexico]] and throughout the Western Hemisphere.

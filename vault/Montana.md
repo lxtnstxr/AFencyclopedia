@@ -49,3 +49,6 @@
 
 ### AF 2017-12-22 0075
 (00:20:06) [[Nicholas J. Fuentes]] stated that more informative examples for the 2018 political climate were the special elections in [[Country of Georgia|Georgia]] and Montana, not the [[Alabama]] race.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:14:14:14) [[Republican Party|Republican]] Senator [[Tim Sheehy]] from Montana smashed the door on [[Brian McGinnis]]'s hand, breaking it, as McGinnis was being dragged out of the [[U.S. Congress|Senate]] hearing.

@@ -11,7 +11,7 @@
 (00:22:29) [[Nicholas J. Fuentes]] denounced opponents like [[Michael Edison Hayden]], [[Megan Squire]], [[Hannah Gais]], Jared Holt, [[Steven Bonnell]], and [[Mr. Girl]], vowing they would never stop him from telling the truth.
 
 ### AF 2022-09-22 1065
-(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], Jared Holt, [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[City of Charlottesville|Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
+(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], Jared Holt, [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[Charlottesville]], being kicked out of school, [[Owen Benjamin]], losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
 
 ### AF 2022-06-09 1009
 (08:14:39) [[Nicholas J. Fuentes]] identified Jared Holt, [[Christopher Mathias]], and [[Will Sommers]] from the [[Daily Beast]] as part of the cadre of journalists covering the far-right online beat.
@@ -56,7 +56,7 @@
 (00:17:15) [[Nicholas J. Fuentes]] cited Jared Holt, a progressive working for the [[Atlanta Council]], as an example of left-wing individuals who he believed were being used by global elites to target right-wing adversaries.
 
 ### AF 2021-02-03 0754
-(01:52:860) Jared Holt of the [[Atlantic Council]], which is funded by [[North Atlantic Treaty Organization|NATO]], the [[Europe|European Union]], the [[U.S. Department of Defense]], [[Bank of America Corporation|Bank of America]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Pfizer]], and [[JPMorgan Chase & Co.|JPMorgan Chase]], works to deplatform right-wing figures by pressuring payment processors and social media companies.
+(01:52:860) Jared Holt of the [[Atlantic Council]], which is funded by [[North Atlantic Treaty Organization|NATO]], the [[European Union]], the [[U.S. Department of Defense]], [[Bank of America Corporation|Bank of America]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Pfizer]], and [[JPMorgan Chase & Co.|JPMorgan Chase]], works to deplatform right-wing figures by pressuring payment processors and social media companies.
 
 ### AF 2021-02-02 0753
 (01:03:33:00) [[Nicholas J. Fuentes]] noted that Jared Holt, a researcher for the [[Anti-Defamation League|ADL]] (Atlanta Council), was invited to [[Conservative Political Action Conference|CPAC]] despite the [[organization]]'s role in canceling people.
@@ -302,7 +302,7 @@
 (00:26:12) [[Nicholas J. Fuentes]] accused journalists [[Joseph Bernstein|Joe Bernstein]] and Jared Holt of dismissing the violence in [[South Africa]] as "white nationalist propaganda."
 
 ### AF 2018-08-23 0225
-(00:33:52) [[Nicholas J. Fuentes]] read a tweet from Jared Holt stating that [[Tucker Carlson]] was responsible for "dropping explicit neo-Nazi white genocide propaganda into [[Donald Trump|the president's]] skull."
+(00:33:52) [[Nicholas J. Fuentes]] read a tweet from Jared Holt stating that [[Tucker Carlson]] was responsible for "dropping explicit neo-Nazi white genocide propaganda into [[the president's]] skull."
 
 ### AF 2018-08-17 0221
 (01:39:30) [[Nicholas J. Fuentes]] speculated that Jared Holt likely had a troubled relationship with his father or experienced parental divorce, driving his behavior, and expressed a desire to "crack that egg."

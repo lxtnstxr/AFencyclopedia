@@ -35,10 +35,10 @@
 (07:58:70) [[Nicholas J. Fuentes]] stated that protests which began at [[Columbia|Columbia University]] had spread to campuses in [[State of California|California]], Ohio, [[State of Michigan|Michigan]], and [[State of Texas|Texas]].
 
 ### AF 2024-04-23 1324
-(00:31:23) Pro-[[Gaza Strip|Palestine]] demonstrators established tent cities on the campuses of [[Columbia]], [[New York University]], [[Yale]], and [[Massachusetts Institute of Technology|MIT]], with the movement spreading to universities in Ohio, [[State of Michigan|Michigan]], and [[State of California|California]].
+(00:31:23) Pro-[[Palestine]] demonstrators established tent cities on the campuses of [[Columbia]], [[New York University]], [[Yale]], and [[Massachusetts Institute of Technology|MIT]], with the movement spreading to universities in Ohio, [[State of Michigan|Michigan]], and [[State of California|California]].
 
 ### AF 2024-04-22 1323
-(00:00:34) Major pro-[[Gaza Strip|Palestine]] protests began at [[Columbia|Columbia University]] in [[New York]] and have since spread to [[New York University]], [[Yale]], [[MIT]], and campuses in [[State of Michigan|Michigan]], Ohio, and [[State of California|California]].
+(00:00:34) Major pro-[[Palestine]] protests began at [[Columbia|Columbia University]] in [[New York]] and have since spread to [[New York University]], [[Yale]], [[MIT]], and campuses in [[State of Michigan|Michigan]], Ohio, and [[State of California|California]].
 
 ### AF 2024-02-15 1293
 (00:42:41) [[Michael Turner]], a [[Republican Party|Republican]] from Ohio and Chairman of the [[U.S. Congress|House]] Intelligence Committee, made the intelligence public in a cryptic announcement, calling on [[Joe Biden]] to declassify the information.
@@ -294,3 +294,45 @@
 
 ### AF 2017-10-24 0038
 (01:04:64) [[Nicholas J. Fuentes]] cited the 2016 election as evidence for his strategy, noting that [[Donald Trump]] won by securing the votes of white blue-collar workers in [[Wisconsin]], [[State of Michigan|Michigan]], Ohio, [[Iowa]], and [[North Carolina]], which prevented policies like the [[Trans-Pacific Partnership|TPP]] trade deal, higher taxes, nationalized healthcare, and the legalization of millions of illegal immigrants.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:58:55) [[JD Vance]] became [[Donald Trump]]'s number one cheerleader when he needed his endorsement to win a [[U.S. Congress|Senate]] seat in Ohio.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:42:58) [[JD Vance]] held a fundraiser at [[Les Wexner]]'s [[house]] in Ohio.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:10:40) [[JD Vance|J.D. Vance]] was elected senator from Ohio.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:11:37) [[Vivek Ramaswamy]] was running for governor in Ohio.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:11:52) The lieutenant governor of Ohio was appointed to fill [[JD Vance|J.D. Vance]]'s [[U.S. Congress|Senate]] seat, making the governor's race in 2026 wide open for [[Vivek Ramaswamy]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:12:08) [[Palmer Luckey]]'s company [[Anduril]], a drone manufacturer, planned to open a factory in Ohio.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:13:14) [[Les Wexner]] is from Ohio, has a net worth of almost $10 billion, and he and his wife and his foundation are huge political benefactors in that [[state]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:14:04) [[Les Wexner]] and his wife made a multi-million dollar contribution to an Ohio-based political PAC called "With Honor" that [[JD Vance|J.D. Vance]] was on the board of.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:31:02) [[Nicholas J. Fuentes]] alleged that [[JD Vance|J.D. Vance]] had a fundraiser in [[Les Wexner]]'s home because [[JD Vance|Vance]] comes from Ohio.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:29:44) [[Nicholas J. Fuentes]] cited examples of demographic change, stating that [[Eric Adams|Zoran Mondani]] is the socialist mayor of [[New York]], [[Vivek Ramaswamy]] will be the governor of Ohio, and [[Usha Vance]] will be the first lady.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:57:04) [[Nicholas J. Fuentes]] alleged that [[JD Vance]] brokered a deal for Venture Capital to invest in [[Palmer Luckey]]'s company [[Palantir Technologies|Anduril]], and that [[Palantir Technologies|Anduril]] built a drone factory in Ohio where [[JD Vance|Vance]] is from.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:08:34) [[Nicholas J. Fuentes]] said he would see [[Vivek Ramaswamy]] in Ohio in 2026.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:15:41) [[Nicholas J. Fuentes]] called [[Vivek Ramaswamy]] an "anchor baby" [[who]] cannot become the governor of Ohio.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:17:44) [[Nicholas J. Fuentes]] urged people not to vote for [[Vivek Ramaswamy]] for governor of Ohio.

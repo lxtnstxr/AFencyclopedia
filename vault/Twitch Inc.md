@@ -89,7 +89,7 @@
 (00:19:00) On June 29, 2020, [[Reddit]] banned the subreddits r/TheDonald and r/Chapo TrapHouse, Twitch temporarily suspended the account of [[Donald Trump]], and [[Google|YouTube]] terminated the channels of [[Stefan Molyneux]], [[American Renaissance]], and [[NPI Radix]].
 
 ### AF 2020-06-29 0631
-(03:56:00) [[Nicholas J. Fuentes]] noted that [[Donald Trump|Trump]]'s executive order aimed at curbing social media censorship via Section 230 had failed to prevent platforms like Twitch from suspending [[Donald Trump|the president's]] account and [[Twitter]] from placing warnings on his tweets.
+(03:56:00) [[Nicholas J. Fuentes]] noted that [[Donald Trump|Trump]]'s executive order aimed at curbing social media censorship via Section 230 had failed to prevent platforms like Twitch from suspending [[the president's]] account and [[Twitter]] from placing warnings on his tweets.
 
 ### AF 2020-05-18 0607
 (00:59:37) [[Nicholas J. Fuentes]] claimed his movement had been denied access to conventional platforms and tools, including bans from [[Google|YouTube]], Twitch, [[TikTok Inc.|TikTok]], [[Reddit]], [[Discord]], [[Peter Thiel|PayPal]], and [[Stripe]].
@@ -101,10 +101,10 @@
 (00:49:20) [[Nicholas J. Fuentes]] promoted his streaming channel on [[DLive]], where he claimed to have been the number two streamer on the platform after being banned from Twitch.
 
 ### AF 2019-04-09 0363
-(05:21:40) [[Nicholas J. Fuentes]] was banned from Twitch for stating that interracial relationships should not be ubiquitously promoted in media, while [[Destiny|Destiny]] faced no platform consequences for advocating political violence and ethical child pornography.
+(05:21:40) [[Nicholas J. Fuentes]] was banned from Twitch for stating that interracial relationships should not be ubiquitously promoted in media, while [[Destiny]] faced no platform consequences for advocating political violence and ethical child pornography.
 
 ### AF 2019-04-09 0363
-(08:39:24) [[Destiny|Destiny]] contacted friends at Twitch to have [[Nicholas J. Fuentes]] banned without informing his own audience, according to [[Nicholas J. Fuentes]].
+(08:39:24) [[Destiny]] contacted friends at Twitch to have [[Nicholas J. Fuentes]] banned without informing his own audience, according to [[Nicholas J. Fuentes]].
 
 ### AF 2019-04-05 0361
 (00:56:49) [[Nicholas J. Fuentes]] was banned from the streaming service Twitch after a coordinated raid and reporting campaign by opponents following a political debate.
@@ -119,7 +119,7 @@
 (00:18:20) [[Nicholas J. Fuentes]] argued that [[Generation Z]], witnessing platforms like Twitch hold streamers hostage to strict terms of service and seeing their favorite creators banned for jokes, would not become a politically correct generation.
 
 ### AF 2018-05-07 0159
-(01:16:20) [[Nicholas J. Fuentes]] was suspended from Twitch for 24 hours after a casual Fortnite stream was raided by [[Destiny|Destiny]], during which [[Fuentes]] said "some nasty things" about him.
+(01:16:20) [[Nicholas J. Fuentes]] was suspended from Twitch for 24 hours after a casual Fortnite stream was raided by [[Destiny]], during which [[Fuentes]] said "some nasty things" about him.
 
 ### AF 2018-03-13 0124
 (02:43:04) Starting the following week, [[Nicholas J. Fuentes]] planned to simulcast his show on [[Google|YouTube]], [[Facebook|Facebook Live]], Twitch, and [[Twitter|Periscope]].
@@ -135,3 +135,6 @@
 
 ### AF 2017-10-31 0043
 (00:08:04) [[Nicholas J. Fuentes]] stated that he appeared on Partygoi's Twitch stream to discuss his personal opinion that fraternities are degenerate due to their association with sex, drugs, and alcohol, though he acknowledged them as implicitly white male spaces.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:44:19) [[Nicholas J. Fuentes]] reported that [[Hasan Piker]] was banned on Twitch, and that [[Hasan Piker]] said "if you support [[U.S. Immigration and Customs Enforcement|ICE]], you're a [[Jews|Zionist]] pig."

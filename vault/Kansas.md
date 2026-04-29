@@ -42,7 +42,7 @@
 (00:51:14) [[Nicholas J. Fuentes]] cited [[United States|South Dakota]] and Arkansas as examples where the conservative mandate of the people was not being wielded by [[Republican Party|Republican]] governors like [[Kristi Noem]] and [[Asa Hutchinson]].
 
 ### AF 2021-04-07 0787
-(00:43:50) [[Nicholas J. Fuentes]] referenced [[Donald Trump|Trump]] supporters killed by [[Antifa]] in [[City of Seattle|Seattle]] and [[City of Portland|Portland]], and a pawn shop defender in Kansas or [[State of Nebraska|Nebraska]] who killed himself after being arrested, as examples of people who did not anticipate being victimized.
+(00:43:50) [[Nicholas J. Fuentes]] referenced [[Donald Trump|Trump]] supporters killed by [[Antifa]] in [[Seattle]] and [[Portland]], and a pawn shop defender in Kansas or [[State of Nebraska|Nebraska]] who killed himself after being arrested, as examples of people who did not anticipate being victimized.
 
 ### AF 2021-04-06 0786
 (00:01:10) [[Nicholas J. Fuentes]] announced that the featured story for the evening was the passage of a bill in Arkansas outlawing transgender hormone replacement therapy for children, which had just been covered on [[Tucker Carlson]]'s show.

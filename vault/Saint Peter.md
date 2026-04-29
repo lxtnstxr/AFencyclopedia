@@ -39,7 +39,7 @@
 (01:06:31) [[Nicholas J. Fuentes]], in response to a question about supporting the [[Pope Francis|Pope]], stated that the [[Pope Francis|Pope]] is the "vicar of [[Jesus Christ|Christ]] on [[earth]]" and the successor of Saint Peter, and his authority does not depend on personal agreement with his statements.
 
 ### AF 2018-03-16 0126
-(04:33:02) [[Nicholas J. Fuentes]] maintained that the [[Pope Francis|Catholic Church]] is the one true church because it holds the apostolic succession of Saint Peter, whom [[Jesus Christ]] designated as the rock upon which the church was built, a theological distinction absent in [[Orthodoxy]].
+(04:33:02) [[Nicholas J. Fuentes]] maintained that the [[Catholic Church]] is the one true church because it holds the apostolic succession of Saint Peter, whom [[Jesus Christ]] designated as the rock upon which the church was built, a theological distinction absent in [[Orthodoxy]].
 
 ### AF 2018-03-16 0126
-(09:22:61) [[Nicholas J. Fuentes]] engaged in a theological debate with a Baptist caller, arguing that all non-[[Catholic]] [[Christianity|Christian]] denominations are contingent on the existence of the [[Pope Francis|Catholic Church]], which holds ultimate authority through Saint Peter.
+(09:22:61) [[Nicholas J. Fuentes]] engaged in a theological debate with a Baptist caller, arguing that all non-[[Catholic]] [[Christianity|Christian]] denominations are contingent on the existence of the [[Catholic Church]], which holds ultimate authority through Saint Peter.

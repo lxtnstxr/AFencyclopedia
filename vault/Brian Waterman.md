@@ -2,7 +2,7 @@
 #person
 
 ### AF 2022-05-25 1001
-(01:09:14) [[Nicholas J. Fuentes]] claimed he was insulted and ridiculed by the [[Lyons Township High School]] administration, specifically naming Principal Brian Waterman, for being arrogant, outspoken, and right-wing.(01:21:47) [[Nicholas J. Fuentes]] expressed a preference for [[City of Chicago|Chicago]]-style thin crust pizza, which he grew up eating, over [[New York]]-style or deep-dish pizza.
+(01:09:14) [[Nicholas J. Fuentes]] claimed he was insulted and ridiculed by the [[Lyons Township High School]] administration, specifically naming Principal Brian Waterman, for being arrogant, outspoken, and right-wing.(01:21:47) [[Nicholas J. Fuentes]] expressed a preference for [[Chicago]]-style thin crust pizza, which he grew up eating, over [[New York]]-style or deep-dish pizza.
 
 
 ### AF 2021-04-19 0794

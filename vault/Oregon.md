@@ -24,7 +24,7 @@
 (02:05:00) A report from Oregon Health and Science University, presented by Dr. Judith Guzman-Kotril, linked cases of myocarditis in seven youths aged 14 to 19 to recent [[COVID-19]] vaccination.
 
 ### AF 2021-01-25 0749
-(00:22:46) [[Nicholas J. Fuentes]] cited ongoing [[Antifa]] activity in [[City of Portland|Portland]], Oregon, and other cities as evidence of law enforcement complicity in left-wing political violence, contrasting it with the crackdown on right-wing individuals after the [[United States Capitol|Capitol]] siege.
+(00:22:46) [[Nicholas J. Fuentes]] cited ongoing [[Antifa]] activity in [[Portland]], Oregon, and other cities as evidence of law enforcement complicity in left-wing political violence, contrasting it with the crackdown on right-wing individuals after the [[United States Capitol|Capitol]] siege.
 
 ### AF 2020-12-07 0729
 (01:27:27) [[Nicholas J. Fuentes]] read a question from "Eddie Cade" asking why the [[Supreme Court of the United States|SCOTUS]] rejected a case from Oregon that would have restricted transgender issues.
@@ -33,13 +33,13 @@
 (00:48:31) In the simulation, the states of [[State of California|California]], [[Washington D.C.|Washington]], and Oregon threatened to secede from the [[United States]] if [[Donald Trump]] was sworn in for a second term, escalating the crisis to a potential [[civil war]].
 
 ### AF 2020-07-23 0647
-(01:15:15) [[Michael Horowitz]], the [[U.S. Department of Justice|Justice Department]] Inspector General, initiated an investigation into the conduct of federal police deployed in [[City of Portland|Portland]], Oregon, following requests from congressional [[Democratic Party|Democrats]].
+(01:15:15) [[Michael Horowitz]], the [[U.S. Department of Justice|Justice Department]] Inspector General, initiated an investigation into the conduct of federal police deployed in [[Portland]], Oregon, following requests from congressional [[Democratic Party|Democrats]].
 
 ### AF 2020-07-20 0644
-(01:27:52) [[Donald Trump|President Trump]] threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[City of Chicago|Chicago]], [[New York|New York City]], [[City of Philadelphia|Philadelphia]], [[City|Detroit]], [[Baltimore]], and [[Oakland]] to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[City of Portland|Portland]], Oregon.
+(01:27:52) [[Donald Trump|President Trump]] threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[Chicago]], [[New York|New York City]], [[Philadelphia]], [[City|Detroit]], [[Baltimore]], and [[Oakland]] to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[Portland]], Oregon.
 
 ### AF 2020-07-20 0644
-(01:28:58) [[Donald Trump|President Trump]] deployed federal officers from the [[U.S. Marshals Service]] and [[Customs and Border Protection]] to [[City of Portland|Portland]], Oregon under an executive order protecting statues, allowing deployment without state permission.
+(01:28:58) [[Donald Trump|President Trump]] deployed federal officers from the [[U.S. Marshals Service]] and [[Customs and Border Protection]] to [[Portland]], Oregon under an executive order protecting statues, allowing deployment without state permission.
 
 ### AF 2020-06-24 0628
 (00:01:59) The surge in [[coronavirus]] cases caused states like Oregon and [[State of Louisiana|Louisiana]] to pause or delay their economic reopening plans.

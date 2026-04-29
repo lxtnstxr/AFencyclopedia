@@ -96,7 +96,7 @@
 (08:14:24) [[Nicholas J. Fuentes]] said the dossier was published by BuzzFeed around a year prior and was used as the basis for appointing Special Counsel [[Robert Mueller]] after the election.
 
 ### AF 2018-01-05 0080
-(21:08:76) The [[Donald Trump|Trump]]-[[Russia]] dossier, published by BuzzFeed, contained fabricated allegations about [[Donald Trump]]'s activities in [[City of Moscow|Moscow]] and was used by the [[Federal Bureau of Investigation|FBI]] as the basis for opening the [[Russia]] investigation.
+(21:08:76) The [[Donald Trump|Trump]]-[[Russia]] dossier, published by BuzzFeed, contained fabricated allegations about [[Donald Trump]]'s activities in [[Moscow]] and was used by the [[Federal Bureau of Investigation|FBI]] as the basis for opening the [[Russia]] investigation.
 
 ### AF 2017-12-18 0071
 (00:51:01) [[Nicholas J. Fuentes]] described journalists [[Jared Holt]] and [[Will Sommers]] as "the lowest subspecies of human being" [[who]] write malicious gossip articles for outlets like [[Mic.com]], BuzzFeed, and [[Salon]].

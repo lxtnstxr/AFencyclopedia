@@ -42,7 +42,7 @@
 (00:42:47) David Sherratt argued that increased life expectancy makes lifelong marriage a less practical institution, contributing to higher divorce rates, particularly in red states with cultural pressures for early marriage.
 (00:46:43) David Sherratt dismissed the idea of parent-arranged marriages as unrealistic and unappealing to young people.
 (00:47:32) David Sherratt cited [[China]]'s terrible workers' rights, authoritarian policies, and extreme internet censorship as evidence that ascendant traditionalist powers are not better places to live.
-(00:49:21) David Sherratt, [[who]] is from [[United Kingdom|England]], challenged [[Nicholas J. Fuentes]]'s criticism of [[Europe]] as dangerous, noting [[Nicholas J. Fuentes]] had never been to [[City of London|London]].
+(00:49:21) David Sherratt, [[who]] is from [[United Kingdom|England]], challenged [[Nicholas J. Fuentes]]'s criticism of [[Europe]] as dangerous, noting [[Nicholas J. Fuentes]] had never been to [[London]].
 (00:49:55) David Sherratt countered that [[United States|America]] has a higher murder rate than [[Europe]].
 (00:50:36) [[Nicholas J. Fuentes]] asked David Sherratt if he believed the [[United Kingdom]] was a better society now than in the 1890s, to which David Sherratt definitively agreed.
 (00:50:56) David Sherratt justified his position by citing historical ills like child labor in factories and the treatment of children as property.

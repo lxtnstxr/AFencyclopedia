@@ -30,3 +30,9 @@
 
 ### AF 2018-09-11 0237
 (00:54:46) [[Russia]] maintains a naval base in [[Tartus]], [[Syria]], which provides it with strategic access to the Mediterranean Sea.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:29:22) [[Nicholas J. Fuentes|Fuentes]] speculated that [[Israel]] wants to control the [[Red Sea]], [[Persian Gulf]], [[Bosporus Strait]], [[Aegean Sea]], Eastern Mediterranean, and the [[Caspian Sea]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:22:37) The second aircraft carrier strike group, led by the [[USS Gerald R. Ford|USS Gerald Ford]], entered the Mediterranean Sea and is en route to the [[Middle East]].

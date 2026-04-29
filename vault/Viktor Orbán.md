@@ -15,7 +15,7 @@
 (01:02:02:08) [[Nicholas J. Fuentes]] noted that the tampered pagers originated from [[Budapest]], [[Hungary]], the jurisdiction of Viktor Orbán, a close ally of [[Benjamin Netanyahu|Netanyahu]].
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], Viktor Orbán of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], Viktor Orbán of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 ### AF 2024-07-09 1351
 (00:49:11) [[Nicholas J. Fuentes]] quoted [[Saurabh Sharma]] at the [[National Conservatism]] Conference linking support for Viktor Orbán and [[Nayib Bukele]] to support for [[Benjamin Netanyahu]].
@@ -27,7 +27,7 @@
 (37:26:29) [[Geert Wilders]] is [[Jewish]] and is involved with [[Israel]] and [[Benjamin Netanyahu|Bibi]]'s Zionist network, which is connected to right-wing populist movements like those of [[Donald Trump]], [[Javier Milei]], and Viktor Orbán.
 
 ### AF 2024-06-10 1341
-(00:39:00) Viktor Orbán's [[Fidesz]] party in [[Hungary]] had its worst performance in a [[Europe|European Union]] election since the [[country]] joined the bloc twenty years ago.
+(00:39:00) Viktor Orbán's [[Fidesz]] party in [[Hungary]] had its worst performance in a [[European Union]] election since the [[country]] joined the bloc twenty years ago.
 
 ### AF 2024-05-28 1336
 (00:51:30) Figures like [[Patrick Casey]] and [[Costin Alamariu]] support [[Donald Trump]] because they believe his administration would support leaders like [[Javier Milei]], [[Jair Bolsonaro]], Viktor Orbán, [[Vox]], and [[Benjamin Netanyahu]].
@@ -36,7 +36,7 @@
 (01:19:75) The government of Viktor Orbán in [[Hungary]] maintained a close political alignment with [[Benjamin Netanyahu]] and the [[Likud]] party in [[Israel]].
 
 ### AF 2024-05-22 1333
-(18:14:20) Viktor Orbán's government in [[Hungary]] was one of only two governments in the [[Europe|European Union]] defending [[Israel]]'s conduct in the war.
+(18:14:20) Viktor Orbán's government in [[Hungary]] was one of only two governments in the [[European Union]] defending [[Israel]]'s conduct in the war.
 
 ### AF 2024-05-22 1333
 (19:38:52) [[Nicholas J. Fuentes]] argued that right-wing parties and leaders across [[Europe]] and [[South Africa|South America]], including [[Geert Wilders]], Viktor Orbán, [[Javier Milei]], and [[Giorgia Meloni]], are uniformly pro-[[Israel]] due to financial backing from [[Israel]].
@@ -78,7 +78,7 @@
 (22:54:990) [[Nicholas J. Fuentes]] noted that [[Dick Carlson]], the father of [[Tucker Carlson]], was a registered foreign agent representing the Viktor Orbán government in [[Hungary]].
 
 ### AF 2023-04-25 1152
-(00:35:15) [[Nicholas J. Fuentes]] reported that [[Dick Carlson]] now works as a lobbyist for the [[Hungary|Hungarian]] government of Viktor Orbán, which is aligned with [[Israel|Israel's]] [[Labor Party|Likud]] party, as a registered foreign agent.
+(00:35:15) [[Nicholas J. Fuentes]] reported that [[Dick Carlson]] now works as a lobbyist for the [[Hungary|Hungarian]] government of Viktor Orbán, which is aligned with [[Israel|Israel's]] [[Likud]] party, as a registered foreign agent.
 
 ### AF 2022-09-27 1067
 (01:06:08:76) [[Nicholas J. Fuentes]] argued that figures like [[Giorgia Meloni]], [[Jair Bolsonaro]], Viktor Orbán, and [[Ron DeSantis]] represent a "global white populist uprising but with the permission of [[Israel Defense Forces|Mossad]]," which he views as an infiltration of the patriot movement by the security state.
@@ -132,7 +132,7 @@
 (00:41:00) [[Nicholas J. Fuentes]] reported that in [[Hungary]], Prime Minister Viktor Orbán's [[Fidesz]] party won an outright majority with over 52% of the vote.
 
 ### AF 2019-05-27 0395
-(00:41:20) [[Nicholas J. Fuentes]] stated there was potential for [[Marine Le Pen]], [[Matteo Salvini]], and Viktor Orbán to form a Eurosceptic, nationalist coalition within the [[Europe|European Union]] Parliament.
+(00:41:20) [[Nicholas J. Fuentes]] stated there was potential for [[Marine Le Pen]], [[Matteo Salvini]], and Viktor Orbán to form a Eurosceptic, nationalist coalition within the [[European Union]] Parliament.
 
 ### AF 2019-05-14 0387
 (01:03:20) [[Nicholas J. Fuentes]] stated that while intellectuals like [[Darren Beattie]], [[Ann Coulter]], and [[Patrick Buchanan]] can articulate a nationalist alternative, the [[United States]] currently lacks a viable political leader comparable to Viktor Orbán of [[Hungary]].
@@ -207,13 +207,13 @@
 (19:36:00) International monitors concluded that the opposition in [[Hungary]] never had a [[fair]] chance in the April 2018 national elections, which cemented Viktor Orbán's hold on power.
 
 ### AF 2018-09-13 0239
-(25:47:00) In a speech in August, Viktor Orbán outlined five tenets for building up Central [[Europe]], including the right to defend [[Christianity|Christian]] culture, reject multiculturalism and immigration, defend traditional families and strategic economic sectors, secure borders, and insist on the principle of one nation, one vote within the [[Europe|European Union]].
+(25:47:00) In a speech in August, Viktor Orbán outlined five tenets for building up Central [[Europe]], including the right to defend [[Christianity|Christian]] culture, reject multiculturalism and immigration, defend traditional families and strategic economic sectors, secure borders, and insist on the principle of one nation, one vote within the [[European Union]].
 
 ### AF 2018-09-13 0239
 (35:38:00) [[Jews|Jewish]] and [[Islam|Muslim]] leaders criticized conservative MEPs for voting against measures to censure [[Hungary]], calling it deeply worrying that they declined to condemn the repressive policies of Viktor Orbán.
 
 ### AF 2018-08-01 0212
-(01:22:170) [[Nicholas J. Fuentes]] presented Viktor Orbán's five tenets for Central [[Europe]] as a nationalist alternative to globalism, which included defending [[Christianity|Christian]] culture, rejecting multiculturalism, protecting the traditional family, defending strategic economic sectors, rejecting immigration, and insisting on national sovereignty within the [[Europe|European Union]].
+(01:22:170) [[Nicholas J. Fuentes]] presented Viktor Orbán's five tenets for Central [[Europe]] as a nationalist alternative to globalism, which included defending [[Christianity|Christian]] culture, rejecting multiculturalism, protecting the traditional family, defending strategic economic sectors, rejecting immigration, and insisting on national sovereignty within the [[European Union]].
 
 ### AF 2018-08-01 0212
 (01:22:170) Viktor Orbán argued that there was a viable path for nations beyond globalism, centered on an alliance of free nations with strong [[Christianity|Christian]] and cultural identities.

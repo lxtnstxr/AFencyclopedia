@@ -6,7 +6,7 @@
 
 
 ### AF 2020-09-16 0682
-(08:25:380) Following the [[City of Miami|Miami]] event, [[Nicholas J. Fuentes]] traveled to Politicon, a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[City of Phoenix|Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
+(08:25:380) Following the [[Miami]] event, [[Nicholas J. Fuentes]] traveled to Politicon, a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to [[Phoenix]] and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
 
 ### AF 2019-10-31 0489
 (01:57:18) [[Nicholas J. Fuentes]] recalled meeting a supporter wearing a [[Andrew Yang]] hat at Politicon, complimenting the hat and bonding over their families' long history in [[United States|America]].

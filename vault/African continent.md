@@ -53,7 +53,7 @@
 (40:09:71) The [[United States]]' war in [[Afghanistan]] persisted for 20 years, far beyond its original mandate to kill [[Osama bin Laden]] and defeat [[al-Nusra Front|al-Qaeda]], expanding temporally and geographically to fight multiple groups across the [[Middle East]] and Africa.
 
 ### AF 2024-07-26 1361
-(52:35:95) In Africa, [[Russia]] is waging a proxy war against [[Government of France|France]] via the [[Wagner Group]], a private military contractor overthrowing pro-[[French]] regimes and replacing them with pro-[[Russian]] ones in countries like [[Burkina Faso]] and [[Niger]] across the Sahel [[region]].
+(52:35:95) In Africa, [[Russia]] is waging a proxy war against [[France]] via the [[Wagner Group]], a private military contractor overthrowing pro-[[French]] regimes and replacing them with pro-[[Russian]] ones in countries like [[Burkina Faso]] and [[Niger]] across the Sahel [[region]].
 
 ### AF 2024-06-10 1341
 (01:19:00) [[Nicholas J. Fuentes]] stated that under Prime Minister [[Giorgia Meloni]], [[Italian Republic|Italy]] has experienced more immigration from Africa than ever before, despite her platform opposing immigration.
@@ -92,7 +92,7 @@
 (00:44:44) [[Nicholas J. Fuentes]] argued that pre-[[Europe|European]] civilizations in [[United States|America]] and Africa were "pre-historical" and non-civilized, lacking writing, agriculture, and permanent society, and that the disappearance of white populations leads to the collapse of modernity and a scavenger existence on the ruins.
 
 ### AF 2023-07-22 1190
-(56:25:77) [[Saudi Arabia]] brokered a deal with [[Iran]] through [[China]], and [[Arab Republic of Egypt|Egypt]], [[Government of France|France]], and Africa engaged with [[China]], signaling a shift away from [[United States]] influence according to [[Nicholas J. Fuentes]]. (59:00:93)
+(56:25:77) [[Saudi Arabia]] brokered a deal with [[Iran]] through [[China]], and [[Arab Republic of Egypt|Egypt]], [[France]], and Africa engaged with [[China]], signaling a shift away from [[United States]] influence according to [[Nicholas J. Fuentes]]. (59:00:93)
 
 ### AF 2023-06-07 1173
 (36:38:00) [[Nicholas J. Fuentes]] argued the most important outcome of the [[Ukraine]] war is the demonstration of a multipolar world order, where [[Russia]] defied [[United States|U.S.]] hegemony and most of the world's population, in countries like [[China]], [[India]], Africa, and the [[Middle East]], refused to sanction [[Russia]].
@@ -143,7 +143,7 @@
 (01:45:55.390) [[Nicholas J. Fuentes]] warned that with no upper limit on immigration from Africa, [[Israel|Central America]], and [[Asia]], and a [[Democratic Party|Democratic]] administration unwilling to enforce laws, the influx of immigrants would continue to accelerate.
 
 ### AF 2021-05-17 0812
-(01:05:15) According to the Axios report, [[Donald Trump]] aide [[John McEntee]], with [[Donald Trump|the president's]] blessing, told retired Army Colonel [[Douglas MacArthur|Douglas McGregor]] on November 9, 2020, that his job was to get [[United States|U.S]]. troops out of [[Afghanistan]], [[Iraq]], [[Syria]], and Africa. (01:14:33)
+(01:05:15) According to the Axios report, [[Donald Trump]] aide [[John McEntee]], with [[the president's]] blessing, told retired Army Colonel [[Douglas MacArthur|Douglas McGregor]] on November 9, 2020, that his job was to get [[United States|U.S]]. troops out of [[Afghanistan]], [[Iraq]], [[Syria]], and Africa. (01:14:33)
 
 ### AF 2021-04-12 0790
 (00:52:12) [[Nicholas J. Fuentes]] stated that the behavioral patterns seen in [[black]] communities in [[United States|America]] are also observed in Africa, [[Haiti]], and [[City|Detroit]].
@@ -167,10 +167,10 @@
 (02:38:37) A viewer named Rico suggested that the task of the church might be to civilize new "barbarians" as it did after the fall of [[Rome]], a point [[Nicholas J. Fuentes]] had heard from integralists but was not bullish on, citing long-term [[Catholic Church|Catholic]] presence in Africa and [[Latin America]].
 
 ### AF 2020-05-28 0615
-(01:14:09) [[Nicholas J. Fuentes]] characterized the [[City of Minneapolis|Minneapolis]] riots as the latest episode in a historical pattern of "[[black]] dysfunction," comparing it to riots that occurred in Africa following decolonization in the 1960s.
+(01:14:09) [[Nicholas J. Fuentes]] characterized the [[Minneapolis]] riots as the latest episode in a historical pattern of "[[black]] dysfunction," comparing it to riots that occurred in Africa following decolonization in the 1960s.
 
 ### AF 2020-05-27 0614
-(01:34:30) [[Nicholas J. Fuentes]] argued that appeasing criminals through investigations and concessions would not work, and that law-breaking, like looting [[Target Corporation|Target]], must be punished to restore order.(01:40:08) [[Nicholas J. Fuentes]] argued that observable disparities in outcomes between regions like [[City of Minneapolis|Minneapolis]], [[City|Detroit]], [[City of Chicago|Chicago]], [[Europe]], and Africa stem from fundamental genetic inequalities, not solely cultural differences.
+(01:34:30) [[Nicholas J. Fuentes]] argued that appeasing criminals through investigations and concessions would not work, and that law-breaking, like looting [[Target Corporation|Target]], must be punished to restore order.(01:40:08) [[Nicholas J. Fuentes]] argued that observable disparities in outcomes between regions like [[Minneapolis]], [[City|Detroit]], [[Chicago]], [[Europe]], and Africa stem from fundamental genetic inequalities, not solely cultural differences.
 
 ### AF 2020-05-14 0605
 (00:30:02) [[Nicholas J. Fuentes]] argued that [[Abraham Lincoln]] believed freed slaves would return to Africa, not live in equality with whites, and that all the Founding Fathers were complicit in or directly practiced slavery, drawing a parallel to the targeted removal of [[Nathan Bedford Forrest]]'s remains.
@@ -272,7 +272,7 @@
 (00:50:59) [[J.F. Gariépy]] explained racial differences as resulting from genetic mutations occurring randomly in geographically separated populations (Africa, [[Europe]], [[Asia]]), amplified by local natural selection pressures over generations.
 
 ### AF 2018-02-28 0115
-(19:45:12) The [[Europe|European Union]] based in [[Brussels]] used supranational law to force member states like [[Italian Republic|Italy]] to accept and grant citizenship to migrants arriving from Africa and the [[Middle East]].
+(19:45:12) The [[European Union]] based in [[Brussels]] used supranational law to force member states like [[Italian Republic|Italy]] to accept and grant citizenship to migrants arriving from Africa and the [[Middle East]].
 
 ### AF 2018-02-09 0105
 (00:50:34) [[Nicholas J. Fuentes]] sarcastically suggested that ending "white supremacy in Africa" required stopping foreign aid, withdrawing the [[United States]] military, and halting technology and medicine transfers.
@@ -308,10 +308,10 @@
 (00:52:54) [[Nicholas J. Fuentes]] shifted to a consequentialist argument, asking why the origin of immigrants doesn't matter, given the civilizational failure of countries in Africa and [[Latin America]].
 
 ### AF 2017-09-25 0017
-(01:06:28) [[Destiny|Destiny]] argued African countries are improving and joining the first world at record rates, with falling birth rates and better access to medicine and education.
+(01:06:28) [[Destiny]] argued African countries are improving and joining the first world at record rates, with falling birth rates and better access to medicine and education.
 
 ### AF 2017-09-25 0017
-(01:06:58) [[Destiny|Destiny]] attributed improvements in Africa to less abuse and aid from Western countries.
+(01:06:58) [[Destiny]] attributed improvements in Africa to less abuse and aid from Western countries.
 
 ### AF 2017-09-25 0017
 (01:07:57) [[Nicholas J. Fuentes]] countered that the dramatic, dangerous escapes from Africa contradict the narrative that these countries are on the cusp of first-world status.

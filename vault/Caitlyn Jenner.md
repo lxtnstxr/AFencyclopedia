@@ -184,3 +184,6 @@
 
 ### AF 2018-11-09 0280
 (01:45:40) Caitlyn Jenner's [[house]] burned down in the [[State of California|California]] wildfires, an event [[Nicholas J. Fuentes]] characterized as a biblical sign.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:39:07) [[Turning Point USA]] activists countered [[Nicholas J. Fuentes|Groyper]] criticisms by arguing that [[Donald Trump]] supported legal immigration, was pro-[[Israel]], endorsed [[Lindsey Graham]], and was pro-gay and pro-trans, being friends with Caitlyn Jenner.

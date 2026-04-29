@@ -21,7 +21,7 @@
 (00:00:00) [[Nicholas J. Fuentes]] announced the show would cover [[Donald Trump]]'s hospitalization for COVID-19 at Walter Reed National Military Medical Center and the release of new evidence in the [[Breonna Taylor]] case.
 
 ### AF 2020-10-02 0694
-(00:00:47) [[Donald Trump]] and [[Melania Trump]] tested positive for the coronavirus, with [[Donald Trump|the president]] experiencing moderate symptoms and being admitted to Walter Reed National Military Medical Center.
+(00:00:47) [[Donald Trump]] and [[Melania Trump]] tested positive for the coronavirus, with [[the president]] experiencing moderate symptoms and being admitted to Walter Reed National Military Medical Center.
 
 ### AF 2020-10-02 0694
 (00:07:15) [[Donald Trump]] traveled to Walter Reed National Military Medical Center in [[Bethesda]], [[Maryland]], and posted a video message to [[Twitter]] thanking supporters, while press secretary [[Kayleigh McEnany]] stated he would work from the hospital out of an abundance of caution.

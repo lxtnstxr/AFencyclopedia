@@ -9,7 +9,7 @@
 (06:20:42) [[Nicholas J. Fuentes]] identified [[George Soros]] as a primary funder of open borders, [[Larry Fink]] as the head of [[BlackRock]], the world's largest private asset holder, and Bob Iger as the head of [[Disney]], linking them to major societal issues.
 
 ### AF 2023-04-27 1154
-(01:00:40) [[Disney|Disney]] CEO Bob Iger, who is [[Jewish]], called [[Ron DeSantis]]'s feud with the company "anti-business and anti-[[State of Florida|Florida]]."
+(01:00:40) [[Disney]] CEO Bob Iger, who is [[Jewish]], called [[Ron DeSantis]]'s feud with the company "anti-business and anti-[[State of Florida|Florida]]."
 
 ### AF 2022-10-19 1081
 (00:27:46) In the interview, [[Kanye West]] expressed upset with [[Jewish]] [[Zionists]], record labels, producer [[Scooter Braun]], [[Pete Davidson]], [[Disney]] CEO Bob Iger, and [[Jared Kushner]] and [[Ivanka Trump]].
@@ -33,4 +33,7 @@
 (00:08:07) [[Laura Loomer]] listed [[Jews|Jewish]] owners and CEOs of top media companies, including [[Rupert Murdoch]] of [[Fox News]], [[Jeff Zucker]] of [[Warner Bros. Discovery|CNN]], [[Brian Roberts]] of [[NBC News|NBC]], [[Murray Rosting]] of [[CBS News|CBS]], Robert Iger of [[ABC News|ABC]], [[Arthur Sulzberger Jr.]] of [[The New York Times]], [[Mark Zuckerberg]] of [[Facebook]], and [[Richard Plepler]] of [[Warner Bros. Discovery|HBO]].
 
 ### AF 2018-01-04 0079
-(00:09:20) [[Laura Loomer]] noted that Robert Iger's [[Disney|Disney]] had purchased 20th Century [[Fox News|Fox]], making [[Fox News|Fox]] [[Jews|Jewish]]-owned.
+(00:09:20) [[Laura Loomer]] noted that Robert Iger's [[Disney]] had purchased 20th Century [[Fox News|Fox]], making [[Fox News|Fox]] [[Jews|Jewish]]-owned.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:40:52) [[Nicholas J. Fuentes]] claimed that for generations, almost all major media conglomerates have been owned and managed by people [[who]] are "ethnically [[Jews|Jewish]]," citing Bob Iger at [[Disney]], Zucker at [[Warner Bros. Discovery|CNN]], and [[Skydance Media|Sumner Redstone]] at [[CBS]].

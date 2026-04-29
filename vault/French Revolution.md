@@ -28,3 +28,6 @@
 
 ### AF 2017-10-25 0039
 (53:03:00) [[Nicholas J. Fuentes]] stated that the [[Founding Fathers of the United States]] were opposed to democracy and were troubled by the excesses of the French Revolution.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:29:21) [[Nicholas J. Fuentes]] described [[Candace Owens]]'s worldview as a "[[black]] hole" that draws in every event including the French Revolution, [[Charlie Kirk]], the genocide in [[Gaza Strip|Gaza]], and ancient [[Sumer]].

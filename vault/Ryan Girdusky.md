@@ -40,7 +40,7 @@
 (00:02:24) [[Nicholas J. Fuentes]] noted that other political figures like [[Ali Alexander]], [[Jacob Wohl]], and Ryan Girdusky had been streaming on [[Clubhouse]].
 
 ### AF 2021-01-29 0751
-(04:29:40) [[Nicholas J. Fuentes]] claimed that figures like [[Charlie Kirk]], [[Steven Crowder|Steve Bannon]], and Ryan Girdusky could not explain why a "real deal" populist congresswoman like [[Marjorie Taylor Greene]] was being opposed and thwarted by the [[Republican Jewish Coalition]] and major [[United States|American]] [[American Jewish Committee|Jewish organizations]], implying a need to understand underlying [[Jews|Jewish]] influence.
+(04:29:40) [[Nicholas J. Fuentes]] claimed that figures like [[Charlie Kirk]], [[Steve Bannon]], and Ryan Girdusky could not explain why a "real deal" populist congresswoman like [[Marjorie Taylor Greene]] was being opposed and thwarted by the [[Republican Jewish Coalition]] and major [[United States|American]] [[American Jewish Committee|Jewish organizations]], implying a need to understand underlying [[Jews|Jewish]] influence.
 
 ### AF 2020-10-16 0703
 (00:16:00) Ryan Girdusky tweeted data showing that in [[State of Florida|Florida]], only 4% of newly registered [[black]] voters had registered as [[Republican Party|Republicans]], which [[Nicholas J. Fuentes]] cited as evidence that outreach to [[black]] voters by figures like [[Candace Owens]] had failed.
@@ -58,7 +58,7 @@
 (00:02:13) Ryan Girdusky, a friend of the show, reported that [[Keith Kellogg]] was also a solid choice for the position.
 
 ### AF 2019-08-30 0452
-(00:37:21) According to Ryan Girdusky, [[Madeleine Westerhout]] frequently prevented letters from allies about legislation harmful to [[Donald Trump]]'s agenda from reaching [[Donald Trump|the president's]] desk.
+(00:37:21) According to Ryan Girdusky, [[Madeleine Westerhout]] frequently prevented letters from allies about legislation harmful to [[Donald Trump]]'s agenda from reaching [[the president's]] desk.
 
 ### AF 2019-08-26 0448
 (00:06:25) Ryan Girdusky's analysis of the [[Pew]] data found that nearly all 109 counties that became majority non-white saw a decline in the [[Republican Party|Republican]] presidential vote share from 2000 onward.

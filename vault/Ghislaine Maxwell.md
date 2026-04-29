@@ -91,3 +91,12 @@
 
 ### AF 2020-01-06 0519
 (02:40:51) [[Nicholas J. Fuentes]] entertained the possibility that [[Jeffrey Epstein]] and Ghislaine Maxwell are still alive, noting they were recently "outed as [[Israel Defense Forces|Mossad]]."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:49:55) [[Nicholas J. Fuentes]] described the method of [[Jeffrey Epstein]] and Ghislaine Maxwell as using women to recruit young girls, as women are less threatening to potential victims.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:50:00) Ghislaine Maxwell acted as an accomplice to [[Jeffrey Epstein]] by recruiting young girls for massages under the guise of a glamorous life, offering money and connections to [[Victoria's Secret]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:15:10) [[Nicholas J. Fuentes]] noted that the files contain correspondence between [[Jeffrey Epstein]] and Ghislaine Maxwell and tips containing unsubstantiated claims of crimes by [[Donald Trump]], including allegations of torture, murder, and sex abuse.

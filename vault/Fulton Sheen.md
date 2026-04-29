@@ -40,3 +40,6 @@
 
 ### AF 2018-05-04 0158
 (00:13:56) [[Nicholas J. Fuentes]] cited Fulton Sheen and [[Thomas Aquinas]] to support the historical case for [[Jesus Christ]]'s life, death, and resurrection, which he described as almost irrefutable.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:30:16) [[Nicholas J. Fuentes]] referenced Fulton Sheen's sermons, which argued that people "psychologize" their problems to avoid facing moral judgment.

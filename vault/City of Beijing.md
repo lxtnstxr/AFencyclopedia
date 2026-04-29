@@ -24,7 +24,7 @@
 (05:48:180) A report from Beijing indicated that the [[North Korea|North Korean]] regime viewed [[Donald Trump]] as a "wild card" compared to [[Barack Obama]].
 
 ### AF 2018-02-12 0106
-(00:38:32) In the new global order, events in [[Yemen]] became the business of [[Washington D.C.|Washington, D.C.]], and events in [[Syria]] became the business of [[City of Moscow|Moscow]] and Beijing.
+(00:38:32) In the new global order, events in [[Yemen]] became the business of [[Washington D.C.|Washington, D.C.]], and events in [[Syria]] became the business of [[Moscow]] and Beijing.
 
 ### AF 2017-09-29 0021
 (00:34:34) [[Nicholas J. Fuentes]] rejected the analogy of accepting risk from [[China]]'s existing arsenal, arguing it is different to trust Beijing's rationality than to trust its competence and swiftness to bail out a collapsing [[Pyongyang]] and secure loose nukes.

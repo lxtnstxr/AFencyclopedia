@@ -34,3 +34,9 @@
 
 ### AF 2017-12-01 0062
 (00:30:34) Former [[U.S. Department of State|Secretary of State]] John Kerry revealed that both [[Arab Republic of Egypt|Egypt]] and [[Israel]] agitated for the [[United States]] to bomb [[Iran]] shortly before the [[Iran]]ian nuclear deal was signed.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:45:05) [[Nicholas J. Fuentes]] argued that the current conflict with [[Iran]] began in 2018 when [[Donald Trump]] pulled out of the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] created by [[Barack Obama]] and John Kerry.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:55:52) Former [[U.S. Department of State|Secretary of State]] John Kerry announced that the era of the Monroe Doctrine is over.

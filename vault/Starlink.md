@@ -28,7 +28,7 @@
 (01:08:08) [[Nicholas J. Fuentes]] stated that [[Elon Musk]] controls Starlink, making him a decisive factor in the [[Ukraine]] war, and that the [[Mossad]] influences [[United States|America]]n politics through billionaire networks.
 
 ### AF 2023-09-13 1215
-(04:44:64) [[Elon Musk]] refused a [[Ukraine|Ukrainian]] request to extend Starlink satellite coverage to enable a drone attack on the [[Russian]] naval fleet in [[City of Sevastopol|Sevastopol]], citing a desire to avoid escalation toward nuclear war.
+(04:44:64) [[Elon Musk]] refused a [[Ukraine|Ukrainian]] request to extend Starlink satellite coverage to enable a drone attack on the [[Russian]] naval fleet in [[Sevastopol]], citing a desire to avoid escalation toward nuclear war.
 
 ### AF 2023-09-13 1215
 (05:20:46) The [[United States]] and [[Ukraine|Ukrainian]] militaries are dependent on [[Elon Musk]]'s privately-owned Starlink satellite network for battlefield communications and surveillance.

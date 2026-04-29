@@ -6,7 +6,7 @@
 
 
 ### AF 2022-03-08 0953
-(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], Huffington Post, the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
+(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], Huffington Post, the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
 
 ### AF 2022-01-20 0939
 (00:05:37) [[Nicholas J. Fuentes]] criticized a group of journalists from publications like [[Salon]], Huffington Post, [[Daily Beast]], and [[Right Wing Watch]] for writing what he described as hit pieces against him.

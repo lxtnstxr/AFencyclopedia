@@ -133,3 +133,6 @@
 
 ### AF 2018-04-04 0138
 (52:03:230) Ryan Dawson tweeted that [[Nicholas J. Fuentes]] was like him when he was 15, a comment [[Nicholas J. Fuentes]] found disrespectful.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:58:37) [[Nicholas J. Fuentes]] joked that Ryan Dawson is "still on the loose for [[September 11 attacks|9-11]]" and that authorities still haven't captured him.

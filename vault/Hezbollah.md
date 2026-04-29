@@ -25,7 +25,7 @@
 (39:33:01) [[Israel]] orchestrated the tempo and timeline of the conflict with [[Hamas]], Hezbollah, [[Bashar al-Assad|Assad]], [[Iran]], and the [[Houthis]] to achieve its strategic aims.
 
 ### AF 2025-07-25 1539
-(00:56:52) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s long-term goal, accelerated by [[France]]'s recognition of [[Gaza Strip|Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating Hezbollah, [[Iran]], and other enemies.
+(00:56:52) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s long-term goal, accelerated by [[France]]'s recognition of [[Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating Hezbollah, [[Iran]], and other enemies.
 
 ### AF 2025-07-25 1539
 (01:22:23) [[Nicholas J. Fuentes]] asserted that [[Israel]]'s territorial ambitions since the [[October 7th Attack]] include the [[Gaza Strip]], the [[Gaza Strip|West Bank]], the [[Golan Heights]], southern [[Lebanon]], and southern [[Syria]], alongside defeating Hezbollah and [[Iran]], all with [[U.S.]] support.
@@ -388,7 +388,7 @@
 (01:09:35:08) [[Nicholas J. Fuentes]] characterized the pager attack as terrorism, arguing [[Israel]] uses fear by maiming civilians because it cannot win a fair fight against Hezbollah without [[United States|U.S.]] support.
 
 ### AF 2024-09-17 1390
-(00:29:44) [[Israel]] launched a cyber attack against Hezbollah inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by Hezbollah, implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating Hezbollah should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with Hezbollah from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) Hezbollah uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad Hezbollah and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[Government of France|France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places Hezbollah and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[Donald Trump|the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Sheldon Adelson|Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Gaza Strip|Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[Donald Trump|the president]] of [[Israel]] after pro-[[Gaza Strip|Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and Hezbollah, leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
+(00:29:44) [[Israel]] launched a cyber attack against Hezbollah inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by Hezbollah, implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating Hezbollah should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with Hezbollah from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) Hezbollah uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad Hezbollah and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places Hezbollah and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[the president]] of [[Israel]] after pro-[[Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and Hezbollah, leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
 
 ### AF 2024-09-16 1389
 (01:18:11) A [[Donald Trump]] victory would mean no [[Joint Comprehensive Plan of Action|Iran nuclear deal]], support for an [[Israel|Israeli]] war against Hezbollah in [[Lebanon]], and likely strikes on [[Iran]]ian soil.
@@ -565,10 +565,10 @@
 (00:52:00) [[Israel]] demanded that Hezbollah withdraw its forces north of the [[Lebanon|Litani River]] in [[Lebanon]] as a condition for [[Israel]]i civilians to return to their homes near the border.
 
 ### AF 2024-07-03 1348
-(00:55:40) The [[United States]] and [[Government of France|France]] were jointly negotiating a proposal to present to [[Lebanon]] to get Hezbollah to accede to [[Israel]]'s demand to withdraw north of the [[Lebanon|Litani River]].
+(00:55:40) The [[United States]] and [[France]] were jointly negotiating a proposal to present to [[Lebanon]] to get Hezbollah to accede to [[Israel]]'s demand to withdraw north of the [[Lebanon|Litani River]].
 
 ### AF 2024-07-03 1348
-(00:57:50) On the same day [[United States]] diplomats were in [[Government of France|France]] working on a diplomatic proposal, [[Israel]] killed a top Hezbollah general, a move seen as sabotaging the negotiations.
+(00:57:50) On the same day [[United States]] diplomats were in [[France]] working on a diplomatic proposal, [[Israel]] killed a top Hezbollah general, a move seen as sabotaging the negotiations.
 
 ### AF 2024-07-03 1348
 (01:00:40) [[Israel]]'s regional strategy involved neutralizing threats sequentially: first [[Hamas]] in [[Gaza Strip|Gaza]], then Hezbollah in [[Lebanon]], with the ultimate goal of dealing with [[Iran]]'s nuclear program without the threat of a Hezbollah second strike.
@@ -694,7 +694,7 @@
 (47:10:450) [[Israel]]'s strategic objective since [[October 7th Attack|October 7th]] was to eliminate [[Hamas]], Hezbollah, and [[Iran]], specifically targeting [[Iran]]'s nuclear sites and Hezbollah, to achieve unprecedented regional dominance.
 
 ### AF 2024-04-12 1318
-(47:22:500) [[Nicholas J. Fuentes]] believed that successful elimination of [[Hamas]], Hezbollah, and [[Iran]] would place [[Israel]] in an unprecedented and uniquely secure position in the [[Gaza Strip|Palestine]] [[region]], surpassing any achieved over the previous century.
+(47:22:500) [[Nicholas J. Fuentes]] believed that successful elimination of [[Hamas]], Hezbollah, and [[Iran]] would place [[Israel]] in an unprecedented and uniquely secure position in the [[Palestine]] [[region]], surpassing any achieved over the previous century.
 
 ### AF 2024-04-12 1318
 (48:23:200) [[Israel]] planned to expand its control from the [[Israel|Jordan River]] to the sea, secure its borders with [[Arab Republic of Egypt|Egypt]] and [[Jim Jordan|Jordan]], and eliminate Hezbollah to establish full dominion over the land up to the [[Lebanon|Litani River]] in [[Lebanon]], effectively creating boundaries defined by the [[Suez]], [[Mediterranean Sea|Eastern Mediterranean]] Sea, [[Israel|Jordan River]], and [[Lebanon|Litani River]].
@@ -814,7 +814,7 @@
 (02:30:00) [[Israel]] demanded that Hezbollah retreat 18 miles from the [[Israel]]-[[Lebanon]] border to the [[Lebanon|Litani River]] as a condition for the return of its evacuated civilians.
 
 ### AF 2024-03-01 1301
-(02:32:00) The [[United States]] and [[Government of France|France]] attempted to negotiate a buffer zone between [[Israel]] and Hezbollah to prevent a wider war.
+(02:32:00) The [[United States]] and [[France]] attempted to negotiate a buffer zone between [[Israel]] and Hezbollah to prevent a wider war.
 
 ### AF 2024-03-01 1301
 (02:34:00) [[Israel]] was accused of creating unreasonable demands and an air of hostility to justify a first strike against Hezbollah in [[Lebanon]].
@@ -964,7 +964,7 @@
 (00:41:12) The [[United States]] [[Joe Biden|White House]] backed the [[Israel]]i proposal to have Hezbollah withdraw from the [[Israel]]i border.
 
 ### AF 2023-12-23 1266
-(00:41:16) The [[United States]], the [[United Kingdom]], and [[Government of France|France]] were exploring ways to convince Hezbollah to pull back from the border to prevent a full-blown conflict.
+(00:41:16) The [[United States]], the [[United Kingdom]], and [[France]] were exploring ways to convince Hezbollah to pull back from the border to prevent a full-blown conflict.
 
 ### AF 2023-12-23 1266
 (00:44:30) [[Israel]] stated that if Hezbollah did not leave its northern border, [[Israel]] would destroy Hezbollah, a threat interpreted as also directed at the [[United States]] to force Hezbollah's withdrawal.
@@ -1255,7 +1255,7 @@
 (02:36:01) [[Nicholas J. Fuentes]] argued that [[Iran]]ian-backed proxies like Hezbollah have not attacked [[United States|Americans]] on [[United States|American]] soil in decades, unlike [[Saudi Arabia]]-backed terrorists [[who]] carried out [[September 11 attacks|9/11]].
 
 ### AF 2019-08-21 0445
-(00:37:46) [[Donald Trump]]'s administration moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], labeled Hezbollah a terrorist group, recognized [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and approved $38 billion in aid to [[Israel]].
+(00:37:46) [[Donald Trump]]'s administration moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], labeled Hezbollah a terrorist group, recognized [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and approved $38 billion in aid to [[Israel]].
 
 ### AF 2019-06-25 0414
 (00:22:44) [[Iran]] was identified as a [[state]] sponsor of terrorism primarily for its funding of Hezbollah and [[Hamas]], organizations defined by opposition to [[Israel]].
@@ -1273,7 +1273,7 @@
 (00:21:03) [[Nicholas J. Fuentes]] asserted that [[Israel]]'s goal in advocating for [[United States|American]] wars in [[Iraq]] and [[Syria]] was to hurt [[Iran]]'s ally, Hezbollah, in [[Lebanon]].
 
 ### AF 2018-09-25 0247
-(03:46:00) [[Nicholas J. Fuentes]] argued that [[Iran]]'s support for groups like [[Hamas]], Hezbollah, and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Gaza Strip|Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
+(03:46:00) [[Nicholas J. Fuentes]] argued that [[Iran]]'s support for groups like [[Hamas]], Hezbollah, and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like [[Qatar]] and the [[United Arab Emirates]].
 
 ### AF 2018-09-18 0242
 (04:53:00) [[Israel]] conducted an airstrike in [[Syria]] targeting equipment it claimed was destined for Hezbollah in [[Lebanon]] on behalf of [[Iran]], an action that led to the accidental downing of the [[Russian]] aircraft by [[Syria|Syrian]] air defenses.
@@ -1339,7 +1339,7 @@
 (21:45:24) Hezbollah in [[Lebanon]] declared war on [[Saudi Arabia]], and [[Iran]] was building a permanent military base [[south]] of [[Damascus]] in [[Syria]].
 
 ### AF 2017-11-10 0051
-(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], Hezbollah in [[Lebanon]], [[Hamas]] and [[Palestinian Islamic Jihad]] in [[Gaza Strip|Palestine]], and the [[state]] of [[Qatar]].
+(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], Hezbollah in [[Lebanon]], [[Hamas]] and [[Palestinian Islamic Jihad]] in [[Palestine]], and the [[state]] of [[Qatar]].
 
 ### AF 2017-11-09 0050
 (16:07:00) The Prime Minister of [[Lebanon]] resigned, citing [[Iran]]ian influence and the power of Hezbollah, and subsequently traveled to [[Saudi Arabia]].
@@ -1361,3 +1361,159 @@
 
 ### AF 2017-09-29 0021
 (00:38:58) The guest concluded that [[North Korea]] has studied [[U.S. Department of Defense|U.S. military]] tactics from the [[Gulf War]] and the [[Israel]]-Hezbollah War of 2006, and a conflict would be the largest war since [[Vietnam]], not the easy victory some hawks predict.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:50.200) [[Qasem Soleimani]] developed and established the Axis of Resistance, which includes [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:41.040) Immediately after [[Donald Trump]]'s announcement, [[Iran]] stated that the ceasefire was more extensive than described, claiming it also covered hostilities between [[Israel]] and Hezbollah in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:56.160) The inclusion of [[Israel]] and Hezbollah in [[Lebanon]] became a significant point of disagreement in the ceasefire discussions.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:24:13.600) [[Pakistan]] and [[Iran]] claimed the [[United States]] agreed to a 10-point plan, including [[Iran]]'s right to enrich uranium, the lifting of all primary and secondary sanctions, the removal of 40,000 [[United States]] troops from the [[region]], and an extension of the ceasefire to [[Israel]]'s war with Hezbollah in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:00.720) [[Israel]] stated it was open to discussions with [[Lebanon]] but would not stop bombing Hezbollah or agree to a ceasefire.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:33:34.660) The question of whether the [[United States]] and [[Iran]] will meet on Saturday is now dependent on the [[United States]]' ability to compel [[Israel]] to halt its war against Hezbollah in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:34:13.820) The [[United States]] has now become an "unwitting negotiator" on behalf of [[Iran]], trying to convince [[Israel]] to cease attacks on Hezbollah.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:15.760) The situation has positioned the [[United States]] in opposition to [[Israel]]'s strategic interest of disarming Hezbollah.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:17) [[Pakistan]] and [[Iran]] believed the agreement included a ceasefire in [[Lebanon]] between [[Israel]] and Hezbollah.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:58) [[Pakistan]] and [[Iran]] asserted that the agreement to open the [[Strait of Hormuz]] was contingent upon [[Israel]] ceasing its bombing of [[Lebanon]] and its conflict with Hezbollah.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:12:20) [[Israel]] launched severe attacks against Hezbollah, causing nearly 100 fatalities and almost 1,000 injuries, which [[Iran]] cited as a violation of the ceasefire agreement.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:00) [[Israel]] stated that it did not agree to certain terms within [[Iran]]'s 10-point proposal, specifically that it could not bomb Hezbollah in [[Lebanon]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:18) [[Israel]] stated it had not concluded its operations against Hezbollah.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:02:04) [[Iran]] counter-proposed with demands for a permanent ceasefire, lifting sanctions, compensation for war damages (reparations), a new arrangement for governing the Strait of Hormuz, and an end to all regional conflict including guarantees that [[Israel]] would not [[target]] Hezbollah.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:52) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the axis of resistance, including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:01:52) [[Qasem Soleimani]] was the architect of the axis of resistance, which includes [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:01:50) [[Nicholas J. Fuentes]] stated that the shadow war culminated in January 2020 in the assassination of [[Qasem Soleimani]], whom he described as the architect of the Axis of Resistance, including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:01:44) [[Nicholas J. Fuentes]] claimed that the shadow war with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], [[who]] he described as the architect of the "axis of resistance" including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:01:50.160) [[Nicholas J. Fuentes]] identified [[Qasem Soleimani]] as the architect of the axis of resistance, which he listed as including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:48:51.000) [[Nicholas J. Fuentes]] stated that [[Israel]] needs to topple the [[Government of Iran|Iranian government]] to stop [[Iran]]'s support for militias like Hezbollah and [[Hamas]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:01:44:710) [[Nicholas J. Fuentes]] stated that the situation culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he called the architect of the Axis of Resistance, including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:56) [[Qasem Soleimani]] was the architect of the Axis of Resistance, including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:08:11) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the "Axis of Resistance," which includes [[Hamas]] and Hezbollah.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:01:56:62) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the Axis of Resistance, including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:02:13) [[Nicholas J. Fuentes]] argued that [[Iran]] has influence through proxies including the [[Houthis]] in [[Yemen]], Hezbollah in [[Lebanon]], and Hezbollah in [[Iraq]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:07:10) [[Nicholas J. Fuentes]] argued that [[Israel]] does not want [[Iran]] to have centrifuges and missiles for the same reason that [[Israel]] destroyed Hezbollah, [[Bashar al-Assad|Assad]], and the [[Houthis]] - to make [[Iran]] defenseless.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:10:07.270) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the Axis of Resistance, including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:52:24) [[Israel]] has defeated [[Hamas]], Hezbollah, and [[Bashar al-Assad]], and removed the [[Iran|Revolutionary Guard]] from [[Syria]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:00:32) [[Nicholas J. Fuentes]] argued that [[Qasem Soleimani]] was the architect of the "Axis of Resistance," building [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:59:53) [[Nicholas J. Fuentes]] stated that the shadow war with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], [[who]] was the architect of the Axis of Resistance including [[Hamas]] and Hezbollah.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:02:00:00) [[Nicholas J. Fuentes]] claimed that [[Qasem Soleimani]] built the "axis of resistance," including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:00:35) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom [[Nicholas J. Fuentes|Fuentes]] described as the architect of the "axis of resistance" including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:54:00) [[Qasem Soleimani]] was the architect of the "Axis of Resistance," which included [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:08:00) [[Qasem Soleimani]] was the architect of the "Axis of Resistance," which included [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:42) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in the assassination of [[Qasem Soleimani]] in January 2020, whom he described as the architect of the axis of resistance including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:50) [[Nicholas J. Fuentes]] recounted that by January 2020, the shadow war with [[Iran]] culminated in the assassination of [[Qasem Soleimani]], the architect of the "Axis of Resistance" including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:13:55.000) [[Nicholas J. Fuentes]] described [[Qasem Soleimani]] as the architect of the Axis of Resistance, including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:59) [[Nicholas J. Fuentes]] credited [[Qasem Soleimani]] as the architect of the "Axis of Resistance," including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:10:16) [[Nicholas J. Fuentes]] repeated that [[Qasem Soleimani]] was the architect of the Axis of Resistance including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:18:58) [[Nicholas J. Fuentes]] argued that [[Iran]]'s other deterrents include ballistic missiles and proxies like Hezbollah and the [[Houthis]], and that [[Israel]] cannot attack all of them simultaneously.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:31:21) [[Nicholas J. Fuentes]] stated that the [[United States]] was going to war with Hezbollah in [[Iraq]] and with [[Iran]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(01:01:50:33) [[Donald Trump]] assassinated [[Qasem Soleimani]], the architect of the axis of resistance of [[Hamas]], Hezbollah, and the [[Houthis]], in January 2020.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:01:50) The shadow war between the [[United States]] and [[Iran]] culminated by January 2020 in the assassination of [[Qasem Soleimani]], [[who]] was the architect of the axis of resistance ([[Hamas]], Hezbollah, the [[Houthis]]).
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:07:12) [[Benjamin Netanyahu|Bibi]] requested that the [[United States]] bomb [[Iran]] again, support bombing Hezbollah again, and give him the green light to go back to war in [[Gaza Strip|Gaza]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:01:44) [[Nicholas J. Fuentes]] stated that the war with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], the architect of the Axis of Resistance including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:01:49) The [[United States]] assassinated [[Qasem Soleimani]] in January 2020, [[who]] [[Nicholas J. Fuentes]] described as the architect of the axis of resistance, including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:56:50) [[Nicholas J. Fuentes]] described how [[Israel]] has systematically dismantled [[Iran]]'s proxy network since [[October 7th Attack|October 7th]], including confronting [[Hamas]] in [[Gaza Strip|Gaza]], compelling Hezbollah to surrender in [[Lebanon]], and collapsing the [[Bashar al-Assad|Assad]] regime in [[Syria]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:28:50) [[Nicholas J. Fuentes]] described [[Iran]] as a "hardened, fortified regime" with missiles stored in underground cities, and argued that defeating it would require a ground war, which he said would be an even greater undertaking than the wars against Hezbollah or [[Bashar al-Assad]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:37) [[Nicholas J. Fuentes]] stated that the conflict with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he described as the architect of the "axis of resistance" ([[Hamas]], Hezbollah, the [[Houthis]]).
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:22) [[Nicholas J. Fuentes]] stated that the [[United States]] and [[Iran]] are in a "shadow war" that culminated in the January 2020 assassination of [[Qasem Soleimani]], whom he described as the architect of the axis of resistance including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:12:13) [[Nicholas J. Fuentes]] stated that [[Qasem Soleimani]] was the architect of the "axis of resistance" including [[Hamas]], Hezbollah, and the [[Houthis]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:01:44:81) [[Nicholas J. Fuentes]] stated that the shadow war with [[Iran]] culminated in January 2020 with the assassination of [[Qasem Soleimani]], whom he described as the architect of the axis of resistance including [[Hamas]], Hezbollah, and the [[Houthis]].

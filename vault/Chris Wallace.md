@@ -31,7 +31,7 @@
 (04:50:68) Chris Wallace framed a question to [[Donald Trump]] about banning critical race theory for federal contractors as a question about banning "racial sensitivity training."
 
 ### AF 2020-09-30 0692
-(05:13:52) Chris Wallace asked [[Joe Biden]] about the 2017 [[City of Charlottesville|Charlottesville]] rally but did not ask him to condemn [[Antifa]] or address the months of left-wing riots in cities like [[City of Portland|Portland]] and [[City of Kenosha|Kenosha]].
+(05:13:52) Chris Wallace asked [[Joe Biden]] about the 2017 [[Charlottesville]] rally but did not ask him to condemn [[Antifa]] or address the months of left-wing riots in cities like [[Portland]] and [[Kenosha]].
 
 ### AF 2020-09-30 0692
 (05:22:60) Chris Wallace persistently asked [[Donald Trump]] if he believed in the "science of climate change" but did not press [[Joe Biden]] when he evaded a question about whether he would pack the [[Supreme Court of the United States|Supreme Court]].
@@ -73,7 +73,7 @@
 (33:08:07) Chris Wallace noted [[Joe Biden]]'s economic plan included over $4 trillion in new taxes on high earners and corporations, and asked if that would hurt the economic recovery.
 
 ### AF 2020-09-29 0691
-(43:32:97) Chris Wallace ended the segment and moved to the issue of race, noting [[Joe Biden]] said [[Donald Trump]]'s "very fine people on both sides" comment after [[City of Charlottesville|Charlottesville]] directly led to his presidential run.
+(43:32:97) Chris Wallace ended the segment and moved to the issue of race, noting [[Joe Biden]] said [[Donald Trump]]'s "very fine people on both sides" comment after [[Charlottesville]] directly led to his presidential run.
 
 ### AF 2020-09-29 0691
 (49:47:31) Chris Wallace asked [[Joe Biden]] if he believed there was a separate, unequal system of justice for [[blacks]] in [[United States|America]], referencing the Breonna Taylor case.
@@ -109,4 +109,4 @@
 (00:33:50) [[Nicholas J. Fuentes]] argued that [[Fox News]] personalities like Chris Wallace and [[Shep Smith]], with the exception of [[Tucker Carlson]] and [[Laura Ingraham]], represent the establishment Republicanism that would reassert itself after [[Donald Trump]] leaves office.
 
 ### AF 2018-11-14 0282
-(00:09:20) Chris Wallace of [[Fox News]] stated the network supported [[Warner Bros. Discovery|CNN]]'s legal effort to regain [[Jim Acosta]]'s [[White House]] press credential, condemning the "growing antagonistic tone" between [[Donald Trump|the president]] and the press.
+(00:09:20) Chris Wallace of [[Fox News]] stated the network supported [[Warner Bros. Discovery|CNN]]'s legal effort to regain [[Jim Acosta]]'s [[White House]] press credential, condemning the "growing antagonistic tone" between [[the president]] and the press.

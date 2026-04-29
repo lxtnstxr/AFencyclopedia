@@ -18,7 +18,7 @@
 (00:11:11) The [[Republican Party]] failed in three attempts to repeal the Affordable Care Act in 2017, with Senator John McCain providing the decisive vote against the final attempt.
 
 ### AF 2023-10-05 1230
-(00:26:49) [[Nicholas J. Fuentes]] stated that Western democracies are fine with center-right leaders like [[Emmanuel Macron]] in [[Government of France|France]], [[Rishi Sunak]] in the [[United Kingdom]], or [[Mitt Romney]] and John McCain in the [[United States]], but treat specific right-wing, anti-immigration candidates as a threat to democracy.
+(00:26:49) [[Nicholas J. Fuentes]] stated that Western democracies are fine with center-right leaders like [[Emmanuel Macron]] in [[France]], [[Rishi Sunak]] in the [[United Kingdom]], or [[Mitt Romney]] and John McCain in the [[United States]], but treat specific right-wing, anti-immigration candidates as a threat to democracy.
 
 ### AF 2023-09-14 1216
 (01:48:20) [[Nicholas J. Fuentes]] characterized the 2008 election as [[Barack Obama]], who wanted to end the war in [[Iraq]], versus John McCain, a "neocon" who "basically owned by [[Israel]]" and wanted more war.
@@ -189,10 +189,10 @@
 (00:23:03) John McCain lost the 2008 presidential election to [[Barack Obama]] by a margin of 365 to 173 electoral votes, losing states like [[India|Indiana]] that [[Republican Party|Republicans]] typically win.
 
 ### AF 2018-08-27 0227
-(00:24:31) John McCain became a vocal critic of [[Donald Trump]], aligning with major news media, [[Democratic Party|Democrats]], establishment [[Republican Party|Republicans]], multinational corporations, [[Los Angeles|Hollywood]], banks, and the [[Europe|European Union]].
+(00:24:31) John McCain became a vocal critic of [[Donald Trump]], aligning with major news media, [[Democratic Party|Democrats]], establishment [[Republican Party|Republicans]], multinational corporations, [[Los Angeles|Hollywood]], banks, and the [[European Union]].
 
 ### AF 2018-08-27 0227
-(00:25:13) From December 2017 until his death, John McCain's absence from the [[Senate]] due to cancer treatment prevented [[Republican Party|Republicans]] from having a better majority, which [[Nicholas J. Fuentes]] characterized as an intentional act to hurt [[Donald Trump|the president]] and the [[Republican Party]].
+(00:25:13) From December 2017 until his death, John McCain's absence from the [[Senate]] due to cancer treatment prevented [[Republican Party|Republicans]] from having a better majority, which [[Nicholas J. Fuentes]] characterized as an intentional act to hurt [[the president]] and the [[Republican Party]].
 
 ### AF 2018-08-27 0227
 (00:25:46) [[Nicholas J. Fuentes]] argued that society grants undue respect to figures like John McCain and media personalities like [[Anderson Cooper]] based on their titles, suits, and institutional affiliation rather than their merits.
@@ -273,10 +273,10 @@
 (00:23:40) John McCain criticized [[Donald Trump]]'s call to [[Vladimir Putin]], stating, "An [[United States|American]] [[president]] does not lead the free world by congratulating dictators on winning sham elections."
 
 ### AF 2018-03-21 0129
-(00:25:20) John McCain advocated for [[U.S. Department of Defense|U.S. military]] intervention in numerous countries including [[Iran]], [[Iraq]], [[Yemen]], [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[North Korea]], [[China]], [[Russia]], [[Venezuela]], and [[Columbia|Colombia]].
+(00:25:20) John McCain advocated for [[U.S. Department of Defense|U.S. military]] intervention in numerous countries including [[Iran]], [[Iraq]], [[Yemen]], [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[North Korea]], [[China]], [[Russia]], [[Venezuela]], and [[Colombia]].
 
 ### AF 2018-03-21 0129
-(00:25:40) John McCain was complicit in [[United States|U.S]]. and [[Europe|European Union]] interference in [[Ukraine]]nian elections to oust a pro-[[Russian]] government in favor of a pro-Western one.
+(00:25:40) John McCain was complicit in [[United States|U.S]]. and [[European Union]] interference in [[Ukraine]]nian elections to oust a pro-[[Russian]] government in favor of a pro-Western one.
 
 ### AF 2018-03-21 0129
 (00:27:40) John McCain supported [[North Atlantic Treaty Organization|NATO]] airstrikes that led to the deposition and death of [[Muammar Gaddafi]] in [[Libya]], contributing to the [[country]]'s subsequent collapse into [[civil war]] and a failed [[state]].

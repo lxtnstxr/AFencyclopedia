@@ -2,7 +2,7 @@
 #person
 
 ### AF 2023-04-18 1148
-(00:10:23) [[Nicholas J. Fuentes]] characterized [[The Daily Beast]] as a left-wing publication that had been writing hit pieces about him for years and stated that Millie Weaver had been "out to get" him since [[City of Charlottesville|Charlottesville]].
+(00:10:23) [[Nicholas J. Fuentes]] characterized [[The Daily Beast]] as a left-wing publication that had been writing hit pieces about him for years and stated that Millie Weaver had been "out to get" him since [[Charlottesville]].
 
 
 ### AF 2018-07-10 0197

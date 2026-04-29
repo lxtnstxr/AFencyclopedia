@@ -21,7 +21,7 @@
 (01:17:56) [[Ron DeSantis]] secured financial support from major [[The Wall Street Journal|Wall Street]] donors, including [[Ken Griffin]] of Citadel, who had previously donated to [[Donald Trump]]'s 2020 campaign but publicly switched his support to [[Ron DeSantis]], criticizing [[Donald Trump|Trump's]] rhetoric.
 
 ### AF 2023-04-06 1143
-(00:50:50) [[Nicholas J. Fuentes]] reported that in the [[City of Chicago|Chicago]] mayoral runoff, [[Brandon Johnson]] defeated [[Paul Vallas]], who was supported by police, billionaires, Citadel, [[Ken Griffin]], [[Betsy DeVos]], and [[Trump]] donors.
+(00:50:50) [[Nicholas J. Fuentes]] reported that in the [[Chicago]] mayoral runoff, [[Brandon Johnson]] defeated [[Paul Vallas]], who was supported by police, billionaires, Citadel, [[Ken Griffin]], [[Betsy DeVos]], and [[Trump]] donors.
 
 ### AF 2021-01-29 0751
 (04:47:20) [[Nicholas J. Fuentes]] noted that [[Jen Psaki]]'s brother is a portfolio manager at Citadel, the company that owns [[Robinhood]], and previously held director positions at [[Goldman Sachs]] and [[Barclays]] and was a [[vice]] president at [[Lehman Brothers]].

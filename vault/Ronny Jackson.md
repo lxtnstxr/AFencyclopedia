@@ -2,7 +2,7 @@
 #person
 
 ### AF 2021-09-25 0884
-(24:18:00) [[Republican Party|Republican]] representatives [[Elise Stefanik]], [[Devin Nunes]], Ronny Jackson, [[Greg Pence]], and [[House]] Minority Leader [[Mike Johnson|Kevin McCarthy]] voted for the NDAA containing the red flag law.
+(24:18:00) [[Republican Party|Republican]] representatives [[Elise Stefanik]], [[Devin Nunes]], Ronny Jackson, [[Greg Pence]], and [[House]] Minority Leader [[Kevin McCarthy]] voted for the NDAA containing the red flag law.
 
 
 ### AF 2018-03-30 0135

@@ -10,7 +10,7 @@
 (01:05:46) A planned meeting between [[Marco Rubio]] and [[Sergey Lavrov]] was postponed, and a summit between [[Donald Trump]] and Vladimir Putin in [[Budapest]] was canceled.
 (01:08:56) [[Donald Trump]] announced significant new sanctions on [[Russian Federation|Russia]]'s two largest oil companies, expressing frustration that his good conversations with Vladimir Putin "don't go anywhere."
 ### AF 2025-11-03 1590
-(01:09:14) [[Nicholas J. Fuentes]] stated that his interview with [[Tucker Carlson]] became the fourth most-viewed video on [[Tucker Carlson|Carlson]]'s channel, behind interviews with Vladimir Putin, [[Donald Trump|the president]] of [[El Salvador]], and an exposé on the [[September 11 attacks]].
+(01:09:14) [[Nicholas J. Fuentes]] stated that his interview with [[Tucker Carlson]] became the fourth most-viewed video on [[Tucker Carlson|Carlson]]'s channel, behind interviews with Vladimir Putin, [[the president]] of [[El Salvador]], and an exposé on the [[September 11 attacks]].
 
 
 ### AF 2025-08-26 1557
@@ -230,7 +230,7 @@
 (00:48:25) [[Donald Trump]] asserted that [[Israel]] would never have been attacked on [[October 7th Attack|October 7th]] if he were president, and that he told Vladimir Putin not to invade [[Ukraine]].
 
 ### AF 2024-07-30 1363
-(00:52:50) [[Daniel Ortega]] of [[Nicaragua]] and [[Miguel Díaz-Canel Bermúdez]] of [[Cuba]] congratulated [[Nicolás Maduro]] on his electoral victory, while Vladimir Putin of the [[Government of Russia|Russian Federation]] expressed eagerness to strengthen ties with [[Venezuela]].
+(00:52:50) [[Daniel Ortega]] of [[Nicaragua]] and [[Miguel Díaz-Canel Bermúdez]] of [[Cuba]] congratulated [[Nicolás Maduro]] on his electoral victory, while Vladimir Putin of the [[Russian Federation]] expressed eagerness to strengthen ties with [[Venezuela]].
 
 ### AF 2024-07-13 1355
 (00:29:05) Vladimir Putin stated he accepted [[Donald Trump]]'s plan to resolve the [[Ukraine]] war, which [[Donald Trump]] claimed he could achieve between the election and his inauguration.
@@ -344,7 +344,7 @@
 (00:25:00) [[Nicholas J. Fuentes]] summarized that the Vladimir Putin interview was about two hours and ten minutes long and began with a straightforward question from [[Tucker Carlson]] about why [[Russia]] invaded [[Ukraine]] in February 2022.
 
 ### AF 2024-02-10 1290
-(00:27:00) [[Nicholas J. Fuentes]] argued that the real reason [[Russia]] invaded [[Ukraine]] was the prospect of [[Ukraine]] joining [[North Atlantic Treaty Organization|NATO]] and the [[Europe|European Union]], not the 1,000-year historical narrative Vladimir Putin presented.
+(00:27:00) [[Nicholas J. Fuentes]] argued that the real reason [[Russia]] invaded [[Ukraine]] was the prospect of [[Ukraine]] joining [[North Atlantic Treaty Organization|NATO]] and the [[European Union]], not the 1,000-year historical narrative Vladimir Putin presented.
 
 ### AF 2024-02-10 1290
 (00:30:00) [[Nicholas J. Fuentes]] reiterated his view that Vladimir Putin's lengthy historical answer was a "hostile tactic" and a "power move" similar to a comedic bit by [[Samuel J. Hyde|Sam Hyde]] about telling long stories to frustrate debt collectors.
@@ -428,7 +428,7 @@
 (01:01:09) Vladimir Putin noted that [[Russia]] has hypersonic missiles in the [[Black Sea]] capable of striking [[United States|U.S]]. aircraft carriers in the [[Mediterranean Sea|Eastern Mediterranean]].
 
 ### AF 2023-10-14 1235
-(00:37:46) [[Nicholas J. Fuentes]] reported that Vladimir Putin and [[China]] had issued statements in support of [[Gaza Strip|Palestine]], while the [[Iran|Iranian]] foreign minister was conducting diplomatic visits in [[Lebanon]], [[Syria]], and [[Iraq]].
+(00:37:46) [[Nicholas J. Fuentes]] reported that Vladimir Putin and [[China]] had issued statements in support of [[Palestine]], while the [[Iran|Iranian]] foreign minister was conducting diplomatic visits in [[Lebanon]], [[Syria]], and [[Iraq]].
 
 ### AF 2023-10-11 1232
 (00:54:54) [[Nicholas J. Fuentes]] asserted that certain parties want everyone to believe that 19 illiterate camel riders flew planes into buildings on [[September 11 attacks|September 11]], that [[Bashar al-Assad]] and Vladimir Putin are super villains who gas their own people, and in the unquestionable truth of the Holocaust.
@@ -530,7 +530,7 @@
 (26:14:250) [[Garry Kasparov]], a [[Russia]]n chess grandmaster and political activist, authored a book framing Vladimir Putin as a [[Adolf Hitler|Hitler]]-like figure.
 
 ### AF 2023-02-02 1116
-(27:04:170) [[Nicholas J. Fuentes]] argued that the [[Ukraine]]n people voted for closer ties with the [[Europe|European Union]] and the [[United States]] over [[Russia]], a choice Vladimir Putin opposed.
+(27:04:170) [[Nicholas J. Fuentes]] argued that the [[Ukraine]]n people voted for closer ties with the [[European Union]] and the [[United States]] over [[Russia]], a choice Vladimir Putin opposed.
 
 ### AF 2023-01-26 1113
 (00:37:00) [[Nicholas J. Fuentes]] reiterated his belief that [[Israel]] was responsible for the [[September 11 attacks]] and argued that societal fixation on [[Adolf Hitler|Hitler]] is bizarre, stating he finds figures like Putin, [[North Korea]], and [[Islam]] "cool" in a similar rhetorical way.
@@ -587,7 +587,7 @@
 (00:29:58) Vladimir Putin announced a partial mobilization, calling 300,000 reserve soldiers to replenish [[Russian]] front lines in [[Ukraine]].
 
 ### AF 2022-09-22 1065
-(00:59:58) Vladimir Putin announced that [[Russia]] would hold referendums in the [[Ukraine|Ukrainian]] regions of [[Donetsk]], [[Luhansk]], [[Kherson]], and [[Zaporizhzhia]] on joining [[Russia]], a move that would bring approximately one-third of [[Ukraine]]'s territory under [[Russian]] control when combined with [[City of Sevastopol|Crimea]].
+(00:59:58) Vladimir Putin announced that [[Russia]] would hold referendums in the [[Ukraine|Ukrainian]] regions of [[Donetsk]], [[Luhansk]], [[Kherson]], and [[Zaporizhzhia]] on joining [[Russia]], a move that would bring approximately one-third of [[Ukraine]]'s territory under [[Russian]] control when combined with [[Crimea]].
 
 ### AF 2022-09-22 1065
 (02:10:17) Vladimir Putin announced a partial nationwide mobilization, with [[Russian]] Defense Minister [[Sergei Shoigu]] stating 300,000 reservists with military experience and specialties would be called up to serve in [[Ukraine]].
@@ -683,7 +683,7 @@
 (01:08:20:42) [[Nicholas J. Fuentes]] argued that the [[United States]] was trying to inflict maximum casualties on [[Russia]] and reduce Putin's victory conditions, knowing [[Russia]] would ultimately win but at a higher cost.
 
 ### AF 2022-05-05 0988
-(53:14:17) [[Nicholas J. Fuentes]] argued that the only way to avoid a wider war was for [[Russia]] to achieve a decisive military victory in eastern [[Ukraine]], securing the [[Donetsk|Donbass]] [[region]] and connecting it to [[City of Sevastopol|Crimea]], after which Vladimir Putin could declare mission accomplished and exit the conflict.
+(53:14:17) [[Nicholas J. Fuentes]] argued that the only way to avoid a wider war was for [[Russia]] to achieve a decisive military victory in eastern [[Ukraine]], securing the [[Donetsk|Donbass]] [[region]] and connecting it to [[Crimea]], after which Vladimir Putin could declare mission accomplished and exit the conflict.
 
 ### AF 2022-04-28 0986
 (00:04:46) Putin's leverage was his ability to shut off energy supplies to [[Europe]], which was heavily dependent on [[Russian]] gas.
@@ -704,7 +704,7 @@
 (00:22:45) Putin's military objective was focusing on ethnically [[Russian]] areas east of the [[Dnieper River]] and the coast of the Sea of Azov, aiming for the total liberation of [[Donetsk|Donbass]].
 
 ### AF 2022-04-28 0986
-(00:23:55) [[Nicholas J. Fuentes]] argued that once the battle for [[Donetsk|Donbass]] was won, Putin could dictate terms about [[Ukraine]]'s neutrality and recognition of [[Russian]] sovereignty over [[City of Sevastopol|Crimea]] and eastern regions.
+(00:23:55) [[Nicholas J. Fuentes]] argued that once the battle for [[Donetsk|Donbass]] was won, Putin could dictate terms about [[Ukraine]]'s neutrality and recognition of [[Russian]] sovereignty over [[Crimea]] and eastern regions.
 
 ### AF 2022-04-28 0986
 (00:26:52) To shore up the ruble in response to Western sanctions, Putin demanded that "unfriendly countries" fulfill natural gas contracts in rubles, requiring them to buy the currency first.
@@ -788,7 +788,7 @@
 (00:21:24) Following Vladimir Putin's ruble payment decree, the [[Russian]] currency stabilized at just 15% below its pre-war value, compared to a 50% drop at the height of the conflict.
 
 ### AF 2022-04-01 0971
-(00:23:48) At the [[G20]] summit, [[Europe|European Union]] conference, and [[North Atlantic Treaty Organization|NATO]] summit, [[Europe|European]] leaders refused Vladimir Putin's demand to pay for gas in rubles, initiating a strategic standoff over [[Europe|European]] energy needs and [[Russian]] war financing.
+(00:23:48) At the [[G20]] summit, [[European Union]] conference, and [[North Atlantic Treaty Organization|NATO]] summit, [[Europe|European]] leaders refused Vladimir Putin's demand to pay for gas in rubles, initiating a strategic standoff over [[Europe|European]] energy needs and [[Russian]] war financing.
 
 ### AF 2022-04-01 0971
 (00:26:01) Vladimir Putin signed a decree requiring gas buyers to open ruble accounts in [[Russian]] banks, stating, "nobody sells [[us]] anything for free and we're not going to do charity either."
@@ -896,7 +896,7 @@
 (01:00:52) [[Nicholas J. Fuentes]] argued that when [[Joe Biden]] and [[Jens Stoltenberg]] talk about chemical weapons, they are sending a deliberate message to Vladimir Putin about creating a pretext for [[North Atlantic Treaty Organization|NATO]] intervention under the "right to protect" doctrine.
 
 ### AF 2022-03-23 0963
-(01:25:36) Putin demanded the annexation of [[City of Sevastopol|Crimea]], the independence of breakaway republics in the [[Donetsk|Donbass]], a change to the [[Ukraine|Ukrainian]] constitution to enshrine neutrality and bar [[North Atlantic Treaty Organization|NATO]] membership, and the demilitarization and "denazification" of [[Kyiv]].
+(01:25:36) Putin demanded the annexation of [[Crimea]], the independence of breakaway republics in the [[Donetsk|Donbass]], a change to the [[Ukraine|Ukrainian]] constitution to enshrine neutrality and bar [[North Atlantic Treaty Organization|NATO]] membership, and the demilitarization and "denazification" of [[Kyiv]].
 
 ### AF 2022-03-23 0963
 (02:12:14) [[Volodymyr Zelenskyy|Zelensky]] stated he was willing to compromise on some issues but threatened [[World War III]] if his preconditions, which included some of Putin's surrender terms, were not met.
@@ -914,13 +914,13 @@
 (17:25:58) [[Nicholas J. Fuentes]] began analyzing the war in [[Ukraine]] by outlining Putin's demands and [[Volodymyr Zelenskyy|Zelensky]]'s response.
 
 ### AF 2022-03-23 0963
-(22:48:64) [[Nicholas J. Fuentes]] listed Putin's pre-invasion demands from January, which included [[Ukraine]] never joining [[North Atlantic Treaty Organization|NATO]], a [[North Atlantic Treaty Organization|NATO]] membership freeze, an end to [[North Atlantic Treaty Organization|NATO]] drills in [[Europe|Eastern Europe]], a withdrawal of [[North Atlantic Treaty Organization|NATO]] forces from [[Europe|Eastern Europe]], a moratorium on missiles in [[Europe]], and keeping [[City of Sevastopol|Crimea]] and [[Donetsk|Donbass]].
+(22:48:64) [[Nicholas J. Fuentes]] listed Putin's pre-invasion demands from January, which included [[Ukraine]] never joining [[North Atlantic Treaty Organization|NATO]], a [[North Atlantic Treaty Organization|NATO]] membership freeze, an end to [[North Atlantic Treaty Organization|NATO]] drills in [[Europe|Eastern Europe]], a withdrawal of [[North Atlantic Treaty Organization|NATO]] forces from [[Europe|Eastern Europe]], a moratorium on missiles in [[Europe]], and keeping [[Crimea]] and [[Donetsk|Donbass]].
 
 ### AF 2022-03-23 0963
-(24:03:40) Putin's post-invasion demands included [[Russian]] sovereignty over [[City of Sevastopol|Crimea]], recognition of independent republics in [[Donetsk|Donbass]], [[Ukraine|Ukrainian]] demilitarization, "denazification," and a constitutional change barring [[North Atlantic Treaty Organization|NATO]] membership.
+(24:03:40) Putin's post-invasion demands included [[Russian]] sovereignty over [[Crimea]], recognition of independent republics in [[Donetsk|Donbass]], [[Ukraine|Ukrainian]] demilitarization, "denazification," and a constitutional change barring [[North Atlantic Treaty Organization|NATO]] membership.
 
 ### AF 2022-03-23 0963
-(25:01:50) [[Nicholas J. Fuentes]] speculated that Putin's ultimate goal might be to create a new [[state]] called "[[Novorossiya]]" east of the [[Dnieper River]], connecting [[Donetsk|Donbass]] with [[City of Sevastopol|Crimea]].
+(25:01:50) [[Nicholas J. Fuentes]] speculated that Putin's ultimate goal might be to create a new [[state]] called "[[Novorossiya]]" east of the [[Dnieper River]], connecting [[Donetsk|Donbass]] with [[Crimea]].
 
 ### AF 2022-03-23 0963
 (26:12:84) An extreme speculation cited by [[Nicholas J. Fuentes]] was that Putin wanted to connect [[Donetsk|Donbass]] with [[Transnistria]], a breakaway [[region]] in [[Moldova]], to control the entire [[Ukraine|Ukrainian]] [[Black Sea]] coast.
@@ -947,7 +947,7 @@
 (45:57:28) [[Nicholas J. Fuentes]] summarized Putin's position since 2014 as being willing to destroy [[Ukraine]] before allowing it to join [[North Atlantic Treaty Organization|NATO]], a position he claimed the [[Kanye West|West]] foolishly challenged.
 
 ### AF 2022-03-23 0963
-(52:46:80) [[Nicholas J. Fuentes]] concluded that [[Volodymyr Zelenskyy|Zelensky]] was unwilling to accept in principle any of Putin's terms for surrender, including on [[City of Sevastopol|Crimea]], [[Donetsk|Donbass]], [[North Atlantic Treaty Organization|NATO]] membership, disarmament, or denazification.
+(52:46:80) [[Nicholas J. Fuentes]] concluded that [[Volodymyr Zelenskyy|Zelensky]] was unwilling to accept in principle any of Putin's terms for surrender, including on [[Crimea]], [[Donetsk|Donbass]], [[North Atlantic Treaty Organization|NATO]] membership, disarmament, or denazification.
 
 ### AF 2022-03-23 0963
 (01:00:01:96) [[Nicholas J. Fuentes]] placed responsibility for the war's continuation on [[Volodymyr Zelenskyy|Zelensky]], arguing Putin had been laying out the same demands since 2008.
@@ -956,7 +956,7 @@
 (01:05:52:28) [[Nicholas J. Fuentes]] criticized the hypocrisy of "pro-democracy people" and globalists who condemn Putin's war while ignoring [[United States|U.S.]] invasions of [[Iraq]], [[Libya]], and [[Syria]].
 
 ### AF 2022-03-23 0963
-(01:06:13:60) [[Nicholas J. Fuentes]] cited [[Gaddafi]], [[Saddam Hussein]], [[Columbia|Colombia]], and [[Serbia]] as examples of [[United States|U.S.]] interventionism while critics called Putin's actions "19th century."
+(01:06:13:60) [[Nicholas J. Fuentes]] cited [[Gaddafi]], [[Saddam Hussein]], [[Colombia]], and [[Serbia]] as examples of [[United States|U.S.]] interventionism while critics called Putin's actions "19th century."
 
 ### AF 2022-03-23 0963
 (01:11:52) [[Nicholas J. Fuentes]] argued that concerns over Putin invading [[Ukraine]] were misplaced given the pre-existing societal problems in the 21st century.
@@ -983,7 +983,7 @@
 (18:52:91) [[Garry Kasparov]], the [[Russia]]n chess grandmaster turned political pundit, authored the book "Winter is Coming," which argued Vladimir Putin was a dictator turning [[Russia]] into a totalitarian [[state]]; [[Nicholas J. Fuentes]] saw him speak at the [[Chicago Council on Global Affairs]].
 
 ### AF 2022-03-21 0962
-(21:19:03) During his debate, [[Destiny|Destiny]] argued that [[Russia]] violated [[Ukraine]]'s sovereignty, that [[Ukraine]]'s desire to join [[North Atlantic Treaty Organization|NATO]] should take precedence over [[Russia]]'s security interests, and that nothing justified the [[Russia]]n invasion, which he attributed to Vladimir Putin's revanchist desires.
+(21:19:03) During his debate, [[Destiny]] argued that [[Russia]] violated [[Ukraine]]'s sovereignty, that [[Ukraine]]'s desire to join [[North Atlantic Treaty Organization|NATO]] should take precedence over [[Russia]]'s security interests, and that nothing justified the [[Russia]]n invasion, which he attributed to Vladimir Putin's revanchist desires.
 
 ### AF 2022-03-21 0962
 (26:00:41) During his debate, [[Nicholas J. Fuentes]] argued that the [[United States]], through a 30-year pattern of expanding [[North Atlantic Treaty Organization|NATO]] and undermining other nations' security, provoked the [[Russia]]-[[Ukraine]] crisis and should accede to Vladimir Putin's demands to neutralize the situation.
@@ -992,7 +992,7 @@
 (43:56:05) Following the [[United States]]'s 2001 withdrawal from the ABM Treaty, Vladimir Putin announced [[Russia]] would be forced to develop hypersonic missile capabilities to counter potential [[United States]] anti-ballistic missile systems.
 
 ### AF 2022-03-21 0962
-(01:26:30:79) Following the 2014 coup, Vladimir Putin invaded [[City of Sevastopol|Crimea]] to counter the Western advance, after which the "Iron Triangle" rallied media and social media to set a pro-[[Ukraine]] narrative laundered through public opinion.
+(01:26:30:79) Following the 2014 coup, Vladimir Putin invaded [[Crimea]] to counter the Western advance, after which the "Iron Triangle" rallied media and social media to set a pro-[[Ukraine]] narrative laundered through public opinion.
 
 ### AF 2022-03-17 0961
 (00:29:56) [[Joe Biden]] declared Vladimir Putin a war criminal and a murderous thug in response to a reporter's question at the [[Joe Biden|White House]].
@@ -1004,7 +1004,7 @@
 (00:36:11) [[Dmitry Peskov]], a spokesperson for the [[Government of Russia|Kremlin]], stated that [[Joe Biden]]'s rhetoric calling Vladimir Putin a war criminal was unacceptable and unforgivable from a head of [[state]] whose [[country]]'s bombs have killed hundreds of thousands globally.
 
 ### AF 2022-03-17 0961
-(07:39:28) [[Nicholas J. Fuentes]] contended that Vladimir Putin's invasion of [[Ukraine]] was a response to unaddressed security concerns, including [[Ukraine]]'s potential [[North Atlantic Treaty Organization|NATO]] membership and the deployment of theater support missiles in Eastern [[Europe]], which [[Government of France|France]] and [[Germany]] had previously acknowledged as provocative.
+(07:39:28) [[Nicholas J. Fuentes]] contended that Vladimir Putin's invasion of [[Ukraine]] was a response to unaddressed security concerns, including [[Ukraine]]'s potential [[North Atlantic Treaty Organization|NATO]] membership and the deployment of theater support missiles in Eastern [[Europe]], which [[France]] and [[Germany]] had previously acknowledged as provocative.
 
 ### AF 2022-03-17 0961
 (07:52:82) [[Nicholas J. Fuentes]] asserted that Vladimir Putin's conduct of the war in [[Ukraine]] did not constitute a war crime, as [[Russia]] was not using banned weapons, targeting civilians, or violating international laws of war conduct, unlike past [[United States]] actions in [[Iraq]], [[Afghanistan]], and [[Libya]].
@@ -1028,13 +1028,13 @@
 (01:39:28) [[Nicholas J. Fuentes]] criticized [[Joe Biden]]'s rhetoric as inappropriate, contrasting it with Vladimir Putin's more diplomatic language, where he refers to [[United States|Americans]] as "partners" or "friends."
 
 ### AF 2022-03-18 0960
-(01:40:50) [[Nicholas J. Fuentes]] stated that Vladimir Putin launched a preemptive invasion of [[Ukraine]] to prevent it from falling into the orbit of the [[Kanye West|West]], citing actions in [[Chechnya]], [[City of Sevastopol|Crimea]], the [[Donetsk|Donbass]], and [[Country of Georgia|Georgia]].
+(01:40:50) [[Nicholas J. Fuentes]] stated that Vladimir Putin launched a preemptive invasion of [[Ukraine]] to prevent it from falling into the orbit of the [[Kanye West|West]], citing actions in [[Chechnya]], [[Crimea]], the [[Donetsk|Donbass]], and [[Country of Georgia|Georgia]].
 
 ### AF 2022-03-18 0960
 (01:41:23) [[Nicholas J. Fuentes]] argued that judging Vladimir Putin as a war criminal for invading [[Ukraine]] creates a moral standard that, when applied to [[United States|US]] actions in [[Afghanistan]], [[Iraq]], [[Libya]], and [[Syria]], would similarly condemn [[United States|American]] leaders.
 
 ### AF 2022-03-18 0960
-(01:47:36) [[Nicholas J. Fuentes]] stated that Vladimir Putin's demand that [[Ukraine]] never join [[North Atlantic Treaty Organization|NATO]] was something [[Germany]] and [[Government of France|France]] agreed with in 2008, and his demand to not deploy theater missiles in [[Europe|Eastern Europe]] was a reasonable security concern ignored by the [[Kanye West|West]].
+(01:47:36) [[Nicholas J. Fuentes]] stated that Vladimir Putin's demand that [[Ukraine]] never join [[North Atlantic Treaty Organization|NATO]] was something [[Germany]] and [[France]] agreed with in 2008, and his demand to not deploy theater missiles in [[Europe|Eastern Europe]] was a reasonable security concern ignored by the [[Kanye West|West]].
 
 ### AF 2022-03-18 0960
 (01:49:52) [[Nicholas J. Fuentes]] asserted that labeling Vladimir Putin a war criminal is dangerous rhetoric that makes diplomacy impossible and should be dropped in favor of discussing policy based on security and national self-interest.
@@ -1088,16 +1088,16 @@
 (08:24:20) [[Nicholas J. Fuentes]] incorrectly predicted that Vladimir Putin would not invade [[Ukraine]], believing the troop buildup was a bluff for high-stakes negotiations.
 
 ### AF 2022-03-08 0954
-(09:13:40) Vladimir Putin's objective in amassing troops on the [[Ukraine|Ukrainian]] border was to force the [[United States]] to negotiate about preventing [[Ukraine]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[Europe|European Union]].
+(09:13:40) Vladimir Putin's objective in amassing troops on the [[Ukraine|Ukrainian]] border was to force the [[United States]] to negotiate about preventing [[Ukraine]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[European Union]].
 
 ### AF 2022-03-08 0954
-(11:37:40) Vladimir Putin recognized the sovereignty of the breakaway regions of [[Luhansk]] and [[Donetsk]] and deployed a peacekeeping force, before launching a broader invasion from [[Belarus]], western [[Russia]], and [[City of Sevastopol|Crimea]].
+(11:37:40) Vladimir Putin recognized the sovereignty of the breakaway regions of [[Luhansk]] and [[Donetsk]] and deployed a peacekeeping force, before launching a broader invasion from [[Belarus]], western [[Russia]], and [[Crimea]].
 
 ### AF 2022-03-08 0954
 (12:35:00) The [[United States|U.S.]] global media branded Vladimir Putin as a [[Adolf Hitler|Hitler]]-like figure and framed the invasion of [[Ukraine]] as analogous to the Anschluss or the invasion of [[Israel|Poland]].
 
 ### AF 2022-03-08 0954
-(54:59:32) In response to the 2014 revolution, Vladimir Putin swiftly invaded and annexed [[City of Sevastopol|Crimea]] and supported separatist movements in [[Donetsk|Donbass]] to retain strategic control and prevent [[Ukraine]]'s integration into Western institutions.
+(54:59:32) In response to the 2014 revolution, Vladimir Putin swiftly invaded and annexed [[Crimea]] and supported separatist movements in [[Donetsk|Donbass]] to retain strategic control and prevent [[Ukraine]]'s integration into Western institutions.
 
 ### AF 2022-03-08 0954
 (58:05:00) [[Hillary Clinton]], as [[Secretary of State]], initiated a "[[Russian]] reset" with Foreign Minister [[Sergey Lavrov]], and [[George W. Bush]] said he looked into Vladimir Putin's eyes and saw his soul, reflecting a period of attempted partnership.
@@ -1154,10 +1154,10 @@
 (00:40:48) [[Nicholas J. Fuentes]] noted that the [[United States]] government, by telling citizens to evacuate and deploying troops, was putting the spotlight on [[Russia]] and challenging Putin to "put up or shut up," making the situation unpredictable.
 
 ### AF 2022-02-04 0942
-(30:25:65) [[Nicholas J. Fuentes]] summarized the [[Russia]]-[[Ukraine]] standoff, stating that Vladimir Putin demanded a commitment that [[Ukraine]] would not join [[North Atlantic Treaty Organization|NATO]] or the [[Europe|European Union]], threatening war otherwise, while also having offensive objectives to seize valuable land in eastern [[Ukraine]].
+(30:25:65) [[Nicholas J. Fuentes]] summarized the [[Russia]]-[[Ukraine]] standoff, stating that Vladimir Putin demanded a commitment that [[Ukraine]] would not join [[North Atlantic Treaty Organization|NATO]] or the [[European Union]], threatening war otherwise, while also having offensive objectives to seize valuable land in eastern [[Ukraine]].
 
 ### AF 2022-02-04 0942
-(31:58:79) Vladimir Putin previously seized [[City of Sevastopol|Crimea]] in 2014 to project power into the [[Black Sea]] and protect the [[Russia]]n [[Black Sea]] fleet, and supports the breakaway [[Luhansk]] and [[Donetsk]] republics in eastern [[Ukraine]].
+(31:58:79) Vladimir Putin previously seized [[Crimea]] in 2014 to project power into the [[Black Sea]] and protect the [[Russia]]n [[Black Sea]] fleet, and supports the breakaway [[Luhansk]] and [[Donetsk]] republics in eastern [[Ukraine]].
 
 ### AF 2022-01-20 0939
 (00:56:58) [[Nicholas J. Fuentes]] criticized [[Joe Biden]] for undermining the [[United States|U.S.]] deterrent posture by suggesting a "minor incursion" might not provoke a full response, which he believed signaled weakness to Vladimir Putin.
@@ -1184,7 +1184,7 @@
 (41:06:23) [[Nicholas J. Fuentes]] expressed concern about the direction of [[United States|American]] rhetoric regarding the [[Ukraine]] War, specifically claims by the regime that Vladimir Putin is a war criminal and might use chemical weapons.
 
 ### AF 2022-04-09 0975
-(41:21:03) [[Joe Biden]] attended [[North Atlantic Treaty Organization|NATO]], [[Europe|European Union]], and [[Group of Seven|G7]] summits in [[Europe]], where the main topics were war crimes in [[Ukraine]] and the potential use of chemical weapons by Vladimir Putin.
+(41:21:03) [[Joe Biden]] attended [[North Atlantic Treaty Organization|NATO]], [[European Union]], and [[Group of Seven|G7]] summits in [[Europe]], where the main topics were war crimes in [[Ukraine]] and the potential use of chemical weapons by Vladimir Putin.
 
 ### AF 2022-04-09 0975
 (41:52:99) Multiple [[United States|US]] institutions, including the [[U.S. National Security Council|National Security Council]], [[U.S. Department of Defense|Pentagon]], [[U.S. Department of State|State Department]], [[White House]], and the [[NATO Secretary General]], made coordinated statements that Vladimir Putin might use chemical weapons.
@@ -1235,7 +1235,7 @@
 (00:32:03) [[Joe Biden]] informed Vladimir Putin of plans to expel diplomats and apply new sanctions as punishment for the SolarWinds hack and alleged [[Russian]] meddling in the 2020 election during an April phone call, but simultaneously offered a summer summit.
 
 ### AF 2021-06-03 0822
-(00:49:49) [[Nicholas J. Fuentes]] claimed that Vladimir Putin had done more to speak up for the rights of [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] protesters than [[Donald Trump]], [[Mike Pence]], or [[Republican Party|Republican]] congressional leaders like [[Mike Johnson|Kevin McCarthy]].
+(00:49:49) [[Nicholas J. Fuentes]] claimed that Vladimir Putin had done more to speak up for the rights of [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] protesters than [[Donald Trump]], [[Mike Pence]], or [[Republican Party|Republican]] congressional leaders like [[Kevin McCarthy]].
 
 ### AF 2021-04-28 0801
 (00:48:12) [[Joe Biden]] stated he made clear to Vladimir Putin that [[United States|U.S.]] actions would have consequences, and had responded directly and proportionally to [[Russia]]'s election interference and cyber attacks.
@@ -1277,7 +1277,7 @@
 (00:52:28) [[Kamala Harris]] stated foreign policy was about relationships, accusing [[Donald Trump]] of betraying friends and embracing dictators, specifically citing his preference for Vladimir Putin's word over the [[United States|U.S]]. intelligence community on [[Russian]] election interference.
 
 ### AF 2020-10-02 0694
-(00:30:06) Vladimir Putin and [[Kim Jong Un|Kim Jong-un]] were among the first world leaders to wish [[Donald Trump]] a speedy recovery, with Vladimir Putin citing [[Donald Trump|the president's]] "inherent vitality, good spirits, and optimism."
+(00:30:06) Vladimir Putin and [[Kim Jong Un|Kim Jong-un]] were among the first world leaders to wish [[Donald Trump]] a speedy recovery, with Vladimir Putin citing [[the president's]] "inherent vitality, good spirits, and optimism."
 
 ### AF 2020-08-18 0663
 (01:17:93) At the [[Democratic National Convention]], [[Sally Yates]] stated that [[Donald Trump]] used his presidency for self-benefit, trampled the rule of law, weaponized the [[U.S. Department of Justice|Justice Department]], fawned over Vladimir Putin, and sabotaged the postal service to suppress voting.
@@ -1340,7 +1340,7 @@
 (01:04:41:110) [[Nicholas J. Fuentes]] continued reading an [[NBC News]] article stating that the [[Joe Biden|Biden administration]] used "declassified intelligence as part of an information war against [[Russia]]," even when the intelligence "wasn't rock solid," to keep Vladimir Putin "off balance."
 
 ### AF 2022-04-08 0974
-(01:06:05:610) [[United States]] officials, according to an [[NBC News]] article, acknowledged using "disinformation" or "information as a weapon" against [[Russia]], even with low confidence in its accuracy, to "preempt and disrupt the [[Government of Russia|Kremlin]]'s tactics," "complicate its military campaign," "undermine [[City of Moscow|Moscow]]'s propaganda," and "get inside Vladimir Putin's head."
+(01:06:05:610) [[United States]] officials, according to an [[NBC News]] article, acknowledged using "disinformation" or "information as a weapon" against [[Russia]], even with low confidence in its accuracy, to "preempt and disrupt the [[Government of Russia|Kremlin]]'s tactics," "complicate its military campaign," "undermine [[Moscow]]'s propaganda," and "get inside Vladimir Putin's head."
 
 ### AF 2019-07-08 0420
 (00:24:83) Vladimir Putin was pulled out of meetings to spontaneously meet with his defense minister during the same incident.
@@ -1367,7 +1367,7 @@
 (00:55:00) A caller referenced [[Jared Taylor]] meeting with leaders of far-right militant groups in [[Ukraine]] that were being funded by Putin to fight against the [[Ukraine|Ukrainians]].
 
 ### AF 2019-02-01 0323
-(00:57:40) [[Nicholas J. Fuentes]] argued that Putin's actions in [[Ukraine]], including the annexation of [[City of Sevastopol|Crimea]] and support for rebels in [[Donetsk|Donbass]], were primarily to prevent [[Ukraine]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[Europe|European Union]], and that the [[United States]] should respect [[Russia]]'s sphere of influence.
+(00:57:40) [[Nicholas J. Fuentes]] argued that Putin's actions in [[Ukraine]], including the annexation of [[Crimea]] and support for rebels in [[Donetsk|Donbass]], were primarily to prevent [[Ukraine]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[European Union]], and that the [[United States]] should respect [[Russia]]'s sphere of influence.
 
 ### AF 2019-01-31 0322
 (16:54:90) Authoritarian leaders like Putin of [[Russia]], [[Recep Tayyip Erdogan|Erdoğan]] of [[Turkey]], and [[Xi Jinping]] of [[China]] are cited as examples of figures more powerful than foreign or moneyed interests, incentivized to serve their people to enhance their power.
@@ -1427,7 +1427,7 @@
 (00:04:50) [[Nicholas J. Fuentes]] cited a [[Warner Bros. Discovery|CNN]] cartoon depicting [[Donald Trump]] and Vladimir Putin "making out" after the Helsinki summit and [[Warner Bros. Discovery|CNN]]'s doxxing of a teenager as examples of acceptable media conduct, contrasting it with the defense of [[Sarah Jeong]].
 
 ### AF 2018-07-18 0203
-(00:13:40) Tensions between the [[United States]] and [[Russia]] escalated significantly after Vladimir Putin's military incursions into [[Country of Georgia|Georgia]] in 2008 and [[City of Sevastopol|Crimea]] in 2014, followed by [[Russian]] involvement in [[Syria]] and an arms race over ballistic missile systems.
+(00:13:40) Tensions between the [[United States]] and [[Russia]] escalated significantly after Vladimir Putin's military incursions into [[Country of Georgia|Georgia]] in 2008 and [[Crimea]] in 2014, followed by [[Russian]] involvement in [[Syria]] and an arms race over ballistic missile systems.
 
 ### AF 2018-07-18 0203
 (00:25:09) A [[Thomson Reuters|Reuters]] poll indicated that 71% of [[Republican Party|Republicans]] approved of the [[Donald Trump|Trump]]-Putin summit, suggesting broad public support for diplomatic engagement with [[Russia]] despite negative media coverage.
@@ -1457,7 +1457,7 @@
 (00:22:07) [[John McCain]] stated that no prior president had ever abased himself more abjectly before a tyrant than [[Donald Trump|Trump]] did before Putin.
 
 ### AF 2018-07-16 0201
-(00:23:30) [[Chuck Schumer]] stated that for [[Donald Trump|the president]] to side with Putin against [[United States|American]] law enforcement and intelligence agencies was thoughtless, dangerous, and weak.
+(00:23:30) [[Chuck Schumer]] stated that for [[the president]] to side with Putin against [[United States|American]] law enforcement and intelligence agencies was thoughtless, dangerous, and weak.
 
 ### AF 2018-07-16 0201
 (00:26:35) [[Nicholas J. Fuentes]] cited a 2016 quote from [[Barack Obama]] where [[Obama]] argued that public shaming was ineffective against [[Russia]] because Putin would simply deny meddling allegations.
@@ -1469,7 +1469,7 @@
 (19:47:28) During [[Ukraine]]'s transition from a pro-[[Russian]] to a pro-Western government, Vladimir Putin cut off natural gas supplies to the [[country]] as a means of exerting power.
 
 ### AF 2018-07-11 0198
-(36:24:10) [[Donald Trump]]'s schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[City of London|London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President Vladimir Putin in [[Helsinki]], [[Finland]].
+(36:24:10) [[Donald Trump]]'s schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President Vladimir Putin in [[Helsinki]], [[Finland]].
 
 ### AF 2018-06-29 0191
 (01:01:20:25) [[Donald Trump]] was reportedly discussing the withdrawal of [[United States]] troops from [[Germany]] ahead of his meeting with Vladimir Putin on July 16th.
@@ -1511,7 +1511,7 @@
 (00:29:20) [[Lindsey Graham]] argued that failing to expel [[Russian]] diplomats after [[Donald Trump]]'s call to Vladimir Putin would be seen by [[Russia]] as a sign of [[United States|American]] weakness.
 
 ### AF 2018-03-21 0129
-(00:31:50) [[Angela Merkel]], [[Emmanuel Macron]], and [[Jean-Claude Juncker]] of the [[Europe|European Union]] also congratulated Vladimir Putin on his election victory.
+(00:31:50) [[Angela Merkel]], [[Emmanuel Macron]], and [[Jean-Claude Juncker]] of the [[European Union]] also congratulated Vladimir Putin on his election victory.
 
 ### AF 2018-03-21 0129
 (00:32:30) In 2012, [[Barack Obama]] called Vladimir Putin to congratulate him on his election victory after Putin changed the [[constitution]] to allow for additional terms.
@@ -1535,7 +1535,7 @@
 (00:19:29) [[Donald Trump]] met with Vladimir Putin of [[Russia]], whom the mainstream media characterized as a tyrant and autocrat [[who]] meddled in [[United States]] elections.
 
 ### AF 2018-03-01 0116
-(00:39:40) Vladimir Putin delivered a [[State of Illinois|State]] of the Nation address in [[City of Moscow|Moscow]], dedicating a significant portion to announcing new [[Russian]] weapons systems including a nuclear-powered cruise missile, an underwater drone, and a hypersonic missile.
+(00:39:40) Vladimir Putin delivered a [[State of Illinois|State]] of the Nation address in [[Moscow]], dedicating a significant portion to announcing new [[Russian]] weapons systems including a nuclear-powered cruise missile, an underwater drone, and a hypersonic missile.
 
 ### AF 2018-03-01 0116
 (00:52:40) Vladimir Putin asserted that [[Russia's]] new hypersonic missile could penetrate any anti-ballistic missile (ABM) defense shield and reach any point on the globe, a development he framed as a response to [[United States]] and [[North Atlantic Treaty Organization|NATO]] expansion.
@@ -1556,19 +1556,19 @@
 (00:21:01) Vladimir Putin called [[Benjamin Netanyahu|Bibi]] to demand [[Israel]] halt its airstrikes in [[Syria]], where [[Russia]] was supporting the [[Bashar al-Assad|Assad]] regime alongside [[Iran]] and [[China]].
 
 ### AF 2018-01-29 0096
-(07:48:58) [[Nicholas J. Fuentes]] stated the dossier was a 35-[[page]] document compiled by former [[United Kingdom|British]] spy [[Christopher Steele]], which alleged [[Donald Trump]] was compromised by Vladimir Putin during a trip to [[City of Moscow|Moscow]].
+(07:48:58) [[Nicholas J. Fuentes]] stated the dossier was a 35-[[page]] document compiled by former [[United Kingdom|British]] spy [[Christopher Steele]], which alleged [[Donald Trump]] was compromised by Vladimir Putin during a trip to [[Moscow]].
 
 ### AF 2018-01-18 0089
 (00:57:32) [[Nicholas J. Fuentes]] contrasted the [[United States]] with [[China]] and [[Russia]], stating that in [[China]] the party under [[Xi Jinping]] goes after financial interests, while in [[Russia]] Vladimir Putin controls the oligarchs.
 
 ### AF 2018-01-12 0085
-(00:23:48) The [[Donald Trump|Trump]] dossier, compiled by [[Christopher Steele]], alleged that [[Donald Trump]] was invited to [[City of Moscow|Moscow]] by Vladimir Putin, stayed in a room reserved for [[Barack Obama]], and had prostitutes urinate on the bed while Vladimir Putin filmed it for blackmail.
+(00:23:48) The [[Donald Trump|Trump]] dossier, compiled by [[Christopher Steele]], alleged that [[Donald Trump]] was invited to [[Moscow]] by Vladimir Putin, stayed in a room reserved for [[Barack Obama]], and had prostitutes urinate on the bed while Vladimir Putin filmed it for blackmail.
 
 ### AF 2018-01-10 0083
 (00:01:07) [[Nicholas J. Fuentes]] observed that several prominent figures, including [[Newt Gingrich]], Vladimir Putin, [[John Kerry]], and [[George W. Bush|George Bush]], had recently traveled to [[Antarctica]], prompting public speculation about the purpose of these visits.
 
 ### AF 2018-01-03 0078
-(01:03:13:340) The [[United States]] approved the sale of defensive weapons to [[Ukraine]], a move seen as a response to Vladimir Putin's annexation of [[City of Sevastopol|Crimea]] and support for separatists in eastern [[Ukraine]].
+(01:03:13:340) The [[United States]] approved the sale of defensive weapons to [[Ukraine]], a move seen as a response to Vladimir Putin's annexation of [[Crimea]] and support for separatists in eastern [[Ukraine]].
 
 ### AF 2017-12-11 0068
 (00:28:88) Vladimir Putin made an unannounced visit to [[Syria]] to announce the withdrawal of [[Russian]] troops, following declarations by the governments of [[Syria]] and [[Iraq]] that the Islamic [[State of Illinois|State]] had been defeated.
@@ -1583,7 +1583,7 @@
 (00:28:57) [[Paul Nehlen]] referenced Putin's Russia subsidizing the [[Clinton Initiative]] through uranium deals and [[George Soros]] funding special interest groups with an $18 billion cash injection.
 
 ### AF 2017-10-13 0031
-(01:43:40) Vladimir Putin's visible, accountable form of rule in [[Russia]] is presented as preferable to the invisible, unaccountable managerial class tyranny perceived in the [[United States]] and [[Europe|European Union]].
+(01:43:40) Vladimir Putin's visible, accountable form of rule in [[Russia]] is presented as preferable to the invisible, unaccountable managerial class tyranny perceived in the [[United States]] and [[European Union]].
 
 ### AF 2017-10-06 0026
 (00:45:00) [[Nicholas J. Fuentes]] praised Vladimir Putin as a strong executive [[who]] subdued [[Russia]]'s oligarchs after coming to power in 1999, contrasting him favorably with a technocratic system like that of [[Hillary Clinton]].
@@ -1596,3 +1596,9 @@
 
 ### AF 2021-05-26 0817
 (23:24:720) Putin's animosity towards [[Ukraine]] and [[Alexei Navalny]] is akin to [[Washington D.C.|Washington, D.C.]]'s animosity towards [[Nicholas J. Fuentes]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:52:33) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] demolished the East Wing to build a giant ballroom so he can host world leaders like Vladimir Putin and [[Xi Jinping]] in a space he feels is not "outclassed."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:35:29) [[Nicholas J. Fuentes]] argued that the [[United States]] needs a "Putin like figure" or a "[[Xi Jinping]] like figure" because the [[president]] cannot fight the billionaires, foreign states, media, and intelligence agencies all at once.

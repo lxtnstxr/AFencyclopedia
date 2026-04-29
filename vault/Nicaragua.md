@@ -17,7 +17,7 @@
 (01:35:08) [[Tucker Carlson]] went to Nicaragua with [[Daily Caller]] co-founder [[Neil Patel]] to fight for the [[Central Intelligence Agency|CIA]]-backed Contras and celebrate their victory before applying to the [[Central Intelligence Agency|CIA]] himself, but was denied due to a failed drug test.
 
 ### AF 2024-07-30 1363
-(00:52:50) [[Daniel Ortega]] of Nicaragua and [[Miguel Díaz-Canel Bermúdez]] of [[Cuba]] congratulated [[Nicolás Maduro]] on his electoral victory, while [[Vladimir Putin]] of the [[Government of Russia|Russian Federation]] expressed eagerness to strengthen ties with [[Venezuela]].
+(00:52:50) [[Daniel Ortega]] of Nicaragua and [[Miguel Díaz-Canel Bermúdez]] of [[Cuba]] congratulated [[Nicolás Maduro]] on his electoral victory, while [[Vladimir Putin]] of the [[Russian Federation]] expressed eagerness to strengthen ties with [[Venezuela]].
 
 ### AF 2025-12-06 1609
 (03:44:35) [[Marco Rubio]] seeks to trawl through the [[Caribbean]], [[Venezuela]], [[Cuba]], and Nicaragua.
@@ -38,7 +38,7 @@
 (00:23:29) [[Nicholas J. Fuentes]] predicted that Cold War divisions would reassert in the Western Hemisphere, with states like [[Cuba]], [[Venezuela]], [[Bolivia]], Nicaragua, and [[Haiti]] aligning against Western interests.
 
 ### AF 2023-05-26 1167
-(12:15:64) [[Nicholas J. Fuentes]] observed that historically, countries like [[Spain]], [[Government of France|France]], [[United Kingdom|England]], [[Russia]], [[Iran]], [[Arab Republic of Egypt|Egypt]], and Nicaragua with significant [[Jewish]] minorities eventually turned against them for similar reasons.
+(12:15:64) [[Nicholas J. Fuentes]] observed that historically, countries like [[Spain]], [[France]], [[United Kingdom|England]], [[Russia]], [[Iran]], [[Arab Republic of Egypt|Egypt]], and Nicaragua with significant [[Jewish]] minorities eventually turned against them for similar reasons.
 
 ### AF 2023-04-25 1152
 (00:35:29) [[Nicholas J. Fuentes]], citing the thread, stated that [[Tucker Carlson]]'s "origin story" began in the 1980s when he traveled to Nicaragua during its [[civil war]] as a "freedom fighter for the [[United States|U.S]].-backed Contras," attending rallies for Contra-backed candidate [[Violeta Chamorro]].
@@ -84,3 +84,6 @@
 
 ### AF 2019-03-11 0344
 (00:30:34) [[Kirstjen Nielsen]], the [[U.S. Department of Homeland Security|DHS]] Secretary, extended Temporary Protected Status for approximately 84 [[South Sudanese]] nationals and for over 300,000 nationals from [[Republic of the Sudan|Sudan]], [[Haiti]], Nicaragua, and [[El Salvador]] living in the [[United States]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:28:40) [[Nicholas J. Fuentes]] argued that [[Marco Rubio]] had a “golden parachute” because he would be associated with successes in [[Venezuela]], [[Cuba]], and Nicaragua, while [[JD Vance]] would be left to burn politically, associated with the war in [[Iran]].

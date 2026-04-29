@@ -166,7 +166,7 @@
 (17:19:32) Gretchen Whitmer and [[State of Michigan|Michigan]] Attorney General [[Dana Nessel]] tied the extremist plot to comments from [[Donald Trump]] and his refusal to condemn white supremacists and violent right-wing groups.
 
 ### AF 2020-10-08 0698
-(19:36:80) Gretchen Whitmer claimed that extremists heard [[Donald Trump]]'s words "not as a rebuke, but as a rallying cry," despite court documents indicating no direct inspiration from [[Donald Trump|the president]].
+(19:36:80) Gretchen Whitmer claimed that extremists heard [[Donald Trump]]'s words "not as a rebuke, but as a rallying cry," despite court documents indicating no direct inspiration from [[the president]].
 
 ### AF 2020-10-08 0698
 (20:59:30) [[Nicholas J. Fuentes]] compared the framing of the Gretchen Whitmer kidnapping plot to the media's handling of the 2019 [[El Paso]] shooting, where an anti-immigration manifesto was linked to the shooter without a confirmed paper trail.
@@ -178,7 +178,7 @@
 (35:18:36) [[Nicholas J. Fuentes]] dismissed the Gretchen Whitmer kidnapping plot as unbelievable, citing details like trap doors and a group called the "Wolverine Watchmen" that nobody had heard of.
 
 ### AF 2020-08-17 0662
-(02:06:00) Governor Gretchen Whitmer of [[State of Michigan|Michigan]] spoke from a [[UAW]] hall in [[City of Lansing|Lansing]], crediting the [[Obama-Biden]] administration with saving the auto industry and criticizing [[Donald Trump]]'s pandemic response, while arguing essential workers were the nation's MVPs.
+(02:06:00) Governor Gretchen Whitmer of [[State of Michigan|Michigan]] spoke from a [[UAW]] hall in [[Lansing]], crediting the [[Obama-Biden]] administration with saving the auto industry and criticizing [[Donald Trump]]'s pandemic response, while arguing essential workers were the nation's MVPs.
 
 ### AF 2020-01-14 0524
 (16:26:40) [[Amy Klobuchar]] argued that competence, not gender, determined electoral success, pointing to [[Democratic Party|Democratic]] women governors like Gretchen Whitmer in [[State of Michigan|Michigan]] and [[Laura Kelly]] in [[Kansas]] [[who]] had defeated [[Republican Party|Republicans]].

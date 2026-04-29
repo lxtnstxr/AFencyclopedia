@@ -46,3 +46,6 @@
 
 ### AF 2017-10-30 0042
 (00:41:33) [[Netflix]] canceled *[[House]] of Cards* and announced its upcoming sixth season would be its last following the allegations against Kevin Spacey.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:55:31.660) [[Nicholas J. Fuentes]] questioned why [[Tucker Carlson]] interviewed Kevin Spacey and is best friends with [[Max Blumenthal]].

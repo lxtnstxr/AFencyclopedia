@@ -9,13 +9,13 @@
 (02:51:800) Southwest Airlines experienced a similar nationwide grounding incident in January of the same year.
 
 ### AF 2022-02-15 0947
-(00:12:24) [[Nicholas J. Fuentes]] was also prevented from boarding a Southwest Airlines flight from [[City of Chicago|Chicago]]'s Midway Airport to [[City of Phoenix|Phoenix]], leading him to conclude he was on a federal no-fly list.
+(00:12:24) [[Nicholas J. Fuentes]] was also prevented from boarding a Southwest Airlines flight from [[Chicago]]'s Midway Airport to [[Phoenix]], leading him to conclude he was on a federal no-fly list.
 
 ### AF 2021-11-02 0905
 (00:07:37) [[Nicholas J. Fuentes]] drew a parallel to Southwest Airlines canceling roughly 2,500 flights a few weeks earlier, which was also attributed by the company and unions to bad weather and personnel issues.
 
 ### AF 2021-11-02 0905
-(00:08:45) [[Nicholas J. Fuentes]] connected the flight cancellations to vaccine mandate deadlines, citing similar walkouts or protests by the [[New York|New York City]] fire department, the [[City of Chicago|Chicago]] police force, and Southwest Airlines employees.
+(00:08:45) [[Nicholas J. Fuentes]] connected the flight cancellations to vaccine mandate deadlines, citing similar walkouts or protests by the [[New York|New York City]] fire department, the [[Chicago]] police force, and Southwest Airlines employees.
 
 ### AF 2021-11-02 0905
 (00:42:28) [[Nicholas J. Fuentes]] began discussing the [[American Airlines]] story as a "redux" of the earlier Southwest Airlines incident, connecting both to vaccine mandate deadlines.
@@ -63,7 +63,7 @@
 (02:20:86) Major national news media, including [[ABC News|ABC]], [[NBC]], [[CBS News|CBS]], and [[Fox News]], denied and did not report that the Southwest Airlines flight cancellations were related to a vaccine mandate protest.
 
 ### AF 2021-10-14 0893
-(00:50:07) [[Nicholas J. Fuentes]] cited the Southwest Airlines pilots' union, the [[City of Chicago|Chicago]] police union, and other worker protests as examples of growing organized resistance to vaccine mandates.
+(00:50:07) [[Nicholas J. Fuentes]] cited the Southwest Airlines pilots' union, the [[Chicago]] police union, and other worker protests as examples of growing organized resistance to vaccine mandates.
 
 ### AF 2021-10-12 0891
 (00:00:00) [[Nicholas J. Fuentes]] reported that over 2,500 flights, representing 30% of its daily operations, were grounded in a potential unofficial strike by Southwest Airlines employees protesting a federal vaccine mandate.
@@ -81,10 +81,10 @@
 (03:17:00) [[Nicholas J. Fuentes]] stated he was blocked from flying with Southwest Airlines and was unsure if he was on a broader no-fly list.
 
 ### AF 2021-04-27 0800
-(00:11:54) To test the nature of the travel restriction, [[Nicholas J. Fuentes]] booked a flight on Southwest Airlines from [[City of Chicago|Chicago]] Midway International Airport to [[City of Phoenix|Phoenix]], [[Arizona]], and was again prevented from checking in or receiving a boarding pass after a 30-minute consultation between airline staff and the [[Transportation Security Administration|TSA]].
+(00:11:54) To test the nature of the travel restriction, [[Nicholas J. Fuentes]] booked a flight on Southwest Airlines from [[Chicago]] Midway International Airport to [[Phoenix]], [[Arizona]], and was again prevented from checking in or receiving a boarding pass after a 30-minute consultation between airline staff and the [[Transportation Security Administration|TSA]].
 
 ### AF 2021-04-27 0800
-(00:17:35) A Southwest Airlines employee at [[City of Chicago|Chicago]] Midway International Airport used the phrase "no-fly list" while informing [[Nicholas J. Fuentes]] he was not allowed to board his flight, a moment he recorded and posted on [[Twitter]].
+(00:17:35) A Southwest Airlines employee at [[Chicago]] Midway International Airport used the phrase "no-fly list" while informing [[Nicholas J. Fuentes]] he was not allowed to board his flight, a moment he recorded and posted on [[Twitter]].
 
 ### AF 2021-04-27 0800
 (00:18:27) After being prevented from flying on three different airlines ([[American Airlines]], [[United Airlines]], and Southwest Airlines) at two different airports (O'Hare and Midway) to two different destinations ([[State of Florida|Florida]] and [[Arizona]]), [[Nicholas J. Fuentes]] concluded he was on a federal [[Transportation Security Administration|TSA]]-enforced no-fly list.

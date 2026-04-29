@@ -9,7 +9,7 @@
 (16:31:44) [[Nicholas J. Fuentes]] and [[Jaden McNeil]] drove through Nebraska and [[State of Colorado|Colorado]], arriving in [[Denver]] for a meetup with local supporters.
 
 ### AF 2021-04-07 0787
-(00:43:50) [[Nicholas J. Fuentes]] referenced [[Donald Trump|Trump]] supporters killed by [[Antifa]] in [[City of Seattle|Seattle]] and [[City of Portland|Portland]], and a pawn shop defender in [[Kansas]] or Nebraska who killed himself after being arrested, as examples of people who did not anticipate being victimized.
+(00:43:50) [[Nicholas J. Fuentes]] referenced [[Donald Trump|Trump]] supporters killed by [[Antifa]] in [[Seattle]] and [[Portland]], and a pawn shop defender in [[Kansas]] or Nebraska who killed himself after being arrested, as examples of people who did not anticipate being victimized.
 
 ### AF 2020-11-03 0715
 (01:56:56) During live election coverage, [[Nicholas J. Fuentes]] noted that [[Donald Trump]] had won [[North Dakota]], [[United States|South Dakota]], [[Wyoming]], and Nebraska, thanking panelist Jaden McNeil for delivering Nebraska.

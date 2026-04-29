@@ -28,7 +28,7 @@
 (48:40:20) [[Nicholas J. Fuentes]] argued that conservatism is experiencing a resurgence as a "perennial" recognition of human nature, citing a longing for tradition evident in movements in [[Europe|Eastern Europe]], [[Italian Republic|Italy]], [[Germany]], Brexit, and the election of [[Donald Trump]], despite opposition from left-controlled institutions.
 
 ### AF 2018-07-13 0200
-(01:15:18) The caller expressed pessimism about Brexit, stating that free movement of people was the one non-negotiable issue for the [[Europe|European Union]], which [[Nicholas J. Fuentes]] suggested was indicative of broader problems.
+(01:15:18) The caller expressed pessimism about Brexit, stating that free movement of people was the one non-negotiable issue for the [[European Union]], which [[Nicholas J. Fuentes]] suggested was indicative of broader problems.
 
 ### AF 2018-07-12 0199
 (01:21:32) [[Donald Trump]] arrived in the [[United Kingdom]] and commented on the Brexit negotiations, stating he had advised [[Theresa May]] on a course of action which she did not follow.

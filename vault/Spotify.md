@@ -85,3 +85,12 @@
 
 ### AF 2018-08-06 0215
 (00:43:58) [[Apple Inc.|Apple]], [[Facebook]], [[Google|YouTube]], Spotify, [[Stitcher]], and [[Pinterest]] removed all [[Alex Jones|InfoWars]] content from their platforms, leaving [[Twitter]] as its primary remaining host.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:07:09) [[Peter Thiel]] advised [[Jeffrey Epstein]] to hold off on investing in Spotify.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:33:35) [[Nicholas J. Fuentes]] argued that [[Tucker Carlson]] and [[Candace Owens]] are "in on it" and have been "deployed" by the system because they are allowed on platforms like [[Google|YouTube]], Spotify, and [[Apple Inc.|Apple]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:34:20) [[Nicholas J. Fuentes]] stated that he is banned from all major social media platforms, including [[Google|YouTube]] and Spotify, while [[Tucker Carlson]] and [[Candace Owens]] are promoted.

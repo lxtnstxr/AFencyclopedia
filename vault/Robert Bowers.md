@@ -2,7 +2,7 @@
 #person
 
 ### AF 2019-08-08 0436
-(00:05:34) [[Nicholas J. Fuentes]] cited a pattern of social media crackdowns following mass casualty events like the [[City of Charlottesville|Charlottesville rally]], the Pittsburgh synagogue shooting by Robert Bowers, the [[New Zealand mosque shooting]], and the [[El Paso shooting]].
+(00:05:34) [[Nicholas J. Fuentes]] cited a pattern of social media crackdowns following mass casualty events like the [[Charlottesville rally]], the Pittsburgh synagogue shooting by Robert Bowers, the [[New Zealand mosque shooting]], and the [[El Paso shooting]].
 
 
 ### AF 2019-07-22 0424

@@ -14,7 +14,7 @@
 (06:34:90) BG Cumbie states he considers [[Jesse Watters]] one of his best friends and holds no animosity towards him.
 (06:54:74) BG Cumbie lists [[Felix Kjellberg]] ([[Felix Kjellberg|PewDiePie]]) as one of his peers.
 (08:56:02) BG Cumbie states he now attends the University of [[State of Mississippi|Mississippi]] (Ole Miss).
-(09:06:36) BG Cumbie reveals he is originally from [[City of Phoenix|Phoenix]], [[Arizona]].
+(09:06:36) BG Cumbie reveals he is originally from [[Phoenix]], [[Arizona]].
 (09:33:26) BG Cumbie describes working on a new southern character named Burt Gunslinger, the leader of the [[National Rifle Association|NRA]].
 (10:52:76) BG Cumbie outlines his future projects, including a film, a book, a board game, a magazine, tampons, and a streaming service branded under his name.
 (12:41:80) [[Nicholas J. Fuentes]] notes that BG Cumbie is about to gain many followers on [[Twitter]] from appearing on his show.

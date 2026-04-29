@@ -4,7 +4,7 @@
 ### AF 2025-09-25 1571
 (00:56:59) Emmanuel Macron organized the diplomatic effort to block [[Israel]] from annexing the occupied territories.
 (01:04:05:03) Emmanuel Macron announced that [[France]] would move to recognize a [[Palestinian]] state at the [[United Nations]] to create a diplomatic red line and potential sanctions against [[Israel]].
-(01:15:55:39) Emmanuel Macron said recognizing [[Palestinian]] statehood is "the last minute before [[Gaza Strip|Palestine]] is irreversibly erased from the map."
+(01:15:55:39) Emmanuel Macron said recognizing [[Palestinian]] statehood is "the last minute before [[Palestine]] is irreversibly erased from the map."
 ### AF 2025-10-10 1579
 (01:34:26:23) [[Candace Owens]] praised [[Pavel Durov]], the founder of [[Telegram]], which is headquartered in [[Russian Federation|Russia]], and [[Russian Federation|Russia]] is a noted adversary of Macron's [[France]].
 ### AF 2025-10-23 1585
@@ -32,10 +32,10 @@
 (00:07:48) [[Candace Owens]] has expressed strong criticism of Emmanuel Macron and [[Brigitte Macron]].
 
 ### AF 2025-08-26 1557
-(00:40:48) Emmanuel Macron, the [[France|French]] President, stated that if [[France]] does not intervene and declare its recognition of [[Gaza Strip|Palestine]], there will be no [[Gaza Strip|Palestine]] [[left]] to recognize because [[Benjamin Netanyahu]] is "wiping it off the map."
+(00:40:48) Emmanuel Macron, the [[France|French]] President, stated that if [[France]] does not intervene and declare its recognition of [[Palestine]], there will be no [[Palestine]] [[left]] to recognize because [[Benjamin Netanyahu]] is "wiping it off the map."
 
 ### AF 2025-08-26 1557
-(00:42:43) [[Charles Kushner]] sent a letter to Emmanuel Macron, the [[France|French]] President, on behalf of the [[United States]], accusing [[France]] of insufficient action against anti-Semitism and condemning [[France]]'s recognition of [[Gaza Strip|Palestine]].
+(00:42:43) [[Charles Kushner]] sent a letter to Emmanuel Macron, the [[France|French]] President, on behalf of the [[United States]], accusing [[France]] of insufficient action against anti-Semitism and condemning [[France]]'s recognition of [[Palestine]].
 
 ### AF 2025-08-26 1557
 (00:43:52) The [[The New York Times|New York Times]] reported that [[Charles Kushner]] was ordered to report to the [[Ministry for Europe and Foreign Affairs|French foreign ministry]] after accusing Emmanuel Macron's government of not doing enough to combat anti-Semitism in his letter.
@@ -47,13 +47,13 @@
 (00:45:18) [[Benjamin Netanyahu]] condemned Emmanuel Macron's announcement to recognize a [[Palestinian]] state, stating that the move "pours fuel on an anti-Semitic fire."
 
 ### AF 2025-08-26 1557
-(00:45:29) In a letter to Emmanuel Macron released to the news media, [[Charles Kushner]] alleged that gestures like recognizing [[Gaza Strip|Palestine]] embolden extremists, fuel violence, and endanger [[Jewish]] life in [[France]].
+(00:45:29) In a letter to Emmanuel Macron released to the news media, [[Charles Kushner]] alleged that gestures like recognizing [[Palestine]] embolden extremists, fuel violence, and endanger [[Jewish]] life in [[France]].
 
 ### AF 2025-08-26 1557
 (00:52:16) Emmanuel Macron advocates for [[France|French]] officers and troops to be deployed in [[Ukraine]] and seeks an intense security guarantee for [[Ukraine]].
 
 ### AF 2025-08-26 1557
-(00:52:32) [[Benjamin Netanyahu]] has a significant issue with Emmanuel Macron because Macron recognized [[Gaza Strip|Palestine]].
+(00:52:32) [[Benjamin Netanyahu]] has a significant issue with Emmanuel Macron because Macron recognized [[Palestine]].
 
 ### AF 2025-08-26 1557
 (00:54:13) The theory that [[Candace Owens]] is pushing [[Russian Federation|Russian]] propaganda about Emmanuel Macron gains traction because [[France]] is an enemy of [[Russian Federation|Russia]], and [[Candace Owens]]' husband's company, [[Parler]], had servers in [[Russian Federation|Russia]] and was backed by [[Rebecca Mercer]], who was married to a [[Russian Federation|Russian]] oligarch.
@@ -80,16 +80,16 @@
 (00:30:07) [[Donald Trump]] publicly undermined [[Volodymyr Zelenskyy]] and [[Europe|European]] leaders like [[Keir Starmer]] and Emmanuel Macron, including at an infamous [[White House|Oval Office]] meeting where he told [[Volodymyr Zelenskyy|Zelenskyy]] the [[United States]] might stop supporting [[Ukraine]] and let [[Russian Federation|Russia]] take more land.
 
 ### AF 2025-07-29 1541
-(00:54:00) Emmanuel Macron announced that [[France]] would move to recognize the statehood of [[Gaza Strip|Palestine]] in September at the [[United Nations]] General Assembly.
+(00:54:00) Emmanuel Macron announced that [[France]] would move to recognize the statehood of [[Palestine]] in September at the [[United Nations]] General Assembly.
 
 ### AF 2025-07-25 1539
-(00:01:02) Emmanuel Macron announced his intention as President of [[France]] to recognize [[Gaza Strip|Palestine]] as a state, with plans to make a formal announcement at the [[United Nations]] General Assembly in September.
+(00:01:02) Emmanuel Macron announced his intention as President of [[France]] to recognize [[Palestine]] as a state, with plans to make a formal announcement at the [[United Nations]] General Assembly in September.
 
 ### AF 2025-07-25 1539
 (00:01:49) Peace talks between [[Israel]] and [[Hamas]], hosted by [[Qatar]] and [[Arab Republic of Egypt|Egypt]], collapsed on the same day as Emmanuel Macron's announcement, with [[Israel]] and the [[United States]] both withdrawing their delegations.
 
 ### AF 2025-07-25 1539
-(01:04:50) Emmanuel Macron wrote in a statement on [[Twitter]] that [[France]] would recognize the state of [[Gaza Strip|Palestine]] as part of its commitment to peace in the [[Middle East]], becoming the first [[Group of Seven|G7]] nation to do so.
+(01:04:50) Emmanuel Macron wrote in a statement on [[Twitter]] that [[France]] would recognize the state of [[Palestine]] as part of its commitment to peace in the [[Middle East]], becoming the first [[Group of Seven|G7]] nation to do so.
 
 ### AF 2025-07-25 1539
 (01:07:51) [[Nicholas J. Fuentes]] pointed out that the official policy of every [[U.S.]] president since [[Harry S. Truman]] has been to seek a two-state solution, but it was Emmanuel Macron of [[France]] who acted on it first among major Western powers.
@@ -101,34 +101,34 @@
 (01:35:33) [[Nicholas J. Fuentes]] claimed that [[Candace Owens]], who works for [[The Daily Wire]], is the only person loudly promoting the conspiracy that Emmanuel Macron's wife is transgender, and noted [[The Daily Wire]]'s past connections to [[Russian Federation|Russian]] oligarch funding and its pro-[[Israel]] stance.
 
 ### AF 2024-10-25 1413
-(02:41:21) Emmanuel Macron, President of [[Government of France|France]], sought to tax [[United States]] companies, but [[Donald Trump]]'s threat of a 100% tariff on [[French]] wines and champagnes led Emmanuel Macron to withdraw the tax within two minutes.
+(02:41:21) Emmanuel Macron, President of [[France]], sought to tax [[United States]] companies, but [[Donald Trump]]'s threat of a 100% tariff on [[French]] wines and champagnes led Emmanuel Macron to withdraw the tax within two minutes.
 
 ### AF 2024-09-04 1383
-(01:10:59) The [[Russian]] founder of [[Telegram]] was arrested in [[Government of France|France]], amid Emmanuel Macron's talk of deploying [[French]] military officers to [[Ukraine]].
+(01:10:59) The [[Russian]] founder of [[Telegram]] was arrested in [[France]], amid Emmanuel Macron's talk of deploying [[French]] military officers to [[Ukraine]].
 
 ### AF 2024-08-27 1378
-(01:04:03) Emmanuel Macron stated there was no political motive in the arrest of [[Pavel Durov]], asserting [[Government of France|France]] remains committed to lawful free speech.
+(01:04:03) Emmanuel Macron stated there was no political motive in the arrest of [[Pavel Durov]], asserting [[France]] remains committed to lawful free speech.
 
 ### AF 2024-07-12 1354
-(00:04:27) [[Nicholas J. Fuentes]] analyzed the results of snap parliamentary elections in [[Government of France|France]], called by President Emmanuel Macron after his party's poor performance in [[Europe|European Union]] elections.
+(00:04:27) [[Nicholas J. Fuentes]] analyzed the results of snap parliamentary elections in [[France]], called by President Emmanuel Macron after his party's poor performance in [[European Union]] elections.
 
 ### AF 2024-07-12 1354
-(00:04:57) [[Nicholas J. Fuentes]] stated that the far-right [[National Rally]] party in [[Government of France|France]] won a plurality of the vote but came in last in parliamentary seats, a result he attributed to Emmanuel Macron's strategic election call.
+(00:04:57) [[Nicholas J. Fuentes]] stated that the far-right [[National Rally]] party in [[France]] won a plurality of the vote but came in last in parliamentary seats, a result he attributed to Emmanuel Macron's strategic election call.
 
 ### AF 2024-07-10 1352
 (00:00:22) In the [[French]] legislative elections, the [[National Rally]] party, led by [[Marine Le Pen]], received a plurality of 37% of the vote but secured the third-most seats behind a left-wing coalition and the center-right coalition of President Emmanuel Macron.
 
 ### AF 2024-06-10 1341
-(00:31:00) Emmanuel Macron dissolved the [[French]] National Parliament and called for new elections after the [[National Rally]] dominated the [[Europe|European Union]] election polls.
+(00:31:00) Emmanuel Macron dissolved the [[French]] National Parliament and called for new elections after the [[National Rally]] dominated the [[European Union]] election polls.
 
 ### AF 2024-05-27 1335
 (00:43:25) [[Nicholas J. Fuentes]] read international reactions: Emmanuel Macron said there are no safe areas in [[Rafah]] and operations must stop; [[EU]] diplomat [[Josep Borrell]] echoed calls to halt operations; [[Italian]] Defense Minister [[Guido Crosetto]] said [[Israel]]'s warfare was no longer justifiable.
 
 ### AF 2024-03-26 1309
-(47:15:180) Emmanuel Macron of [[Government of France|France]] stated he would not rule out deploying [[French]] troops to [[Ukraine]] to prevent a [[Russian]] victory.
+(47:15:180) Emmanuel Macron of [[France]] stated he would not rule out deploying [[French]] troops to [[Ukraine]] to prevent a [[Russian]] victory.
 
 ### AF 2023-11-11 1248
-(00:00:52) Macron, [[the President]] of [[Government of France|France]], publicly called on [[Israel]] to stop killing babies and women in [[Gaza Strip|Gaza]] and urged a ceasefire.
+(00:00:52) Macron, [[the President]] of [[France]], publicly called on [[Israel]] to stop killing babies and women in [[Gaza Strip|Gaza]] and urged a ceasefire.
 
 ### AF 2023-11-11 1248
 (00:17:03) Macron gave an interview at the [[French]] presidential palace calling for a ceasefire and stating [[Israel]] should stop killing babies and women in [[Gaza Strip|Gaza]].
@@ -137,22 +137,22 @@
 (00:22:00) [[Benjamin Netanyahu|Netanyahu]] responded to Macron's criticism by stating nations should condemn [[Hamas]], not [[Israel]].
 
 ### AF 2023-10-23 1240
-(00:16:49) [[Rishi Sunak]]'s government in the [[United Kingdom]] and Emmanuel Macron's government in [[Government of France|France]] announced plans to deport [[Islam|Muslims]] who support [[Hamas]].
+(00:16:49) [[Rishi Sunak]]'s government in the [[United Kingdom]] and Emmanuel Macron's government in [[France]] announced plans to deport [[Islam|Muslims]] who support [[Hamas]].
 
 ### AF 2023-10-11 1232
 (00:57:45) [[Nicholas J. Fuentes]] stated that [[French]] President Emmanuel Macron was talking about "strategic autonomy," meaning cutting ties with the [[United States]], and that [[United States|American]] allies were denominating trade in [[China|Chinese]] currency and applying to join BRICS.
 
 ### AF 2023-10-05 1230
-(00:26:49) [[Nicholas J. Fuentes]] stated that Western democracies are fine with center-right leaders like Emmanuel Macron in [[Government of France|France]], [[Rishi Sunak]] in the [[United Kingdom]], or [[Mitt Romney]] and [[John McCain]] in the [[United States]], but treat specific right-wing, anti-immigration candidates as a threat to democracy.
+(00:26:49) [[Nicholas J. Fuentes]] stated that Western democracies are fine with center-right leaders like Emmanuel Macron in [[France]], [[Rishi Sunak]] in the [[United Kingdom]], or [[Mitt Romney]] and [[John McCain]] in the [[United States]], but treat specific right-wing, anti-immigration candidates as a threat to democracy.
 
 ### AF 2023-10-05 1230
 (00:38:19) [[Nicholas J. Fuentes]] argued that the central plank of all major Western political parties, including those of Emmanuel Macron, [[Joe Biden]], [[Barack Obama]], [[Ron DeSantis]], and even [[Donald Trump]], is that immigration must continue, with the only debate being over legality.
 
 ### AF 2023-08-08 1198
-(00:08:40) [[Nicholas J. Fuentes]] identified Emmanuel Macron of [[Government of France|France]] as the best contemporary leader in [[Europe]], dismissing others as "lesbians, women, three feet tall [[India|Indian]], Arab types."
+(00:08:40) [[Nicholas J. Fuentes]] identified Emmanuel Macron of [[France]] as the best contemporary leader in [[Europe]], dismissing others as "lesbians, women, three feet tall [[India|Indian]], Arab types."
 
 ### AF 2023-07-01 1185
-(01:00:66) Emmanuel Macron, [[the President]] of [[Government of France|France]], publicly disavowed the actions of the police officer who shot Nahel M., a rarity given the [[Government of France|French government]]'s typically pro-police stance.
+(01:00:66) Emmanuel Macron, [[the President]] of [[France]], publicly disavowed the actions of the police officer who shot Nahel M., a rarity given the [[French government]]'s typically pro-police stance.
 
 ### AF 2023-04-12 1146
 (00:30:06) Macron articulated a vision for [[Europe]] to break away from the [[United States]] defense industry and policymakers, advocating for a distinct [[Europe|European]] entity capable of exerting its own strategic autonomy.
@@ -170,7 +170,7 @@
 (00:05:19) [[Nicholas J. Fuentes]] reported that [[French]] President Emmanuel Macron had made a statement about [[China]] playing a role in the peace process for [[Ukraine]].
 
 ### AF 2023-03-24 1135
-(00:01:00) Macron forced through pension reform raising the retirement age by two years in [[Government of France|France]], citing the insolvency of the pension fund.
+(00:01:00) Macron forced through pension reform raising the retirement age by two years in [[France]], citing the insolvency of the pension fund.
 
 ### AF 2023-03-24 1135
 (00:01:30) The [[French]] parliament held two no-confidence votes against the government of Macron, both of which failed, one by a margin of nine votes.
@@ -182,7 +182,7 @@
 (00:52:45) Macron became the first [[French]] president in a generation to win re-election, securing a second five-year term.
 
 ### AF 2023-03-24 1135
-(00:54:31) Macron's government used tear gas, water cannons, flashbangs, and batons to suppress protests in [[Government of France|France]] against the pension reform.
+(00:54:31) Macron's government used tear gas, water cannons, flashbangs, and batons to suppress protests in [[France]] against the pension reform.
 
 ### AF 2023-03-24 1135
 (00:55:55) Macron stated on television that his only mistake was failing to convince people of the necessity of the pension reform and that he would "shoulder unpopularity."
@@ -242,7 +242,7 @@
 (01:55:44) [[Nicholas J. Fuentes]] cited leaders like Emmanuel Macron and [[Angela Merkel]] as examples of politicians disconnected from their people, facilitating policies of mass immigration.
 
 ### AF 2018-12-13 0295
-(00:29:35) [[Nicholas J. Fuentes]] suggested that Emmanuel Macron and the [[Europe|European Union]] could benefit from terror attacks as a pretext to deploy a [[Europe|European]] army and increase central government control.
+(00:29:35) [[Nicholas J. Fuentes]] suggested that Emmanuel Macron and the [[European Union]] could benefit from terror attacks as a pretext to deploy a [[Europe|European]] army and increase central government control.
 
 ### AF 2018-09-25 0247
 (06:18:00) Emmanuel Macron, [[the President]] of [[France]], used his own [[United Nations]] address to denounce nationalism, positioning it in direct opposition to [[Donald Trump]]'s advocacy for patriotism.
@@ -296,7 +296,7 @@
 (00:05:47) Emmanuel Macron announced the immediate deployment of [[France|French]] troops to [[Manbij]], [[Syria]], to fortify the [[United States]] and [[Kurdish]] positions against a potential [[Turkey|Turkish]] invasion.
 
 ### AF 2018-03-21 0129
-(00:31:50) [[Angela Merkel]], Emmanuel Macron, and [[Jean-Claude Juncker]] of the [[Europe|European Union]] also congratulated [[Vladimir Putin]] on his election victory.
+(00:31:50) [[Angela Merkel]], Emmanuel Macron, and [[Jean-Claude Juncker]] of the [[European Union]] also congratulated [[Vladimir Putin]] on his election victory.
 
 ### AF 2018-01-05 0080
 (58:49:82) Emmanuel Macron, [[White House|President]] of [[France]], was praised for his post-ideological leadership style, including telling a Moroccan immigrant she would have to return to her [[country]].
@@ -308,7 +308,7 @@
 (00:28:43) Emmanuel Macron and [[Angela Merkel]] criticized [[Donald Trump]] over the Paris climate accords, while the [[United Kingdom]] bashed him during the 2016 election.
 
 ### AF 2017-10-04 0024
-(02:32:68) The [[Europe|European Union]], along with leaders like Emmanuel Macron of [[France]] and [[Angela Merkel]] of [[Germany]], offered no comment or intervention in the Catalan independence crisis, which [[Nicholas J. Fuentes]] argued contradicted the [[EU]]'s founding principle of self-determination.
+(02:32:68) The [[European Union]], along with leaders like Emmanuel Macron of [[France]] and [[Angela Merkel]] of [[Germany]], offered no comment or intervention in the Catalan independence crisis, which [[Nicholas J. Fuentes]] argued contradicted the [[EU]]'s founding principle of self-determination.
 
 ### AF 2017-09-25 0017
 (01:35:35) [[Nicholas J. Fuentes]] contrasted neoliberal leaders like Emmanuel Macron, [[Angela Merkel]], and [[Barack Obama]], [[who]] prioritize material standards, with paleoconservatives [[who]] value social trust over GDP growth.

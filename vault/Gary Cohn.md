@@ -6,7 +6,7 @@
 
 
 ### AF 2018-03-06 0119
-(00:01:05) Gary Cohn offered his resignation as chief economic adviser to [[Donald Trump|President Trump]] following [[Donald Trump|Trump]]'s comments about "very fine people" at the [[City of Charlottesville|Charlottesville rally]].
+(00:01:05) Gary Cohn offered his resignation as chief economic adviser to [[Donald Trump|President Trump]] following [[Donald Trump|Trump]]'s comments about "very fine people" at the [[Charlottesville rally]].
 
 ### AF 2018-03-06 0119
 (00:32:52) The [[White House]] confirmed that Gary Cohn would resign as chief economic adviser, following the recent resignation of communications director [[Hope Hicks]].

@@ -40,3 +40,12 @@
 
 ### AF 2017-11-17 0053
 (01:01:48) [[Nicholas J. Fuentes]]'s favorite childhood toys were Star Wars action figures.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:48:08) [[Nicholas J. Fuentes]] compared his dynamic with [[Sneeko]] to a Star Wars dynamic, casting himself as [[Obi-Wan Kenobi]] and [[Sneeko]] as [[Anakin Skywalker]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:51:30) [[Nicholas J. Fuentes]] compared his group to Star Wars characters, identifying himself as [[Obi-Wan Kenobi|Obi-Wan]], [[Clavicular]] as [[Anakin Skywalker|Anakin]], [[Sneeko]] as [[Jar Jar Binks]], [[Myron Gaines|Myron]] as [[Mace Windu]], and [[Andrew Tate]] as [[Yoda]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:52:44) [[Nicholas J. Fuentes]] connected the Star Wars character [[Jar Jar Binks]] to [[Sneeko]], as both unwittingly enable tyranny by voting for enabling acts.

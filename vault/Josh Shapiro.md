@@ -27,7 +27,7 @@
 (00:33:01) [[Kamala Harris]]'s potential vice presidential nominees included [[Pete Buttigieg]], [[Gretchen Whitmer]], Josh Shapiro, and [[Mark Kelly]].
 
 ### AF 2024-07-24 1359
-(00:34:56) Josh Shapiro's [[Jewish]] faith was considered an asset by [[Nicholas J. Fuentes]], as it could reassure [[Jewish]] elites and donors within the [[Democratic Party]] despite alienating progressive pro-[[Gaza Strip|Palestine]] voters.
+(00:34:56) Josh Shapiro's [[Jewish]] faith was considered an asset by [[Nicholas J. Fuentes]], as it could reassure [[Jewish]] elites and donors within the [[Democratic Party]] despite alienating progressive pro-[[Palestine]] voters.
 
 ### AF 2024-07-24 1359
 (00:37:58) [[Chris LaCivita]], a top campaign advisor for [[Donald Trump]], tweeted a rumor that Josh Shapiro would be [[Kamala Harris]]'s vice presidential pick.
@@ -46,3 +46,6 @@
 
 ### AF 2019-12-16 0514
 (01:39:43) A viewer noted that Josh Shapiro, the [[Jews|Jewish]] Attorney General of [[Commonwealth of Pennsylvania|Pennsylvania]], made 80% AR-15 lower receivers illegal in the state, prompting [[Nicholas J. Fuentes]] to sarcastically remark on the overrepresentation of [[Jews|Jewish people]] in gun control.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:55:07) [[Nicholas J. Fuentes]] stated that Josh Shapiro and [[Kamala Harris]] were the candidates that an [[Artificial Intelligence|AI]] said would lead to the highest odds of a [[Nicholas J. Fuentes|Groyper]]-aligned [[person]] eventually becoming [[president]].

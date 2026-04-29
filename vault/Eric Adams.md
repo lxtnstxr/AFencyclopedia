@@ -40,7 +40,7 @@
 (00:50:18) As part of his emergency declaration, Eric Adams issued an executive order allowing [[New York|New York City]] to dedicate resources to support asylum seekers and expedite response efforts.
 
 ### AF 2022-10-08 1075
-(00:56:32) [[Nicholas J. Fuentes]] argued that migrants seeking free healthcare, education, welfare, and low-wage jobs would find them readily in [[City of Chicago|Chicago]] and [[New York|New York City]], meaning the busing strategy would not hurt [[Democratic Party|Democratic]] leaders like Eric Adams, [[Lori Lightfoot]], or [[Joe Biden]].
+(00:56:32) [[Nicholas J. Fuentes]] argued that migrants seeking free healthcare, education, welfare, and low-wage jobs would find them readily in [[Chicago]] and [[New York|New York City]], meaning the busing strategy would not hurt [[Democratic Party|Democratic]] leaders like Eric Adams, [[Lori Lightfoot]], or [[Joe Biden]].
 
 ### AF 2022-09-13 1059
 (00:54:11) [[New York|New York City]] Mayor Eric Adams stated that creating a special credit card code for gun stores was "common sense," similar to codes for airlines or groceries.
@@ -50,3 +50,6 @@
 
 ### AF 2022-02-04 0942
 (02:46:48) [[Nicholas J. Fuentes]] commented that it was "typical Negro behavior" after hearing that [[New York|New York City]] Mayor Eric Adams was caught on video saying he used to beat up "crackers," but then walked back the statement as a joke.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:29:44) [[Nicholas J. Fuentes]] cited examples of demographic change, stating that Zoran Mondani is the socialist mayor of [[New York]], [[Vivek Ramaswamy]] will be the governor of [[State of Ohio|Ohio]], and [[Usha Vance]] will be the first lady.

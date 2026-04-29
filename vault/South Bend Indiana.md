@@ -11,4 +11,4 @@
 (00:13:00) [[Peter Buttigieg|Pete Buttigieg]]'s debate performance was seen as boosting his name recognition, a key challenge for him as the mayor of South Bend, Indiana.
 
 ### AF 2019-05-24 0394
-(00:25:53) [[E. Michael Jones]] pointed to South Bend, Indiana's homosexual mayor and a similar figure in [[City of Chicago|Chicago]] as examples of narcissistic fantasies nurtured by the current proxy warrior class.
+(00:25:53) [[E. Michael Jones]] pointed to South Bend, Indiana's homosexual mayor and a similar figure in [[Chicago]] as examples of narcissistic fantasies nurtured by the current proxy warrior class.

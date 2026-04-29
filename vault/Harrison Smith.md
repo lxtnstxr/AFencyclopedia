@@ -24,7 +24,7 @@
 (01:54:00) [[Nicholas J. Fuentes]] reported having a dispute with Harrison Smith of [[Alex Jones|InfoWars]] over the weekend, which was later resolved via direct communication.
 
 ### AF 2022-07-07 1027
-(00:10:33) [[Nicholas J. Fuentes]] appeared on [[Alex Jones|InfoWars]]'s *[[United States|American]] Journal* with Harrison Smith to discuss his documentary and the [[City of Las Vegas|Las Vegas]] event.
+(00:10:33) [[Nicholas J. Fuentes]] appeared on [[Alex Jones|InfoWars]]'s *[[United States|American]] Journal* with Harrison Smith to discuss his documentary and the [[Las Vegas]] event.
 
 ### AF 2022-02-17 0950
 (00:07:26) Streamers [[Dalton Clodfelter]] and Harrison Smith from [[Alex Jones|InfoWars]], along with activist [[Laura Loomer]], were confirmed as additional special guests for [[AFPAC|AFPAC 3]].

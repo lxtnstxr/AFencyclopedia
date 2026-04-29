@@ -16,3 +16,9 @@
 
 ### AF 2017-10-19 0035
 (00:29:29) [[Nicholas J. Fuentes]] contrasted the 1970 [[Kent State University]] shootings, where students were killed while seriously protesting the Cambodia incursion ordered by [[Richard Nixon]], with the contemporary "diaper boy" protest, lamenting the decline from a "serious [[country]]" to a "clownish" one.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in Cambodia, [[Thailand]], [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:21:47) [[Nicholas J. Fuentes]] claimed that in the minds of [[Donald Trump|Trump]] supporters, "3 million people have been deported and [[Donald Trump|Trump]] has ended eight wars," referencing wars like those between [[Thailand]] and Cambodia, [[Rwanda]] and [[Republic of Congo|Congo]], and a skirmish between [[India]] and [[Pakistan]].

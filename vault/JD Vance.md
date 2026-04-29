@@ -2,7 +2,7 @@
 #person
 
 ### AF 2025-09-01 1559
-(00:25:27) JD Vance stated in a recent interview that he would be equipped to succeed [[Donald Trump]] if anything tragic happened, while supporting [[Donald Trump|the president]] currently.
+(00:25:27) JD Vance stated in a recent interview that he would be equipped to succeed [[Donald Trump]] if anything tragic happened, while supporting [[the president]] currently.
 (00:47:04) [[Nicholas J. Fuentes]] predicted the [[Republican Party]] will attempt to shepherd [[Donald Trump]] supporters to become sycophants for JD Vance as [[Donald Trump]] declines, a move he believes will fail.
 (00:47:53) JD Vance was a never-[[Donald Trump|Trump]] or three years ago, had a no-show job at [[Peter Thiel]]'s venture capital firm, and [[Nicholas J. Fuentes]] questions his sudden rise and connection to [[Peter Thiel]].
 ### AF 2025-09-04 1560
@@ -56,7 +56,7 @@
 ### AF 2025-10-29 1588
 (00:01:00) JD Vance visited [[Israel]], met with [[Benjamin Netanyahu]], and visited the tomb of [[Jesus Christ]] the day after [[Steve Wittkoff]] and [[Jared Kushner]].
 (00:01:30) [[Marco Rubio]] and the [[U.S. Department of State|Secretary of State]] visited [[Israel]] and [[Benjamin Netanyahu]] the day after JD Vance.
-(00:53:40) [[Nicholas J. Fuentes]] stated that in 10, 20, or 30 years, there will only be more people like him, and even JD Vance had to pander to them at Turning Point [[United States|USA]] by answering questions about [[Palantir Technologies|Palantir]], [[Sheldon Adelson|Miriam Adelson]], and whether [[Donald Trump]] obeys [[Israel]].
+(00:53:40) [[Nicholas J. Fuentes]] stated that in 10, 20, or 30 years, there will only be more people like him, and even JD Vance had to pander to them at Turning Point [[United States|USA]] by answering questions about [[Palantir Technologies|Palantir]], [[Miriam Adelson]], and whether [[Donald Trump]] obeys [[Israel]].
 ### AF 2025-10-30 1589
 (00:18:33) JD Vance spoke at a [[Turning Point USA]] event and faced questions about his connections to [[Palantir Technologies]], why he married a Hindu if he is a [[Christianity|Christian]], and whether the [[United States]] is controlled by [[Israel]].
 (00:19:04) JD Vance stated that the current [[U.S. president]] is not controlled by [[Israel]], that [[United States|America]] must come before [[Israel]], that [[Jews]] do not believe in the [[Christianity|Christian]] Messiah, and that he married his wife when he was agnostic but hopes she converts to [[Christianity]].
@@ -225,7 +225,7 @@
 (02:15:00) On her show with [[Milo Yiannopoulos]], [[Candace Owens]] defended J.D. Vance against criticism of his connections to [[Peter Thiel]], asking what was inherently bad about being a "creation of [[Peter Thiel]]."
 
 ### AF 2025-08-11 1548
-(02:20:10) On July 28th, 2024, J.D. Vance publicly urged [[Elon Musk]] to reconcile with [[Donald Trump]], stating it was a "mistake" for [[Elon Musk|Musk]] to distance himself from [[Donald Trump|the president]].
+(02:20:10) On July 28th, 2024, J.D. Vance publicly urged [[Elon Musk]] to reconcile with [[Donald Trump]], stating it was a "mistake" for [[Elon Musk|Musk]] to distance himself from [[the president]].
 
 ### AF 2025-08-11 1548
 (02:22:06) [[Nicholas J. Fuentes]] challenged [[Candace Owens]] to investigate J.D. Vance's connections to [[David Frum]], [[Peter Thiel]], [[David Sacks]], and [[Elon Musk]], predicting she would conclude Vance must be opposed in the 2028 election.
@@ -684,7 +684,7 @@
 (02:24:29) [[David Sacks]] and JD Vance, not [[Donald Trump]], bailed out [[Rumble Inc.]].
 
 ### AF 2024-09-17 1390
-(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[Government of France|France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[Donald Trump|the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Sheldon Adelson|Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Gaza Strip|Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[Donald Trump|the president]] of [[Israel]] after pro-[[Gaza Strip|Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by JD Vance, who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
+(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) [[Donald Trump]] ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get [[the president]] of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to [[Donald Trump]] and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and [[the president]] of [[Israel]] after pro-[[Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if [[Donald Trump]] wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by JD Vance, who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
 
 ### AF 2024-09-16 1389
 (00:07:52) [[Nicholas J. Fuentes]] was critical of the selection of JD Vance as vice president, viewing it as a significant problem for [[Donald Trump]].
@@ -783,7 +783,7 @@
 (01:06:02) [[Nicholas J. Fuentes]] stated JD Vance had previously called [[Donald Trump]] "[[Adolf Hitler|Hitler]]" before joining his campaign.
 
 ### AF 2024-08-15 1375
-(00:01:31) [[Nicholas J. Fuentes]] announced a major victory in his "GROYPER WAR 2" campaign, claiming his pressure forced the [[Donald Trump|Trump]] campaign to make concessions. (00:01:31) The [[Donald Trump|Trump]] campaign rehired [[Corey Lewandowski]], the 2016 campaign manager, placing him in a senior role above advisors [[Chris LaCivita]] and [[Susie Wiles]]. (00:02:35) [[Donald Trump]] had not been holding many events in swing states and gave a press conference focused on inflation, which [[Nicholas J. Fuentes]] criticized as low-energy and disconnected from urgent issues like immigration and crime. (00:05:47) [[Nicholas J. Fuentes]] announced that his supporters would begin operations in [[State of Michigan|Michigan]], with a formal deployment date to be announced the following Monday. (00:07:35) [[Nicholas J. Fuentes]] stated that his campaign had received massive coverage from [[Warner Bros. Discovery|CNN]], [[MSNBC]], [[Washington Post]], and [[Newsweek]], and trended on [[Twitter]] and [[Truth Social]]. (00:08:20) [[Nicholas J. Fuentes]]'s campaign purchased the domain chrislacivita.com as part of its pressure tactics against the [[Donald Trump|Trump]] campaign. (00:11:04) [[Nicholas J. Fuentes]] argued that the [[Donald Trump|Trump]] campaign pandered to [[Israel]], [[American Israel Public Affairs Committee|AIPAC]], [[The Wall Street Journal|Wall Street]], [[San Francisco Bay Area|Silicon Valley]], minority voters, and corporations, but not to the concerns of white [[United States|Americans]] regarding immigration and crime. (00:12:58) The [[Donald Trump|Trump]] campaign platform included a pledge to deport [[Hamas]] radicals from universities, a move [[Nicholas J. Fuentes]] characterized as pandering to [[Israel]]. (00:13:44) [[Nicholas J. Fuentes]] stated that 40,000 [[U.S.]] troops were stationed in the [[Middle East]] with over a dozen warships, and that the [[Israel|Israeli]] public was increasingly supportive of an all-out war in [[Lebanon]]. (00:14:18) [[Nicholas J. Fuentes]] cited a poll showing 87% of [[United States|Americans]] believed the border was a problem. (00:15:29) [[Nicholas J. Fuentes]] described [[City of Chicago|Chicago]] as a beautiful city being destroyed by adolescent [[black]] male criminals, citing car thefts, carjackings, and shootings. (00:16:44) [[Nicholas J. Fuentes]] claimed [[Donald Trump]] did not address [[black]] crime in [[City of Chicago|Chicago]] but instead pandered to liberal [[black]] journalists. (00:18:21) [[Nicholas J. Fuentes]] recounted an incident where a [[Republican Party|Republican]] official in [[State of Michigan|Michigan]] was shot and killed by a [[black]] man in front of his family during a walk. (00:20:25) [[Nicholas J. Fuentes]] criticized activist [[Scott Presler]] for focusing on getting the felon vote, arguing that felons should be locked up. (00:23:02) [[Nicholas J. Fuentes]] described caravans of illegal immigrants marching into [[United States|U.S.]] cities like an invading army. (00:25:53) [[Nicholas J. Fuentes]] claimed the [[Donald Trump|Trump]] campaign's decision to rehire [[Corey Lewandowski]] was accelerated by the pressure from his "GROYPER WAR 2" campaign. (00:26:04) [[Corey Lewandowski]] was rehired by the [[Donald Trump|Trump]] reelection campaign and placed in a senior advisory role above [[Chris LaCivita]] and [[Susie Wiles]]. (00:28:49) Polling showed [[Kamala Harris]] had closed the gap on [[Donald Trump]] in battleground states where [[Donald Trump|Trump]] had held wide leads over [[Joe Biden|Biden]]. (00:29:10) In an effort to disrupt [[Kamala Harris|Harris]]'s momentum, the [[Donald Trump|Trump]] campaign ramped up ad spending, participated in public appearances, and posted on [[Twitter]] for the first [[time]] in almost a year. (00:29:36) [[Donald Trump]] was set to hold a press conference at his [[New Jersey]] golf club. (00:29:48) [[Tara Palmieri]] of [[Puck News]] reported that [[Corey Lewandowski]] told allies he was returning as a campaign chairman, a layer above [[Susie Wiles]] and [[Chris LaCivita]], because [[Donald Trump|Trump]] wanted the team that helped him win in 2016 back. (00:30:22) [[Nicholas J. Fuentes]] referenced a [[Daily Mail]] article stating [[Donald Trump]] wanted to fire [[Chris LaCivita]] and [[Susie Wiles]]. (00:31:25) [[Nicholas J. Fuentes]] claimed a cadre of paid influencers on [[Twitter]], including [[Charlie Kirk]] and [[Jack Posobiec]], were telling supporters everything was fine with the [[Donald Trump|Trump]] campaign, which he argued was misleading. (00:32:31) [[Nicholas J. Fuentes]] argued the [[Donald Trump|Trump]] campaign was losing support among non-college-educated white voters in the Rust Belt and had lost all momentum since the [[Republican Party|RNC]]. (00:38:09) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]]'s decision to shake up his campaign staff demonstrated he knew the race was tightening and his lead was diminishing. (00:40:11) [[Nicholas J. Fuentes]] argued that bringing back [[Corey Lewandowski]] showed [[Donald Trump|Trump]] was nostalgic for the 2016 campaign energy and knew his current team was underperforming. (00:41:45) [[Nicholas J. Fuentes]] claimed sources on the [[Donald Trump|Trump]] campaign told him the decision to put [[Corey Lewandowski]] at the top was accelerated by the pressure from his "GROYPER WAR 2" campaign. (00:42:00) [[Nicholas J. Fuentes]]'s campaign got "Fire LaCivita" trending on [[Twitter]] and blew up the [[Donald Trump|Trump]] campaign's emails, which he claimed led to the staff change. (00:43:34) [[Donald Trump]] gave a press conference in [[North Carolina]] where he stood in front of a table of groceries and complained about the price of bacon and other goods, a strategy [[Nicholas J. Fuentes]] criticized as ineffective. (00:45:30) [[Kamala Harris]] campaigned in [[Atlanta]] with the [[Migos]] and in [[Wisconsin]] with [[Bon Iver]], drawing large, energetic crowds, while [[Donald Trump|Trump]] focused on inflation. (00:46:33) [[The Wall Street Journal]] reported that in a speech in [[North Carolina]], [[Donald Trump]] complained bacon cost four or five times as much as it did a few years ago. (00:48:48) [[The Wall Street Journal]] noted that while inflation was still an issue with voters, it was improving, with consumer prices up 3% from a year earlier in July, the lowest rate since 2021. (00:50:50) [[Nicholas J. Fuentes]] argued that to win the election, [[Donald Trump]] needed to make it a referendum on immigration, crime, and avoiding [[World War III]], not inflation. (00:51:46) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democrats]] win by turning out non-white voters and young people through identity politics and cultural issues, not economic messaging. (00:55:49) [[Nicholas J. Fuentes]] suggested [[Donald Trump]] should give a speech in [[Arizona]] with [[Joe Arpaio]] announcing a plan to build a 30-foot border wall funded by taxing remittances and to deport five million illegal immigrants. (00:57:09) [[Nicholas J. Fuentes]] claimed [[Kamala Harris]] and [[Joe Biden|Biden]] were trying to position themselves as tough on the border, and [[Donald Trump|Trump]] should call their bluff by proposing even stricter measures. (01:00:05) [[Nicholas J. Fuentes]] stated there were 40,000 [[U.S.]] troops in the [[Middle East]] and suggested [[Donald Trump|Trump]] should campaign in [[Georgia]] on a promise not to start new wars. (01:01:02) [[Nicholas J. Fuentes]] proposed a campaign strategy for [[Donald Trump]]: talk about crime in [[State of Michigan|Michigan]], trade in [[Wisconsin]], the border in [[Arizona]], and avoiding war in [[Georgia]] and [[North Carolina]]. (01:03:40) [[Nicholas J. Fuentes]] argued that his proposed campaign strategy of re-industrialization, building a border wall, law and order, and non-interventionism was the winning 2016 playbook and remained popular. (01:07:29) [[Nicholas J. Fuentes]] claimed the [[Donald Trump|Trump]] campaign had drifted into conventional [[Republican Party|Republican]] issues like tax cuts and low inflation, which he attributed to advisors like [[Grover Norquist]] and the [[Chamber of Commerce]]. (01:13:15) [[Nicholas J. Fuentes]] announced that his "GROYPER WAR" operations in [[State of Michigan|Michigan]] would be peaceful, legal, and involve no violence, intimidation, or association with controversial symbols. (01:16:58) [[Nicholas J. Fuentes]] stated he would not be doing a show the next day due to his birthday but would return on Monday to cover the [[DNC]] convention and give a "State of the Campaign" address. (01:18:50) [[Nicholas J. Fuentes]] claimed his phone had been blowing up with people offering to get involved in the campaign, including offers of trucking services, editing, photography, and web development. (01:19:24) [[Nicholas J. Fuentes]] announced he would open a portal on chrislacivita.com for people to submit their emails or tickets to volunteer for his campaign. (01:20:45) [[Nicholas J. Fuentes]] declared that enlistment for his "GROYPER WAR 2" campaign would start on Monday, with a countdown to deployment in [[State of Michigan|Michigan]]. (01:25:53) [[Nicholas J. Fuentes]] claimed that [[Starbucks]] was firing employees who protested [[Israel]]'s policy in [[Gaza Strip|Gaza]], similar to actions taken at [[Harvard University|Harvard]] and the [[University of Pennsylvania]]. (01:27:15) [[Nicholas J. Fuentes]] argued that if [[Donald Trump|Trump]] won without disavowing new wars, he would be able to rally the country to war with media support, making opposition in 2028 more difficult. (01:29:48) [[Nicholas J. Fuentes]] stated that the entire right wing on the internet was now split between being pro- or anti-[[Nicholas J. Fuentes|Fuentes]], making him more polarizing than [[Donald Trump|Trump]]. (01:33:34) A super chatter from [[Georgia]] reported that his [[black]] friends wanted to know why [[Donald Trump|Trump]] appeared "neutered," to which he replied that the campaign managers were "boomers on their way out." (01:34:59) A super chatter from [[Dearborn]], [[State of Michigan|Michigan]], who identified as a Muslim, expressed support for [[Nicholas J. Fuentes]] and stated he would call on the Muslim population to join the "GROYPERS." (01:38:09) A super chatter who attended a [[Donald Trump|Trump]] rally in [[Asheville]] was interviewed and criticized [[Chris LaCivita]], [[Susie Wiles]], and JD Vance, which [[Nicholas J. Fuentes]] called "mean magic." (01:45:00) [[Nicholas J. Fuentes]] cited [[South Africa]] as an example of a government of resentful non-whites leading to white people being killed and raped, warning it could happen in the [[United States]]. (01:45:36) [[Nicholas J. Fuentes]] referenced [[Laura Loomer]] denying that he had anything to do with [[Corey Lewandowski]]'s hiring, which he argued only proved it was plausible. (01:47:06) A super chatter identifying as a [[Palestinian]] [[Christianity|Christian]] thanked [[Nicholas J. Fuentes]] for speaking on behalf of [[Gaza Strip|Gaza]] and requested prayers for the [[Christianity|Christian]] village of [[Beit Jala]] in the [[Gaza Strip|West Bank]], which he said was facing ethnic cleansing by [[Israel|Israeli]] settlers. (01:48:20) A super chatter who identified as an indie game developer offered to make an "[[United States|America]] First" turn-based pixel RPG, to which [[Nicholas J. Fuentes]] expressed interest. (01:49:04) A super chatter reported that on an [[Aidan Ross]] stream, [[Donald Trump]] complimented [[Alexandria Ocasio-Cortez|AOC]], saying she had a "beautiful spark." (01:49:19) A super chatter with a customer who worked for the [[Donald Trump|Trump]] campaign said many people agreed with [[Nicholas J. Fuentes]] about [[Chris LaCivita]] and [[Susie Wiles]] and thought they would be fired after the [[DNC]] convention. (01:52:10) A super chatter asked if [[Donald Trump|Trump]]'s current trajectory or [[Vivek Ramaswamy]] promoting libertarianism and mass immigration was worse for the [[United States|America]] First movement; [[Nicholas J. Fuentes]] said it depended on the election outcome but that [[Vivek Ramaswamy|Ramaswamy]] would be the natural successor if [[Donald Trump|Trump]] failed. (01:57:53) A super chatter asked about the potential for in-real-life action in states other than [[State of Michigan|Michigan]] and for [[Nicholas J. Fuentes]]'s thoughts on "white guy tacos." (02:00:10) A super chatter from [[New Orleans]] expressed support and awaited [[Nicholas J. Fuentes]]'s call. (02:03:15) A super chatter shared that his mother initially turned against [[Nicholas J. Fuentes]] due to attacks from "[[Jews]] and neocons on [[Twitter]]," but after watching a clip of [[Nicholas J. Fuentes|Fuentes]]'s mother call into his show, she realized he was human and mostly supported [[United States|America]] First. (02:05:06) [[Nicholas J. Fuentes]] praised a supporter known as "10 Rio" as a loyal [[United States|American]] who loved the country and was an asset to the cause, despite taking abuse. (02:06:39) [[Nicholas J. Fuentes]] criticized commentator [[Brandon (BAP)]] for skipping "GROYPER WAR 2" to go to [[South Korea]], calling it transnational behavior and suggesting he was looking for a specific type of companionship. (02:07:27) [[Nicholas J. Fuentes]] discussed commentator [[Chuck (likely Charles Johnson)]], noting his brilliant intellect but a mix of facts and wild
+(00:01:31) [[Nicholas J. Fuentes]] announced a major victory in his "GROYPER WAR 2" campaign, claiming his pressure forced the [[Donald Trump|Trump]] campaign to make concessions. (00:01:31) The [[Donald Trump|Trump]] campaign rehired [[Corey Lewandowski]], the 2016 campaign manager, placing him in a senior role above advisors [[Chris LaCivita]] and [[Susie Wiles]]. (00:02:35) [[Donald Trump]] had not been holding many events in swing states and gave a press conference focused on inflation, which [[Nicholas J. Fuentes]] criticized as low-energy and disconnected from urgent issues like immigration and crime. (00:05:47) [[Nicholas J. Fuentes]] announced that his supporters would begin operations in [[State of Michigan|Michigan]], with a formal deployment date to be announced the following Monday. (00:07:35) [[Nicholas J. Fuentes]] stated that his campaign had received massive coverage from [[Warner Bros. Discovery|CNN]], [[MSNBC]], [[Washington Post]], and [[Newsweek]], and trended on [[Twitter]] and [[Truth Social]]. (00:08:20) [[Nicholas J. Fuentes]]'s campaign purchased the domain chrislacivita.com as part of its pressure tactics against the [[Donald Trump|Trump]] campaign. (00:11:04) [[Nicholas J. Fuentes]] argued that the [[Donald Trump|Trump]] campaign pandered to [[Israel]], [[American Israel Public Affairs Committee|AIPAC]], [[The Wall Street Journal|Wall Street]], [[San Francisco Bay Area|Silicon Valley]], minority voters, and corporations, but not to the concerns of white [[United States|Americans]] regarding immigration and crime. (00:12:58) The [[Donald Trump|Trump]] campaign platform included a pledge to deport [[Hamas]] radicals from universities, a move [[Nicholas J. Fuentes]] characterized as pandering to [[Israel]]. (00:13:44) [[Nicholas J. Fuentes]] stated that 40,000 [[U.S.]] troops were stationed in the [[Middle East]] with over a dozen warships, and that the [[Israel|Israeli]] public was increasingly supportive of an all-out war in [[Lebanon]]. (00:14:18) [[Nicholas J. Fuentes]] cited a poll showing 87% of [[United States|Americans]] believed the border was a problem. (00:15:29) [[Nicholas J. Fuentes]] described [[Chicago]] as a beautiful city being destroyed by adolescent [[black]] male criminals, citing car thefts, carjackings, and shootings. (00:16:44) [[Nicholas J. Fuentes]] claimed [[Donald Trump]] did not address [[black]] crime in [[Chicago]] but instead pandered to liberal [[black]] journalists. (00:18:21) [[Nicholas J. Fuentes]] recounted an incident where a [[Republican Party|Republican]] official in [[State of Michigan|Michigan]] was shot and killed by a [[black]] man in front of his family during a walk. (00:20:25) [[Nicholas J. Fuentes]] criticized activist [[Scott Presler]] for focusing on getting the felon vote, arguing that felons should be locked up. (00:23:02) [[Nicholas J. Fuentes]] described caravans of illegal immigrants marching into [[United States|U.S.]] cities like an invading army. (00:25:53) [[Nicholas J. Fuentes]] claimed the [[Donald Trump|Trump]] campaign's decision to rehire [[Corey Lewandowski]] was accelerated by the pressure from his "GROYPER WAR 2" campaign. (00:26:04) [[Corey Lewandowski]] was rehired by the [[Donald Trump|Trump]] reelection campaign and placed in a senior advisory role above [[Chris LaCivita]] and [[Susie Wiles]]. (00:28:49) Polling showed [[Kamala Harris]] had closed the gap on [[Donald Trump]] in battleground states where [[Donald Trump|Trump]] had held wide leads over [[Joe Biden|Biden]]. (00:29:10) In an effort to disrupt [[Kamala Harris|Harris]]'s momentum, the [[Donald Trump|Trump]] campaign ramped up ad spending, participated in public appearances, and posted on [[Twitter]] for the first [[time]] in almost a year. (00:29:36) [[Donald Trump]] was set to hold a press conference at his [[New Jersey]] golf club. (00:29:48) [[Tara Palmieri]] of [[Puck News]] reported that [[Corey Lewandowski]] told allies he was returning as a campaign chairman, a layer above [[Susie Wiles]] and [[Chris LaCivita]], because [[Donald Trump|Trump]] wanted the team that helped him win in 2016 back. (00:30:22) [[Nicholas J. Fuentes]] referenced a [[Daily Mail]] article stating [[Donald Trump]] wanted to fire [[Chris LaCivita]] and [[Susie Wiles]]. (00:31:25) [[Nicholas J. Fuentes]] claimed a cadre of paid influencers on [[Twitter]], including [[Charlie Kirk]] and [[Jack Posobiec]], were telling supporters everything was fine with the [[Donald Trump|Trump]] campaign, which he argued was misleading. (00:32:31) [[Nicholas J. Fuentes]] argued the [[Donald Trump|Trump]] campaign was losing support among non-college-educated white voters in the Rust Belt and had lost all momentum since the [[Republican Party|RNC]]. (00:38:09) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]]'s decision to shake up his campaign staff demonstrated he knew the race was tightening and his lead was diminishing. (00:40:11) [[Nicholas J. Fuentes]] argued that bringing back [[Corey Lewandowski]] showed [[Donald Trump|Trump]] was nostalgic for the 2016 campaign energy and knew his current team was underperforming. (00:41:45) [[Nicholas J. Fuentes]] claimed sources on the [[Donald Trump|Trump]] campaign told him the decision to put [[Corey Lewandowski]] at the top was accelerated by the pressure from his "GROYPER WAR 2" campaign. (00:42:00) [[Nicholas J. Fuentes]]'s campaign got "Fire LaCivita" trending on [[Twitter]] and blew up the [[Donald Trump|Trump]] campaign's emails, which he claimed led to the staff change. (00:43:34) [[Donald Trump]] gave a press conference in [[North Carolina]] where he stood in front of a table of groceries and complained about the price of bacon and other goods, a strategy [[Nicholas J. Fuentes]] criticized as ineffective. (00:45:30) [[Kamala Harris]] campaigned in [[Atlanta]] with the [[Migos]] and in [[Wisconsin]] with [[Bon Iver]], drawing large, energetic crowds, while [[Donald Trump|Trump]] focused on inflation. (00:46:33) [[The Wall Street Journal]] reported that in a speech in [[North Carolina]], [[Donald Trump]] complained bacon cost four or five times as much as it did a few years ago. (00:48:48) [[The Wall Street Journal]] noted that while inflation was still an issue with voters, it was improving, with consumer prices up 3% from a year earlier in July, the lowest rate since 2021. (00:50:50) [[Nicholas J. Fuentes]] argued that to win the election, [[Donald Trump]] needed to make it a referendum on immigration, crime, and avoiding [[World War III]], not inflation. (00:51:46) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democrats]] win by turning out non-white voters and young people through identity politics and cultural issues, not economic messaging. (00:55:49) [[Nicholas J. Fuentes]] suggested [[Donald Trump]] should give a speech in [[Arizona]] with [[Joe Arpaio]] announcing a plan to build a 30-foot border wall funded by taxing remittances and to deport five million illegal immigrants. (00:57:09) [[Nicholas J. Fuentes]] claimed [[Kamala Harris]] and [[Joe Biden|Biden]] were trying to position themselves as tough on the border, and [[Donald Trump|Trump]] should call their bluff by proposing even stricter measures. (01:00:05) [[Nicholas J. Fuentes]] stated there were 40,000 [[U.S.]] troops in the [[Middle East]] and suggested [[Donald Trump|Trump]] should campaign in [[Georgia]] on a promise not to start new wars. (01:01:02) [[Nicholas J. Fuentes]] proposed a campaign strategy for [[Donald Trump]]: talk about crime in [[State of Michigan|Michigan]], trade in [[Wisconsin]], the border in [[Arizona]], and avoiding war in [[Georgia]] and [[North Carolina]]. (01:03:40) [[Nicholas J. Fuentes]] argued that his proposed campaign strategy of re-industrialization, building a border wall, law and order, and non-interventionism was the winning 2016 playbook and remained popular. (01:07:29) [[Nicholas J. Fuentes]] claimed the [[Donald Trump|Trump]] campaign had drifted into conventional [[Republican Party|Republican]] issues like tax cuts and low inflation, which he attributed to advisors like [[Grover Norquist]] and the [[Chamber of Commerce]]. (01:13:15) [[Nicholas J. Fuentes]] announced that his "GROYPER WAR" operations in [[State of Michigan|Michigan]] would be peaceful, legal, and involve no violence, intimidation, or association with controversial symbols. (01:16:58) [[Nicholas J. Fuentes]] stated he would not be doing a show the next day due to his birthday but would return on Monday to cover the [[DNC]] convention and give a "State of the Campaign" address. (01:18:50) [[Nicholas J. Fuentes]] claimed his phone had been blowing up with people offering to get involved in the campaign, including offers of trucking services, editing, photography, and web development. (01:19:24) [[Nicholas J. Fuentes]] announced he would open a portal on chrislacivita.com for people to submit their emails or tickets to volunteer for his campaign. (01:20:45) [[Nicholas J. Fuentes]] declared that enlistment for his "GROYPER WAR 2" campaign would start on Monday, with a countdown to deployment in [[State of Michigan|Michigan]]. (01:25:53) [[Nicholas J. Fuentes]] claimed that [[Starbucks]] was firing employees who protested [[Israel]]'s policy in [[Gaza Strip|Gaza]], similar to actions taken at [[Harvard University|Harvard]] and the [[University of Pennsylvania]]. (01:27:15) [[Nicholas J. Fuentes]] argued that if [[Donald Trump|Trump]] won without disavowing new wars, he would be able to rally the country to war with media support, making opposition in 2028 more difficult. (01:29:48) [[Nicholas J. Fuentes]] stated that the entire right wing on the internet was now split between being pro- or anti-[[Nicholas J. Fuentes|Fuentes]], making him more polarizing than [[Donald Trump|Trump]]. (01:33:34) A super chatter from [[Georgia]] reported that his [[black]] friends wanted to know why [[Donald Trump|Trump]] appeared "neutered," to which he replied that the campaign managers were "boomers on their way out." (01:34:59) A super chatter from [[Dearborn]], [[State of Michigan|Michigan]], who identified as a Muslim, expressed support for [[Nicholas J. Fuentes]] and stated he would call on the Muslim population to join the "GROYPERS." (01:38:09) A super chatter who attended a [[Donald Trump|Trump]] rally in [[Asheville]] was interviewed and criticized [[Chris LaCivita]], [[Susie Wiles]], and JD Vance, which [[Nicholas J. Fuentes]] called "mean magic." (01:45:00) [[Nicholas J. Fuentes]] cited [[South Africa]] as an example of a government of resentful non-whites leading to white people being killed and raped, warning it could happen in the [[United States]]. (01:45:36) [[Nicholas J. Fuentes]] referenced [[Laura Loomer]] denying that he had anything to do with [[Corey Lewandowski]]'s hiring, which he argued only proved it was plausible. (01:47:06) A super chatter identifying as a [[Palestinian]] [[Christianity|Christian]] thanked [[Nicholas J. Fuentes]] for speaking on behalf of [[Gaza Strip|Gaza]] and requested prayers for the [[Christianity|Christian]] village of [[Beit Jala]] in the [[Gaza Strip|West Bank]], which he said was facing ethnic cleansing by [[Israel|Israeli]] settlers. (01:48:20) A super chatter who identified as an indie game developer offered to make an "[[United States|America]] First" turn-based pixel RPG, to which [[Nicholas J. Fuentes]] expressed interest. (01:49:04) A super chatter reported that on an [[Aidan Ross]] stream, [[Donald Trump]] complimented [[Alexandria Ocasio-Cortez|AOC]], saying she had a "beautiful spark." (01:49:19) A super chatter with a customer who worked for the [[Donald Trump|Trump]] campaign said many people agreed with [[Nicholas J. Fuentes]] about [[Chris LaCivita]] and [[Susie Wiles]] and thought they would be fired after the [[DNC]] convention. (01:52:10) A super chatter asked if [[Donald Trump|Trump]]'s current trajectory or [[Vivek Ramaswamy]] promoting libertarianism and mass immigration was worse for the [[United States|America]] First movement; [[Nicholas J. Fuentes]] said it depended on the election outcome but that [[Vivek Ramaswamy|Ramaswamy]] would be the natural successor if [[Donald Trump|Trump]] failed. (01:57:53) A super chatter asked about the potential for in-real-life action in states other than [[State of Michigan|Michigan]] and for [[Nicholas J. Fuentes]]'s thoughts on "white guy tacos." (02:00:10) A super chatter from [[New Orleans]] expressed support and awaited [[Nicholas J. Fuentes]]'s call. (02:03:15) A super chatter shared that his mother initially turned against [[Nicholas J. Fuentes]] due to attacks from "[[Jews]] and neocons on [[Twitter]]," but after watching a clip of [[Nicholas J. Fuentes|Fuentes]]'s mother call into his show, she realized he was human and mostly supported [[United States|America]] First. (02:05:06) [[Nicholas J. Fuentes]] praised a supporter known as "10 Rio" as a loyal [[United States|American]] who loved the country and was an asset to the cause, despite taking abuse. (02:06:39) [[Nicholas J. Fuentes]] criticized commentator [[Brandon (BAP)]] for skipping "GROYPER WAR 2" to go to [[South Korea]], calling it transnational behavior and suggesting he was looking for a specific type of companionship. (02:07:27) [[Nicholas J. Fuentes]] discussed commentator [[Chuck (likely Charles Johnson)]], noting his brilliant intellect but a mix of facts and wild
 
 ### AF 2024-08-14 1374
 (00:20:55) [[Donald Trump]] was reportedly deeply upset with his 2024 campaign and regretted selecting JD Vance as his vice-presidential nominee, according to a report in the [[Daily Mail]] citing former aides.
@@ -801,7 +801,7 @@
 (00:28:57) [[Nicholas J. Fuentes]] highlighted that JD Vance did not vote for [[Donald Trump]] in 2016 and had privately described [[Donald Trump|Trump]] as "[[United States|America]]'s [[Adolf Hitler|Hitler]]."
 
 ### AF 2024-08-13 1373
-(00:29:27) [[Nicholas J. Fuentes]] stated that after the [[City of Charlottesville|Charlottesville]] rally in August 2017, JD Vance disavowed neo-[[Nazi Party|Nazis]] and the far-right on [[Warner Bros. Discovery|CNN]].
+(00:29:27) [[Nicholas J. Fuentes]] stated that after the [[Charlottesville]] rally in August 2017, JD Vance disavowed neo-[[Nazi Party|Nazis]] and the far-right on [[Warner Bros. Discovery|CNN]].
 
 ### AF 2024-08-13 1373
 (00:29:52) [[Nicholas J. Fuentes]] claimed that in January 2017, JD Vance convened a meeting with Never Trumpers and [[Barack Obama]] ally [[David Axelrod]] to discuss a future Vance presidential campaign.
@@ -981,7 +981,7 @@
 (00:33:43) [[Nicholas J. Fuentes]] doubted that [[Donald Trump]]'s campaign staff, including [[Chris LaCivita]], [[Susie Wiles]], and JD Vance, would follow through on mass deportations due to anticipated media pressure.
 
 ### AF 2024-07-19 1356
-(00:50:44) JD Vance, [[Donald Trump]]'s 2024 vice presidential pick, had called him "[[United States|America]]'s [[Adolf Hitler|Hitler]]" and a "noxious racist" as late as August 2017 following the [[City of Charlottesville|Charlottesville]] rally.
+(00:50:44) JD Vance, [[Donald Trump]]'s 2024 vice presidential pick, had called him "[[United States|America]]'s [[Adolf Hitler|Hitler]]" and a "noxious racist" as late as August 2017 following the [[Charlottesville]] rally.
 
 ### AF 2024-07-19 1356
 (00:51:21) [[Nicholas J. Fuentes]] argued that figures like [[The New York Times]], JD Vance, and [[Chris LaCivita]] now support [[Donald Trump]] because he has surrendered to them, not because they were converted.
@@ -1023,7 +1023,7 @@
 (00:39:05) JD Vance was elected to the [[U.S. Congress|Senate]] in 2022 with the support of a $15 million investment from [[Peter Thiel]], marking his first elected office.
 
 ### AF 2024-07-13 1355
-(00:39:33) [[Nicholas J. Fuentes]] argued that [[Sheldon Adelson|Miriam Adelson]] was a close personal friend and supporter of [[Nikki Haley]], [[Ron DeSantis]], and [[Marco Rubio]], and that JD Vance had recently expressed strong support for [[Israel]].
+(00:39:33) [[Nicholas J. Fuentes]] argued that [[Miriam Adelson]] was a close personal friend and supporter of [[Nikki Haley]], [[Ron DeSantis]], and [[Marco Rubio]], and that JD Vance had recently expressed strong support for [[Israel]].
 
 ### AF 2024-07-13 1355
 (00:40:32) JD Vance works for [[Peter Thiel]], whose company [[Palantir Technologies]] provides services to [[United States|U.S]]. intelligence agencies and whose board flew to [[Israel]] after the [[October 7th Attack]].
@@ -1062,7 +1062,7 @@
 (00:32:04) [[Nicholas J. Fuentes]] argued that when considering a second [[Donald Trump]] administration, the key questions are about personnel and what comes after [[Donald Trump|Trump]], with politicians like Vance, [[Josh Hawley|Hawley]], [[Marco Rubio]], and [[Ron DeSantis|DeSantis]] being floated.
 
 ### AF 2024-07-05 1349
-(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Sheldon Adelson|Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) JD Vance, [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
+(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) JD Vance, [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
 
 ### AF 2024-07-02 1347
 (02:36:06) [[Nicholas J. Fuentes]] said a future conversation with J.D. Vance would only happen if Vance was willing to talk about [[Jews]] without fear.
@@ -1212,7 +1212,7 @@
 (00:22:00) [[Nicholas J. Fuentes]] argued he was the primary critic exposing JD Vance's connections and promoting race realism and criticism of [[Jewish]] influence, making his voice uniquely important.
 
 ### AF 2024-05-02 1327
-(00:45:20) [[Nicholas J. Fuentes]] criticized right-wing figures like JD Vance, [[Blake Masters]], and [[Alex Jones]] for advocating the suppression of pro-[[Gaza Strip|Palestine]] protests under pretexts like "littering," rather than openly stating their pro-[[Israel]] motives.
+(00:45:20) [[Nicholas J. Fuentes]] criticized right-wing figures like JD Vance, [[Blake Masters]], and [[Alex Jones]] for advocating the suppression of pro-[[Palestine]] protests under pretexts like "littering," rather than openly stating their pro-[[Israel]] motives.
 
 ### AF 2024-05-02 1327
 (00:59:00) [[Nicholas J. Fuentes]] connected JD Vance and [[Blake Masters]] to [[Peter Thiel]], whose company [[Palantir Technologies]] provides [[Artificial Intelligence|AI]] and facial recognition technology to [[Israel]] for use in [[Gaza Strip|Gaza]].
@@ -1486,3 +1486,660 @@
 
 ### AF 2019-08-08 0436
 (00:46:14) Attendee [[Tali Goldshaft]] reported that at a [[Bari Weiss|The Free Press]] summit, [[Bari Weiss]] pointed out JD Vance had yet to distance himself from [[Tucker Carlson]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:36:44.220) J.D. Vance, [[Steve Wittkoff|Steve Wittkopf]], and [[Jared Kushner]] are in [[Iran]] to meet with the parliamentary speaker and foreign minister of [[Iran]] for negotiations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:34.920) The [[United States]] delegation, including J.D. Vance, [[Steve Wittkoff|Steve Wittkopf]], and [[Jared Kushner]], is in [[Pakistan]] awaiting a scheduled meeting with representatives from [[Iran]] on Saturday, but [[Iran]] has not confirmed attendance and demands [[Israel]] commit to not attacking [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:40:01.580) J.D. Vance is expected to attempt to broker a deal on Saturday to end the war in [[Iran]], but [[Nicholas J. Fuentes]] believes this is unlikely to happen.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:14:00) JD Vance, in his capacity as [[Vice Media|Vice]] [[White House|President]], is slated to lead the [[United States]] delegation at the highest-level meeting with [[Iran|Iranian]] officials in 50 years, to be held in [[Pakistan]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:14:30) Supporters of JD Vance acknowledged that the war constituted a "catastrophe" and "historic mistake" that could adversely affect his 2028 presidential primary campaign.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:15:08) JD Vance and his team lobbied for him to serve as the lead negotiator to claim credit for ending the [[Iran]] war, a strategy intended to bolster his standing in future presidential debates.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:23:20) These "plan trusters" propose supporting JD Vance in the 2028 presidential election as a solution to perceived failures within [[Donald Trump]]'s administration.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:24:33) JD Vance was present during the decision-making process for the [[United States]] to engage in war with [[Iran]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:30:25) JD Vance, present in the [[White House]] while [[Donald Trump]] was at Mar-a-Lago, advocated for aggressive attacks on [[Iran]] without any internal cabinet dissent.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:33:33) [[Nicholas J. Fuentes]] described the current "[[Donald Trump|MAGA]] movement" as comprising [[Donald Trump]], "idiots in the cabinet" like J.D. Vance, and "Zionists like [[Mark Levin]] and [[Laura Loomer]]" [[who]] he views as "pure evil" and "demonic."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:56:03) [[Mark Levin]] declared war on [[Tucker Carlson]], JD Vance, and [[Nicholas J. Fuentes]] in November.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:42) [[Nicholas J. Fuentes]] identified JD Vance, [[David Sacks]], [[Elon Musk]], and [[a16z|Andreessen Horowitz]] as key components of the tech money that formed the real 2024 coalition.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:01:41) JD Vance was being prepared by his allies to take over the peace talks with [[Iran]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:05:26) JD Vance was identified as a creation of [[Peter Thiel]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:05:38) JD Vance considered his meeting with [[Peter Thiel]] while at [[Yale Law School|Yale University]] to be the most important meeting of his lifetime.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:08) [[Peter Thiel]] provided $15 million in funding for JD Vance's [[U.S. Congress|Senate]] campaign, while [[David Sacks]] gave $1 million.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:18) [[Peter Thiel]], [[Elon Musk]], [[David Sacks]], and [[Tucker Carlson]] persuaded [[Donald Trump|Trump]] to nominate JD Vance for the [[vice]] presidency.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:31) [[Tucker Carlson]] promoted JD Vance's [[U.S. Congress|Senate]] campaign 45 times on [[Fox News]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:39) [[Buckley Carlson]], the son of [[Tucker Carlson]], worked in JD Vance's press office.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:23) JD Vance's allies, including [[Tucker Carlson]], were engaged in an operation to save Vance from culpability for the war by promoting him as the negotiator [[who]] would end it.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:33) [[The Israelis]] were said to wonder if JD Vance was in their pocket, and saw [[Marco Rubio]] as the safe option.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:41) [[The Israelis]] wanted to prevent JD Vance from becoming [[president]] in 2028 and were attempting to have him and [[Donald Trump]] blamed for the catastrophe of the war.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:09:16) Vance's people were running a counter-operation to try and make him the negotiator [[who]] would extricate [[Donald Trump]] from the quagmire, as [[Jared Kushner]] and [[Steve Wittkoff|Steve Witkoff]] could not.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:09:52) Reports emerged that the only man for the job to end the war was JD Vance.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:10:14) [[The Israelis]] went to the press to claim that the only people [[who]] wanted JD Vance to lead peace talks were the [[Iran|Iranians]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:10:59) [[Miriam Adelson]]'s paper in [[Israel]] reported that JD Vance and [[Benjamin Netanyahu]] were fighting.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:11:05) The [[The New York Post|New York Post]], a [[Rupert Murdoch]]-owned paper, reported that the only people [[who]] wanted JD Vance to negotiate with the [[Iran|Iranians]] were the [[Iran|Iranians]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:11:24) Vance's people were lobbying [[Donald Trump|Trump]] to let Vance solve his [[Iran]] problem, while [[the Israelis]] were lobbying him not to.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:12:03) An [[Axios]] report stated that JD Vance was preparing to take on the assignment of steering [[United States|U.S]]. efforts to end the war, and that he was expected to be the top [[United States|U.S]]. negotiator in potential peace talks.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:12:37) JD Vance had already made multiple calls with [[Benjamin Netanyahu]] and had been involved in indirect communications with the [[Iran|Iranians]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:13:29) [[United States|US]] and [[Israel|Israeli]] sources reported that JD Vance was highly skeptical of [[Israel]]'s rosy pre-war assessment of how the war would unfold.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:13:52) Vance's advisors believed some in [[Israel]] were trying to undermine him, possibly because they found him insufficiently hawkish.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:14:16) [[Donald Trump|President Trump]] made Vance's role official in a cabinet meeting, noting that Vance was working with [[Steve Wittkoff|Steve Witkoff]] and [[Jared Kushner]] on the negotiations.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:14:21) A senior [[United States|US]] official stated that if the [[Iran|Iranians]] couldn't strike a deal with JD Vance, they wouldn't get a deal, and that he was the best they were going to get.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:06) Vance advisor [[Andrew Serabian]] stated on [[X]] that a [[Warner Bros. Discovery|CNN]] report about [[Iran]] wanting to negotiate was evidence of a foreign propaganda op.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:16) An administration official told [[Axios]] that the narrative that the [[Iran|Iranians]] saw JD Vance as inclined to cut a deal was an [[Israel|Israeli]] op against him.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:28) [[White House]] officials began suspecting that some in the [[Israel|Israeli government]] were trying to smear JD Vance after a difficult phone call on Monday between [[Benjamin Netanyahu]] and JD Vance.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:37) In the phone call, JD Vance mentioned that several of [[Benjamin Netanyahu]]'s predictions about the war, particularly concerning a popular uprising in [[Iran]], had proven too optimistic.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:50) A right-wing [[Israel|Israeli]] newspaper owned by [[Miriam Adelson]] reported that JD Vance had yelled at [[Benjamin Netanyahu]] over settler violence against [[Palestine|Palestinians]] in the [[Gaza Strip|West Bank]], a story multiple [[United States|US]] and [[Israel|Israeli]] sources said was erroneous.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:16:05) Vance's advisors suspected the erroneous story about him yelling at [[Benjamin Netanyahu]] was leaked by the [[Israel|Israeli]] side.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:16:33) The war was described as a disaster, and JD Vance was said to own the war because of his position as [[vice]] [[president]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:18:10) The [[Jews]] and [[Israel|Israelis]] were skeptical of JD Vance because of his connection to [[Tucker Carlson]] and [[Tucker Carlson|Carlson]]'s friendship with [[Nicholas J. Fuentes]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:19:02) [[Mark Levin]]'s comments were interpreted as a demand for JD Vance to fire [[Buckley Carlson]] and disavow [[Tucker Carlson]] and the Gropers, or lose [[Jews|Jewish]] backing.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:19:51) [[World Jewry]] was described as moving against JD Vance and in favor of [[Marco Rubio]], and the [[Iran|Iranian]] war was said to be the event that would bury Vance.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:20:11) The Vance faction, including [[Costin Alamariu|Bronze Age Pervert]] (despite being [[Jews|Jewish]]), [[Tucker Carlson]], and a faction from within the [[Central Intelligence Agency|CIA]], was against the war because they believed it would hurt Vance's chances.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:20:41) [[Joe Kent]] left the administration to endorse JD Vance in a future presidential primary, providing him with credibility as a conscientious objector to the war.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:21:52) [[The Israelis]] were accused of poisoning the well by spreading narratives that JD Vance hates [[Israel]] and that the only people [[who]] want him to negotiate are the [[Iran|Iranians]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:23:31) If JD Vance could end the war, [[Nicholas J. Fuentes]] stated that was a good thing, and noted that if [[Miriam Adelson]], [[Rupert Murdoch]], and [[Mark Levin]] were against him, that was also a good thing for Vance.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:24:08) [[Tucker Carlson]], [[Joe Kent]], [[David Sacks]], and JD Vance were identified as being against the war not because they are against [[Israel]], but because they are against the war itself and against [[Benjamin Netanyahu]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:25:16) The faction represented by [[Tucker Carlson]] and JD Vance was described as not believing that the hardliners in [[Israel]] are a faction of the regime that wants the [[United States]] to do more than is in its interest, to the detriment of focusing on [[China]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:25:56) [[Tucker Carlson]], JD Vance, [[Peter Thiel]], and [[Steve Bannon]] were identified as [[China]] hawks.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:31:39) The plan to bring JD Vance to power was framed as the same plan to prioritize the Indo-Pacific over [[Europe]] and the [[Middle East]], but [[Nicholas J. Fuentes]] argued it still does not solve the core problem of the [[United States]] getting its sovereignty back from [[Israel|Israeli]] infiltration.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:37:42) [[Nicholas J. Fuentes|Fuentes]] declared that he saw the JD Vance operation (involving [[David Sacks]] and [[Joe Kent]]) coming from "6 million miles away."
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:17:36) [[Nicholas J. Fuentes]] discussed a conspiracy to save JD Vance from the political consequences of the war.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:17:48) [[Nicholas J. Fuentes]] stated that JD Vance had become far less visible since the war started, avoiding public statements.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:19:04) [[Nicholas J. Fuentes]] argued that JD Vance’s people recognized that the war would hurt his chances for the presidency in 2028 and for winning the [[Republican Party]] nomination.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:19:33) [[Nicholas J. Fuentes]] stated that JD Vance was trying to avoid making statements or being asked questions to avoid committing to a position on the war.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:20:13) [[Nicholas J. Fuentes]] reported that a shadow effort was underway to rescue JD Vance’s reputation, noting that [[David Sacks]] was the first [[White House]] official to protest the war.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:20:38) [[Nicholas J. Fuentes]] identified [[David Sacks]] as a close confidant of JD Vance [[who]] would be JD Vance’s chief of staff if he became [[president]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:21:06) [[Joe Kent]], whom [[Nicholas J. Fuentes]] described as funded by [[Peter Thiel]], appeared on [[Tucker Carlson]]’s show, a show funded by JD Vance’s Rockbridge Network, which also spawned 1789 [[United States Capitol|Capitol]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:21:28) [[Nicholas J. Fuentes]] reported that multiple news stories had been planted to portray JD Vance as always having been opposed to the war, contradicting insider reports that JD Vance was enthusiastically in favor of hitting [[Iran]] hard.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:22:11) [[Warner Bros. Discovery|CNN]] and the [[The New York Post|New York Post]] reported that unnamed [[Iran|Iranian]] sources requested JD Vance specifically to negotiate the end to the war, rejecting [[Steve Wittkoff|Steve Witkoff]] and [[Jared Kushner]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:22:42) [[Nicholas J. Fuentes]] accused the media of fabricating the story that [[Iran]] wanted JD Vance as a negotiator, suggesting it was copied from [[Tucker Carlson]] and the Rockbridge Network.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:23:40) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]]’s father, [[Joe Kent]], and [[Peter Thiel]] all had connections to the [[Central Intelligence Agency|CIA]], and that JD Vance worked for [[Peter Thiel]], a [[Central Intelligence Agency|CIA]] contractor.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:24:56) [[Nicholas J. Fuentes]] argued that [[Joe Kent]]’s resignation letter, in which [[Joe Kent]] blamed [[Israel]] for the war, was a “ruse” and part of an effort to salvage JD Vance’s 2028 presidential ambitions.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:25:38) [[Nicholas J. Fuentes]] distinguished ordinary people from figures like JD Vance, [[Tucker Carlson]], [[Peter Thiel]], and [[Joe Kent]], claiming these individuals were not having epiphanies but were operatives engaged in a political power play.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:16:07) [[Nicholas J. Fuentes]] reported a coordinated media effort to salvage JD Vance’s reputation by portraying him as a peacemaker.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:16:46) [[Warner Bros. Discovery|CNN]] and the [[The New York Post|New York Post]] published a story that an unnamed [[Iran|Iranian]] source claimed [[Iran]] wanted JD Vance to be the negotiator because they did not trust [[Jared Kushner]] or [[Steve Wittkoff|Steve Witkoff]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:18:05) [[Nicholas J. Fuentes]] read from a [[The New York Post|New York Post]] article stating that JD Vance was emerging as a key player in potential [[Iran]] talks and that [[Iran]] wanted to deal directly with him.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:19:38) [[Nicholas J. Fuentes]] stated that JD Vance went to a “restrainer think tank” in 2024 and said, “I’m all for [[America First]], but we need to bomb [[Iran]].”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:20:16) The Quincy Institute, which [[Nicholas J. Fuentes]] described as an anti-war think tank funded by [[George Soros]] and the [[Charles Koch|Koch brothers]], was where JD Vance made this statement.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:20:46) JD Vance told the Quincy Institute that funding [[Ukraine]] should stop but that [[Israel]] was different and should be funded to bomb [[Iran]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:21:07) JD Vance told [[Sean Hannity]] after receiving the [[vice]] presidential nomination that the [[United States|U.S]]. needed to “bomb [[Iran]].”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:21:13) Sources from inside [[the White House]] said that JD Vance was in favor of bombing [[Iran]] and did not express any disagreement, with one source saying “Vance said, if you hit [[Iran]], you got to bomb them really hard.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:21:33) [[Nicholas J. Fuentes]] argued that [[Iran]] knew JD Vance’s true position and would not request him, calling the story propaganda.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:22:02) JD Vance’s chief of staff, [[Jacob Reese]], was described as a “Zionist [[Jews|Jew]]” and the only short [[Jews|Jewish]] man among a staff of tall, Aryan-looking white men.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:22:07) [[Jacob Reese]] was reassuring people behind the scenes that JD Vance was a “team [[Israel]]” guy.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:22:25) [[Edward Luttwak]], a friend of [[Costin Alamariu|Bronze Age Pervert]] and a member of the [[Israel|Israeli]] security forces, said JD Vance needed to reassure them that he was on their side.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:23:04) [[Nicholas J. Fuentes]] urged media literacy, arguing that the story was planted to make audiences feel positively about JD Vance.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:24:59) [[Nicholas J. Fuentes]] reported a story from the [[Israel|Israeli]] press that JD Vance and [[Benjamin Netanyahu]] had a tense phone call over civilian settlements in [[Jerusalem]], which JD Vance’s office denied.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:25:15) JD Vance’s press secretary denied the report, saying discussions with [[Benjamin Netanyahu]] had been focused on “Epic Fury.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:25:56) [[Buckley Carlson]], [[Tucker Carlson]]’s son, worked in JD Vance’s press office.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:27:42) [[Mark Levin]] said at the [[Republican Jewish Coalition]] in November that if JD Vance did not disavow [[Tucker Carlson]] and [[Nicholas J. Fuentes]], [[Jews]] would make decisions about 2028.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:28:10) Twenty-five [[The Wall Street Journal|Wall Street]] donors told [[Donald Trump]] in a closed-door meeting at the [[White House]] a week prior that they wanted [[Marco Rubio]] and not JD Vance for the 2028 nomination.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:28:40) [[Nicholas J. Fuentes]] argued that [[Marco Rubio]] had a “golden parachute” because he would be associated with successes in [[Venezuela]], [[Cuba]], and [[Nicaragua]], while JD Vance would be left to burn politically, associated with the war in [[Iran]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:29:25) [[Nicholas J. Fuentes]] concluded that the planted stories were an effort to create a narrative that JD Vance was restraining [[Israel]] and leading peace negotiations.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:30:26) [[David Sacks]] ran [[Elon Musk]]’s political operation and donated to JD Vance in 2022, as did [[Peter Thiel]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:24) [[Buckley Carlson]], [[Tucker Carlson]]’s son, worked in JD Vance’s office.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:32:10) 1789 Capital was conceived at the Rockbridge Network, a venture capital firm run by JD Vance, where [[Peter Thiel]], [[Tucker Carlson]], and [[David Sacks]] had spoken.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:33:07) [[Nicholas J. Fuentes]] stated that he did not believe any narrative about JD Vance that was being pushed, citing JD Vance’s donor network.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:34:14) JD Vance rehabilitated his image from “Never Trumper” to pro-[[Israel]] through [[Youram Hazony|Yoram Hazony]], [[who]] lived in [[Israel]] and whose [[National Conservatism|NatCon]] conference was funded by [[Peter Thiel]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:34:54) [[Jacob Reese]], JD Vance’s chief of staff, was going around telling everyone not to worry, that JD Vance was “their guy.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:35:14) [[Nicholas J. Fuentes]] characterized the JD Vance-aligned movement as “another flavor of kosher conservatism” and “theater.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:36:29) [[Nicholas J. Fuentes]] concluded that the entire effort was to have JD Vance at the forefront of the peace process to use on the debate stage in 2028.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:37:08) [[Nicholas J. Fuentes]] predicted that people would fall for the same “no new wars” rhetoric with JD Vance that they did with [[Donald Trump]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:41:01) [[Nicholas J. Fuentes]] claimed that articles were planted in the paper to frame JD Vance as having been "quietly against a war," suggesting a coordinated public relations effort.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:41:55) [[Nicholas J. Fuentes]] reported that [[Iran]] is requesting that JD Vance be brought in to negotiate in [[Pakistan]] or [[Turkey]], rather than [[Steve Wittkoff|Steve Witkoff]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:42:50) [[Nicholas J. Fuentes]] speculated that a potential photo op of JD Vance negotiating a ceasefire with [[Iran]] is a "psyop" designed to salvage JD Vance's presidential ambitions.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:43:37) [[Nicholas J. Fuentes]] stated that [[The Wall Street Journal|Wall Street]] donors want [[Marco Rubio]] to be the [[Republican Party|Republican]] nominee in 2028, choosing him over JD Vance.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:45:52) [[Nicholas J. Fuentes]] stated that the "forces of evil," including [[Israel]] and JD Vance's team, are trying to turn the negative of the war into a positive for JD Vance by making him the "peacemaker."
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:47:15) [[Nicholas J. Fuentes]] described a proxy war within the [[White House]] between "organized [[Jews|Jewry]]" behind [[Marco Rubio]] and the team of JD Vance, [[who]] are trying to salvage his candidacy.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:47:51) [[Benjamin Netanyahu]] faced an upcoming election in [[Israel]], and [[Nicholas J. Fuentes]] speculated that his loss might be beneficial for the JD Vance peace narrative.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:44:12) [[Nicholas J. Fuentes]] said "I told you so," claiming he warned that [[Tulsi Gabbard]] was not on their side, along with JD Vance, [[Robert F. Kennedy Jr.|RFK Jr.]], [[Pete Hegseth]], and [[Marco Rubio]], [[who]] he said all "suck."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:03:21) [[Nicholas J. Fuentes]] described [[David Sacks]] as a close personal friend of [[Peter Thiel]] since 1992 and a close confidant of JD Vance.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:04:29) [[Nicholas J. Fuentes]] noted that [[Tucker Carlson|Buckley Carlson]], [[Tucker Carlson|Tucker]]'s son, works for JD Vance in his press office.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:05:12) [[Nicholas J. Fuentes]] identified a nexus of people opposing the war—[[David Sacks]], [[Tucker Carlson]], and [[Joe Kent]]—all of whom have deep ties to JD Vance.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:05:43) [[Nicholas J. Fuentes]] argued that JD Vance is trying to save his prospects for 2028, and that the operation with [[Joe Kent]] is a last-ditch effort to push [[Donald Trump|Trump]] away from the war to save Vance's political future.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:06:44) [[Nicholas J. Fuentes]] claimed that the [[Peter Thiel|Thiel]]-backed network's sole mission is to make Vance [[president]], and that they knew a catastrophic war with [[Iran]] would hurt Vance the most.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:08:27) [[Nicholas J. Fuentes]] pointed out that [[Tucker Carlson|Tucker]]'s dad was in the [[Central Intelligence Agency|CIA]], [[Joe Kent]] is in the [[Central Intelligence Agency|CIA]], [[Peter Thiel]] is a [[Central Intelligence Agency|CIA]] contractor, and that JD Vance was recruited out of [[Yale Law School]], a recruiting ground for the [[Central Intelligence Agency|CIA]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:43:26.200) [[Nicholas J. Fuentes]] said he would not give his vote to JD Vance in 2028, questioning his whereabouts during controversies.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:43:26.200) [[Nicholas J. Fuentes]] noted that JD Vance gets his face in front of cameras as much as possible, but disappears when the administration "shits the bed."
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:43:55.800) [[Nicholas J. Fuentes]] referenced the release of the [[Jeffrey Epstein]] files, after which JD Vance did not tweet for two weeks.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:08.760) [[Nicholas J. Fuentes]] stated that the 2028 [[Republican Party|Republican]] nominee will be either JD Vance or [[Marco Rubio]], [[who]] he described as a "New [[United States|American]] Century" and "Mary Madelson's puppet."
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:52:00) [[Nicholas J. Fuentes]] stated that war terminology for the conflict with [[Iran]] was inconsistent, with [[Pete Hegseth]] calling it a war, JD Vance calling it a conflict, and the [[White House]] calling it an operation.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:40:36:680) [[Nicholas J. Fuentes]] argued that everyone [[who]] has been a part of the [[Donald Trump|Trump]] administration, such as JD Vance, [[Marco Rubio]], [[Pete Hegseth]], and [[Kristi Noem]], is disqualified from running for [[president]] in 2028.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:37:58:030) [[Nicholas J. Fuentes]] criticized "[[Sneeko|Sneako]]" for tweeting "[[Islam|Muslims]] follow a backward religion" with a picture of [[Donald Trump|Trump]] and JD Vance praying at the wall, arguing that it is always an attack on [[Christianity|Christians]] and [[United States|America]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:57:01:41) [[Nicholas J. Fuentes]] stated he will vote for anyone [[who]] opposes [[Israel]], specifically ruling out JD Vance and [[Marco Rubio]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:08:56:96) [[Nicholas J. Fuentes]] said he wants the [[Donald Trump|Trump]] administration to fail and for JD Vance and [[Marco Rubio]] to "go down with the ship" so they cannot run in 2028.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:48:17) [[Nicholas J. Fuentes]] said he will not vote for JD Vance or [[Marco Rubio]] because they "brought [[us]] this."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:45:47) [[Nicholas J. Fuentes]] said that JD Vance, the [[Vice Media|Vice]] [[White House|President]], supported the war with [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:45:57) JD Vance was reported by [[Nicholas J. Fuentes]] to have pushed for the [[United States]] to "go bigger and wider" when considering entering the conflict with [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:46:52) JD Vance was reported by the [[The New York Times|New York Times]] to have encouraged the administration to conduct a full-scale bombing campaign against [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:47:05) [[Tucker Carlson]] encouraged [[Donald Trump]] to nominate JD Vance as his running mate in the previous year, stating that JD Vance would serve as "assassination insurance."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:46:31) [[David Frum]] was the first mentor of JD Vance in the mid-2010s.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:46:40) JD Vance wrote for [[David Frum]]'s website.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:46:51) [[David Frum]] wrote a tell-all for [[The Atlantic]] stating that he told JD Vance he would one day become [[president]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:47:08) JD Vance convened a meeting in January 2017 with [[David Frum]] in attendance to prepare for a JD Vance for [[president]] campaign.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:47:50) JD Vance was reported by the [[The New York Times|New York Times]] to be all in favor of the war with [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:48:24) JD Vance argued in a [[White House]] situation room meeting that if the [[United States]] was going to hit [[Iran]], it should go big and go fast.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:50:21) After [[Donald Trump]] was shot in the ear, [[Tucker Carlson]], [[Elon Musk]], and [[Peter Thiel]] called [[Donald Trump]] and encouraged him to select JD Vance as his nominee.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:50:37) In his first interview as the VP nominee with [[Sean Hannity]], JD Vance said, "We have to hit [[Iran]] hard. We have to punch them in the face."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:51:34) JD Vance gave a speech at the [[Quincy Institute]], an anti-war nonprofit, where he said "we have to arm [[Israel]] so they can bomb [[Iran]]."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:52:27) [[Nicholas J. Fuentes]] stated that JD Vance was groomed by [[David Frum]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:53:00) [[Nicholas J. Fuentes]] stated that [[David Frum]] believed JD Vance would become [[president]] because he could use his biographical credibility from "Hillbilly Elegy" to trick the white working class.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:55:27) JD Vance did not vote for [[Hillary Clinton]] or [[Donald Trump]] in the 2016 election; he voted for [[Evan McMullin|Evan McMullen]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:57:08) JD Vance called [[Donald Trump]] a "racist [[Germany|Nazi]]" and said that white people hate [[Barack Obama]] because they are jealous a [[black]] man is smarter than them.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:58:55) JD Vance became [[Donald Trump]]'s number one cheerleader when he needed his endorsement to win a [[U.S. Congress|Senate]] seat in [[State of Ohio|Ohio]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:59:46) [[Nicholas J. Fuentes]] stated that JD Vance's career should be finished because he supported a war with [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:01:37) [[Nicholas J. Fuentes]] stated that [[Marco Rubio]] and JD Vance are pushing for the war and that they "killed [[United States|Americans]] for [[Israel]]."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:05:04) [[Nicholas J. Fuentes]] said he is off the [[Donald Trump|Trump]] train and will not vote in 2026, and that he would vote for a [[Democratic Party|Democrat]] in 2028 if [[Marco Rubio]] or JD Vance are on the ticket.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:09:07) [[Nicholas J. Fuentes]] stated that he will "play both sides" and that [[Donald Trump]], JD Vance, and [[Marco Rubio]] are "fuck[ing] these people" with a war in [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:11:04) [[Nicholas J. Fuentes]] said [[Donald Trump]], JD Vance, and [[Marco Rubio]] betrayed him by starting a war with [[Iran]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:42:58) JD Vance held a fundraiser at [[Les Wexner]]'s [[house]] in [[State of Ohio|Ohio]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:57) [[Nicholas J. Fuentes]] reported that two other [[Donald Trump|Trump]] administration officials, [[Marco Rubio]] and JD Vance, had given statements complicating the diplomatic situation with [[Iran]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:57) [[Nicholas J. Fuentes]] reported that [[Vice Media|Vice]] [[White House|President]] JD Vance said the [[United States]] has evidence [[Iran]] is rebuilding a nuclear weapons program, a claim [[Nicholas J. Fuentes]] said he did not believe and called "news."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:59:40) [[Nicholas J. Fuentes]] stated that [[Vice Media|Vice]] [[White House|President]] JD Vance said the [[United States]] believes [[Iran]] is working on a nuclear weapon, a claim [[Nicholas J. Fuentes]] called "news" as [[Iran]] has always maintained its program is peaceful and the negotiations had been about enrichment, not weapons.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:00:28) [[Nicholas J. Fuentes]] suggested that [[Marco Rubio]]'s and JD Vance's statements might be a way for the [[Donald Trump|Trump]] administration to "finesse its own red line" and create an off-ramp by asking [[Iran]] to promise not to pursue an ICBM or a nuclear bomb, instead of demanding zero enrichment.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(00:56:13) [[Nicholas J. Fuentes]] predicted that a [[Democratic Party|Democratic]] [[U.S. Congress|House]] would use oversight powers to [[target]] not only [[Donald Trump]] but also JD Vance, [[Pete Hegseth]], and [[Kristi Noem]], citing "Signalgate" and corruption over border wall contracts.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:13:14) [[Nicholas J. Fuentes]] expressed hatred for JD Vance and [[Mike Johnson]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(17:11:32) [[Nicholas J. Fuentes]] commented on individuals attending the speech, including [[Barron Trump]], [[Melania Trump]], and JD Vance.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:21:17) [[Nicholas J. Fuentes]] criticized JD Vance for not speaking out in defense of Kerry Pregine-Bowler, noting that JD Vance is a recent [[Catholic Church|Catholic]] convert.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:16:39) [[Nicholas J. Fuentes]] called for the [[Republican Party|GOP]] to be fired and the "[[house]]" to be burned down to send a message that JD Vance and [[Marco Rubio]] will not be tolerated in 2028.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:19:20) JD Vance talked about bombing [[Iran]] before he was even nominated for [[vice]] [[president]] in 2024.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:39:24) [[Nicholas J. Fuentes]] predicted that [[Donald Trump]] and JD Vance will be impeached, subpoenaed, and deposed if the [[Democratic Party]] wins the [[U.S. Congress|United States House of Representatives]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:34:15) [[Nicholas J. Fuentes]] claimed that the [[Donald Trump|Trump administration]] is "crashing and burning over [[Jeffrey Epstein|Epstein]], over [[Iran]], over the failure to deliver deportations," and that JD Vance will be blamed.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:40:52) [[Nicholas J. Fuentes]] stated that JD Vance cannot be [[president]] in 2028 because the administration is a failure, and that if Vance were the "real deal," he would be doing something now.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:52:10) [[Nicholas J. Fuentes]] stated he will not vote for JD Vance or the [[Republican Party|GOP]], calling [[Donald Trump]]'s presidency a failure that has only "profited [[Israel]]," [[San Francisco Bay Area|Silicon Valley]], and [[The Wall Street Journal|Wall Street]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:11:08) [[Nicholas J. Fuentes]] predicted that the people [[who]] are still "trusting the plan" and "coping" for [[Donald Trump|Trump]] are being prepared to have JD Vance foisted upon them in 2028.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:13:06) [[Nicholas J. Fuentes]] predicted that in 2028, JD Vance and [[Vivek Ramaswamy]] would be the candidates, using the same rhetoric of a "golden age."
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:14:50) [[Nicholas J. Fuentes]] described the Milady rave party as a [[Peter Thiel]]-adjacent project in [[New York|New York City]], where people pretend to be fashion people and artists but are subsidized by [[Peter Thiel]] and his cronies, and are pro-Vance and pro-[[Donald Trump|Trump]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:16:41) [[Nicholas J. Fuentes]] warned that the same people spinning the withdrawal as a win are paid by the [[Republican Party|GOP]] and will try to get people back on the "hamster wheel" for JD Vance in 2028.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:17:00) [[Nicholas J. Fuentes]] questioned where JD Vance is, noting that he appears for photo ops like [[Charlie Kirk]]'s funeral and [[Turning Point USA|TPUSA]] conventions, but is absent when the [[Jeffrey Epstein|Epstein]] files are being buried or when [[U.S. Immigration and Customs Enforcement|ICE]] is retreating from [[Minneapolis]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:19:55) [[Nicholas J. Fuentes]] stated that JD Vance was a Never Trumper [[who]] called [[Donald Trump|Trump]] a [[Germany|Nazi]] on [[Warner Bros. Discovery|CNN]] before needing his endorsement.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:20:04) [[Nicholas J. Fuentes]] noted that Vance attended [[National Conservatism]] ([[National Conservatism|NatCon]]), which is going to be held in [[Jerusalem]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:20:17) [[Nicholas J. Fuentes]] characterized JD Vance as a puppet of [[Peter Thiel]] and [[Elon Musk]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:20:33) [[Nicholas J. Fuentes]] criticized [[Tucker Carlson]] for promoting JD Vance, noting that [[Tucker Carlson|Carlson]]'s son works for Vance.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:08:53) J.D. Vance, the current [[vice]] [[president]], owes his entire career to [[Peter Thiel]], [[who]] got him his first job in [[San Francisco Bay Area|Silicon Valley]], his first job in venture capital, hired him at his venture capital firm, funded his own venture capital firm, gave him $15 million for his [[U.S. Congress|Senate]] run, and secured the [[Donald Trump]] endorsement for him.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:09:31) [[Peter Thiel]], [[Elon Musk]], and [[Tucker Carlson]] pleaded with [[Donald Trump]] to make J.D. Vance his [[vice]] presidential nominee in 2024.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:10:40) J.D. Vance was elected senator from [[State of Ohio|Ohio]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:10:55) [[Vivek Ramaswamy]] was a [[Yale Law School]] classmate of J.D. Vance.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:11:35) Some say J.D. Vance's son is named after [[Vivek Ramaswamy]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:11:52) The lieutenant governor of [[State of Ohio|Ohio]] was appointed to fill J.D. Vance's [[U.S. Congress|Senate]] seat, making the governor's race in 2026 wide open for [[Vivek Ramaswamy]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:12:29) When [[Peter Thiel]] invested in [[Anduril]], the investment was handled by J.D. Vance when he was working for [[Peter Thiel|Thiel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:14:04) [[Les Wexner]] and his wife made a multi-million dollar contribution to an [[State of Ohio|Ohio]]-based political PAC called "With Honor" that J.D. Vance was on the board of.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:14:12) [[Nicholas J. Fuentes]] stated that it has been rumored that [[Les Wexner]] and his wife hosted a fundraiser for J.D. Vance at their home for his [[U.S. Congress|Senate]] run in 2022.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:56) [[Peter Thiel]] has a financial interest in J.D. Vance and was an acolyte of [[Jeffrey Epstein]]'s.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:31:02) [[Nicholas J. Fuentes]] alleged that J.D. Vance had a fundraiser in [[Les Wexner]]'s home because Vance comes from [[State of Ohio|Ohio]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:00:09) [[Nicholas J. Fuentes]] condemned J.D. Vance for condemning him and his supporters in an interview, declaring that J.D. Vance was "officially condemned by the real [[America First]]."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:00:33) [[Nicholas J. Fuentes]] declared he would not vote for J.D. Vance in 2028, reserving his endorsement for a candidate [[who]] would put [[United States]] interests over those of [[Israel]] and [[India]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:00:37) [[Nicholas J. Fuentes]] condemned J.D. Vance, his wife, [[Peter Thiel]], and the "[[United States|America]] last administration," accusing J.D. Vance of failing to deport people and of resisting the release of the [[Jeffrey Epstein|Epstein]] files.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:01:55) [[Nicholas J. Fuentes]] accused J.D. Vance of being a creation of the "deep [[state]]" backed by [[Peter Thiel]], [[David Sacks]], and [[Tucker Carlson]], and representing [[San Francisco Bay Area|Silicon Valley]] and the intelligence agencies.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:02:25) [[Nicholas J. Fuentes]] mocked J.D. Vance's marriage to [[Usha Vance]], referring to [[India]] as the "third world" and criticizing Vance for having an inter-religious, intercultural wedding ceremony.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:43:40) [[Nicholas J. Fuentes]] questioned why [[Stephen Miller]] and JD Vance cannot "get the job done" on immigration policy.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:44:05) [[Nicholas J. Fuentes]] sarcastically referred to [[Stephen Miller]] as "our base [[Jews|Jew]]" and JD Vance as "our base halo."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:04) [[Peter Thiel]], [[Tucker Carlson]], and [[Central Intelligence Agency|CIA]] connected individuals planned for JD Vance to become the [[Republican Party|Republican]] nominee for [[president]] in 2028.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:31) [[Peter Thiel]] financially supported JD Vance's political career.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:47) [[Nicholas J. Fuentes]] stated that the plan for JD Vance to become "the 48th [[president]]" was ruined because [[Donald Trump]] "ruins everything that he touches."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:46:39) [[Nicholas J. Fuentes]] claimed that the plan for JD Vance was to secure contracts for [[Elon Musk|SpaceX]], [[OpenAI]], [[Palantir Technologies|Palantir]], and to give [[Israel]] bombs, in addition to building a "charter [[city]] in Greenland."
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:00:07) [[Nicholas J. Fuentes]] stated that [[Pam Bondi]], [[Kristi Noem]], [[Donald Trump]], and JD Vance lacked the seriousness and political will to execute mass deportations.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:08:24) [[Nicholas J. Fuentes]] reported that JD Vance said the unrest was only happening in [[Minneapolis]], which [[Nicholas J. Fuentes|Fuentes]] disputed, noting similar events in [[Chicago]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:58:58) [[Nicholas J. Fuentes]] stated that he had predicted during the 2024 election that mass deportations would never happen, and that JD Vance and [[Donald Trump|Trump]] were signaling a policy of prioritizing criminals.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:05:04:40) [[Ryan Grim]], a leftist writer formerly of [[The Intercept]], criticized JD Vance for blaming far-left agitators for the chaos in [[Minneapolis]], arguing the chaos was caused by sending untrained forces there.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:05:05:00) JD Vance stated that the level of engineered chaos in [[Minneapolis]] is a direct consequence of far-left agitators working with local authorities.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:47:33) [[Nicholas J. Fuentes]] predicted that JD Vance would not succeed in mass deportations if elected in 2028 because previous administrations got "cold feet."
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:49:29) [[Nicholas J. Fuentes]] criticized JD Vance and his family, referring to him as a "fat-ass ugly" [[person]] with an "[[India|Indian]] family."
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:15:20) [[The New York Times]] reported that [[Donald Trump]] told [[Iran|Iranian]] protesters that "help is on the way," and that JD Vance, [[Marco Rubio]], and other top advisors presented him with options for action ranging from diplomacy to military strikes.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:35:48) [[Nicholas J. Fuentes]] argued that JD Vance is "dying to become [[president]]" and is publicly distancing himself from the push for war with [[Iran]] in order to avoid owning it in the 2028 election.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:36:35) [[Washington Post|The Washington Post]] reported that JD Vance is lobbying against intervention in [[Iran]] and is concerned about boots on the ground.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:53:28) [[Nicholas J. Fuentes]] identified JD Vance as the ultimate figure being promoted for [[president]] in 2028, backed by powerful forces in [[San Francisco Bay Area|Silicon Valley]] and the [[Republican Party|GOP]], and that his opposition to Vance is the reason they want to "bury" him.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:57:04) [[Nicholas J. Fuentes]] alleged that JD Vance brokered a deal for Venture Capital to invest in [[Palmer Luckey]]'s company [[Palantir Technologies|Anduril]], and that [[Palantir Technologies|Anduril]] built a drone factory in [[State of Ohio|Ohio]] where Vance is from.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:57:34) [[Nicholas J. Fuentes]] claimed that JD Vance's fundraising and connections with [[Peter Thiel]] and [[Elon Musk]] were designed to funnel money into defense contractors and to use [[Artificial Intelligence|AI]] software to ingest data from government agencies.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:16:54) [[Nicholas J. Fuentes]] accused JD Vance and [[Tucker Carlson]] of lying about not knowing what [[Palantir Technologies|Palantir]] is, and warned that there is a "loaded gun pointed at the [[Republican Party|GOP]]" to fix the [[country]] or get "blown away in 28."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:17:50) [[Nicholas J. Fuentes]] stated that his message about [[Vivek Ramaswamy]] is a message for JD Vance in 2028.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:18:05) [[Nicholas J. Fuentes]] discussed JD Vance's remarks about him.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:18:25) [[Nicholas J. Fuentes]] stated that JD Vance called him out in a blog called "The Unheard" with a headline reading "[[Nicholas J. Fuentes|Nick Fuentes]] can eat shit."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:19:06) [[Nicholas J. Fuentes]] jokingly stated he would not make JD Vance his [[vice]] [[president]] in 10 years because Vance has a mixed-race family.(03:19:53) JD Vance stated in an interview with "The Unheard" at the [[Vice Media|Vice]] [[White House|President]]’s residence that anyone [[who]] attacks his wife, including [[Nicholas J. Fuentes]], "can eat shit," calling it his "official policy as [[vice president of the United States]]."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:20:36) JD Vance declared that "antisemitism and all forms of hatred have no place in the conservative movement," adding that attacking someone for being white, [[black]], or [[Jews|Jewish]] is "disgusting."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:20:48) [[Nicholas J. Fuentes]] stated that he appreciated the invitation from JD Vance to have dinner with his family at the [[Naval Observatory]], calling it "very gracious" and saying it "touched" him because he had been "nothing but antagonistic" to Vance.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:21:46) [[Nicholas J. Fuentes]] publicly declined the dinner invitation from JD Vance, saying he did not want to "eat shit."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:22:38) JD Vance, in a speech at a [[Turning Point USA]] event, stated that "[[Donald Trump|President Trump]] did not build the greatest coalition in politics by running his supporters through endless self-defeating purity tests," and added that "if you love [[United States|America]], you have a home on this team."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:23:31) [[Nicholas J. Fuentes]] accused JD Vance of trying to "have his shit and eat it too" by simultaneously pandering to the [[Nicholas J. Fuentes|Groyper]] movement and disavowing him for [[Jews|Jewish]] donors.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:25:00) [[Nicholas J. Fuentes]] argued that JD Vance needs the support of "[[Jews|Jewish]] money" to become [[president]] in 2028, while "the [[Jews]] need him to disavow" [[Nicholas J. Fuentes]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:26:18) [[Nicholas J. Fuentes]] stated that what "the [[Jews]]" want is for JD Vance to specifically say "I disavow [[Nicholas J. Fuentes|Nick Fuentes]] and the Groypers and their ideology," and that any general apology for antisemitism was insufficient.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:27:59) [[Nicholas J. Fuentes]] compared JD Vance's indirect criticism unfavorably to [[Ted Cruz]]'s direct confrontation of [[Donald Trump]] over comments about [[Ted Cruz|Heidi Cruz]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:29:04) [[Nicholas J. Fuentes]] demanded that JD Vance provide "a firm answer" on whether he will support an "immigration moratorium," whether he will "restrain [[Israel]]," and what his relationship is with [[Peter Thiel]] and [[Elon Musk]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:30:54) [[Nicholas J. Fuentes]] argued that it is "crazy" for the political establishment to already be demanding a vote for JD Vance in the 2028 election, given that the [[Donald Trump|Trump]] administration is "not even a year in" and is "a pile of shit."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:32:26) [[Nicholas J. Fuentes]] claimed that [[Tucker Carlson]], [[Turning Point USA]], and [[Elon Musk]] are all telling the public that the decision for the 2028 [[Republican Party|Republican]] nominee has already been made: JD Vance.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:32:33) [[Nicholas J. Fuentes]] derided JD Vance as a "never Trumper" whose name was previously "Hamill," and questioned [[who]] he is.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:08:47) [[Nicholas J. Fuentes]] predicted that JD Vance will run for [[president]] in 2027, that [[Republican Party|Republicans]] will lose the [[U.S. Congress|House]] in 2026, and that [[Susie Wiles]] will have [[Donald Trump|Trump]] campaigning for 2026 like he did in 2024.

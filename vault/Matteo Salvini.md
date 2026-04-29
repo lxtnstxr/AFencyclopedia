@@ -12,7 +12,7 @@
 (00:02:19) [[Nicholas J. Fuentes]] noted that Italian politician Matteo Salvini was going to trial in [[Italian Republic|Italy]] and that there was a development involving the [[United Nations]] and [[Israel]].
 
 ### AF 2019-12-16 0514
-(00:15:09) [[Nicholas J. Fuentes]] noted that [[Brazil]] was moving its [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]], and that leaders like [[Jair Bolsonaro]] and Matteo Salvini were advocating for Zionism.
+(00:15:09) [[Nicholas J. Fuentes]] noted that [[Brazil]] was moving its [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]], and that leaders like [[Jair Bolsonaro]] and Matteo Salvini were advocating for Zionism.
 
 ### AF 2019-09-17 0463
 (00:24:04) [[Benjamin Netanyahu|Bibi]] supported right-wing leaders globally such as [[Jair Bolsonaro]] in [[Brazil]], Matteo Salvini in [[Italian Republic|Italy]], and [[Viktor Orbán]] in [[Hungary]].
@@ -57,19 +57,19 @@
 (00:22:00) [[Nicholas J. Fuentes]] stated that under Matteo Salvini's tenure as Interior Minister, illegal migrant crossings into [[Europe]] from [[African continent|Africa]] decreased by 94%.
 
 ### AF 2019-08-09 0437
-(00:23:00) [[Nicholas J. Fuentes]] argued that a Matteo Salvini-led government in [[Italian Republic|Italy]] would represent a major populist, nationalist, and anti-migration shift within a founding [[Europe|European Union]] member [[state]].
+(00:23:00) [[Nicholas J. Fuentes]] argued that a Matteo Salvini-led government in [[Italian Republic|Italy]] would represent a major populist, nationalist, and anti-migration shift within a founding [[European Union]] member [[state]].
 
 ### AF 2019-08-09 0437
 (00:26:00) [[Nicholas J. Fuentes]] viewed Matteo Salvini's potential rise in [[Italian Republic|Italy]] as a "white pill" indicating nationalist strength in [[Europe]], contrasting with disappointments in [[United States|America]].
 
 ### AF 2019-05-27 0395
-(00:38:40) [[Nicholas J. Fuentes]] reported that in [[Italian Republic|Italy]], Matteo Salvini's [[League]] party won a sweeping victory with 34% of the vote, making it one of the largest single parties in the [[Europe|European Union]] and prompting Salvini to call for new national elections.
+(00:38:40) [[Nicholas J. Fuentes]] reported that in [[Italian Republic|Italy]], Matteo Salvini's [[League]] party won a sweeping victory with 34% of the vote, making it one of the largest single parties in the [[European Union]] and prompting Salvini to call for new national elections.
 
 ### AF 2019-05-27 0395
 (00:40:50) [[Nicholas J. Fuentes]] noted that as Interior Minister, Matteo Salvini reduced illegal immigration into [[Italian Republic|Italy]] by 92% since 2015.
 
 ### AF 2019-05-27 0395
-(00:41:20) [[Nicholas J. Fuentes]] stated there was potential for [[Marine Le Pen]], Matteo Salvini, and [[Viktor Orbán]] to form a Eurosceptic, nationalist coalition within the [[Europe|European Union]] Parliament.
+(00:41:20) [[Nicholas J. Fuentes]] stated there was potential for [[Marine Le Pen]], Matteo Salvini, and [[Viktor Orbán]] to form a Eurosceptic, nationalist coalition within the [[European Union]] Parliament.
 
 ### AF 2019-05-10 0385
 (01:25:13) Under the leadership of Matteo Salvini, [[Italian Republic|Italy]] engaged [[Libya]]n forces to stop migrant boats from departing, leading to a 92% decline in [[Mediterranean Sea|Mediterranean]] migrant arrivals since mid-2017.

@@ -2,7 +2,7 @@
 #person
 
 ### AF 2021-02-03 0754
-(01:05:430) Christian Picciolini became a deradicalization expert and motivational speaker after claiming to have left a neo-Nazi skinhead scene in [[City of Chicago|Chicago]] where his friends were entrapped by federal agents posing as the Libyan government.
+(01:05:430) Christian Picciolini became a deradicalization expert and motivational speaker after claiming to have left a neo-Nazi skinhead scene in [[Chicago]] where his friends were entrapped by federal agents posing as the Libyan government.
 
 (01:11:850) Christian Picciolini's [[organization]] employs a former [[Ku Klux Klan]] member who attempted to debate [[Nicholas J. Fuentes]] during an [[Paramount Global|MTV]] documentary shoot.
 

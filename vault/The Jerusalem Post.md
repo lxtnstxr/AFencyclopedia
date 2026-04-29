@@ -51,10 +51,10 @@
 (00:18:35) [[Nicholas J. Fuentes]] cited The Times of Israel report which detailed a document titled "Detailed Raid Training from End to End," circulated on September 19th and brought to senior intelligence officials but apparently ignored, which accurately estimated the number of hostages taken.
 
 ### AF 2024-06-18 1343
-(00:40:06) [[Nicholas J. Fuentes]] cited a Haaretz report stating that [[Sheldon Adelson|Miriam Adelson]] wants the [[Gaza Strip|West Bank]] for [[Israel]] in exchange for her $100 million donation to [[Donald Trump]]'s campaign.
+(00:40:06) [[Nicholas J. Fuentes]] cited a Haaretz report stating that [[Miriam Adelson]] wants the [[Gaza Strip|West Bank]] for [[Israel]] in exchange for her $100 million donation to [[Donald Trump]]'s campaign.
 
 ### AF 2024-06-10 1341
-(01:22:00) The [[Israel|Israeli]] left-wing publication Haaretz published an op-ed stating that the big winner of the [[Europe|European Union]] elections, with right-wing parties gaining power, was [[Israel]], because [[Israel]]-skeptical left-wingers were being pushed out.
+(01:22:00) The [[Israel|Israeli]] left-wing publication Haaretz published an op-ed stating that the big winner of the [[European Union]] elections, with right-wing parties gaining power, was [[Israel]], because [[Israel]]-skeptical left-wingers were being pushed out.
 
 ### AF 2024-03-28 1311
 (20:24:670) [[Bari Weiss]] went on to work under [[Bret Stephens]] at the [[The Wall Street Journal|Wall Street Journal]]; [[Bret Stephens]] is a neocon [[Jews|Jew]] who wrote for neocon magazines and the Jerusalem Post when he lived in [[Israel]].
@@ -196,3 +196,15 @@
 
 ### AF 2018-03-20 0128
 (00:38:40) [[Nicholas J. Fuentes]] claimed the real objective of the [[Iraq]] War was to build a democracy in the [[Middle East]], an ideological crusade advanced by 25 to 30 neoconservative intellectuals in the [[George W. Bush]] administration, a majority of whom were [[Jews|Jewish]] according to the [[Israel|Israeli]] newspaper Haaretz.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:11:28) [[Nicholas J. Fuentes]] stated that [[Israel]]'s stated desire to bomb [[Iran]] is published in The Jerusalem Post and [[i24 News]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:08:11:00) The *Times of Israel* reported that [[Benjamin Netanyahu|Netanyahu]] said the "unusual close relationship" between former Prime Minister [[Ehud Barak]] and [[Jeffrey Epstein]] proves that [[Jeffrey Epstein|Epstein]] did not work for [[Israel]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:09:20) The [[The Wall Street Journal|Wall Street Journal]] and Times of Israel reported that [[Donald Trump]] did not follow through on the strike in [[Iran]] because the military could not guarantee it would topple the [[Government of Iran|Iranian government]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:32:35) The Times of Israel reported that [[Israel]] and Arab officials advised the [[Donald Trump|Trump]] administration to delay striking [[Iran]], fearing that the regime is not yet sufficiently weak for an attack to topple it.

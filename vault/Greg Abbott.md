@@ -2,7 +2,7 @@
 #person
 
 ### AF 2024-04-24 1325
-(08:23:68) [[Nicholas J. Fuentes]] reported that a massive pro-[[Gaza Strip|Palestine]] protest at [[University of Texas at Austin]] prompted Greg Abbott, the governor of [[State of Texas|Texas]], to comment on it and call for the [[U.S. Department of Defense|National Guard]] to disperse the protestors.
+(08:23:68) [[Nicholas J. Fuentes]] reported that a massive pro-[[Palestine]] protest at [[University of Texas at Austin]] prompted Greg Abbott, the governor of [[State of Texas|Texas]], to comment on it and call for the [[U.S. Department of Defense|National Guard]] to disperse the protestors.
 
 
 ### AF 2024-01-27 1284
@@ -30,7 +30,7 @@
 (00:32:16) [[Nicholas J. Fuentes]] argued that Greg Abbott and many [[State of Texas|Texas]] [[Republican Party|Republicans]] did not genuinely want to secure the border, citing agricultural interests that benefit from cheap, undocumented labor.
 
 ### AF 2024-01-25 1282
-(00:51:00) Greg Abbott, the Governor of [[State of Texas|Texas]], deployed the [[Texas National Guard]] to install barbed wire along the [[Rio Grande]] and began busing illegal immigrants to cities like [[City of Chicago|Chicago]] and [[New York]], including the suburb of [[Hinsdale]].
+(00:51:00) Greg Abbott, the Governor of [[State of Texas|Texas]], deployed the [[Texas National Guard]] to install barbed wire along the [[Rio Grande]] and began busing illegal immigrants to cities like [[Chicago]] and [[New York]], including the suburb of [[Hinsdale]].
 
 ### AF 2023-09-07 1212
 (00:25:01) Greg Abbott, the Governor of [[State of Texas|Texas]], vowed to appeal the federal court's injunction against the buoy barrier and take the legal fight to the [[Supreme Court of the United States]].
@@ -45,19 +45,19 @@
 (52:02:38) [[Nicholas J. Fuentes]] recalls that [[Ron DeSantis]] and Greg Abbott declined to pass strong anti-censorship bills in [[State of Florida|Florida]] and [[State of Texas|Texas]] because they would have protected speech critical of [[Israel]] or so-called "Holocaust denial."
 
 ### AF 2022-10-08 1075
-(00:49:58) The [[Democratic Party|Democrat]]-run [[city]] of [[El Paso]] offered voluntary bus rides to nearly 9,000 migrants bound for [[New York|New York City]] and [[City of Chicago|Chicago]], more than double the number sent by [[State of Texas|Texas]] Governor Greg Abbott, in an effort to alleviate strain on its own resources.
+(00:49:58) The [[Democratic Party|Democrat]]-run [[city]] of [[El Paso]] offered voluntary bus rides to nearly 9,000 migrants bound for [[New York|New York City]] and [[Chicago]], more than double the number sent by [[State of Texas|Texas]] Governor Greg Abbott, in an effort to alleviate strain on its own resources.
 
 ### AF 2022-10-08 1075
 (00:52:29) [[Nicholas J. Fuentes]] argued that Governors [[Ron DeSantis]], Greg Abbott, and [[Doug Ducey]] had the constitutional and statutory authority to deport migrants back to [[Mexico]] but chose not to exercise it.
 
 ### AF 2022-09-20 1063
-(58:06:69) Greg Abbott, the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]], responded to the border crisis by using taxpayer money to bus hundreds of illegal immigrants to [[Democratic Party|Democrat]]-led cities like [[Washington D.C.|Washington, D.C.]], [[New York|New York City]], and [[City of Chicago|Chicago]].
+(58:06:69) Greg Abbott, the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]], responded to the border crisis by using taxpayer money to bus hundreds of illegal immigrants to [[Democratic Party|Democrat]]-led cities like [[Washington D.C.|Washington, D.C.]], [[New York|New York City]], and [[Chicago]].
 
 ### AF 2022-09-13 1059
-(00:01:30) Greg Abbott, the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]], initiated a policy of busing hundreds of illegal immigrants from the southern border to northern [[Democratic Party|Democrat]]-controlled cities, including [[Washington D.C.|Washington, D.C.]], [[New York|New York City]], and [[City of Chicago|Chicago]].
+(00:01:30) Greg Abbott, the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]], initiated a policy of busing hundreds of illegal immigrants from the southern border to northern [[Democratic Party|Democrat]]-controlled cities, including [[Washington D.C.|Washington, D.C.]], [[New York|New York City]], and [[Chicago]].
 
 ### AF 2022-09-13 1059
-(00:02:32) [[J.B. Pritzker]], the Governor of [[Illinois]], relocated a busload of illegal immigrants sent to [[City of Chicago|Chicago]] by Greg Abbott to the suburb of Elk Grove Village, housing them at a La Quinta hotel.
+(00:02:32) [[J.B. Pritzker]], the Governor of [[Illinois]], relocated a busload of illegal immigrants sent to [[Chicago]] by Greg Abbott to the suburb of Elk Grove Village, housing them at a La Quinta hotel.
 
 ### AF 2022-09-13 1059
 (00:33:27) Greg Abbott is the [[Republican Party|Republican]] Governor of [[State of Texas|Texas]].
@@ -69,10 +69,10 @@
 (00:36:23) [[Nicholas J. Fuentes]] characterized Greg Abbott's policy of busing small groups of illegal immigrants to [[Democratic Party|Democratic]] cities as a political gimmick that does not address the broader border crisis.
 
 ### AF 2022-08-31 1052
-(00:04:50) Greg Abbott, the Governor of [[State of Texas|Texas]], began busing migrants apprehended at the southern border to sanctuary cities including [[Washington D.C.|Washington, D.C.]], [[New York|New York City]], and [[City of Chicago|Chicago]].
+(00:04:50) Greg Abbott, the Governor of [[State of Texas|Texas]], began busing migrants apprehended at the southern border to sanctuary cities including [[Washington D.C.|Washington, D.C.]], [[New York|New York City]], and [[Chicago]].
 
 ### AF 2022-08-31 1052
-(00:04:50) Greg Abbott's policy of busing migrants to [[City of Chicago|Chicago]] was framed as a response to the [[Joe Biden|Biden]] administration undoing [[Donald Trump]]'s immigration enforcement measures, creating a crisis at the border.
+(00:04:50) Greg Abbott's policy of busing migrants to [[Chicago]] was framed as a response to the [[Joe Biden|Biden]] administration undoing [[Donald Trump]]'s immigration enforcement measures, creating a crisis at the border.
 
 ### AF 2022-08-31 1052
 (00:22:20) [[Nicholas J. Fuentes]] identified himself as a [[Catholic Church|Catholic]] nationalist and reactionary who supported [[Donald Trump]] but despised the [[Republican Party]] and figures like Greg Abbott.
@@ -144,7 +144,7 @@
 (12:48:20) Following Governor Greg Abbott's statement, the [[Republican Party|Texas GOP]] deleted its verified account on the [[Gab]] platform.
 
 ### AF 2021-06-08 0825
-(00:21:29) [[Nicholas J. Fuentes]] cited [[Donald Trump|Trump]]'s endorsements of [[Marco Rubio]], [[Tim Scott]], and Greg Abbott, and his support for [[Mike Johnson|Kevin McCarthy]] as [[Mike Johnson|Speaker of the House]], as evidence the former president was acting against the [[United States|America]] First agenda.
+(00:21:29) [[Nicholas J. Fuentes]] cited [[Donald Trump|Trump]]'s endorsements of [[Marco Rubio]], [[Tim Scott]], and Greg Abbott, and his support for [[Kevin McCarthy]] as [[Mike Johnson|Speaker of the House]], as evidence the former president was acting against the [[United States|America]] First agenda.
 
 ### AF 2021-06-01 0820
 (05:24:620) Greg Abbott, the Governor of [[State of Texas|Texas]], stated that the platform [[Gab]] is anti-semitic after receiving an endorsement from [[Donald Trump]].
@@ -201,7 +201,7 @@
 (00:25:39) People on [[Twitter]] tagged [[Ted Cruz]] and [[State of Texas|Texas]] Governor Greg Abbott, urging them to intervene in the [[James Younger]] case to prevent the child's forced transition.
 
 ### AF 2020-01-16 0526
-(01:15:20) Greg Abbott, the Governor of [[State of Texas|Texas]], was photographed kissing the Western Wall in [[City of Jerusalem|Jerusalem]], which [[Nicholas J. Fuentes]] described as a pathetic act of subservience.
+(01:15:20) Greg Abbott, the Governor of [[State of Texas|Texas]], was photographed kissing the Western Wall in [[Jerusalem]], which [[Nicholas J. Fuentes]] described as a pathetic act of subservience.
 
 ### AF 2018-12-17 0297
 (01:06:60) Governor Greg Abbott signed [[State of Texas|Texas]] [[House]] Bill 89 into law, defending it with the statement "[[State of Texas|Texas]] stands with [[Israel]], period."

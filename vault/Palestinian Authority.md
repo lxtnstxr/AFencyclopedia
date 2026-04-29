@@ -41,10 +41,10 @@
 (00:43:04) [[Mahmoud Abbas]] of the Palestinian Authority returned from [[Jim Jordan|Jordan]] to the [[Gaza Strip|West Bank]], and [[Jim Jordan|Jordan]] canceled the planned regional leaders' meeting with [[Joe Biden|Biden]].
 
 ### AF 2023-10-10 1231
-(00:10:15) [[Nicholas J. Fuentes]] explained that [[Gaza Strip|Palestine]] is not a coherent state, but consists of the [[Gaza Strip]], ruled by [[Hamas]], and the [[Gaza Strip|West Bank]], partially ruled by the more moderate Palestinian Authority.
+(00:10:15) [[Nicholas J. Fuentes]] explained that [[Palestine]] is not a coherent state, but consists of the [[Gaza Strip]], ruled by [[Hamas]], and the [[Gaza Strip|West Bank]], partially ruled by the more moderate Palestinian Authority.
 
 ### AF 2023-10-10 1231
-(02:59:56) [[Nicholas J. Fuentes]] stated that the [[Europe|European Union]]'s decision not to suspend aid to the Palestinian Authority was because it is distinct from [[Hamas]] and the [[EU]] is generally less captured by Zionist influence than the [[United States]].
+(02:59:56) [[Nicholas J. Fuentes]] stated that the [[European Union]]'s decision not to suspend aid to the Palestinian Authority was because it is distinct from [[Hamas]] and the [[EU]] is generally less captured by Zionist influence than the [[United States]].
 
 ### AF 2019-03-08 0343
-(01:01:50) [[Nicholas J. Fuentes]] listed [[Donald Trump]]'s pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the Palestinian Authority.
+(01:01:50) [[Nicholas J. Fuentes]] listed [[Donald Trump]]'s pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the Palestinian Authority.

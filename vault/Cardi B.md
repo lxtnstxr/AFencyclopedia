@@ -2,7 +2,7 @@
 #person
 
 ### AF 2024-08-05 1367
-(01:52:31) [[Sabian]] asked [[Nicholas J. Fuentes]] to be nice to Cardi B, whom he described as a great guy who loves [[City of Chicago|Chicago]].
+(01:52:31) [[Sabian]] asked [[Nicholas J. Fuentes]] to be nice to Cardi B, whom he described as a great guy who loves [[Chicago]].
 
 (01:52:39) Cardi B tweeted "I F with [[Jesus Christ]]," a statement [[Nicholas J. Fuentes]] found disgusting.
 

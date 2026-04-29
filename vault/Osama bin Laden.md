@@ -72,7 +72,7 @@
 (01:24:07) Osama bin Laden claimed the inspiration for the [[September 11 attacks]] came from seeing [[Israel]] attack [[Lebanon]] and high-rise buildings burning in the 1980s.
 
 ### AF 2019-11-22 0504
-(21:07:00) Osama bin Laden cited unconditional [[United States]] support for [[Israel]] and [[Israel|Israeli]] colonization of [[Gaza Strip|Palestine]] as a primary grievance in his 1998 declaration of war against the [[United States]].
+(21:07:00) Osama bin Laden cited unconditional [[United States]] support for [[Israel]] and [[Israel|Israeli]] colonization of [[Palestine]] as a primary grievance in his 1998 declaration of war against the [[United States]].
 
 ### AF 2019-09-11 0459
 (05:15:67) [[Nicholas J. Fuentes]] cited the book *The [[Israel Lobby]]* by [[John Mearsheimer]] and [[Stephen Walt]], which stated that Osama bin Laden's 1997 fatwa declared jihad against the [[United States]] primarily over its unconditional support for [[Israel]].

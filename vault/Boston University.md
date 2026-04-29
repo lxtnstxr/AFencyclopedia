@@ -173,7 +173,7 @@
 (05:25:00) [[Nicholas J. Fuentes]] recounts his political evolution from a pro-[[Israel]] "Tea Party [[Republican Party|Republican]]" to an "[[United States|America]] First" advocate, a shift that began with questioning [[United States]] foreign aid to [[Israel]] while at Boston University.
 
 ### AF 2018-09-15 0240
-(24:50:44) [[Nicholas J. Fuentes]] was a member of the Boston University [[Republican Party|College Republicans]] before the [[City of Charlottesville|Charlottesville rally]].
+(24:50:44) [[Nicholas J. Fuentes]] was a member of the Boston University [[Republican Party|College Republicans]] before the [[Charlottesville rally]].
 
 ### AF 2018-08-28 0228
 (00:54:36) [[Nicholas J. Fuentes]] recounted that his [[time]] at Boston University was a major factor in his political radicalization, revealing the intractability of left-wing opposition.
@@ -182,7 +182,7 @@
 (00:58:56) [[Nicholas J. Fuentes]] recounted an incident at Boston University where a [[black]] [[Islam|Muslim]] woman in a hijab confronted and filmed him in a dining hall line, which he cited as an example of the unreasonableness he faced.
 
 ### AF 2018-08-28 0228
-(01:00:27) [[Nicholas J. Fuentes]] stated he left Boston University due to safety concerns following death threats after the [[City of Charlottesville|Charlottesville]] rally, though he had decided to leave prior to the event.
+(01:00:27) [[Nicholas J. Fuentes]] stated he left Boston University due to safety concerns following death threats after the [[Charlottesville]] rally, though he had decided to leave prior to the event.
 
 ### AF 2018-08-27 0227
 (01:07:01) [[Nicholas J. Fuentes]] stated he got into Boston University, [[University of South Carolina]], and [[Auburn University]], and noted that [[Jared Holt]] attended a school in [[Kansas|Arkansas]] with a 95% acceptance rate.
@@ -221,7 +221,7 @@
 (26:43:81) [[Nicholas J. Fuentes]] recounted a classroom experience at Boston University where a professor dismissed a discussion on eugenics—mentioned by [[Plato]] and [[Arthur Schopenhauer]]—by invoking the [[United States Holocaust Memorial Museum|Holocaust]], which he saw as an example of historical events chilling intellectual dialogue.
 
 ### AF 2018-01-26 0095
-(01:03:15:00) [[Nicholas J. Fuentes]] reminisced about his [[time]] with [[Cassie D.]] during his studies at Boston University.(01:04:29) [[Nicholas J. Fuentes]] questioned the [[Pope Francis|Catholic Church]]'s prohibition on usury, arguing that charging interest is necessary for economic growth.
+(01:03:15:00) [[Nicholas J. Fuentes]] reminisced about his [[time]] with [[Cassie D.]] during his studies at Boston University.(01:04:29) [[Nicholas J. Fuentes]] questioned the [[Catholic Church]]'s prohibition on usury, arguing that charging interest is necessary for economic growth.
 
 ### AF 2018-01-26 0095
 (01:16:28) [[Nicholas J. Fuentes]] stated he does not speak Spanish, despite taking seven years of classes, and was kicked out of a Spanish class at Boston University for being racist after a political debate about [[Donald Trump]].

@@ -4,7 +4,7 @@
 ### AF 2024-10-23 1411
 (00:00:49) Chris Burnett, a former protege of [[Christopher Rufo]] at the [[Manhattan Institute]], was fired after not supporting [[Israel]]'s military actions in the [[Gaza Strip]].
 
-(00:01:01) Chris Burnett became a whistleblower regarding a plagiarism scandal that led to the resignation of [[Donald Trump|the president]] of [[Harvard University]].
+(00:01:01) Chris Burnett became a whistleblower regarding a plagiarism scandal that led to the resignation of [[the president]] of [[Harvard University]].
 (00:01:44) Chris Burnett alleged the plagiarism scandal was a pretext to remove the [[Harvard University]] president due to her insufficient support for [[Israel]].
 (00:02:04) Chris Burnett revealed the [[Manhattan Institute]] covered up a more severe plagiarism scandal involving the wife of [[Harvard University]] alumnus and donor [[William Ackman]].
 (00:02:17) [[Christopher Rufo]], a senior fellow at the [[Manhattan Institute]], attacked Chris Burnett after his whistleblowing.

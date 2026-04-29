@@ -92,7 +92,7 @@
 (25:44:58) The sanctions were intended to cause [[Vladimir Putin]] to suffer the same fate as Saddam Hussein or [[Muammar Gaddafi]], and for [[Russia]] to suffer the same fate as [[Syria]], [[Libya]], or [[Arab Republic of Egypt|Egypt]].
 
 ### AF 2022-03-23 0963
-(01:06:13:60) [[Nicholas J. Fuentes]] cited [[Gaddafi]], Saddam Hussein, [[Columbia|Colombia]], and [[Serbia]] as examples of [[United States|U.S.]] interventionism while critics called [[Vladimir Putin|Putin]]'s actions "19th century."
+(01:06:13:60) [[Nicholas J. Fuentes]] cited [[Gaddafi]], Saddam Hussein, [[Colombia]], and [[Serbia]] as examples of [[United States|U.S.]] interventionism while critics called [[Vladimir Putin|Putin]]'s actions "19th century."
 
 ### AF 2021-12-14 0922
 (01:05:11:42) [[Nicholas J. Fuentes]] recalled that the same arguments about Saddam Hussein being in bed with [[al-Nusra Front|al-Qaeda]] and building weapons were used to justify the war in [[Iraq]].
@@ -177,3 +177,15 @@
 
 ### AF 2017-08-28 0003
 (05:42:62) [[Nicholas J. Fuentes]] argued that [[Kim Jong Un|Kim Jong-un]] and [[North Korea]] were not irrational actors but were pursuing a rational strategy of developing nuclear weapons and bellicose rhetoric as a deterrent against [[United States]] invasion, citing the fates of Saddam Hussein in [[Iraq]] and [[Muammar Gaddafi]] in [[State of Libya|Libya]] as examples.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:52:33) [[Nicholas J. Fuentes]] described historical regime change in the [[Middle East]] as killing the leader and replacing them with a new leader [[who]] brings in a new government, as done in [[Iraq]] with Saddam Hussein and in [[Syria]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:49:24) [[Frank Luntz]] advised that for a solid year, [[United States|American]] [[Jews|Jewish]] leaders should invoke the name of Saddam Hussein and how [[Israel]] was always behind [[United States|American]] efforts to remove him.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:11:58) [[Nicholas J. Fuentes]] argued that [[Israel]] wants [[Iran]] destroyed, just as it wanted Saddam Hussein and [[Bashar al-Assad]] destroyed.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:49:30) [[Nicholas J. Fuentes]] argued that [[Israel]] wanted the [[United States]] to overthrow Saddam Hussein in [[Iraq]] and divide the [[country]] into a Kurdish [[state]], a [[Shiite]] [[state]], and a [[Sunni]] [[state]].

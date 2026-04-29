@@ -29,3 +29,24 @@
 
 ### AF 2018-10-01 0251
 (17:52:00) David French of [[National Review]] reported that [[Julie Swetnick]] was previously sued by her employer, [[Webtrends]], for defamation and fraud, with court documents contending she made uncorroborated sexual harassment complaints.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:46:09) David Frum, a [[Jews|Jewish]] speechwriter and neocon, wrote the speeches for [[George W. Bush]] and invented the term "axis of evil."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:46:31) David Frum was the first mentor of [[JD Vance]] in the mid-2010s.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:46:40) [[JD Vance]] wrote for David Frum's website.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:46:51) David Frum wrote a tell-all for [[The Atlantic]] stating that he told [[JD Vance]] he would one day become [[president]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:47:08) [[JD Vance]] convened a meeting in January 2017 with David Frum in attendance to prepare for a [[JD Vance]] for [[president]] campaign.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:52:27) [[Nicholas J. Fuentes]] stated that [[JD Vance]] was groomed by David Frum.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:53:00) [[Nicholas J. Fuentes]] stated that David Frum believed [[JD Vance]] would become [[president]] because he could use his biographical credibility from "Hillbilly Elegy" to trick the white working class.

@@ -31,3 +31,15 @@
 
 ### AF 2024-06-24 1344
 (01:09:55:75) [[JD Vance]] is married to Usha Vance and they have a son named [[Vivek Ramaswamy|Vivek]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:02:25) [[Nicholas J. Fuentes]] mocked [[JD Vance|J.D. Vance]]'s marriage to Usha Vance, referring to [[India]] as the "third world" and criticizing [[JD Vance|Vance]] for having an inter-religious, intercultural wedding ceremony.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:29:44) [[Nicholas J. Fuentes]] cited examples of demographic change, stating that [[Eric Adams|Zoran Mondani]] is the socialist mayor of [[New York]], [[Vivek Ramaswamy]] will be the governor of [[State of Ohio|Ohio]], and Usha Vance will be the first lady.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:42:49) [[Nicholas J. Fuentes]] argued that Usha Vance and [[Vivek Ramaswamy]] prioritize their own people ([[India|Indians]]), and that this behavior is normal and what white people and [[Christianity|Christians]] deserve as well.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:33:48) [[Nicholas J. Fuentes]] stated that Usha Vance is a "jeep" (a derogatory term for a [[Southern United States|South]] Asian [[person]]).

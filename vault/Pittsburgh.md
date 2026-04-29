@@ -2,14 +2,14 @@
 #city
 
 ### AF 2021-04-28 0801
-(00:19:57) [[Joe Biden]] argued there was no reason why wind turbine blades could not be built in Pittsburgh instead of [[City of Beijing|Beijing]].
+(00:19:57) [[Joe Biden]] argued there was no reason why wind turbine blades could not be built in Pittsburgh instead of [[Beijing]].
 
 
 ### AF 2020-11-03 0715
-(06:35:14) [[Nicholas J. Fuentes]] identified Pittsburgh and [[City of Philadelphia|Philadelphia]] as key [[Democratic Party|Democratic]] strongholds in [[Commonwealth of Pennsylvania|Pennsylvania]] where vote counting was only halfway complete, posing a potential challenge to [[Donald Trump|Trump]]'s lead.
+(06:35:14) [[Nicholas J. Fuentes]] identified Pittsburgh and [[Philadelphia]] as key [[Democratic Party|Democratic]] strongholds in [[Commonwealth of Pennsylvania|Pennsylvania]] where vote counting was only halfway complete, posing a potential challenge to [[Donald Trump|Trump]]'s lead.
 
 ### AF 2020-11-03 0715
-(06:35:28) [[Nicholas J. Fuentes]] cited [[Hillary Clinton]]'s 2016 vote totals of 584,000 in [[City of Philadelphia|Philadelphia]] and 367,000 in Pittsburgh as a benchmark for the remaining votes needed by [[Joe Biden]].
+(06:35:28) [[Nicholas J. Fuentes]] cited [[Hillary Clinton]]'s 2016 vote totals of 584,000 in [[Philadelphia]] and 367,000 in Pittsburgh as a benchmark for the remaining votes needed by [[Joe Biden]].
 
 ### AF 2019-06-20 0411
 (01:35:33) [[Mustafa Alowaimer]], a 21-year-old [[Syria|Syrian]] refugee in Pittsburgh, was arrested for plotting to bomb the Legacy International Worship Center in support of [[Islamic State of Iraq and Syria|ISIS]].

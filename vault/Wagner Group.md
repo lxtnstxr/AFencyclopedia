@@ -10,7 +10,7 @@
 (02:32:52) [[Russia]] is challenging [[French]] hegemony over former [[French]] colonies in [[Western Africa|West Africa]] through the Wagner PMC group, with [[Telegram]] serving as a hub for related propaganda.
 
 ### AF 2024-07-26 1361
-(52:35:95) In [[African continent|Africa]], [[Russia]] is waging a proxy war against [[Government of France|France]] via the Wagner Group, a private military contractor overthrowing pro-[[French]] regimes and replacing them with pro-[[Russian]] ones in countries like [[Burkina Faso]] and [[Niger]] across the Sahel [[region]].
+(52:35:95) In [[African continent|Africa]], [[Russia]] is waging a proxy war against [[France]] via the Wagner Group, a private military contractor overthrowing pro-[[French]] regimes and replacing them with pro-[[Russian]] ones in countries like [[Burkina Faso]] and [[Niger]] across the Sahel [[region]].
 
 ### AF 2023-08-09 1199
 (00:02:03) During her visit to [[Niger]], [[Victoria Nuland]] warned the coup government against embracing the [[Russian]] private military company, the Wagner Group.

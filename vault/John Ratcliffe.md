@@ -29,3 +29,6 @@
 
 ### AF 2020-10-21 0706
 (00:18:17) [[Nicholas J. Fuentes]] quoted John Ratcliffe, the Director of National Intelligence, stating that [[Iran]] was sending spoof emails to intimidate voters, incite unrest, and damage [[Donald Trump]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:13) [[Marco Rubio]] is the [[U.S. Department of State|Secretary of State]], Ratcliffe is the [[Central Intelligence Agency|CIA]] director, and [[Michael Waltz|Waltz]] is the [[NSA]].

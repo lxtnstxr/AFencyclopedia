@@ -52,10 +52,10 @@
 (00:29:35) [[U.S. Immigration and Customs Enforcement|ICE]] arrested nearly 700 workers at agricultural processing plants in Mississippi for lacking proper documentation, according to a [[British Broadcasting Corporation|BBC]] report.
 
 ### AF 2019-06-13 0406
-(02:10:00) A criminal wanted for a shooting in [[Hernando]], Mississippi was shot and killed by police in [[City of Memphis|Memphis]], [[Tennessee]], after ramming a police vehicle, sparking a riot.
+(02:10:00) A criminal wanted for a shooting in [[Hernando]], Mississippi was shot and killed by police in [[Memphis]], [[Tennessee]], after ramming a police vehicle, sparking a riot.
 
 ### AF 2019-06-13 0406
-(34:47:00) The 20-year-old man shot by police in [[City of Memphis|Memphis]] was Brandon Weber, [[who]] was wanted for a June 3rd shooting during a car theft in [[Hernando]], Mississippi.
+(34:47:00) The 20-year-old man shot by police in [[Memphis]] was Brandon Weber, [[who]] was wanted for a June 3rd shooting during a car theft in [[Hernando]], Mississippi.
 
 ### AF 2019-06-13 0406
 (35:11:00) The victim of the June 3rd shooting in [[Hernando]], Mississippi was shot five times but survived.

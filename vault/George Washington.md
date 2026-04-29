@@ -39,7 +39,7 @@
 (45:17:14) [[Nicholas J. Fuentes]] pointed out that critics of [[Martin Luther King Jr.]] for being a rapist could be countered by liberals noting that George Washington owned slaves, framing both as products of their [[time]].
 
 ### AF 2022-11-04 1093
-(00:09:36) [[Nicholas J. Fuentes]] defended his attendance at the [[City of Charlottesville|Charlottesville rally]] as a stand against the removal of Confederate statues, arguing it was part of a broader campaign that would eventually target figures like George Washington and [[Thomas Jefferson]].
+(00:09:36) [[Nicholas J. Fuentes]] defended his attendance at the [[Charlottesville rally]] as a stand against the removal of Confederate statues, arguing it was part of a broader campaign that would eventually target figures like George Washington and [[Thomas Jefferson]].
 
 ### AF 2022-11-04 1093
 (00:14:55) [[Nicholas J. Fuentes]] noted that the founding fathers, including George Washington, owned slaves, complicating the moral distinction between them and Confederate figures.
@@ -63,7 +63,7 @@
 (56:53:29) [[Nicholas J. Fuentes]] countered [[Nikole Hannah-Jones]]'s claim that [[United States|America]] was founded on slavery, noting that George Washington, [[John Adams]], [[John Quincy Adams]], and [[Thomas Jefferson]] were not in favor of it, and [[Benjamin Franklin]] chaired an anti-slavery convention in 1775.
 
 ### AF 2021-06-14 0828
-(01:01:03:00) [[Nicholas J. Fuentes]] claimed the legacy of [[City of Charlottesville|Charlottesville]] is that the protesters were right, and the cultural revolution they opposed has led to the removal of statues of [[Abraham Lincoln]], [[Thomas Jefferson]], and George Washington.
+(01:01:03:00) [[Nicholas J. Fuentes]] claimed the legacy of [[Charlottesville]] is that the protesters were right, and the cultural revolution they opposed has led to the removal of statues of [[Abraham Lincoln]], [[Thomas Jefferson]], and George Washington.
 
 ### AF 2020-12-07 0729
 (02:00:36) [[Nicholas J. Fuentes]] stated he doesn't love "groi versus pine tree flags," preferring [[United States|American]], [[Donald Trump|Trump]], or [[United States|America]] First flags, but acknowledged it is the flag of Washington and wouldn't ban it.
@@ -142,3 +142,6 @@
 
 ### AF 2017-09-22 0016
 (00:32:44) [[Nicholas J. Fuentes]] named George Washington, [[James Madison]], and [[George Mason]] as his favorite Founding Fathers.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:31:51) [[Nicholas J. Fuentes]] named George Washington, [[Henry Ford]], [[Charles Lindbergh]], [[Thomas Jefferson]], [[Abraham Lincoln]], and [[Frank Sinatra]] as examples of the "flesh and blood" people that constitute the [[United States]] of [[United States|America]].

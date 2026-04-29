@@ -12,7 +12,7 @@
 (01:31:28) [[Nicholas J. Fuentes]] recalled that the best restaurant he visited in [[Prague]], Czech Republic, was an Italian one, arguing that Italian food represents the "finer things" compared to Northern [[Europe|European]] "peasant food."
 
 ### AF 2019-04-10 0364
-(01:26:40) [[Benjamin Netanyahu|Netanyahu]]'s [[Labor Party|Likud]] party maintained close relationships with right-wing nationalist governments in Czech Republic, [[Hungary]], [[Israel|Poland]], and [[Austria]].
+(01:26:40) [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party maintained close relationships with right-wing nationalist governments in Czech Republic, [[Hungary]], [[Israel|Poland]], and [[Austria]].
 
 ### AF 2019-03-05 0341
 (05:36:20) Countries like [[Russia]], [[Hungary]], and the Czech Republic survived socialist economic systems, but no [[country]] has survived large-scale immigration that submerges the native racial majority.
@@ -21,7 +21,7 @@
 (38:00:00) A caller referenced [[Nicholas J. Fuentes]]'s past trip to the Czech Republic.
 
 ### AF 2018-09-13 0239
-(11:09:00) A clash within the [[Europe|European Union]] existed between Eastern and Central [[Europe|European]] countries like [[Hungary]], [[Austria]], and Czechia, and dominant liberal countries like [[Germany]] and [[France]], primarily over immigration policy.
+(11:09:00) A clash within the [[European Union]] existed between Eastern and Central [[Europe|European]] countries like [[Hungary]], [[Austria]], and Czechia, and dominant liberal countries like [[Germany]] and [[France]], primarily over immigration policy.
 
 ### AF 2018-09-13 0239
 (15:12:00) Eastern [[Europe|European]] countries like [[Hungary]], [[Austria]], Czechia, and [[Israel|Poland]] implemented strict immigration policies and erected fences to stem mass migration from the [[Middle East]].

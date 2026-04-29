@@ -27,7 +27,7 @@
 (00:56:30) Megan Squire maintained a database called "Whac-a-Mole" containing information on approximately 400,000 individuals she classified using vague keywords like "anti-SJW," "anti-[[Obama]]," "rebel," "patriot," and "anti-Sharia law."
 
 ### AF 2021-03-16 0773
-(01:09:30) Megan Squire participated as a counter-protester at the Unite the Right rally in [[City of Charlottesville|Charlottesville]], [[State of Virginia|Virginia]], and has leaked data to the far-left militia group Redneck Revolt, also [[known]] as the [[John]] Brown Gun Club.
+(01:09:30) Megan Squire participated as a counter-protester at the Unite the Right rally in [[Charlottesville]], [[State of Virginia|Virginia]], and has leaked data to the far-left militia group Redneck Revolt, also [[known]] as the [[John]] Brown Gun Club.
 
 ### AF 2021-03-16 0773
 (01:20:30) Megan Squire was cited as an expert in an [[ABC News|ABC]] article arguing that [[Nicholas J. Fuentes]] should be banned from [[Twitter]] for enabling the spread of his political message.

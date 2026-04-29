@@ -12,10 +12,10 @@
 (00:06:12) A former [[U.S. Space Force]] commander in Denver, [[Colorado]] shot and killed a 13-year-old boy while chasing teenagers who were attempting to steal his car.
 
 ### AF 2021-09-15 0876
-(14:51:640) [[Nicholas J. Fuentes]] promoted the upcoming September 21st debut of a feature-length film recut from his "[[White Boy Summer]]" vlog series, containing new and previously unseen footage from a road trip from [[City of Chicago|Chicago]] to Denver, [[City of Las Vegas|Las Vegas]], [[Los Angeles]], [[City of Phoenix|Phoenix]], and [[Dallas]].
+(14:51:640) [[Nicholas J. Fuentes]] promoted the upcoming September 21st debut of a feature-length film recut from his "[[White Boy Summer]]" vlog series, containing new and previously unseen footage from a road trip from [[Chicago]] to Denver, [[Las Vegas]], [[Los Angeles]], [[Phoenix]], and [[Dallas]].
 
 ### AF 2021-09-14 0875
-(00:14:45) [[Nicholas J. Fuentes]] announced that a feature-length "[[White Boy Summer]]" movie, compiled from vlogs of a road trip to Denver, [[City of Las Vegas|Las Vegas]], [[L.A.]], [[City of Phoenix|Phoenix]], and [[Dallas]], would be airing on September 21st.
+(00:14:45) [[Nicholas J. Fuentes]] announced that a feature-length "[[White Boy Summer]]" movie, compiled from vlogs of a road trip to Denver, [[Las Vegas]], [[L.A.]], [[Phoenix]], and [[Dallas]], would be airing on September 21st.
 
 ### AF 2021-06-29 0839
 (16:31:44) [[Nicholas J. Fuentes]] and [[Jaden McNeil]] drove through [[State of Nebraska|Nebraska]] and [[State of Colorado|Colorado]], arriving in Denver for a meetup with local supporters.
@@ -24,7 +24,7 @@
 (17:56:12) [[Nicholas J. Fuentes]] criticized a Denver burger restaurant touted by the [[Food Network]] as the best in the [[country]], calling it the worst burger he had ever had.
 
 ### AF 2020-10-19 0704
-(00:45:11) [[Nicholas J. Fuentes]] stated that two [[Donald Trump|Trump]] supporters were killed, one in Denver, [[State of Colorado|Colorado]] and another in [[City of Portland|Portland]], as part of what he called state-sponsored violence against representatives of the traditional [[United States|American]] nation.
+(00:45:11) [[Nicholas J. Fuentes]] stated that two [[Donald Trump|Trump]] supporters were killed, one in Denver, [[State of Colorado|Colorado]] and another in [[Portland]], as part of what he called state-sponsored violence against representatives of the traditional [[United States|American]] nation.
 
 ### AF 2020-10-13 0700
 (00:00:28) A [[Donald Trump|Trump]] supporter was shot and killed at a pro-[[Donald Trump|Trump]] rally in Denver over the weekend, an incident that received minimal coverage from mainstream media outlets.

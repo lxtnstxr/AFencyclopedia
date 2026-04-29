@@ -27,10 +27,10 @@
 (00:00:00) [[Nicholas J. Fuentes]] claimed that Sebastian Gorka and the [[Zionist Organization of America]] called for him to be banned from social media.
 
 ### AF 2021-01-29 0751
-(01:16:00) [[Nicholas J. Fuentes]] stated that he, as a [[Catholic Church|Catholic]], white, "real [[United States|American]] patriot," was consistently called antisemitic by figures like [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], Sebastian Gorka, the [[Zionist Organization of America]], [[Steven Crowder|Steve Bannon]], and [[Rudy Giuliani]] for discussing issues of [[Jews|Jewish]] influence.
+(01:16:00) [[Nicholas J. Fuentes]] stated that he, as a [[Catholic Church|Catholic]], white, "real [[United States|American]] patriot," was consistently called antisemitic by figures like [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], Sebastian Gorka, the [[Zionist Organization of America]], [[Steve Bannon]], and [[Rudy Giuliani]] for discussing issues of [[Jews|Jewish]] influence.
 
 ### AF 2021-01-29 0751
-(04:33:00) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], white, [[United States|America]]-first patriot, he is consistently labeled antisemitic by [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], Sebastian Gorka, the [[Zionist Organization of America]], [[Steven Crowder|Steve Bannon]], and [[Rudy Giuliani]], highlighting a fundamental conflict with [[American Jewish Committee|Jewish organizations]].
+(04:33:00) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], white, [[United States|America]]-first patriot, he is consistently labeled antisemitic by [[Dennis Prager]], [[Ben Shapiro]], [[Charlie Kirk]], [[Benny Johnson]], Sebastian Gorka, the [[Zionist Organization of America]], [[Steve Bannon]], and [[Rudy Giuliani]], highlighting a fundamental conflict with [[American Jewish Committee|Jewish organizations]].
 
 ### AF 2020-10-19 0704
 (01:26:39) [[Nicholas J. Fuentes]] referenced a tweet by Gorka calling [[Twitter]] "the real [[Nazis]]," using it as an example of how the term "Nazi" has become a synonym for "the worst thing you can be."
@@ -138,7 +138,7 @@
 (00:34:25) [[Nicholas J. Fuentes]] contrasted the organized infrastructure of mainstream conservatism, exemplified by the [[Turning Point USA]] conference with speakers like Sebastian Gorka, [[Ben Shapiro]], and [[Brian Kilmeade]], with the disorganization of the [[America First]] or alt-right movement, which lacks consistent media output, publications, and cooperation.
 
 ### AF 2017-09-14 0010
-(00:22:51) [[Nicholas J. Fuentes]] notes that [[Donald Trump]] removed [[Steven Crowder|Steve Bannon]] and Sebastian Gorka from the [[White House]] earlier in the month, with rumors of [[Steven Crowder|Steve Bannon]] returning to lead [[Breitbart News|Breitbart]].
+(00:22:51) [[Nicholas J. Fuentes]] notes that [[Donald Trump]] removed [[Steve Bannon]] and Sebastian Gorka from the [[White House]] earlier in the month, with rumors of [[Steve Bannon]] returning to lead [[Breitbart News|Breitbart]].
 
 ### AF 2017-08-28 0003
-(09:42:26) [[Nicholas J. Fuentes]] stated that [[Stephen Miller]] was the last [[person]] in the [[Donald Trump|Trump]] [[White House]], besides [[Donald Trump|the president]] himself, [[who]] still believed in the "[[America First]]" revolution, following the ousting of Sebastian Gorka and [[Steven Crowder|Steve Bannon]].
+(09:42:26) [[Nicholas J. Fuentes]] stated that [[Stephen Miller]] was the last [[person]] in the [[Donald Trump|Trump]] [[White House]], besides [[the president]] himself, [[who]] still believed in the "[[America First]]" revolution, following the ousting of Sebastian Gorka and [[Steve Bannon]].

@@ -112,3 +112,27 @@
 
 ### AF 2017-11-06 0047
 (00:14:00) The government of Bahrain urged all its citizens living in [[Lebanon]] to leave immediately due to fears that [[Saudi Arabia]] might imminently go to war with [[Lebanon]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:15:37) [[Saudi Arabia]], [[Qatar]], [[Kuwait]], the [[United Arab Emirates]], and Bahrain desired a decisive confrontation and the ultimate end of the [[Iran]]ian regime.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:15:44) The Gulf countries, including [[Saudi Arabia]], [[Qatar]], [[Kuwait]], the [[United Arab Emirates]], and Bahrain, did not feel secure due to the ongoing conflict.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:23:27) [[Iran]] was expected to deliver a crushing blow to [[Persian Gulf]] countries such as [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and Bahrain.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:36:14) [[Nicholas J. Fuentes]] reported that countries like [[Saudi Arabia]], the [[United Arab Emirates]], Bahrain, and [[Kuwait]] are now lobbying [[Washington D.C.|Washington, D.C.]] to continue the war until the [[Iran|Iranian regime]] is toppled.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:33:22) [[Iran]] threatened to attack the energy infrastructure, desalination plants, hotels, and airports of [[Saudi Arabia]], [[Qatar]], the [[United Arab Emirates]], [[Kuwait]], and Bahrain if the [[United States]] targets [[Iran]]'s power plants.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:25:23) [[Iran]] launched ballistic missiles that struck two tankers in the [[Persian Gulf]] and hit oil infrastructure in Bahrain and [[Iraq]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:51:26) [[Nicholas J. Fuentes]] reported that [[Iran]]'s missiles were hitting Bahrain, [[Qatar]], and the [[United Arab Emirates|Emirates]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:06:42) [[Nicholas J. Fuentes]] said that [[Iran]] is launching missiles against [[Israel]], [[Jim Jordan|Jordan]], [[Northern Iraq]], [[Riyadh]], Bahrain, the [[United Arab Emirates|Emirates]], [[Qatar]], [[Oman]], and ships in the [[Persian Gulf]].

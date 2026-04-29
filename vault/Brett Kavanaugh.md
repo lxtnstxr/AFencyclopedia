@@ -54,7 +54,7 @@
 (01:04:20) Brett Kavanaugh and [[Amy Coney Barrett]] consistently sided with liberal justices on the [[Supreme Court of the United States]] throughout 2021, according to [[Nicholas J. Fuentes]].
 
 ### AF 2021-12-13 0921
-(01:04:20) [[Nicholas J. Fuentes]] stated that [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], [[Matt Schlapp]], [[Ronna McDaniel]], [[Dan Crenshaw]], [[Ben Shapiro]], Brett Kavanaugh, and [[Amy Coney Barrett]] are not allies of white [[Christianity|Christian]] [[United States|Americans]].
+(01:04:20) [[Nicholas J. Fuentes]] stated that [[Mitch McConnell]], [[Kevin McCarthy]], [[Matt Schlapp]], [[Ronna McDaniel]], [[Dan Crenshaw]], [[Ben Shapiro]], Brett Kavanaugh, and [[Amy Coney Barrett]] are not allies of white [[Christianity|Christian]] [[United States|Americans]].
 
 ### AF 2021-12-08 0918
 (01:00:07) [[Nicholas J. Fuentes]] argued that the [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] breach was comparable to prior unauthorized protests, such as those during the Brett Kavanaugh hearings, and less severe than the 2020 riots that burned [[city]] blocks and established autonomous zones.

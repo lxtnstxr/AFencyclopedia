@@ -9,7 +9,7 @@
 (37:09:63) [[Nala Ray]] credited her current partner, a devout [[Christianity|Christian]], with encouraging her conversion through prayer and Bible verses.
 
 ### AF 2024-01-06 1274
-(00:07:08) [[Nicholas J. Fuentes]] argued that [[Destiny]] is unintelligent, citing his inability to locate [[Israel]] on a map, confusion over [[Donald Trump|the president]] of [[Turkey]], and ignorance about [[Genghis Khan]], the Bible, and [[Kevin McCarthy]].
+(00:07:08) [[Nicholas J. Fuentes]] argued that [[Destiny]] is unintelligent, citing his inability to locate [[Israel]] on a map, confusion over [[the president]] of [[Turkey]], and ignorance about [[Genghis Khan]], the Bible, and [[Kevin McCarthy]].
 
 ### AF 2021-09-30 0886
 (01:38:33) [[Nicholas J. Fuentes]] stated he first truly read the Bible and began to believe in college, a process influenced by existential fears during the 2016 election when he thought [[Hillary Clinton]] would win and start a war with [[Russia]].

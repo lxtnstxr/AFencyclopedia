@@ -12,7 +12,7 @@
 (12:24:400) [[Nicholas J. Fuentes]] is working with attorney [[Norm Pattis]] to file a lawsuit against the TSA and the federal government regarding his placement on the No-Fly List.
 
 ### AF 2021-04-27 0800
-(00:11:54) To test the nature of the travel restriction, [[Nicholas J. Fuentes]] booked a flight on [[Southwest Airlines]] from [[City of Chicago|Chicago]] Midway International Airport to [[City of Phoenix|Phoenix]], [[Arizona]], and was again prevented from checking in or receiving a boarding pass after a 30-minute consultation between airline staff and the TSA.
+(00:11:54) To test the nature of the travel restriction, [[Nicholas J. Fuentes]] booked a flight on [[Southwest Airlines]] from [[Chicago]] Midway International Airport to [[Phoenix]], [[Arizona]], and was again prevented from checking in or receiving a boarding pass after a 30-minute consultation between airline staff and the TSA.
 
 ### AF 2021-04-27 0800
 (00:18:27) After being prevented from flying on three different airlines ([[American Airlines]], [[United Airlines]], and [[Southwest Airlines]]) at two different airports (O'Hare and Midway) to two different destinations ([[State of Florida|Florida]] and [[Arizona]]), [[Nicholas J. Fuentes]] concluded he was on a federal TSA-enforced no-fly list.
@@ -40,3 +40,21 @@
 
 ### AF 2021-07-29 0850
 (55:17:39) The TSA, [[U.S. Department of Homeland Security|DHS]], and [[Uniting and Strengthening America by Providing Appropriate Tools Required to Intercept and Obstruct Terrorism Act|Patriot Act]] were originally created to combat [[Islamic State of Iraq and Syria|Al-Qaeda]] and are now being used against [[Donald Trump|Trump]] supporters and "capital rioters."
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:36:57) [[Nicholas J. Fuentes]] commented on reports of long delays at [[City|Houston]] airports due to TSA staffing issues, suggesting the system was failing.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:38:10) [[Nicholas J. Fuentes]] remarked that “[[Adolf Hitler|Hitler]] needs to come back” to solve problems like funding the TSA and controlling the border.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:38:36) [[Nicholas J. Fuentes]] described the concurrent situations of the [[Iran]] war and the TSA meltdown as feeling like the “prologue to a disaster movie.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:39:12) [[Nicholas J. Fuentes]] speculated about a potential major terrorist attack numbering event, given the combination of a war with [[Iran]], an international fatwa against [[United States|Americans]], and a defunded TSA.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:37:04) [[Nicholas J. Fuentes]] stated that a partial government shutdown would not affect [[U.S. Immigration and Customs Enforcement|ICE]], but would affect other agencies within [[U.S. Department of Homeland Security|Homeland Security]] like the TSA and the [[Coast Guard]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:09:52) [[Nicholas J. Fuentes]] stated that TSA screeners are not set to miss paychecks until March and [[FEMA]] coffers are likely full enough to respond to natural disasters for the near future.

@@ -88,3 +88,12 @@
 
 ### AF 2020-10-01 0693
 (01:30:56) During the [[Armenian-Azerbaijan war]], [[Israel]] decided to support Azerbaijan and sent them weapons, while [[Iran]] supported [[Armenia]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], Azerbaijan, [[Republic of Congo|Congo]], [[Rwanda]].
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] reported that [[Iran]]'s border with [[Iraq]] and Azerbaijan is being "flooded" by operatives with automatic rifles taking over government buildings, which he characterized as part of a systematic regime change war.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:25:06) [[Nicholas J. Fuentes]] reported that the [[Lincoln Park|USS Abraham Lincoln]] carrier strike group is being added to the [[region]], along with fighter jets and special forces stationed in Azerbaijan and neighboring countries.

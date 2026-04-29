@@ -4,8 +4,8 @@
 ### AF 2022-09-29 1069
 (02:22:00) [[Nicholas J. Fuentes]] announced the show would cover a major protest in Prague against the [[Czech]] government's support for sanctions on [[Russia]] and the war effort in [[Ukraine]].
 
-(02:31:00) A protest in Prague, [[Czech Republic]] targeted the government's support for [[Russian]] sanctions and the [[Ukraine|Ukrainian]] war effort, reflecting growing public pressure on [[North Atlantic Treaty Organization|NATO]] and the [[Europe|European Union]] as winter approached.
-(14:35:00) A protest in Prague, organized by the group [[Czech Republic]] First, drew tens of thousands of people demonstrating against the [[Czech]] government, [[North Atlantic Treaty Organization|NATO]], and the [[Europe|European Union]] over high energy prices caused by sanctions on [[Russia]].
+(02:31:00) A protest in Prague, [[Czech Republic]] targeted the government's support for [[Russian]] sanctions and the [[Ukraine|Ukrainian]] war effort, reflecting growing public pressure on [[North Atlantic Treaty Organization|NATO]] and the [[European Union]] as winter approached.
+(14:35:00) A protest in Prague, organized by the group [[Czech Republic]] First, drew tens of thousands of people demonstrating against the [[Czech]] government, [[North Atlantic Treaty Organization|NATO]], and the [[European Union]] over high energy prices caused by sanctions on [[Russia]].
 (17:29:00) Organizers of the Prague protest intended to ask President [[Milos Zeman]] to disband the government and call for early elections, following a similar rally on September 3rd that drew approximately 70,000 participants.
 (28:27:00) Protesters in Prague were citizens opposing skyrocketing energy costs due to a war that did not directly concern the [[Czech Republic]], rather than agents of [[Russian]] influence.
 
@@ -25,7 +25,7 @@
 (07:19:43) [[Nicholas J. Fuentes]] traveled to Prague with friends [[Millennial Matt]] and [[Lauren Rose]].
 
 ### AF 2018-12-04 0288
-(08:03:19) [[Nicholas J. Fuentes]] observed a stark demographic difference between the population of Prague and that of [[City of Chicago|Chicago]]'s O'Hare airport upon returning to the [[United States]].
+(08:03:19) [[Nicholas J. Fuentes]] observed a stark demographic difference between the population of Prague and that of [[Chicago]]'s O'Hare airport upon returning to the [[United States]].
 
 ### AF 2018-12-04 0288
 (14:08:27) [[Nicholas J. Fuentes]] endured a 25-hour travel itinerary from Prague to [[Lisbon]] to [[Boston]] and then home.

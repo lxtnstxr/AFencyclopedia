@@ -20,7 +20,7 @@
 (27:59:02) [[Turkey]], under President [[Recep Tayyip Erdogan|Erdoğan]], invaded northern [[Syria]] in February 2018, targeting Kurdish forces near its border.
 
 ### AF 2018-03-29 0134
-(00:11:26) The PKK (Kurdish Workers' Party) has been designated a terrorist [[organization]] in [[Turkey]] for approximately 30 years and was responsible for bombings in [[Ankara]] and [[City of Istanbul|Istanbul]] during the [[Obama]] administration.
+(00:11:26) The PKK (Kurdish Workers' Party) has been designated a terrorist [[organization]] in [[Turkey]] for approximately 30 years and was responsible for bombings in [[Ankara]] and [[Istanbul]] during the [[Obama]] administration.
 
 ### AF 2018-02-07 0103
 (06:32:30) The [[SDF]] was an extension of the People's Protection Units (YPG), which itself was an extension of the Kurdistan Workers' Party (PKK).

@@ -81,7 +81,7 @@
 (01:42:09) [[Nicholas J. Fuentes]] stated that Ron Paul served a good purpose but criticized the [[Young Americans for Liberty]] (YAL) [[organization]] that stemmed from his movement.
 
 ### AF 2019-07-10 0422
-(00:28:29) Rand Paul proposed creating "economic freedom zones" in high-crime areas like Garfield Park and Humboldt Park in [[City of Chicago|Chicago]].
+(00:28:29) Rand Paul proposed creating "economic freedom zones" in high-crime areas like Garfield Park and Humboldt Park in [[Chicago]].
 
 ### AF 2019-03-14 0347
 (18:48:08) More than a dozen [[Republican Party|Republican]] senators voted for the resolution to block the emergency declaration, including [[Mitt Romney]], [[Mike Lee]], [[Rob Portman]], [[Susan Collins]], [[Lisa Murkowski]], [[Marco Rubio]], Rand Paul, [[Lamar Alexander]], [[Roger Wicker]], [[Roy Blunt]], [[Jerry Moran]], and [[Pat Toomey]].
@@ -193,3 +193,12 @@
 
 ### AF 2017-11-17 0053
 (01:02:49) [[Nicholas J. Fuentes]] stated [[Milo Yiannopoulos]] is more popular than [[Jared Taylor]], Ramsey Paul, and the [[Daily Stormer]] combined.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:38:34:95) Senator Rand Paul voted with the [[Democratic Party|Democrats]] for the war powers resolution, while Senator [[John Fetterman]] voted with the [[Republican Party|Republicans]] against it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:21:44:76) The war powers resolution in the [[U.S. Congress|Senate]], which would have constrained [[Donald Trump]]'s ability to continue the war in [[Iran]], failed largely along party lines, with every [[Republican Party|Republican]] except Rand Paul voting against it.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:52:05) Rand Paul stated he "didn't vote for this," referring to the current political situation, but [[Nicholas J. Fuentes]] noted that Rand Paul had chastised others for not voting for [[Donald Trump]] in 2024.

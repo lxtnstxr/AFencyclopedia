@@ -25,3 +25,12 @@
 
 ### AF 2019-01-22 0315
 (01:19:58) During his 2016 presidential campaign, [[Donald Trump]] defended his campaign manager Corey Lewandowski against allegations of assaulting journalist [[Michelle Fields]], refusing to dismiss him despite pressure from figures like [[Ben Shapiro]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:48:24) [[Nicholas J. Fuentes]] predicted that [[Democratic Party|Democrats]], upon taking the [[U.S. Congress|House]], would subpoena and investigate [[Kristi Noem]], Corey Lewandowski, and others, discovering corruption.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:53:52) [[Nicholas J. Fuentes]] described [[Kristi Noem]] as an idiot [[who]] wears a costume and is rumored to be sleeping with Corey Lewandowski.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:27:53) [[Nicholas J. Fuentes]] argued that [[Kristi Noem]] is not the one, Corey Lewandowski is not the one, and [[Jason Miller|Stephen Miller]] does not care.

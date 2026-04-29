@@ -2,7 +2,7 @@
 #person
 
 ### AF 2021-06-15 0829
-(02:34:05) [[Nicholas J. Fuentes]] speculated that child stars like Miley Cyrus are "MK Ultra" mind control slaves of [[Disney|Disney]], subjected to abuse that creates dissociative personalities, destroying any innocence they once had.
+(02:34:05) [[Nicholas J. Fuentes]] speculated that child stars like Miley Cyrus are "MK Ultra" mind control slaves of [[Disney]], subjected to abuse that creates dissociative personalities, destroying any innocence they once had.
 
 
 ### AF 2019-09-09 0457
@@ -18,7 +18,10 @@
 (01:15:47) Miley Cyrus, [[who]] had campaigned for [[Hillary Clinton]], appeared on *The Tonight Show* to emotionally thank [[Hillary Clinton|Clinton]], embracing her on stage.
 
 ### AF 2017-10-03 0023
-(00:12:30) [[Jimmy Fallon]] and [[Adam Sandler]] performed a musical tribute with Miley Cyrus instead of discussing gun control after the [[City of Las Vegas|Las Vegas]] shooting.
+(00:12:30) [[Jimmy Fallon]] and [[Adam Sandler]] performed a musical tribute with Miley Cyrus instead of discussing gun control after the [[Las Vegas]] shooting.
 
 ### AF 2017-08-28 0003
 (09:12:26) [[Nicholas J. Fuentes]] lamented that mainstream pop stars like [[Taylor Swift]], Miley Cyrus, [[Katy Perry]], and [[Selena Gomez]] had become "degenerate" role models, promoting promiscuity and alternative lifestyles instead of virtue for young people.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:59:41) [[Nicholas J. Fuentes]] criticized the Hannah Montana 20-year anniversary special, expressing a dislike for Miley Cyrus and the other guests, including [[Selena Gomez]] and Chappell Roan.

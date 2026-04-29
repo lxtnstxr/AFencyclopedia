@@ -60,3 +60,9 @@
 
 ### AF 2018-02-28 0115
 (51:11:80) [[Nicholas J. Fuentes]] cited Zionists as a model for political [[organization]], noting their success despite initial unpopularity, due to having skilled professionals like lawyers, doctors, and financiers in their ranks.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:26:00) [[Nicholas J. Fuentes]] argued that [[Islam]] and [[Judaism]] are impediments to the gospel spreading and that [[Christianity]] is inherently in conflict with both, citing [[Jews|Jewish]] proliferation of liberalism, communism, and Zionism.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:17:50:00) [[Nicholas J. Fuentes]] argued that [[the left]] and the [[Jewish community]] are inextricably linked, and that [[the left]] only criticizes Zionism because it sees [[Israel]] as a capitalist extension of [[United States|U.S]]. hegemony.

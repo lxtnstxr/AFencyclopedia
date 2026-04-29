@@ -79,3 +79,6 @@
 
 ### AF 2018-07-12 0199
 (02:13:08) [[Nicholas J. Fuentes]] cited commentator [[Stefan Molyneux]]'s alleged statement that there is "such a thing as ethical child pornography" as an example of moral decay without belief in God.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:14:41) [[Nicholas J. Fuentes]] called for people to radically obey their conscience, tell the truth, look to God, and transform the [[country]].

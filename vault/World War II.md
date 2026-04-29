@@ -15,7 +15,7 @@
 (01:11:11:13) [[Nicholas J. Fuentes]] listed major 20th-century events—including the [[Russian Revolution]], World War II, the [[John F. Kennedy]] assassination, [[Watergate]], and the [[Iran-Contra affair]]—as having the fingerprints of [[Jewish]] or Zionist involvement.
 
 ### AF 2023-03-11 1129
-(01:37:50) [[Nicholas J. Fuentes]] argued that World War II was ultimately won by [[Jewish]] interests, not the [[United States]], [[United Kingdom|England]], [[Government of France|France]], or [[Russia]], fundamentally reshaping Western society.
+(01:37:50) [[Nicholas J. Fuentes]] argued that World War II was ultimately won by [[Jewish]] interests, not the [[United States]], [[United Kingdom|England]], [[France]], or [[Russia]], fundamentally reshaping Western society.
 
 ### AF 2023-03-01 1125
 (01:16:560) [[Nicholas J. Fuentes]] argued that the demographic transition and declining white fertility rates in the [[United States]] and [[Western Europe]] are downstream effects of a prior transformation where a white [[Christianity|Christian]] elite was replaced by a [[Jewish]] elite following World War II.
@@ -81,7 +81,7 @@
 (00:32:29) Conflicts such as [[World War III|World War I]], World War II, the [[Cold War]], and the wars in the [[Balkans]] in the mid-1990s each resulted in a redefinition of countries along ethnic and racial lines.
 
 ### AF 2018-03-05 0118
-(01:06:20) [[Nicholas J. Fuentes]] argued that World War II began because [[United Kingdom|Britain]] honored a defense pact with [[Israel|Poland]] after [[Germany]] attempted to retake the [[Germany|German]] [[city]] of [[City of Gdańsk|Danzig]], questioning if the resulting devastation was worth it.
+(01:06:20) [[Nicholas J. Fuentes]] argued that World War II began because [[United Kingdom|Britain]] honored a defense pact with [[Israel|Poland]] after [[Germany]] attempted to retake the [[Germany|German]] [[city]] of [[Danzig]], questioning if the resulting devastation was worth it.
 
 ### AF 2017-10-17 0033
 (00:02:22) [[Oswald Mosley]] was the leader of the [[British Union of Fascists]] in the [[United Kingdom]] during World War II.

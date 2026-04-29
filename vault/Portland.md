@@ -10,4 +10,4 @@
 (30:00:040) The [[U.S. Department of Defense]] activated the [[U.S. Department of Defense|National Guard]] to protect [[U.S. Immigration and Customs Enforcement|ICE]] and [[U.S. Department of Homeland Security|DHS]] operatives in [[Chicago]] and Portland, but a federal judge struck down the deployment, ruling there was no insurrection or emergency justifying it.
 
 ### AF 2025-08-26 1557
-(01:12:20) The situation in the [[United States]] is compared to [[Europe]], with [[Afghanistan|Afghans]], [[Pakistan|Pakistanis]], and Muslims in the [[United Kingdom]]; Venezuelans and Salvadorians in [[New York]], [[State of Texas|Texas]], or [[State of California|California]]; and [[India|Indians]] and [[China|Chinese]] in [[City of Seattle|Seattle]] and Portland.
+(01:12:20) The situation in the [[United States]] is compared to [[Europe]], with [[Afghanistan|Afghans]], [[Pakistan|Pakistanis]], and Muslims in the [[United Kingdom]]; Venezuelans and Salvadorians in [[New York]], [[State of Texas|Texas]], or [[State of California|California]]; and [[India|Indians]] and [[China|Chinese]] in [[Seattle]] and Portland.

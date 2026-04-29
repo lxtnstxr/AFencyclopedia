@@ -8,7 +8,7 @@
 (09:56:670) Odyssey reassured users on [[Twitter]] that, unlike other platforms, it did not manipulate or inflate its view counts.
 
 ### AF 2022-03-21 0962
-(00:40:40) The debate between [[Nicholas J. Fuentes]] and [[Destiny|Destiny]] achieved approximately 20,000 live viewers across platforms including [[Cozy.tv]], [[Google|YouTube]], and Odyssey.
+(00:40:40) The debate between [[Nicholas J. Fuentes]] and [[Destiny]] achieved approximately 20,000 live viewers across platforms including [[Cozy.tv]], [[Google|YouTube]], and Odyssey.
 
 ### AF 2022-02-10 0944
 (00:13:34) [[Nicholas J. Fuentes]] asserted that [[Cozy.tv]] had built a roster of streamers, including himself and [[Alex Jones]], that rival platforms like Odyssey could not match.

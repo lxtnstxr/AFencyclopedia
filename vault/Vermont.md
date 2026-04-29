@@ -45,7 +45,7 @@
 (02:39:00) [[Bernie Sanders|Senator Bernie Sanders]] of Vermont gave a speech asserting that [[Donald Trump]] was leading the [[country]] down the path of authoritarianism and that the election was about preserving democracy, while outlining policy areas where he and [[Joe Biden]] agreed, such as a $15 minimum wage and expanding healthcare.
 
 ### AF 2020-06-08 0616
-(02:33:04) A viewer named Kevin compared the demographics and crime rates of predominantly white states like [[State of Maine|Maine]], [[New Hampshire]], and Vermont to [[Europe|European]] countries, and cities like [[City of Chicago|Chicago]], [[Baltimore]], and [[City|Detroit]] to African and Haitian nations.
+(02:33:04) A viewer named Kevin compared the demographics and crime rates of predominantly white states like [[State of Maine|Maine]], [[New Hampshire]], and Vermont to [[Europe|European]] countries, and cities like [[Chicago]], [[Baltimore]], and [[City|Detroit]] to African and Haitian nations.
 
 ### AF 2020-03-17 0566
 (00:40:20) Twenty-four [[United States|U.S]]. states, including [[State of Colorado|Colorado]], [[State of Connecticut|Connecticut]], [[Delaware]], [[Illinois]], [[India|Indiana]], [[State of Kentucky|Kentucky]], [[State of Missouri|Missouri]], [[Massachusetts]], [[State of Michigan|Michigan]], [[Minnesota]], [[State of New Jersey|New Jersey]], [[New York]], [[State of Ohio|Ohio]], [[Oregon]], [[Commonwealth of Pennsylvania|Pennsylvania]], [[Rhode Island]], Vermont, and [[Washington D.C.|Washington]], ordered all restaurants and bars closed.
@@ -63,7 +63,7 @@
 (54:38:94) The [[Democratic Party]]'s Super Tuesday presidential primary contests were scheduled for 14 states: [[State of California|California]], [[State of Texas|Texas]], [[North Carolina]], [[State of Virginia|Virginia]], [[Massachusetts]], [[Minnesota]], [[State of Colorado|Colorado]], [[Tennessee]], [[Alabama]], [[State of Oklahoma|Oklahoma]], [[Kansas|Arkansas]], [[Utah]], [[State of Maine|Maine]], Vermont, and the territory of [[American Samoa]].
 
 ### AF 2020-02-07 0542
-(19:57:300) [[Joe Biden]] attacked [[Bernie Sanders]]'s [[Health and Human Services|Medicare]] for All plan, claiming it would cost more than the entire current federal budget and that middle-class taxes would have to increase, citing a failed attempt in Vermont.
+(19:57:300) [[Joe Biden]] attacked [[Bernie Sanders]]'s [[Medicare]] for All plan, claiming it would cost more than the entire current federal budget and that middle-class taxes would have to increase, citing a failed attempt in Vermont.
 
 ### AF 2020-02-07 0542
 (46:52:480) [[Bernie Sanders]], asked if he could get [[Republican Party|Republican]] support for his bills, stated he got 25% of the [[Republican Party|Republican]] vote in Vermont and had passed more bipartisan amendments in the [[House]] than any other member when focusing on common issues.

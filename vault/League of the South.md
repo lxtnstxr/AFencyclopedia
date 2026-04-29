@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2018-11-14 0282
-(00:39:50) [[Nicholas J. Fuentes]] expressed regret for his involvement in the 2017 [[City of Charlottesville|Charlottesville]] rally where the [[National Socialist Movement]] and the League of the South were present, calling the participants "losers" and "bad people."
+(00:39:50) [[Nicholas J. Fuentes]] expressed regret for his involvement in the 2017 [[Charlottesville]] rally where the [[National Socialist Movement]] and the League of the South were present, calling the participants "losers" and "bad people."
 
 
 ### AF 2018-07-12 0199

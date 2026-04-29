@@ -18,7 +18,7 @@
 (01:28:28:740) [[Nicholas J. Fuentes]] played a clip from two years ago of [[Tucker Carlson]] hosting Douglas McGregor, who argued that demographic change in [[State of California|California]], driven by Latino immigration, was making it impossible for [[Republican Party|Republicans]] to win elections there.
 
 ### AF 2021-05-17 0812
-(01:05:15) According to the Axios report, [[Donald Trump]] aide [[John McEntee]], with [[Donald Trump|the president's]] blessing, told retired Army Colonel Douglas McGregor on November 9, 2020, that his job was to get [[United States|U.S]]. troops out of [[Afghanistan]], [[Iraq]], [[Syria]], and [[African continent|Africa]]. (01:14:33)
+(01:05:15) According to the Axios report, [[Donald Trump]] aide [[John McEntee]], with [[the president's]] blessing, told retired Army Colonel Douglas McGregor on November 9, 2020, that his job was to get [[United States|U.S]]. troops out of [[Afghanistan]], [[Iraq]], [[Syria]], and [[African continent|Africa]]. (01:14:33)
 
 ### AF 2019-09-18 0464
 (01:51:00) [[Donald Trump]] had a shortlist of candidates for [[U.S. National Security Council|National Security Advisor]] that included solid choices like [[Keith Kellogg]] and Douglas Macgregor, the latter of whom was promoted by [[Tucker Carlson]].

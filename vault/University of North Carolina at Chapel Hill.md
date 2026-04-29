@@ -6,7 +6,7 @@
 
 
 ### AF 2024-09-02 1381
-(00:02:52) [[Nicholas J. Fuentes]] described a counter-protest at the University of North Carolina at Chapel Hill in April, where fraternity brothers held an [[United States|American]] flag against pro-[[Gaza Strip|Palestine]] demonstrators.
+(00:02:52) [[Nicholas J. Fuentes]] described a counter-protest at the University of North Carolina at Chapel Hill in April, where fraternity brothers held an [[United States|American]] flag against pro-[[Palestine]] demonstrators.
 
 ### AF 2024-09-02 1381
 (00:03:27) [[Nicholas J. Fuentes]] asserted the fraternity members involved in the University of North Carolina at Chapel Hill counter-protest were [[Jewish]] and that their demonstration was primarily a pro-[[Israel]] action, which was cropped out of widely circulated photographs.
@@ -18,7 +18,7 @@
 (00:04:28) [[Nicholas J. Fuentes]] reported the [[Jewish]] fraternity brothers who organized the University of North Carolina at Chapel Hill counter-protest boycotted the subsequent donor-funded party, arguing it did not take [[Israel]] seriously enough and that they were not [[Republican Party|Republicans]].
 
 ### AF 2024-09-02 1381
-(00:57:50) [[Nicholas J. Fuentes]] reiterated his view that the "Frat Bro uprising" at University of North Carolina at Chapel Hill was a [[Jewish]], pro-[[Israel]] operation designed to disrupt and distract from the broader anti-war, pro-[[Gaza Strip|Palestine]] protest movement on college campuses.
+(00:57:50) [[Nicholas J. Fuentes]] reiterated his view that the "Frat Bro uprising" at University of North Carolina at Chapel Hill was a [[Jewish]], pro-[[Israel]] operation designed to disrupt and distract from the broader anti-war, pro-[[Palestine]] protest movement on college campuses.
 
 ### AF 2024-09-02 1381
 (01:06:06) [[Nicholas J. Fuentes]] quoted Oliver Levine, president of the Alpha Epsilon Pi chapter at University of North Carolina at Chapel Hill, who said the use of their actions to promote a right-wing MAGA hero narrative was a "gross misrepresentation."
@@ -48,7 +48,7 @@
 (44:50:24) [[Nicholas J. Fuentes]] contrasted the outcomes for the [[Jewish]] counter-protesters at UNC Chapel Hill, who received media coverage and financial support, with the white counter-protesters at the University of Mississippi, who were condemned and investigated.
 
 ### AF 2024-05-02 1327
-(00:04:10) [[Nicholas J. Fuentes]] announced that his featured story would analyze the counter-protest by fraternity members at the UNC Chapel Hill who defended the [[United States|American]] flag against pro-[[Gaza Strip|Palestine]] demonstrators.
+(00:04:10) [[Nicholas J. Fuentes]] announced that his featured story would analyze the counter-protest by fraternity members at the UNC Chapel Hill who defended the [[United States|American]] flag against pro-[[Palestine]] demonstrators.
 
 ### AF 2024-05-02 1327
 (00:46:40) [[Nicholas J. Fuentes]] analyzed a viral photograph of fraternity members at UNC Chapel Hill defending the [[United States|American]] flag, arguing it was a propaganda effort to rebrand support for [[Israel]] as patriotic defense against "commies."

@@ -32,7 +32,7 @@
 (02:19:03) [[Nicholas J. Fuentes]] concluded that Jaden McNeil's capacity for betrayal was inherent and that their friendship was always a sham.
 
 ### AF 2022-05-10 0989
-(02:22:16) [[Nicholas J. Fuentes]] commented on a pattern involving Jaden McNeil, [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], [[Edward Kennedy|Ted Kennedy]], and [[John Brennan]].
+(02:22:16) [[Nicholas J. Fuentes]] commented on a pattern involving Jaden McNeil, [[Mitch McConnell]], [[Kevin McCarthy]], [[Edward Kennedy|Ted Kennedy]], and [[John Brennan]].
 
 ### AF 2022-05-10 0989
 (02:51:40) [[Nicholas J. Fuentes]] referenced a tweet that said "Jaden McNeil betrays his friends, 2022."
@@ -44,7 +44,7 @@
 (02:52:30) [[Nicholas J. Fuentes]] stated that his mistake was giving too much to people like Jaden McNeil in an attempt to be friends, and that the friendship ended when he stopped initiating contact and received no further invitations.
 
 ### AF 2022-05-10 0989
-(02:53:23) [[Nicholas J. Fuentes]] recounted that his last invitation to Jaden McNeil was to buy him front-row tickets to the Donda 2 listening event in [[City of Miami|Miami]], which Jaden McNeil declined.
+(02:53:23) [[Nicholas J. Fuentes]] recounted that his last invitation to Jaden McNeil was to buy him front-row tickets to the Donda 2 listening event in [[Miami]], which Jaden McNeil declined.
 
 ### AF 2022-05-10 0989
 (02:54:50) [[Nicholas J. Fuentes]] clarified that he and Jaden McNeil watched the first few episodes of *Euphoria* together, but Jaden McNeil got mad when [[Nicholas J. Fuentes]] binge-watched the rest alone.
@@ -128,10 +128,10 @@
 (07:53:44) [[Nicholas J. Fuentes]] was traveling with Jaden McNeil, whom an [[Antifa]] [[Twitter]] account referred to as his "road dog."
 
 ### AF 2021-06-29 0839
-(08:50:44) [[Nicholas J. Fuentes]] and Jaden McNeil encountered a car rental shortage in [[City of Chicago|Chicago]], where their reservation was canceled upon arrival.
+(08:50:44) [[Nicholas J. Fuentes]] and Jaden McNeil encountered a car rental shortage in [[Chicago]], where their reservation was canceled upon arrival.
 
 ### AF 2021-06-29 0839
-(09:57:56) [[Nicholas J. Fuentes]] and Jaden McNeil faced severe flash flooding in [[City of Chicago|Chicago]] that impeded their departure from the [[city]] for hours.
+(09:57:56) [[Nicholas J. Fuentes]] and Jaden McNeil faced severe flash flooding in [[Chicago]] that impeded their departure from the [[city]] for hours.
 
 ### AF 2021-06-29 0839
 (12:56:56) [[Nicholas J. Fuentes]] and Jaden McNeil found all hotels in [[Omaha]] sold out due to a college baseball World Series event.
@@ -146,7 +146,7 @@
 (19:39:44) [[Nicholas J. Fuentes]] and Jaden McNeil drove through the [[Rocky Mountains]] on I-70 at night in pouring rain, missing the scenic views.
 
 ### AF 2021-06-29 0839
-(20:20:56) [[Nicholas J. Fuentes]] and Jaden McNeil drove from [[Grand Junction]] to [[City of Las Vegas|Las Vegas]] to continue their road trip.
+(20:20:56) [[Nicholas J. Fuentes]] and Jaden McNeil drove from [[Grand Junction]] to [[Las Vegas]] to continue their road trip.
 
 ### AF 2021-06-11 0827
 (00:29:48) [[Nicholas J. Fuentes]] cited his friend Jaden McNeil, who was allegedly told by his bank that he was ineligible for a PPP loan because he is white.
@@ -209,7 +209,7 @@
 (01:58:24) [[Nicholas J. Fuentes]] claimed that the [[United States|America]] First team's top lineup, including [[Michelle]], himself, [[Scott]], [[Steve]], [[Vince]], [[Jake]], and Jaden, is superior to [[Turning Point USA]]'s lineup of [[Charlie Kirk]], [[Benny Johnson]], and [[Rob Smith]].
 
 ### AF 2020-12-01 0726
-(02:04:21) [[Nicholas J. Fuentes]] commented on the disputed claim by [[Kansas Zoomer]] about a McDonald's trip, stating that driving 120 mph to cover 40 miles in 20 minutes was pushing it, but shared that he drove 100 mph while fatigued to and from [[City of Lansing|Lansing]], requiring Jaden McNeil to keep him awake.
+(02:04:21) [[Nicholas J. Fuentes]] commented on the disputed claim by [[Kansas Zoomer]] about a McDonald's trip, stating that driving 120 mph to cover 40 miles in 20 minutes was pushing it, but shared that he drove 100 mph while fatigued to and from [[Lansing]], requiring Jaden McNeil to keep him awake.
 
 ### AF 2020-11-02 0714
 (00:11:17) [[Nicholas J. Fuentes]] planned a marathon election night stream starting at 6 p.m. Central [[Time]], featuring guests including [[Patrick Casey]], [[Steve Franson]], [[Vince James]], [[Jake Lloyd]], Jaden McNeil, and [[Scott Greer]].

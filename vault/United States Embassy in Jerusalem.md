@@ -34,10 +34,10 @@
 (04:32:40) [[Donald Trump]], as president, gave [[Israel]] sovereignty over the [[Golan Heights]], recognized [[Jerusalem]] as its capital, moved the U.S. embassy there, and designated the [[Iran|Iranian Revolutionary Guard]] as a terrorist [[organization]].
 
 ### AF 2024-06-25 1345
-(54:37:68) [[Sheldon Adelson]] and [[Sheldon Adelson|Miriam Adelson]] sat in the front row at the opening ceremony when the United States Embassy in Jerusalem was moved from [[Tel Aviv]], a move believed to be influenced by their $100 million in contributions.
+(54:37:68) [[Sheldon Adelson]] and [[Miriam Adelson]] sat in the front row at the opening ceremony when the United States Embassy in Jerusalem was moved from [[Tel Aviv]], a move believed to be influenced by their $100 million in contributions.
 
 ### AF 2024-06-18 1343
-(00:40:53) [[Nicholas J. Fuentes]] stated that in [[Donald Trump]]'s first term, [[Sheldon Adelson|Miriam Adelson]] secured the move of the United States Embassy in Jerusalem, sovereignty over Jerusalem and the [[Golan Heights]], the designation of the [[Iran|IRGC]] as a terrorist group, and the tearing up of the [[Joint Comprehensive Plan of Action]].
+(00:40:53) [[Nicholas J. Fuentes]] stated that in [[Donald Trump]]'s first term, [[Miriam Adelson]] secured the move of the United States Embassy in Jerusalem, sovereignty over Jerusalem and the [[Golan Heights]], the designation of the [[Iran|IRGC]] as a terrorist group, and the tearing up of the [[Joint Comprehensive Plan of Action]].
 
 ### AF 2024-05-30 1338
 (00:19:07) [[Donald Trump]] moved the U.S. embassy to [[Jerusalem]], and the [[Al-Aqsa flood]] is named after the Al-Aqsa mosque, which [[Nicholas J. Fuentes]] argued was effectively given to [[Israel]] by [[Donald Trump|Trump]].
@@ -52,4 +52,4 @@
 (00:35:42) [[Nicholas J. Fuentes]] characterized the funding bill as a substantial betrayal of [[Donald Trump]]'s base that would hurt his reelection prospects, leaving him with few accomplishments like tax cuts or moving the U.S. embassy to Israel to rally voters in key states.
 
 ### AF 2019-01-28 0319
-(00:44:20) [[Nicholas J. Fuentes]] stated that while achievements like tax cuts and moving the U.S. Embassy to [[City of Jerusalem|Jerusalem]] could have been done by a generic [[Republican Party|Republican]] president like [[Ted Cruz]] or [[Marco Rubio]], the core "[[United States|America]] First" promises on issues like immigration remained unfulfilled.
+(00:44:20) [[Nicholas J. Fuentes]] stated that while achievements like tax cuts and moving the U.S. Embassy to [[Jerusalem]] could have been done by a generic [[Republican Party|Republican]] president like [[Ted Cruz]] or [[Marco Rubio]], the core "[[United States|America]] First" promises on issues like immigration remained unfulfilled.

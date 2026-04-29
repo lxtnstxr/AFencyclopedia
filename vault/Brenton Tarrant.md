@@ -6,7 +6,7 @@
 
 
 ### AF 2022-05-17 0995
-(00:29:53) [[Nicholas J. Fuentes]] reported that the [[City of Buffalo|Buffalo]] shooter's manifesto was 63% plagiarized from the manifesto of [[Christchurch]] mosque shooter Brenton Tarrant.
+(00:29:53) [[Nicholas J. Fuentes]] reported that the [[Buffalo]] shooter's manifesto was 63% plagiarized from the manifesto of [[Christchurch]] mosque shooter Brenton Tarrant.
 
 ### AF 2021-03-23 0778 (2)
 (03:17:30) [[Nicholas J. Fuentes]] noted that the manifestos of [[Dylann Roof]] and Brenton Tarrant, perpetrators of high-profile attacks in [[Charleston]] and [[Christchurch]], contained no significant mention of [[Jews|Jewish]] power, which he found conspicuous for alleged white supremacist extremists.

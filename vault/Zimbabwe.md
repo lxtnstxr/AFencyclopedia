@@ -12,7 +12,7 @@
 (00:40:15) [[Nicholas J. Fuentes]] predicted that calls for racial redistribution, like reparations, will increase as non-whites become a majority, following the pattern of [[South Africa]] and Zimbabwe.
 
 ### AF 2023-04-04 1141
-(19:15:10) [[Nicholas J. Fuentes]] used the examples of [[South Africa]], Zimbabwe (formerly Rhodesia), and the [[Israel]]-[[Gaza Strip|Palestine]] conflict to argue that disenfranchised groups must organize collectively to survive, applying this logic to white people in [[United States|America]].
+(19:15:10) [[Nicholas J. Fuentes]] used the examples of [[South Africa]], Zimbabwe (formerly Rhodesia), and the [[Israel]]-[[Palestine]] conflict to argue that disenfranchised groups must organize collectively to survive, applying this logic to white people in [[United States|America]].
 
 ### AF 2020-11-24 0724
 (00:14:47) [[Nicholas J. Fuentes]] compared the land redistribution proposed in [[Cory Booker]]'s bill to policies in [[South Africa]] and Zimbabwe.

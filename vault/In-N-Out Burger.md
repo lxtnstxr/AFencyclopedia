@@ -10,7 +10,7 @@
 (01:28:30) [[Nicholas J. Fuentes]] reported he had been sick, thought he had COVID, but confirmed he had not lost his sense of taste after eating at In-N-Out Burger.
 
 ### AF 2022-06-09 1009
-(01:35:00) [[Nicholas J. Fuentes]] stated that In-N-Out Burger was his favorite fast-food restaurant, which he could not get in [[City of Chicago|Chicago]], making it a treat during visits to [[City of Phoenix|Phoenix]], [[Los Angeles]], or [[State of Texas|Texas]].
+(01:35:00) [[Nicholas J. Fuentes]] stated that In-N-Out Burger was his favorite fast-food restaurant, which he could not get in [[Chicago]], making it a treat during visits to [[Phoenix]], [[Los Angeles]], or [[State of Texas|Texas]].
 
 ### AF 2021-12-06 0916
 (01:58:05) On a road trip to and from [[Dallas]], [[Nicholas J. Fuentes]] ate fast food from [[Culver's]], [[McDonald's]], [[Freddy's]], [[Whataburger]], and In-N-Out Burger, which he described as a "burger tour."

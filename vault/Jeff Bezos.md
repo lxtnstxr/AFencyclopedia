@@ -301,3 +301,9 @@
 
 ### AF 2018-05-29 0173
 (17:33:98) [[Nicholas J. Fuentes]] stated that the [[Washington Post]] is owned by Jeff Bezos and its purpose is to serve the interests of its parent conglomerate rather than report the truth.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:02:24) [[Nicholas J. Fuentes]] noted that in 2024, Jeff Bezos, [[Elon Musk]], and [[Mark Zuckerberg]] were at the inauguration, unlike in 2016.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:32:00) [[Nicholas J. Fuentes]] stated that [[Elon Musk]], Jeff Bezos, and [[Mark Zuckerberg]] were all at the inauguration because they are all working for the same agenda of foreign labor, globalization, free trade, and wars for [[Israel]], and are all in the [[Jeffrey Epstein|Epstein]] files.

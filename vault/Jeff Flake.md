@@ -105,13 +105,13 @@
 (02:09:12) Senator Jeff Flake announced he would not seek re-election in the 2018 [[Republican Party|GOP]] primary for [[Arizona]], citing an inability to be complicit in what he called the reckless and dangerous behavior of the [[Donald Trump|Trump]] administration.
 
 ### AF 2017-10-24 0038
-(02:26:74) [[Nicholas J. Fuentes]] characterized Jeff Flake's retirement speech as dishonest, arguing his decision was driven by an inability to win re-election against a [[Steven Crowder|Steve Bannon]]-backed challenger rather than principled opposition to [[Donald Trump]].
+(02:26:74) [[Nicholas J. Fuentes]] characterized Jeff Flake's retirement speech as dishonest, arguing his decision was driven by an inability to win re-election against a [[Steve Bannon]]-backed challenger rather than principled opposition to [[Donald Trump]].
 
 ### AF 2017-10-24 0038
 (03:14:56) [[Nicholas J. Fuentes]] argued that Flake's admission that a "traditional [[Republican Party|Republican]]" [[who]] was pro-free trade and pro-immigration could not win in [[Arizona]] demonstrated how [[Donald Trump]] had shifted the political center for white [[United States|Americans]] and [[Republican Party|Republicans]].
 
 ### AF 2017-10-24 0038
-(03:45:78) [[Steven Crowder|Steve Bannon]] reportedly reacted to Jeff Flake's retirement by stating "nobody's safe," indicating establishment [[Republican Party|Republicans]] would either be forced to retire or be defeated in primaries.
+(03:45:78) [[Steve Bannon]] reportedly reacted to Jeff Flake's retirement by stating "nobody's safe," indicating establishment [[Republican Party|Republicans]] would either be forced to retire or be defeated in primaries.
 
 ### AF 2017-08-30 0005
 (39:22:09) [[Nicholas J. Fuentes]] called for primary challenges against establishment [[Republican Party|Republican]] figures like Jeff Flake, [[Paul Ryan]], and [[Mitch McConnell]] in the 2018 elections.

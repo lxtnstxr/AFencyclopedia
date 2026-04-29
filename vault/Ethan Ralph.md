@@ -29,7 +29,7 @@
 (07:08:40) [[Nicholas J. Fuentes]] speculated that [[Lauren Southern]] could be Padmé Amidala in his Star Wars analogy, and that [[Andrew Anglin]] was Yoda while Ethan Ralph was Obi-Wan Kenobi.
 
 ### AF 2022-08-04 1041
-(00:05:36) [[Nicholas J. Fuentes]] promoted a debate hosted by Ethan Ralph on [[Cozy.tv]] between [[Alex Stein]] and [[Destiny|Destiny]] concerning a viral video where [[Alex Stein]] harassed [[Alexandria Ocasio-Cortez|AOC]].
+(00:05:36) [[Nicholas J. Fuentes]] promoted a debate hosted by Ethan Ralph on [[Cozy.tv]] between [[Alex Stein]] and [[Destiny]] concerning a viral video where [[Alex Stein]] harassed [[Alexandria Ocasio-Cortez|AOC]].
 
 ### AF 2022-08-02 1039
 (02:41:21) Commentator Ethan Ralph deleted a tweet about [[Joe Kent]] being on pace to lose after a [[Joe Kent|Kent]] supporter showed a fake decision desk screenshot.

@@ -27,7 +27,7 @@
 (00:41:24) [[White House]] Chief of Staff Mick Mulvaney said in 2016 that [[Donald Trump]] was a "terrible, horrible [[person]]" but that he would vote for him over [[Hillary Clinton]].
 
 ### AF 2019-04-17 0368
-(01:39:00) [[Nicholas J. Fuentes]] reported that within the [[Donald Trump|Trump administration]], [[Jared Kushner]] reviewed and approved all matters before they reached [[Donald Trump|the president's]] desk, with Chief of Staff Mick Mulvaney deferring to him.
+(01:39:00) [[Nicholas J. Fuentes]] reported that within the [[Donald Trump|Trump administration]], [[Jared Kushner]] reviewed and approved all matters before they reached [[the president's]] desk, with Chief of Staff Mick Mulvaney deferring to him.
 
 ### AF 2019-04-08 0362
 (00:09:53) Mick Mulvaney, [[who]] replaced [[John Kelly]]'s chief of staff, was considered just as bad or worse on immigration than his predecessor.
@@ -36,7 +36,7 @@
 (00:20:42) Mick Mulvaney, then the Acting [[White House]] Chief of Staff, was among the officials suspected of preventing the implementation of [[Donald Trump]]'s withdrawal order from [[Syria]].
 
 ### AF 2019-02-14 0332
-(33:51:89) [[White House]] Chief of Staff Mick Mulvaney stated the administration had found about $2.2 billion in funds that could be mobilized for a border wall if [[Donald Trump|the president]] declared a national emergency.
+(33:51:89) [[White House]] Chief of Staff Mick Mulvaney stated the administration had found about $2.2 billion in funds that could be mobilized for a border wall if [[the president]] declared a national emergency.
 
 ### AF 2019-01-07 0307
 (00:13:44) A negotiating team consisting of [[Mike Pence]], Mick Mulvaney, and [[Jared Kushner]] had delivered no substantive "[[United States|America]] First" policy victories to the [[Donald Trump|Trump]] administration, according to [[Nicholas J. Fuentes]].
@@ -63,7 +63,7 @@
 (00:03:00) Mick Mulvaney was a former congressman and head of the [[Office of Management and Budget]] [[who]] had been a reliable ally of the [[Charles Koch|Koch brothers]] while in [[Congress]] and was considered weak on immigration by his critics.
 
 ### AF 2018-12-14 0296
-(00:03:40) [[Nicholas J. Fuentes]] stated that sources close to [[Donald Trump|the president]] had informed him that [[Hope Hicks]], [[Mark Meadows]], or [[Bob Lighthizer]] would have been preferable Chief of Staff selections to Mick Mulvaney.
+(00:03:40) [[Nicholas J. Fuentes]] stated that sources close to [[the president]] had informed him that [[Hope Hicks]], [[Mark Meadows]], or [[Bob Lighthizer]] would have been preferable Chief of Staff selections to Mick Mulvaney.
 
 ### AF 2018-12-10 0292
 (00:36:00) With [[Bill Barr|William Barr]] as Attorney General, [[Nicholas J. Fuentes]] argued the next critical personnel decision was the replacement for Chief of Staff [[James Mattis|John Kelly]], with candidates including [[Nick Ayers]], Mick Mulvaney, [[Hope Hicks]], and [[Mark Meadows]].

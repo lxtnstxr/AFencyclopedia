@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2024-06-10 1341
-(00:39:00) [[Viktor Orbán]]'s Fidesz party in [[Hungary]] had its worst performance in a [[Europe|European Union]] election since the [[country]] joined the bloc twenty years ago.
+(00:39:00) [[Viktor Orbán]]'s Fidesz party in [[Hungary]] had its worst performance in a [[European Union]] election since the [[country]] joined the bloc twenty years ago.
 
 
 ### AF 2019-05-27 0395

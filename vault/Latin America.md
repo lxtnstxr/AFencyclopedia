@@ -71,3 +71,18 @@
 
 ### AF 2017-09-25 0017
 (01:20:52) [[Nicholas J. Fuentes]] asserted that bringing in immigrants from [[Europe]] carries less risk than bringing in immigrants from Latin America or [[African continent|Africa]], based on perceived higher violence in the latter regions.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:53:18) [[Nicholas J. Fuentes]] argued that the [[United States]] is in a "civilizational war" against an "ascendant Latin America" and the "[[Islam|Muslim]] world."
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:51:01) [[China]] entered the [[World Trade Organization]] in 2001 and subsequently made a concerted effort to impose its will in Latin America.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:52:30) The [[Center for Strategic International Studies]] released a study stating that [[China]] has up to 38 ports in the [[Caribbean]] and Latin America with dual-use capabilities for commercial and military purposes.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:55:38) The [[United States]] neglected Latin America for 25 years, allowing [[China]] to gain a foothold.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:57:03) [[China]] released a white paper on Latin America regarding its global ambitions.

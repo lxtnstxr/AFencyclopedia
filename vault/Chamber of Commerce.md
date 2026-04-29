@@ -13,3 +13,12 @@
 
 ### AF 2021-03-22 0777
 (55:51:720) The primary pressure on [[Kristi Noem]] to veto the women's sports bill came from [[Amazon Inc.|Amazon]] and the Chamber of Commerce, not just LGBT or [[Democratic Party|Democrat]] groups.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:22:20.490) [[Nicholas J. Fuentes]] stated that the real pressure against mass deportations is coming from the Chamber of Commerce, business interests, and [[The Wall Street Journal|Wall Street]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:04:18.450) [[Nicholas J. Fuentes]] stated that the Chamber of Commerce lobbied for the 1990 Immigration Act to represent business interests on [[The Wall Street Journal|Wall Street]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:30:42) The 1990 Immigration Act, signed by [[George W. Bush|George H. W. Bush]], created H-1B visas, the visa lottery, and expanded refugee numbers due to pressure from the Chamber of Commerce.

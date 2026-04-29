@@ -33,7 +33,7 @@
 (00:40:03) The [[Donald Trump|Trump]] administration placed a $50 million bounty on Maduro to incentivize a coup from within his inner circle.
 (00:42:42) The Maduro regime remained airtight due to its reliance on [[Cuba]]n intelligence officers embedded within every military division and security service.
 ### AF 2025-12-01 1606
-(00:09:22) [[Donald Trump]] reportedly had a phone call with Nicolás Maduro, [[Donald Trump|the president]] of [[Venezuela]], concerning a potential negotiated settlement to avoid military conflict.
+(00:09:22) [[Donald Trump]] reportedly had a phone call with Nicolás Maduro, [[the president]] of [[Venezuela]], concerning a potential negotiated settlement to avoid military conflict.
 
 (00:12:23) [[Marco Rubio]], as [[U.S. Department of State|Secretary of State]] and [[U.S. National Security Council|National Security Advisor]], seeks the military overthrow of Nicolás Maduro in [[Venezuela]] with the long-term objective of subsequently toppling the governments of [[Cuba]] and [[Nicaragua]].
 
@@ -50,10 +50,10 @@
 (00:09:19) [[Elon Musk]] censors posts in [[Turkey]] and [[India]] but is waging a war against censorship in [[Brazil]], stripped Nicolás Maduro of his verification checkmark, and has given money to [[Donald Trump]]'s campaign.
 
 ### AF 2024-07-30 1363
-(00:39:30) Nicolás Maduro won a third six-year term as President of [[Venezuela]] in a presidential election whose results were not accepted by the [[U.S. Department of State]] or by many of [[Venezuela]]'s neighbors, including [[Columbia|Colombia]] and [[Brazil]].
+(00:39:30) Nicolás Maduro won a third six-year term as President of [[Venezuela]] in a presidential election whose results were not accepted by the [[U.S. Department of State]] or by many of [[Venezuela]]'s neighbors, including [[Colombia]] and [[Brazil]].
 
 ### AF 2024-07-30 1363
-(00:52:50) [[Daniel Ortega]] of [[Nicaragua]] and [[Miguel Díaz-Canel Bermúdez]] of [[Cuba]] congratulated Nicolás Maduro on his electoral victory, while [[Vladimir Putin]] of the [[Government of Russia|Russian Federation]] expressed eagerness to strengthen ties with [[Venezuela]].
+(00:52:50) [[Daniel Ortega]] of [[Nicaragua]] and [[Miguel Díaz-Canel Bermúdez]] of [[Cuba]] congratulated Nicolás Maduro on his electoral victory, while [[Vladimir Putin]] of the [[Russian Federation]] expressed eagerness to strengthen ties with [[Venezuela]].
 
 ### AF 2024-07-30 1363
 (00:53:03) [[Iran]] and [[China]] also congratulated Nicolás Maduro on his electoral victory in [[Venezuela]].
@@ -71,7 +71,7 @@
 (01:20:31) [[Joe Biden]]'s deal with Nicolás Maduro to allow [[Venezuela]] to sell oil again was primarily motivated by the need to combat high energy costs and inflation in the [[United States]] caused by the war in [[Ukraine]].
 
 ### AF 2024-07-30 1363
-(01:21:23) The [[United States]]'s foreign policy in [[Venezuela]] resulted in Nicolás Maduro remaining in power, [[Venezuela]] maintaining alliances with the [[Government of Russia|Russian Federation]] and [[China]], and the [[United States]] absorbing millions of [[Venezuela|Venezuelan]] refugees without securing the country's oil resources.
+(01:21:23) The [[United States]]'s foreign policy in [[Venezuela]] resulted in Nicolás Maduro remaining in power, [[Venezuela]] maintaining alliances with the [[Russian Federation]] and [[China]], and the [[United States]] absorbing millions of [[Venezuela|Venezuelan]] refugees without securing the country's oil resources.
 
 ### AF 2024-07-29 1362
 (00:59:38) Nicolás Maduro won a landslide re-election for another six-year term as President of [[Venezuela]].
@@ -131,7 +131,7 @@
 (00:53:320) [[Michael Pompeo|Mike Pompeo]] named three individuals within Nicolás Maduro's government and military [[who]] had allegedly promised to defect but ultimately backed out or were lying.
 
 ### AF 2019-05-01 0378
-(01:21:440) [[Venezuela]], under both [[Hugo Chávez]] and Nicolás Maduro, was accused of not adhering to international drug control commitments and of supporting the [[FARC]] in [[Columbia|Colombia]].
+(01:21:440) [[Venezuela]], under both [[Hugo Chávez]] and Nicolás Maduro, was accused of not adhering to international drug control commitments and of supporting the [[FARC]] in [[Colombia]].
 
 ### AF 2019-04-30 0377
 (00:29:57) [[Juan Guaidó]], the opposition leader of the [[Venezuela|Venezuelan]] National Assembly, called on the military to join him in a final phase of revolution against the government of Nicolás Maduro.
@@ -153,3 +153,57 @@
 
 ### AF 2019-01-23 0316
 (00:25:49) [[Mexico]], [[Bolivia]], and [[Cuba]] maintained diplomatic recognition of Nicolás Maduro as the legitimate president of [[Venezuela]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:54:04) [[Nicholas J. Fuentes]] described the "[[Venezuela]] model" as a hybrid approach where [[Donald Trump]] did not achieve a "real" regime change but rather kidnapped the head of [[state]], Nicolás Maduro.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:54:24) [[Nicholas J. Fuentes]] said that although Nicolás Maduro was removed, his [[vice]] [[president]] succeeded him and the same cabinet, government, and security apparatus remained.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:38:21) [[Nicholas J. Fuentes]] said the [[United States]] was able to kidnap Nicolás Maduro and assassinate the [[Ayatollah Ali Khamenei|Ayatollah]] in [[Iran]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(25:09:42) [[Donald Trump]] discussed the capture of Nicolás Maduro by elite [[United States|American]] warriors.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(23:43:40:00) [[Nicholas J. Fuentes]] argued that if the [[United States]] can bomb [[Iran]] and kidnap Nicolás Maduro, it can handle [[Minneapolis]] and [[St. Paul]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:43:28) The [[United States]] used a limited amount of power in [[Venezuela]] to decapitate the regime by kidnapping Nicolás Maduro.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:44:00) Nicolás Maduro was succeeded by his [[vice]] [[president]], [[who]] then made a deal with the [[United States]] to give them access to [[Venezuela]]'s oil.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:21:09:28) [[Nicholas J. Fuentes]] argued that leftists support Nicolás Maduro because they want brown communists to loot white people's wealth.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:29:27) [[Donald Trump]] kidnapped Nicolás Maduro and then called into [[Fox News]], declaring that "nobody has the capability we have and we'll do it again."
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:52:30) [[Nicholas J. Fuentes]] argued that a nuclear arsenal is the chief deterrent preventing a [[country]] from suffering regime change, citing that [[Kim Jong Un]] is not kidnapped like Nicolás Maduro because [[North Korea]] has a nuclear bomb.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:17:10) [[Nicholas J. Fuentes]] contrasted the lack of [[United States|U.S]]. naval assets in the [[Middle East]] with the presence of all [[United States|U.S]]. ships in the [[Caribbean]] to arrest Nicolás Maduro, concluding that a foreign policy of hemispheric defense is inherently "[[America first]]."
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(01:16:31.330) [[Nicholas J. Fuentes]] announced that the featured story for the evening would be the military operation in [[Venezuela]] involving the capture of Nicolás Maduro.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(01:34:25.290) [[United States]] soldiers rappelled into the fortified compound of Nicolás Maduro in [[Caracas]], encountering heavy resistance from his personal security forces, many of whom were Cuban intelligence personnel.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(01:34:37.510) Over 80 of Nicolás Maduro's security personnel were killed during the raid.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(01:34:42.550) [[United States]] forces captured Nicolás Maduro and his wife Cilia Flores, transporting them to [[New York|New York City]] and [[Guantánamo Bay]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(01:34:56.340) [[United States]] authorities charged Nicolás Maduro with drug trafficking and weapons trafficking.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:58:52) [[Rick Grenell|Rick Grinnell]] worked out a deal where Nicolás Maduro would remain in power but give the [[United States]] his oil and gold and reorient from [[Beijing]] and [[Moscow]] to [[Washington D.C.|Washington]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:01:08) The operation in [[Venezuela]] took place while a [[China|Chinese]] delegation was negotiating with the Nicolás Maduro regime.

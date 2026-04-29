@@ -15,7 +15,7 @@
 (00:54:56) [[Nicholas J. Fuentes]] stated that [[Karl Marx]] (born [[Jewish]]), [[Leon Trotsky]] (born Lev Bronstein), and Vladimir Lenin (born Vladimir Ulyanov) were [[Jewish]] or of [[Jewish]] descent, linking them to the invention of communism.
 
 ### AF 2022-03-23 0963
-(38:25:90) [[Nicholas J. Fuentes]] argued that [[City of Sevastopol|Crimea]] was a "done deal" for [[Russia]] and that losing [[Donetsk|Donbass]] was a small price for [[Ukraine]] to pay, noting the [[region]] was historically part of [[Russia]] given to [[Ukraine]] by Lenin.
+(38:25:90) [[Nicholas J. Fuentes]] argued that [[Crimea]] was a "done deal" for [[Russia]] and that losing [[Donetsk|Donbass]] was a small price for [[Ukraine]] to pay, noting the [[region]] was historically part of [[Russia]] given to [[Ukraine]] by Lenin.
 
 ### AF 2022-03-23 0963
 (39:12:18) [[Vladimir Putin|Putin]] pointed out in a February speech that [[Donetsk|Donbass]] was historically part of [[Russia]] and was given to [[Ukraine]] by Lenin.

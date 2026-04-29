@@ -6,4 +6,4 @@
 
 
 ### AF 2018-03-05 0118
-(00:13:40) [[Nicholas J. Fuentes]] recommended a reading list on [[Christianity]], including works by [[Edward Feser]] on [[Thomas Aquinas]], Peter Kreeft's "A Shorter Summa," and [[G.K. Chesterton|C.S. Lewis]]'s "Mere [[Christianity]]."
+(00:13:40) [[Nicholas J. Fuentes]] recommended a reading list on [[Christianity]], including works by [[Edward Feser]] on [[Thomas Aquinas]], Peter Kreeft's "A Shorter Summa," and [[C.S. Lewis]]'s "Mere [[Christianity]]."

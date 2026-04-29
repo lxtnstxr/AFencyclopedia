@@ -2,7 +2,7 @@
 #city
 
 ### AF 2024-08-07 1369
-(04:38:00) [[Nicholas J. Fuentes]] predicted [[Donald Trump]] was headed for defeat in November due to negative polling trends, an incompetent campaign unable to adapt, and anticipated election cheating in cities like Milwaukee, [[Detroit]], [[Atlanta]], [[City of Phoenix|Phoenix]], and [[Philadelphia]].
+(04:38:00) [[Nicholas J. Fuentes]] predicted [[Donald Trump]] was headed for defeat in November due to negative polling trends, an incompetent campaign unable to adapt, and anticipated election cheating in cities like Milwaukee, [[Detroit]], [[Atlanta]], [[Phoenix]], and [[Philadelphia]].
 
 
 ### AF 2023-08-23 1203
@@ -21,13 +21,13 @@
 (01:03:00) Fraudulent mail-in ballots were concentrated in [[Democratic Party|Democratic]] machine cities like Milwaukee, [[Detroit]], and [[Fulton County]].
 
 ### AF 2021-09-25 0884
-(01:04:50) [[Nicholas J. Fuentes]] called for full forensic ballot audits in Milwaukee, [[City of Philadelphia|Philadelphia]], [[Atlanta]], and [[Detroit]].
+(01:04:50) [[Nicholas J. Fuentes]] called for full forensic ballot audits in Milwaukee, [[Philadelphia]], [[Atlanta]], and [[Detroit]].
 
 ### AF 2021-09-25 0884
 (01:12:08) Vote counting resumed at 4 a.m. on November 4th, with ballots being dumped in Milwaukee and [[Detroit]], flipping [[Wisconsin]] and [[State of Michigan|Michigan]].
 
 ### AF 2020-11-06 0718
-(03:03:48) [[Nicholas J. Fuentes]] claimed that efforts to steal the election for [[Joe Biden]] were concentrated in vote counting in major cities like Milwaukee, [[City|Detroit]], [[City of Philadelphia|Philadelphia]], [[Atlanta]], and [[City of Phoenix|Phoenix]], as well as through media and social media censorship.
+(03:03:48) [[Nicholas J. Fuentes]] claimed that efforts to steal the election for [[Joe Biden]] were concentrated in vote counting in major cities like Milwaukee, [[City|Detroit]], [[Philadelphia]], [[Atlanta]], and [[Phoenix]], as well as through media and social media censorship.
 
 ### AF 2020-11-06 0718
 (45:10:74) In [[Wisconsin]], a batch of 169,000 absentee ballots reported from Milwaukee at 4 a.m. on Election Day gave [[Joe Biden]] the lead after officials had said counting was done for the night.
@@ -48,7 +48,7 @@
 (01:56:53) [[Nicholas J. Fuentes]] reported that [[Donald Trump]]'s lead in [[Country of Georgia|Georgia]] had shrunk from 372,000 votes at midnight to 39,000 votes, which he attributed to the "Atlanta effect" similar to vote dumps in Milwaukee and [[City|Detroit]].
 
 ### AF 2020-11-03 0715
-(06:37:22) [[Nicholas J. Fuentes]] asserted the election would hinge on the [[Donald Trump|Trump]] campaign's ability to prevent fraud in [[City of Philadelphia|Philadelphia]], [[Atlanta]], [[City|Detroit]], and Milwaukee.
+(06:37:22) [[Nicholas J. Fuentes]] asserted the election would hinge on the [[Donald Trump|Trump]] campaign's ability to prevent fraud in [[Philadelphia]], [[Atlanta]], [[City|Detroit]], and Milwaukee.
 
 ### AF 2020-11-03 0715
 (06:37:35) [[Nicholas J. Fuentes]] observed that Milwaukee's reported vote count had dropped from 90% to 41%, while other [[Democratic Party|Democratic]] counties in [[Wisconsin]] were nearly fully reported.

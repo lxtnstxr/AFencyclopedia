@@ -194,3 +194,9 @@
 
 ### AF 2018-01-11 0084
 (00:32:52) [[Donald Trump]] made comments describing Haiti, [[El Salvador]], and African countries as "shithole countries" and suggested the [[United States]] should instead welcome immigrants from places like [[Norway]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:21:50) [[Nicholas J. Fuentes]] asked if the Haitians in [[Springfield, Ohio]] had been deported, noting that a story about them eating pets was a touchstone in the election but no removals had occurred.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:39:04:64) [[Nicholas J. Fuentes]] described immigrants from Haiti and [[Somalia]] as invaders [[who]] hate [[United States|Americans]] and steal from them.

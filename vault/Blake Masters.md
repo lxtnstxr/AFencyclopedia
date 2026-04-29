@@ -10,7 +10,7 @@
 (00:30:20) [[Nicholas J. Fuentes]] listed [[Josh Hawley]], [[JD Vance]], Blake Masters, and [[Ron DeSantis]] as politicians seen as the vanguard of a more Trumpist conservatism who attend the conference.
 
 ### AF 2024-05-02 1327
-(00:45:20) [[Nicholas J. Fuentes]] criticized right-wing figures like [[JD Vance]], Blake Masters, and [[Alex Jones]] for advocating the suppression of pro-[[Gaza Strip|Palestine]] protests under pretexts like "littering," rather than openly stating their pro-[[Israel]] motives.
+(00:45:20) [[Nicholas J. Fuentes]] criticized right-wing figures like [[JD Vance]], Blake Masters, and [[Alex Jones]] for advocating the suppression of pro-[[Palestine]] protests under pretexts like "littering," rather than openly stating their pro-[[Israel]] motives.
 
 ### AF 2024-05-02 1327
 (00:59:00) [[Nicholas J. Fuentes]] connected [[JD Vance]] and Blake Masters to [[Peter Thiel]], whose company [[Palantir Technologies]] provides [[Artificial Intelligence|AI]] and facial recognition technology to [[Israel]] for use in [[Gaza Strip|Gaza]].

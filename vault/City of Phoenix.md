@@ -30,7 +30,7 @@
 (00:26:28) [[Nicholas J. Fuentes]] told [[Donald Trump]] at the dinner that he was one of the greatest [[United States|Americans]] ever, campaigned for him in 2016, and participated in "Stop the Steal" rallies in [[Harrisburg]], [[Lansing]], [[Atlanta]], [[Washington D.C.|Washington, D.C.]], and Phoenix.
 
 ### AF 2022-06-09 1009
-(01:35:00) [[Nicholas J. Fuentes]] stated that [[In-N-Out Burger]] was his favorite fast-food restaurant, which he could not get in [[City of Chicago|Chicago]], making it a treat during visits to Phoenix, [[Los Angeles]], or [[State of Texas|Texas]].
+(01:35:00) [[Nicholas J. Fuentes]] stated that [[In-N-Out Burger]] was his favorite fast-food restaurant, which he could not get in [[Chicago]], making it a treat during visits to Phoenix, [[Los Angeles]], or [[State of Texas|Texas]].
 
 ### AF 2022-05-17 0995
 (00:22:43) [[Nicholas J. Fuentes]] noted that a clip of an [[Asian]] man wearing an [[America First]] hat at a pro-abortion rally in Phoenix, [[Arizona]], was featured on [[Tucker Carlson]]'s [[Fox News]] program.
@@ -42,7 +42,7 @@
 (01:42:45:46) [[Nicholas J. Fuentes]], when asked about an accusation that he called [[Jonathan Miller|John Miller]] a racial slur, gave a "no comment" but stated he loves [[Jason Miller|Miller]] and would be profusely apologetic if such an incident occurred, referencing a chaotic night at the "Meme Mansion" in Phoenix.
 
 ### AF 2022-02-15 0947
-(00:12:24) [[Nicholas J. Fuentes]] was also prevented from boarding a [[Southwest Airlines]] flight from [[City of Chicago|Chicago]]'s Midway Airport to Phoenix, leading him to conclude he was on a federal no-fly list.
+(00:12:24) [[Nicholas J. Fuentes]] was also prevented from boarding a [[Southwest Airlines]] flight from [[Chicago]]'s Midway Airport to Phoenix, leading him to conclude he was on a federal no-fly list.
 
 ### AF 2022-01-06 0930
 (01:56:29) [[Nicholas J. Fuentes]] detailed the problems at a [[Turning Point USA]] [[AmericaFest]] party in Phoenix, including underage drinking, "slutty girls" dancing in cages, and the venue being oversold so 500 people could not get in.
@@ -57,16 +57,16 @@
 (01:18:50) [[Nicholas J. Fuentes]] announced plans to attend and disrupt the [[Turning Point USA]] "AmericaFest" event in Phoenix, [[Arizona]] in December, where speakers included [[Donald Trump Jr.]] and [[Tucker Carlson]].
 
 ### AF 2021-09-15 0876
-(14:51:640) [[Nicholas J. Fuentes]] promoted the upcoming September 21st debut of a feature-length film recut from his "[[White Boy Summer]]" vlog series, containing new and previously unseen footage from a road trip from [[City of Chicago|Chicago]] to [[Denver]], [[City of Las Vegas|Las Vegas]], [[Los Angeles]], Phoenix, and [[Dallas]].
+(14:51:640) [[Nicholas J. Fuentes]] promoted the upcoming September 21st debut of a feature-length film recut from his "[[White Boy Summer]]" vlog series, containing new and previously unseen footage from a road trip from [[Chicago]] to [[Denver]], [[Las Vegas]], [[Los Angeles]], Phoenix, and [[Dallas]].
 
 ### AF 2021-09-14 0875
-(00:14:45) [[Nicholas J. Fuentes]] announced that a feature-length "[[White Boy Summer]]" movie, compiled from vlogs of a road trip to [[Denver]], [[City of Las Vegas|Las Vegas]], [[L.A.]], Phoenix, and [[Dallas]], would be airing on September 21st.
+(00:14:45) [[Nicholas J. Fuentes]] announced that a feature-length "[[White Boy Summer]]" movie, compiled from vlogs of a road trip to [[Denver]], [[Las Vegas]], [[L.A.]], Phoenix, and [[Dallas]], would be airing on September 21st.
 
 ### AF 2021-07-24 0847
 (18:02:940) In 2020, [[Nicholas J. Fuentes]] took to the streets to protest what he believed was an election being stolen from [[Donald Trump]], leading protests in [[Lansing]], Phoenix, [[Atlanta]], and [[Washington D.C.|Washington, D.C.]]
 
 ### AF 2021-07-06 0841
-(00:21:58) [[Nicholas J. Fuentes]] began the July 4th episode of his program from Phoenix, [[Arizona]], following a multi-[[city]] road trip that included stops in [[City of Las Vegas|Las Vegas]] and [[Los Angeles]].
+(00:21:58) [[Nicholas J. Fuentes]] began the July 4th episode of his program from Phoenix, [[Arizona]], following a multi-[[city]] road trip that included stops in [[Las Vegas]] and [[Los Angeles]].
 
 ### AF 2021-07-06 0841
 (00:48:74) [[Timothy Gionet|Baked Alaska]] attended a large July 4th party in Phoenix celebrating his recent release from federal custody.
@@ -78,7 +78,7 @@
 (01:11:56) [[Nicholas J. Fuentes]] announced he was on a "[[White Boy Summer]] Road Trip" with planned events in Phoenix, [[Houston]], and other locations.
 
 ### AF 2021-06-29 0839
-(31:09:32) [[Nicholas J. Fuentes]] announced plans for public meetups in [[City of Las Vegas|Las Vegas]], [[Los Angeles]], Phoenix, and cities in [[State of Texas|Texas]] during his ongoing road trip.
+(31:09:32) [[Nicholas J. Fuentes]] announced plans for public meetups in [[Las Vegas]], [[Los Angeles]], Phoenix, and cities in [[State of Texas|Texas]] during his ongoing road trip.
 
 ### AF 2021-06-29 0839
 (33:29:12) [[Nicholas J. Fuentes]] announced a roundtable and fundraiser event with [[Paul Gosar]] in Phoenix on the upcoming Friday.
@@ -90,7 +90,7 @@
 (06:37:00) [[Nicholas J. Fuentes]] stated he was placed on a federal no-fly list and would therefore embark on a two-week "[[White Boy Summer]]" road trip starting that Saturday, with planned stops in Phoenix, [[State of Texas|Texas]], and several Midwestern cities.
 
 ### AF 2021-06-18 0832
-(00:08:05) [[Nicholas J. Fuentes]] announces an upcoming "[[white boy summer]]" road trip, with planned private events in Phoenix, [[Arizona]] and [[Houston]], [[State of Texas|Texas]], and public meetups in cities including [[City of St. Louis|St. Louis]], [[Kansas City]], [[Wichita]], [[Oklahoma City]], [[Los Angeles]], and several in [[State of Texas|Texas]].
+(00:08:05) [[Nicholas J. Fuentes]] announces an upcoming "[[white boy summer]]" road trip, with planned private events in Phoenix, [[Arizona]] and [[Houston]], [[State of Texas|Texas]], and public meetups in cities including [[St. Louis]], [[Kansas City]], [[Wichita]], [[Oklahoma City]], [[Los Angeles]], and several in [[State of Texas|Texas]].
 
 ### AF 2021-06-15 0829
 (01:54:14) [[Nicholas J. Fuentes]] stated that federal authorities have prevented him from flying by alleging his involvement in criminal activity and have taken all his money, to which he responded by driving to locations like Phoenix and [[State of Texas|Texas]] instead.
@@ -102,7 +102,7 @@
 (43:12:72) Voting rights groups asked federal officials to intervene at the [[Veterans Memorial Coliseum]] in Phoenix where the [[Arizona]] ballots were being recounted.
 
 ### AF 2021-04-27 0800
-(00:11:54) To test the nature of the travel restriction, [[Nicholas J. Fuentes]] booked a flight on [[Southwest Airlines]] from [[City of Chicago|Chicago]] Midway International Airport to Phoenix, [[Arizona]], and was again prevented from checking in or receiving a boarding pass after a 30-minute consultation between airline staff and the [[Transportation Security Administration|TSA]].
+(00:11:54) To test the nature of the travel restriction, [[Nicholas J. Fuentes]] booked a flight on [[Southwest Airlines]] from [[Chicago]] Midway International Airport to Phoenix, [[Arizona]], and was again prevented from checking in or receiving a boarding pass after a 30-minute consultation between airline staff and the [[Transportation Security Administration|TSA]].
 
 ### AF 2021-03-18 0774
 (01:55:18) [[Nicholas J. Fuentes]] claimed he is greeted like a rock star at political rallies in cities like [[Washington D.C.|Washington, D.C.]], [[Atlanta]], Phoenix, and [[Harrisburg]], with hundreds of people gathering for his speeches.
@@ -117,7 +117,7 @@
 (01:00:01) [[Nicholas J. Fuentes]] stated that [[Turning Point USA]] had significant financial resources, with $30 million in annual revenue and $5 million in assets, but had done little to mobilize these resources for the "Stop the Steal" movement beyond one event in Phoenix.
 
 ### AF 2020-12-14 0733
-(00:15:03) [[Nicholas J. Fuentes]] noted that he had traveled to rally at state capitals in Phoenix, [[Harrisburg]], [[Atlanta]], and [[City of Lansing|Lansing]] during the Stop the Steal effort but was not permitted to speak at the official [[Washington D.C.|Washington, D.C.]] events.
+(00:15:03) [[Nicholas J. Fuentes]] noted that he had traveled to rally at state capitals in Phoenix, [[Harrisburg]], [[Atlanta]], and [[Lansing]] during the Stop the Steal effort but was not permitted to speak at the official [[Washington D.C.|Washington, D.C.]] events.
 
 ### AF 2020-12-09 0731
 (01:07:00) [[Nicholas J. Fuentes]] listed the state capitals his rallies had visited: [[Lansing]], [[Harrisburg]], [[Atlanta]], and Phoenix, missing only [[Carson City]] and [[Madison]].
@@ -150,7 +150,7 @@
 (02:14:21) [[Nicholas J. Fuentes]] mentioned whistleblower affidavits alleging a plane carrying military ballots arrived at [[Sky Harbor International Airport]] in Phoenix after the voting deadline on election night.
 
 ### AF 2020-12-01 0726
-(01:51:20) [[Nicholas J. Fuentes]] described his interaction with a "strange [[City of Buffalo|Buffalo]] guy" in Phoenix as initially disrespectful because the man smelled bad and rebuffed him, but ultimately civil and cordial once things were squared away, concluding they were there for a common purpose.
+(01:51:20) [[Nicholas J. Fuentes]] described his interaction with a "strange [[Buffalo]] guy" in Phoenix as initially disrespectful because the man smelled bad and rebuffed him, but ultimately civil and cordial once things were squared away, concluding they were there for a common purpose.
 
 ### AF 2020-12-01 0726
 (02:26:46) [[Nicholas J. Fuentes]] described a chance encounter with [[Charlie Kirk]] at the Phoenix airport, where [[Charlie Kirk]]'s parents picked him up in a Prius right in front of him, and he greeted him with "Is that [[Charlie Kirk]]?" before [[Charlie Kirk]] quickly got in the car.
@@ -162,16 +162,16 @@
 (00:03:24) [[Nicholas J. Fuentes]] announced plans to hold a rally in Phoenix, [[Arizona]] that weekend, stating he had been told by people "higher up on the food chain" that support was needed there.
 
 ### AF 2020-11-06 0718
-(03:03:48) [[Nicholas J. Fuentes]] claimed that efforts to steal the election for [[Joe Biden]] were concentrated in vote counting in major cities like [[Milwaukee]], [[City|Detroit]], [[City of Philadelphia|Philadelphia]], [[Atlanta]], and Phoenix, as well as through media and social media censorship.
+(03:03:48) [[Nicholas J. Fuentes]] claimed that efforts to steal the election for [[Joe Biden]] were concentrated in vote counting in major cities like [[Milwaukee]], [[City|Detroit]], [[Philadelphia]], [[Atlanta]], and Phoenix, as well as through media and social media censorship.
 
 ### AF 2020-11-06 0718
-(04:51:40) Organized protests were scheduled for November 7th, 2020, at noon at the state capitols in Phoenix, [[Arizona]]; [[Harrisburg]], [[Commonwealth of Pennsylvania|Pennsylvania]]; [[Atlanta]], [[Country of Georgia|Georgia]]; [[Carson City]], [[State of Nevada|Nevada]]; [[City of Lansing|Lansing]], [[State of Michigan|Michigan]]; and [[Madison]], [[Wisconsin]].
+(04:51:40) Organized protests were scheduled for November 7th, 2020, at noon at the state capitols in Phoenix, [[Arizona]]; [[Harrisburg]], [[Commonwealth of Pennsylvania|Pennsylvania]]; [[Atlanta]], [[Country of Georgia|Georgia]]; [[Carson City]], [[State of Nevada|Nevada]]; [[Lansing]], [[State of Michigan|Michigan]]; and [[Madison]], [[Wisconsin]].
 
 ### AF 2020-11-04 0716
 (01:58:10) Officials in Maricopa County, [[Arizona]] (Phoenix), announced they would release vote updates after 1 a.m. and again around 9 p.m. the next day, a staggered timeline [[Nicholas J. Fuentes]] found suspicious.
 
 ### AF 2020-09-16 0682
-(08:25:380) Following the [[City of Miami|Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to Phoenix and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
+(08:25:380) Following the [[Miami]] event, [[Nicholas J. Fuentes]] traveled to [[Politicon]], a friend's wedding, participated in the "[[Groyper]] War," gave a speech in [[Iowa]], appeared in [[New York]] with [[Person|Milo Yiannopoulos]], traveled to Phoenix and [[Boston]] with [[Samuel J. Hyde|Sam Hyde]], and then attended [[AFPAC]].
 
 ### AF 2020-06-23 0627
 (23:58:08) At a [[Students for Trump]] event in Phoenix, [[Donald Trump]] denounced the movement to remove statues as "the behavior of a totalitarian movement" and reiterated his intent to prosecute vandals.
@@ -180,7 +180,7 @@
 (01:59:01) [[Nicholas J. Fuentes]] recounted an incident where he and associates, including [[Matt]], Jaden, and other "Groypers," confronted a small [[Black Lives Matter]] protest at a library outside Phoenix.
 
 ### AF 2020-02-24 0553
-(01:27:48) [[Nicholas J. Fuentes]] stated that his schedule had been nonstop since a [[City of Miami|Miami]] event on September 28th, including appearances at Politicon, in [[State of Florida|Florida]], at SAS, in [[Iowa]] for a speech, on the Milo show, in Phoenix, in [[Boston]], and during the "Kruyper Wars."
+(01:27:48) [[Nicholas J. Fuentes]] stated that his schedule had been nonstop since a [[Miami]] event on September 28th, including appearances at Politicon, in [[State of Florida|Florida]], at SAS, in [[Iowa]] for a speech, on the Milo show, in Phoenix, in [[Boston]], and during the "Kruyper Wars."
 
 ### AF 2020-02-06 0541
 (57:24:44) [[Nicholas J. Fuentes]] recounted an incident in Phoenix where a man offered his group of female acquaintances to kiss at midnight, [[who]] were subsequently described as unattractive and non-white.
@@ -195,7 +195,7 @@
 (00:03:00) The Maricopa County audit found significant discrepancies, including one batch of 200 ballots where only 165 physical ballots could be located, indicating a 17.5% discrepancy.
 
 ### AF 2021-05-13 0000
-(00:15:18) [[Nicholas J. Fuentes]] personally attended protest rallies in the [[state]] capitals of [[City of Lansing|Lansing]], Phoenix, [[Atlanta]], and [[Harrisburg]] to demand independent audits of the 2020 election.
+(00:15:18) [[Nicholas J. Fuentes]] personally attended protest rallies in the [[state]] capitals of [[Lansing]], Phoenix, [[Atlanta]], and [[Harrisburg]] to demand independent audits of the 2020 election.
 
 ### AF 2021-05-13 0000
 (00:19:02) [[Arizona]] became the first [[state]] to conduct an independent audit of its 2020 presidential election ballots, carried out by a private contractor on approximately three million ballots from Maricopa County.

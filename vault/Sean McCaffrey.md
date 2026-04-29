@@ -6,4 +6,4 @@
 
 
 ### AF 2019-05-07 0382
-(00:10:59) Participants in the [[City of Charlottesville|Charlottesville]] rally, such as Sean McCaffrey, remain ostracized and unemployable, with McCaffrey being barred from a low-level position with the [[Yang]] campaign.
+(00:10:59) Participants in the [[Charlottesville]] rally, such as Sean McCaffrey, remain ostracized and unemployable, with McCaffrey being barred from a low-level position with the [[Yang]] campaign.

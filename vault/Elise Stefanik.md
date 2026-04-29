@@ -77,7 +77,7 @@
 (00:00:00) [[Nicholas J. Fuentes]] listed the [[Republican Party|Republican]] representatives who supported the Fairness for All Act as [[Fred Upton]], Elise Stefanik, [[John Curtis]], [[Mark Amodei]], [[Brian Fitzpatrick]], [[Adam Kinzinger]], [[Andrew Garbarino]], [[Blake Moore]], [[Burgess Owens]], [[Carlos Giménez]], [[Chris Jacobs]], [[Claudia Tenney]], [[Jeff Van Drew]], [[Jenniffer González-Colón]], [[María Elvira Salazar]], [[Mario Díaz-Balart]], [[Mike Simpson]], [[Nicole Malliotakis]], [[Steve Stivers]], and [[Tom Reed]].
 
 ### AF 2021-09-25 0884
-(24:18:00) [[Republican Party|Republican]] representatives Elise Stefanik, [[Devin Nunes]], [[Ronny Jackson]], [[Greg Pence]], and [[House]] Minority Leader [[Mike Johnson|Kevin McCarthy]] voted for the NDAA containing the red flag law.
+(24:18:00) [[Republican Party|Republican]] representatives Elise Stefanik, [[Devin Nunes]], [[Ronny Jackson]], [[Greg Pence]], and [[House]] Minority Leader [[Kevin McCarthy]] voted for the NDAA containing the red flag law.
 
 ### AF 2021-09-25 0884
 (24:37:00) Elise Stefanik was promoted as an [[America First]] alternative to [[Liz Cheney]] within [[Republican Party|GOP]] leadership.

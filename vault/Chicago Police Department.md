@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2022-10-20 1082
-(00:51:54) The Chicago Police Department reported its lowest number of employees in recent history, the [[Seattle Police Department]] reached a 30-year staffing low, and the [[City of Philadelphia|Philadelphia]] police union warned the department would lose 800 officers in the next four years.
+(00:51:54) The Chicago Police Department reported its lowest number of employees in recent history, the [[Seattle Police Department]] reached a 30-year staffing low, and the [[Philadelphia]] police union warned the department would lose 800 officers in the next four years.
 
 
 ### AF 2020-08-10 0658

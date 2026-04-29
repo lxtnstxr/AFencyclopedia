@@ -87,7 +87,7 @@
 (00:04:48) [[Nicholas J. Fuentes]] planned a collaboration with Baked Alaska and [[Laura Loomer]] while in [[State of Florida|Florida]], coinciding with [[Laura Loomer]]'s congressional election in [[State of Florida|Florida]]'s 11th district.
 
 ### AF 2022-08-12 1046
-(01:08:00) [[Nicholas J. Fuentes]] announced plans to travel to [[City of Miami|Miami]] for collaborations with [[Destiny]], Baked Alaska, and [[Laura Loomer]], and to visit the Wake and Baked studio.
+(01:08:00) [[Nicholas J. Fuentes]] announced plans to travel to [[Miami]] for collaborations with [[Destiny]], Baked Alaska, and [[Laura Loomer]], and to visit the Wake and Baked studio.
 
 ### AF 2022-08-11 1045
 (03:45:40) [[Nicholas J. Fuentes]] planned to travel to [[State of Florida|Florida]] for his birthday, intending to see [[Laura Loomer]] for her primary victory party and to meet with Baked Alaska and [[Destiny]].
@@ -96,7 +96,7 @@
 (03:57:00) Baked Alaska repeatedly invited [[Nicholas J. Fuentes]] to ride the Minions ride at [[Universal Studios]] in [[Tampa]], despite facing potential jail [[time]].
 
 ### AF 2022-08-11 1045
-(11:55:40) [[Nicholas J. Fuentes]] reflected on attending the "Unite the Right" rally in [[City of Charlottesville|Charlottesville]] five years prior, where he met Baked Alaska, [[Millennial Matt]], and [[Brayden]] for the first [[time]] and later did his first appearance on the "Weekly Sweat."
+(11:55:40) [[Nicholas J. Fuentes]] reflected on attending the "Unite the Right" rally in [[Charlottesville]] five years prior, where he met Baked Alaska, [[Millennial Matt]], and [[Brayden]] for the first [[time]] and later did his first appearance on the "Weekly Sweat."
 
 ### AF 2022-07-08 1028
 (01:06:19) [[Nicholas J. Fuentes]] defended [[Beardson]] and Baked Alaska as having "aristocratic features" and "Chad physiognomy," contrasting them with the negative phenotype he described.
@@ -132,7 +132,7 @@
 (16:08:22) Baked Alaska's court appearance was covered by [[NBC News]] and trended on [[Twitter]].
 
 ### AF 2022-05-13 0994
-(17:32:24) [[Nicholas J. Fuentes]]'s lawyer, a [[City of Chicago|Chicago]]-based attorney in his sixties, texted him an eye-roll emoji in reaction to news about Baked Alaska's courtroom statement.
+(17:32:24) [[Nicholas J. Fuentes]]'s lawyer, a [[Chicago]]-based attorney in his sixties, texted him an eye-roll emoji in reaction to news about Baked Alaska's courtroom statement.
 
 ### AF 2022-05-13 0994
 (18:26:62) [[Nicholas J. Fuentes]]'s lawyer reviewed the criminal complaint against Baked Alaska and was confused by the mention of "Pog Collector" in the official record.
@@ -162,7 +162,7 @@
 (00:18:24) [[Nicholas J. Fuentes]] recounted that his lawyer, while reviewing the criminal complaint against Baked Alaska, asked "What's a Pog?" after encountering the term "Pog Collector" in the document.
 
 ### AF 2022-04-26 0984
-(01:14:01:60) [[Nicholas J. Fuentes]] reported that [[Germany|German]] officials had advised [[Volodymyr Zelenskyy|Zelensky]] to give up [[City of Sevastopol|Crimea]] and the [[Donbas]], but he refused.(01:50:44) [[Nicholas J. Fuentes]] stated he would not betray his friends, specifically Baked Alaska and [[Beardson]], for political reasons, citing their past loyalty and support during his early career when he had nothing to offer in return.
+(01:14:01:60) [[Nicholas J. Fuentes]] reported that [[Germany|German]] officials had advised [[Volodymyr Zelenskyy|Zelensky]] to give up [[Crimea]] and the [[Donbas]], but he refused.(01:50:44) [[Nicholas J. Fuentes]] stated he would not betray his friends, specifically Baked Alaska and [[Beardson]], for political reasons, citing their past loyalty and support during his early career when he had nothing to offer in return.
 
 ### AF 2022-04-26 0984
 (01:53:06) [[Nicholas J. Fuentes]] described how Baked Alaska, who had a large following and connections, showed him hospitality by letting him stay at his apartment in [[Los Angeles]] and showing him around town over four years ago when he had nothing to gain.

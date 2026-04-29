@@ -21,10 +21,10 @@
 (00:16:35) [[Jacob Wohl]] argued that [[Israel]] has been open to a two-[[state]] solution on six separate occasions, but each [[time]] the [[Palestinians]], including Mahmoud Abbas, rejected the peace offers.
 
 ### AF 2017-12-05 0064
-(01:15:54) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] made phone calls to [[Palestinian Authority]] [[White House|President]] Mahmoud Abbas and Jordanian [[Martin Luther King Jr.|King]] [[King Abdullah II]], informing them the [[United States]] would move its [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]] and recognize [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]].
+(01:15:54) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] made phone calls to [[Palestinian Authority]] [[White House|President]] Mahmoud Abbas and Jordanian [[Martin Luther King Jr.|King]] [[King Abdullah II]], informing them the [[United States]] would move its [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]] and recognize [[Jerusalem]] as the capital of [[Israel]].
 
 ### AF 2017-12-05 0064
 (01:20:31) [[Nicholas J. Fuentes]] reported that [[Palestinian]] [[White House|President]] Mahmoud Abbas warned the [[United States Embassy in Jerusalem|U.S. embassy]] move would destroy the peace process and announced three days of rage, while the [[Palestinian]] Islamist group [[Hamas]] threatened a second intifada.
 
 ### AF 2017-12-04 0063
-(29:24:66) [[Donald Trump]] was rumored to be preparing an announcement to recognize [[City of Jerusalem|Jerusalem]] as the official capital of [[Israel]], a move warned against by Mahmoud Abbas, [[Jim Jordan|Jordan]], and [[Arab Republic of Egypt|Egypt]].
+(29:24:66) [[Donald Trump]] was rumored to be preparing an announcement to recognize [[Jerusalem]] as the official capital of [[Israel]], a move warned against by Mahmoud Abbas, [[Jim Jordan|Jordan]], and [[Arab Republic of Egypt|Egypt]].

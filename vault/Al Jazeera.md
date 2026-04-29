@@ -22,3 +22,6 @@
 
 ### AF 2019-06-11 0404
 (00:08:34) [[The Human Events|Human Events]], under [[Wilt Chamberlain|Will Chamberlain]], did not cover the Alabama abortion bill but instead ran a headline story condemning Al Jazeera for an article about the [[United States Holocaust Memorial Museum|Holocaust]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:23:00) [[Marco Rubio]], speaking to Al Jazeera, said that after the current military campaign, the issue of the Strait of Hormuz will be resolved by a coalition of nations or directly by [[Iran]].

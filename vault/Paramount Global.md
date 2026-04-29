@@ -85,3 +85,51 @@
 
 ### AF 2018-03-27 0132
 (01:01:16) [[Dan Schneider]], a producer for Nickelodeon, was accused of pervasive misconduct and embedding inappropriate content in children's television shows like *iCarly*.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:29:30) [[Nicholas J. Fuentes]] argued that the media supports the war in [[Iran]] because the people [[who]] own the media, such as [[Rupert Murdoch]] ([[Fox News|Fox]]) and [[Larry Ellison]] (Paramount, [[Warner Bros. Discovery|Warner Brothers]], [[Skydance Media|Skydance]], [[TikTok Inc.|TikTok]]), support it.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:34:20) [[Nicholas J. Fuentes]] stated that [[Larry Ellison]], a friend of [[Benjamin Netanyahu]], controls [[Skydance Media|Skydance]], Paramount Global, [[Warner Bros. Discovery|Warner Bros.]], and [[TikTok Inc.|TikTok]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:21:40) [[David Ellison]] acquired Paramount Pictures for his media company [[Skydance Media|Skydance]], which became [[Skydance Media|Skydance Paramount]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:23:13) [[Skydance Media|Skydance]], Paramount, and [[Warner Bros. Discovery|Warner Brothers]] will all be under the [[Larry Ellison]] empire.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:23:12) [[Nicholas J. Fuentes]] argued that the war in [[Iran]], the acquisition of [[Warner Bros. Discovery|Warner Bros.]] by Paramount Global, and the acquisition of [[TikTok Inc.|TikTok]] by [[Larry Ellison]] are all for [[Israel]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:08:24) [[David Ellison]]'s studio [[Skydance Media|Skydance]] acquired Paramount Pictures, which includes Paramount Plus, [[CBS News]], and other properties, in 2025.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:10:52) Paramount/[[Skydance Media|Skydance]], owned by [[Larry Ellison]]'s [[Oracle Corporation|Oracle]], is an eighth-front, pro-[[Israel]] project.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:19:46) [[Nicholas J. Fuentes]] described a pro-[[Israel]] coup occurring across society since [[October 7th Attack|October 7th]], affecting the [[White House]], [[Harvard University]], [[TikTok Inc.|TikTok]], and now ongoing at [[CBS News]], Paramount Global, and potentially at [[Warner Bros. Discovery|Warner Bros.]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:24:17) [[Nicholas J. Fuentes]] stated that [[Skydance Media|Skydance Paramount]] was created in August 2025 from the merger of [[Skydance Media]] and Paramount Global, which controls [[CBS]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:46:24) [[Nicholas J. Fuentes]] said [[Skydance Media|Skydance]] works in concert with Paramount Global to create blockbusters like *Top Gun* and *Mission: Impossible*.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:46:52) [[Nicholas J. Fuentes]] stated that in August 2025, [[Skydance Media|Skydance]] Productions acquired Paramount Global, funded by [[Oracle Corporation|Larry Ellison]], creating a new major media conglomerate.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:47:10) [[Nicholas J. Fuentes]] listed the assets of Paramount Global: the [[CBS]] television station, [[CBS News]], Nickelodeon, MTV, [[Comedy Central]], Paramount+, and Showtime.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:59:58) [[Nicholas J. Fuentes]] stated that after acquiring Paramount, [[Skydance Media|Skydance]] immediately made an offer for [[Warner Bros. Discovery|Warner Bros.]]
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:07:46) [[Nicholas J. Fuentes]] listed the properties the Ellisons would own if successful: [[Skydance Media|Skydance]] Production, Paramount Global, [[CBS]], [[Warner Bros. Discovery|Warner Bros.]] studios, [[Warner Bros. Discovery|HBO]], [[Warner Bros. Discovery|HBO Max]], [[Warner Bros. Discovery|CNN]], and [[TikTok Inc.|TikTok]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:12:14) [[Nicholas J. Fuentes]] introduced the previous owners of Paramount Global, the [[Redstone]] family, describing Sumner as having "founded [[CBS]] with money from [[Jews|Jewish]] gangsters."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:05:41) [[David Ellison]]'s company [[Skydance Media]] acquired Paramount Global, and [[David Ellison]]'s father [[Oracle Corporation|Larry Ellison]] owns [[TikTok Inc.|TikTok]].

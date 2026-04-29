@@ -6,7 +6,7 @@
 
 
 ### AF 2023-01-14 1107
-(00:38:18) [[Nicholas J. Fuentes]] recounted that [[Mike Johnson|Kevin McCarthy]] was in line to become Speaker after John Boehner but was allegedly blackmailed and prevented from running due to a scandal involving infidelity, leading to [[Paul Ryan]] assuming the role instead.
+(00:38:18) [[Nicholas J. Fuentes]] recounted that [[Kevin McCarthy]] was in line to become Speaker after John Boehner but was allegedly blackmailed and prevented from running due to a scandal involving infidelity, leading to [[Paul Ryan]] assuming the role instead.
 
 ### AF 2022-06-24 1019
 (31:00:16) [[Nicholas J. Fuentes]] argued that the [[Supreme Court]]'s role is to interpret the Constitution as written, not to make policy based on what is "disruptive," criticizing Chief Justice John Roberts for his concurring opinion.
@@ -42,13 +42,13 @@
 (00:41:28) [[Nicholas J. Fuentes]] asserted that [[Supreme Court]] Justices [[Amy Coney Barrett]], [[Brett Kavanaugh]], [[Neil Gorsuch]], and John Roberts would not rule against the federal vaccine mandate.
 
 ### AF 2021-05-14 0811
-(00:28:15) [[Mike Johnson|Kevin McCarthy]] was passed over for [[Mike Johnson|Speaker of the House]] after John Boehner retired due to a personal scandal, leading to [[Paul Ryan]] assuming the role.
+(00:28:15) [[Kevin McCarthy]] was passed over for [[Mike Johnson|Speaker of the House]] after John Boehner retired due to a personal scandal, leading to [[Paul Ryan]] assuming the role.
 
 ### AF 2021-04-05 0785
 (01:25:58) [[Supreme Court of the United States|Supreme Court]] Justices [[Samuel Alito]] and [[Clarence Thomas]] were identified as the only reliably conservative justices, while John Roberts, [[Brett Kavanaugh]], [[Neil Gorsuch]], and [[Amy Coney Barrett]] were deemed unreliable.
 
 ### AF 2020-12-08 0730
-(00:31:30) [[Nicholas J. Fuentes]] stated that the [[Republican Party]], led by figures like [[Mitch McConnell]], [[Paul Ryan]], John Boehner, and [[Mike Johnson|Kevin McCarthy]], was corrupt and had consistently failed to deliver policy changes desired by their voters despite electoral victories.
+(00:31:30) [[Nicholas J. Fuentes]] stated that the [[Republican Party]], led by figures like [[Mitch McConnell]], [[Paul Ryan]], John Boehner, and [[Kevin McCarthy]], was corrupt and had consistently failed to deliver policy changes desired by their voters despite electoral victories.
 
 ### AF 2020-10-26 0709
 (03:08:48) [[Nicholas J. Fuentes]] expressed concern that [[Neil Gorsuch]], [[Amy Coney Barrett]], and John Roberts were fundamentally unreliable, while viewing [[Samuel Alito]], [[Clarence Thomas]], and [[Brett Kavanaugh]] as solid conservatives.
@@ -108,7 +108,7 @@
 (00:10:04) The [[Supreme Court of the United States]] ruled 5-4 to uphold the constitutionality of [[Donald Trump]]'s third travel ban, with Chief Justice John Roberts writing the majority opinion.
 
 ### AF 2018-06-26 0188
-(00:11:17) In the majority opinion for *[[Donald Trump|Trump]] v. Hawaii*, Chief Justice John Roberts wrote that the travel ban proclamation was "squarely within the jurisdiction of [[Donald Trump|the president]]" and was "expressly premised on legitimate purposes" of national security and vetting.
+(00:11:17) In the majority opinion for *[[Donald Trump|Trump]] v. Hawaii*, Chief Justice John Roberts wrote that the travel ban proclamation was "squarely within the jurisdiction of [[the president]]" and was "expressly premised on legitimate purposes" of national security and vetting.
 
 ### AF 2018-06-04 0177
 (00:07:54) [[Kassy Dillon|Cassie Dillon]] published an article in [[The Daily Wire]] accusing [[Corey Stewart]] of being a [[Germany|Nazi]] sympathizer for calling [[Paul Nehlen]] a personal hero in February 2017. (00:08:44) [[Paul Nehlen]] only recently began making anti-Semitic statements months prior to the article's publication. (00:09:12) [[The Daily Wire]] and [[Kassy Dillon|Cassie Dillon]] targeted [[Corey Stewart]] because his [[United States|America]] First platform conflicted with their pro-[[Israel]] stance. (00:10:40) The [[Supreme Court of the United States|Supreme Court]] case *Masterpiece Cakeshop v. [[State of Colorado|Colorado]] Civil Rights Commission* involved baker [[Jack Phillips]] of Lakewood, [[State of Colorado|Colorado]], [[who]] refused to create a wedding cake for a homosexual couple, [[David Mullins]] and [[Charlie Craig]]. (00:14:11) [[David Mullins]] and [[Charlie Craig]] filed a complaint with the [[Colorado Civil Rights Commission]], alleging [[Jack Phillips]] violated [[state]] law by discriminating based on sexual orientation. (00:14:26) The [[Colorado Civil Rights Commission]] and [[state]] courts initially ruled in favor of [[David Mullins]] and [[Charlie Craig]]. (00:15:00) The [[Supreme Court of the United States]] ultimately ruled 7-2 in favor of [[Jack Phillips]], reversing the lower court decisions. (00:15:37) The majority opinion in *Masterpiece Cakeshop* was authored by [[Anthony Kennedy]] and joined by John Roberts, [[Clarence Thomas]], [[Neil Gorsuch]], [[Elena Kagan]], [[Stephen Breyer]], and [[Samuel Alito]]; [[Sonia Sotomayor]] and [[Ruth Bader Ginsburg]] dissented. (00:16:56) The [[Supreme Court of the United States]] ruled that the [[Colorado Civil Rights Commission]] demonstrated "clear and impermissible hostility" toward [[Jack Phillips]]'s religious beliefs, compromising the neutral consideration he was entitled to. (00:17:59) A commissioner at the [[Colorado Civil Rights Commission]] stated that freedom of religion had been used to justify discrimination throughout history, including slavery and the [[United States Holocaust Memorial Museum|Holocaust]]. (00:31:42) [[Twitter]] promoted LGBTQIA Pride Month in June 2018 with hashtag-triggered emojis and dedicated account features. (00:32:32) [[Facebook]] launched LGBTQ-themed profile frames, stickers, and backgrounds for Pride Month 2018, making the features permanent. (00:33:24) [[Instagram]] released new stickers and features to celebrate Pride Month and show support for the LGBTQ community. (00:38:34) A small, rootless international elite controlling [[San Francisco Bay Area|Silicon Valley]], major corporations, banks, and politicians promotes a homosexual agenda hostile to [[Christianity]]. (00:57:03) June 4th marked the 14th anniversary of [[Marvin Heemeyer]]'s "Killdozer" rampage in [[State of Colorado|Colorado]], which he undertook after a zoning dispute with local government and press.

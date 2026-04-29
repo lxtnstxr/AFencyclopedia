@@ -37,3 +37,9 @@
 
 ### AF 2017-10-17 0033
 (00:40:27) [[Nicholas J. Fuentes]] claimed that [[Elie Wiesel]] fabricated parts of his Holocaust story.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(02:56:47) [[Nicholas J. Fuentes]] described his movement's strategy as "appropriating the narrative about [[Adolf Hitler|Hitler]]" to reframe the context and ask why the Holocaust matters for [[United States|Americans]] in the 21st century.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(02:58:19) [[Nicholas J. Fuentes]] argued that the term "[[Germany|Nazi]]" has extraordinary emotional power because of its association with movies, museums, and the Holocaust, and that defanging it is a key objective.

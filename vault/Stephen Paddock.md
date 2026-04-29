@@ -2,20 +2,20 @@
 #person
 
 ### AF 2022-05-26 1002
-(50:34:82) [[Nicholas J. Fuentes]] pointed to the 2017 [[City of Las Vegas|Las Vegas]] shooting by Stephen Paddock as another major event with unanswered questions.
+(50:34:82) [[Nicholas J. Fuentes]] pointed to the 2017 [[Las Vegas]] shooting by Stephen Paddock as another major event with unanswered questions.
 
 
 ### AF 2019-10-02 0471
-(00:43:27) Stephen Paddock, the perpetrator of the [[City of Las Vegas|Las Vegas]] shooting, was a retired postal service worker, accountant, and real estate investor [[who]] had worked for defense contractors and intelligence-adjacent companies.
+(00:43:27) Stephen Paddock, the perpetrator of the [[Las Vegas]] shooting, was a retired postal service worker, accountant, and real estate investor [[who]] had worked for defense contractors and intelligence-adjacent companies.
 
 ### AF 2019-10-02 0471
-(00:45:52) The [[Federal Bureau of Investigation|FBI]] and [[City of Las Vegas|Las Vegas]] police closed their investigation into the 2017 shooting in August 2018 without establishing a motive for Stephen Paddock's attack that killed 58 people.
+(00:45:52) The [[Federal Bureau of Investigation|FBI]] and [[Las Vegas]] police closed their investigation into the 2017 shooting in August 2018 without establishing a motive for Stephen Paddock's attack that killed 58 people.
 
 ### AF 2018-06-18 0182
 (39:02:59) [[Laura Loomer]] reported that newly released documents from the [[LVMPD]] revealed Stephen Paddock's bank account had been seized prior to the shooting on suspicion of terrorism financing.
 
 ### AF 2018-06-18 0182
-(40:20:91) [[Laura Loomer]] stated that a source within the [[Federal Bureau of Investigation|FBI]] suggested the agency could have prevented the [[City of Las Vegas|Las Vegas]] shooting if it had investigated Stephen Paddock after his bank account was flagged for suspicious activity.
+(40:20:91) [[Laura Loomer]] stated that a source within the [[Federal Bureau of Investigation|FBI]] suggested the agency could have prevented the [[Las Vegas]] shooting if it had investigated Stephen Paddock after his bank account was flagged for suspicious activity.
 
 ### AF 2018-06-18 0182
 (41:35:61) [[Laura Loomer]] cited a witness statement from a female Uber driver [[who]] said Stephen Paddock told her there would be a terrorist attack in the [[Mandalay Bay]] area three days before the shooting.
@@ -30,10 +30,10 @@
 (56:58:83) [[Laura Loomer]] identified [[Douglas Haig]] as a suspect named in an unredacted [[LVMPD]] document, a man with government clearances [[who]] sold Stephen Paddock body armor-piercing bullets.
 
 ### AF 2018-06-18 0182
-(59:55:73) [[Laura Loomer]] stated that during a press conference days after the [[City of Las Vegas|Las Vegas]] shooting, she presented documents proving Stephen Paddock checked into the [[Mandalay Bay]] on September 25th, forcing law enforcement to change their official timeline from September 28th.
+(59:55:73) [[Laura Loomer]] stated that during a press conference days after the [[Las Vegas]] shooting, she presented documents proving Stephen Paddock checked into the [[Mandalay Bay]] on September 25th, forcing law enforcement to change their official timeline from September 28th.
 
 ### AF 2018-06-18 0182
-(01:03:11:49) [[Laura Loomer]] cited police dispatch logs from the night of the [[City of Las Vegas|Las Vegas]] shooting which stated there were "three females in the room" in Stephen Paddock's hotel room, room 32135, contradicting the official narrative that he acted alone.
+(01:03:11:49) [[Laura Loomer]] cited police dispatch logs from the night of the [[Las Vegas]] shooting which stated there were "three females in the room" in Stephen Paddock's hotel room, room 32135, contradicting the official narrative that he acted alone.
 
 ### AF 2018-03-26 0131
 (00:04:08) [[Nicholas J. Fuentes]] highlighted connections between several mass shootings and federal agents, noting that [[Omar Mateen]]'s father was an [[Federal Bureau of Investigation|FBI]] informant, Stephen Paddock had three successive federal government jobs, [[David Hogg]]'s father is a retired [[Federal Bureau of Investigation|FBI]] agent, and the uncle of the [[Boston Bombers]] was married to the daughter of a [[Central Intelligence Agency|CIA]] agent.
@@ -42,7 +42,7 @@
 (00:41:19) [[Nicholas J. Fuentes]] detailed the federal employment history of [[Las Vegas]] shooter Stephen Paddock, [[who]] worked for the [[Postal Service]], the [[Internal Revenue Service|IRS]], and as an auditor for defense contractors with the [[U.S. Department of Defense|Department of Defense]].
 
 ### AF 2018-02-20 0112
-(01:43:86) [[Nicholas J. Fuentes]] expressed skepticism about media coverage of the [[City of Parkland|Parkland]] school shooting, citing unanswered questions about the [[City of Las Vegas|Las Vegas]] shooting involving Stephen Paddock.
+(01:43:86) [[Nicholas J. Fuentes]] expressed skepticism about media coverage of the [[Parkland]] school shooting, citing unanswered questions about the [[Las Vegas]] shooting involving Stephen Paddock.
 
 ### AF 2018-01-23 0092
 (16:37:51) Stephen Paddock's brother, in a referenced meme, stated that people without aptitudes would end up working in fast food at places like [[McDonald's]] or [[Taco Bell]].
@@ -54,19 +54,19 @@
 (00:01:26) [[Laura Loomer]] stated that three months after the worst mass shooting in [[United States|US]] history, no motive had been provided and no real evidence had been presented that Stephen Paddock was the shooter.
 
 ### AF 2017-12-13 0069
-(00:11:56) The motive for the [[City of Las Vegas|Las Vegas]] shooting carried out by Stephen Paddock remained [[unknown]] more than 11 weeks after the event, despite subsequent legislative focus on bump stocks.
+(00:11:56) The motive for the [[Las Vegas]] shooting carried out by Stephen Paddock remained [[unknown]] more than 11 weeks after the event, despite subsequent legislative focus on bump stocks.
 
 ### AF 2017-10-25 0039
-(04:11:00) [[Bruce Paddock]], the brother of [[City of Las Vegas|Las Vegas]] shooter Stephen Paddock, was taken into custody in [[North Hollywood]] on charges of child pornography.
+(04:11:00) [[Bruce Paddock]], the brother of [[Las Vegas]] shooter Stephen Paddock, was taken into custody in [[North Hollywood]] on charges of child pornography.
 
 ### AF 2017-10-25 0039
-(07:02:00) The father of Stephen Paddock and [[Bruce Paddock]] was a bank robber in [[City of Las Vegas|Las Vegas]] [[who]] was arrested by the [[Federal Bureau of Investigation|FBI]] multiple times and escaped prison twice.
+(07:02:00) The father of Stephen Paddock and [[Bruce Paddock]] was a bank robber in [[Las Vegas]] [[who]] was arrested by the [[Federal Bureau of Investigation|FBI]] multiple times and escaped prison twice.
 
 ### AF 2017-10-25 0039
 (08:14:00) Stephen Paddock worked as a mail carrier, an [[Internal Revenue Service|IRS]] agent, and conducted auditing for the [[U.S. Department of Defense|United States Department of Defense]].
 
 ### AF 2017-10-25 0039
-(09:31:00) Investigators recovered a laptop from Stephen Paddock's hotel room at the [[Mandalay Bay]] hotel in [[City of Las Vegas|Las Vegas]].
+(09:31:00) Investigators recovered a laptop from Stephen Paddock's hotel room at the [[Mandalay Bay]] hotel in [[Las Vegas]].
 
 ### AF 2017-10-25 0039
 (11:56:00) Authorities reported that the hard drive was missing from the laptop recovered from Stephen Paddock's hotel room.
@@ -75,7 +75,7 @@
 (16:39:00) [[Jesus Campos]], a security guard shot at by Stephen Paddock at the [[Mandalay Bay]], canceled six scheduled media interviews.
 
 ### AF 2017-10-05 0025
-(01:31:59) Stephen Paddock carried out a mass shooting from the 32nd floor of the [[Mandalay Bay]] hotel in [[City of Las Vegas|Las Vegas]], killing 59 people in the deadliest such attack in [[United States|U.S]]. history.
+(01:31:59) Stephen Paddock carried out a mass shooting from the 32nd floor of the [[Mandalay Bay]] hotel in [[Las Vegas]], killing 59 people in the deadliest such attack in [[United States|U.S]]. history.
 
 ### AF 2017-10-05 0025
 (01:32:04) The [[Federal Bureau of Investigation|FBI]] initially asserted Stephen Paddock acted alone as a lone wolf, a conclusion contradicted by a hotel receipt showing two people checked in and eyewitness accounts of a second shooter.
@@ -117,7 +117,7 @@
 (01:48:46) Past mass shooters like [[James Holmes]] of the [[Aurora, Colorado]] theater attack and [[Adam Lanza]] of the [[Sandy Hook Elementary School]] shooting had established histories of mental illness, unlike Stephen Paddock.
 
 ### AF 2017-10-04 0024
-(04:36:27) Stephen Paddock, the perpetrator of the [[City of Las Vegas|Las Vegas]] shooting, previously worked as a letter carrier, an [[Internal Revenue Service|IRS]] agent, and an auditor for the [[U.S. Department of Defense|Defense Department]] Audit Agency, and had not held a job in 20 years prior to the attack.
+(04:36:27) Stephen Paddock, the perpetrator of the [[Las Vegas]] shooting, previously worked as a letter carrier, an [[Internal Revenue Service|IRS]] agent, and an auditor for the [[U.S. Department of Defense|Defense Department]] Audit Agency, and had not held a job in 20 years prior to the attack.
 
 ### AF 2017-10-04 0024
 (04:43:63) An airplane once registered to Stephen Paddock was later owned by [[Volant LLC]], a company that works with defense and intelligence contractors, and its FAA registration information was wiped after public discovery.
@@ -132,4 +132,4 @@
 (04:40:64) Following the attack, the [[Islamic State of Iraq and Syria]] ([[Islamic State of Iraq and Syria|ISIS]]) claimed four separate times that Stephen Paddock had converted to [[Islam]] earlier in the year and that the attack was conducted on their behalf, though the [[Federal Bureau of Investigation|FBI]] and [[Las Vegas police]] stated there was no connection.
 
 ### AF 2017-10-02 0022
-(05:15:54) [[Islamic State of Iraq and Syria|ISIS]] claimed responsibility for the [[City of Las Vegas|Las Vegas]] shooting, asserting that shooter Stephen Paddock had converted to [[Islam]], a claim repeatedly denied by [[United States|U.S]]. law enforcement agencies.
+(05:15:54) [[Islamic State of Iraq and Syria|ISIS]] claimed responsibility for the [[Las Vegas]] shooting, asserting that shooter Stephen Paddock had converted to [[Islam]], a claim repeatedly denied by [[United States|U.S]]. law enforcement agencies.

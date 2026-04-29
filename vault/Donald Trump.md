@@ -398,14 +398,14 @@
 (00:06:30) [[Nicholas J. Fuentes]] connected [[Josh Hammer]]'s call for neutralization to the recent murders of [[Charlie Kirk]] and the attempted assassination of Donald Trump.
 (00:10:20) [[Nicholas J. Fuentes]] argued that conservatives had just finished blaming similar rhetoric for inciting the [[left]] to try to murder Donald Trump and [[Charlie Kirk]].
 (00:48:50) [[Nicholas J. Fuentes]] questioned whether [[Josh Hammer]] was calling for [[Tucker Carlson]] and [[Nicholas J. Fuentes]] to be killed by using the term "neutralized" after the shootings of Donald Trump and [[Charlie Kirk]].
-(00:53:40) [[Nicholas J. Fuentes]] stated that in 10, 20, or 30 years, there will only be more people like him, and even [[JD Vance]] had to pander to them at Turning Point [[United States|USA]] by answering questions about [[Palantir Technologies|Palantir]], [[Sheldon Adelson|Miriam Adelson]], and whether Donald Trump obeys [[Israel]].
+(00:53:40) [[Nicholas J. Fuentes]] stated that in 10, 20, or 30 years, there will only be more people like him, and even [[JD Vance]] had to pander to them at Turning Point [[United States|USA]] by answering questions about [[Palantir Technologies|Palantir]], [[Miriam Adelson]], and whether Donald Trump obeys [[Israel]].
 (00:58:20) [[Nicholas J. Fuentes]] stated that [[Mark Levin]] still has an audience with Donald Trump and [[Josh Hammer]] is still on a syndicated radio show with [[Salem Radio]].
 (01:00:00) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]], [[Kanye West]], Donald Trump, [[Charlie Kirk]], [[Candace Owens]], [[Alex Jones]], and himself are done being bullied by people like [[Josh Hammer]] and [[Mark Levin]].
 
 ### AF 2025-10-30 1589
 (00:13:56) [[Nicholas J. Fuentes]] stated that [[Randy Fine]], an elected representative endorsed by Donald Trump, said it was funny when [[Palestine|Palestinian]] children are starved to death.
-(00:15:35) [[Nicholas J. Fuentes]] stated that Donald Trump's opponents were "never Trump" in 2016 because he said "[[United States|America]] first," but now that Donald Trump took money from [[Sheldon Adelson|Miriam Adelson]], they hide behind him.
-(00:25:54) [[Nicholas J. Fuentes]] stated he refused to vote for Donald Trump in the last election because Donald Trump was no longer putting [[United States|America]] first, citing his acceptance of $100 million from [[Sheldon Adelson|Miriam Adelson]], endorsement by [[Nikki Haley]] in [[Israel]], promise to bomb [[Iran]], and plan to staple green cards to Indian diplomas.
+(00:15:35) [[Nicholas J. Fuentes]] stated that Donald Trump's opponents were "never Trump" in 2016 because he said "[[United States|America]] first," but now that Donald Trump took money from [[Miriam Adelson]], they hide behind him.
+(00:25:54) [[Nicholas J. Fuentes]] stated he refused to vote for Donald Trump in the last election because Donald Trump was no longer putting [[United States|America]] first, citing his acceptance of $100 million from [[Miriam Adelson]], endorsement by [[Nikki Haley]] in [[Israel]], promise to bomb [[Iran]], and plan to staple green cards to Indian diplomas.
 (00:26:48) [[Nicholas J. Fuentes]] claimed Donald Trump appointed [[Mike Walz]] as [[U.S. National Security Council|National Security Advisor]], who was fired three months later for being on the phone with [[Benjamin Netanyahu]] daily and trying to push the [[United States]] into a war with [[Iran]].
 (00:27:16) [[Nicholas J. Fuentes]] stated that under Donald Trump, the [[United States]] started a war in [[Yemen]] bombing the [[Houthis]], gave [[Israel]] $12 billion in foreign aid, bombed [[Iran]], and buried the [[Jeffrey Epstein]] files.
 (00:27:53) [[Nicholas J. Fuentes]] claimed the [[U.S. Department of Justice]] under Donald Trump allowed an [[Israel|Israeli]] official accused of trying to molest an underage girl to escape from [[Las Vegas]] and take refuge in [[Israel]].
@@ -432,7 +432,7 @@
 (01:07:05:99) [[Nicholas J. Fuentes]] listed his top three reasons for voting for Donald Trump as mass deportations, no new wars, and tariffs, and stated that none have been systematically achieved.
 (01:09:50:21) [[Nicholas J. Fuentes]] stated that the Trump administration gave [[Israel]] $12 billion in aid, kept aid flowing while freezing it for other countries, replenished missiles, sent two carrier strike groups, and hosted [[Benjamin Netanyahu|Netanyahu]] at the [[White House]] four times.
 (01:11:04:17) [[Nicholas J. Fuentes]] stated that [[Wall Street]] got its corporate tax cut and deregulation, and big agriculture got the Trump administration to stop deporting illegal immigrant farmers and not take soda off food stamps.
-(01:12:15:97) [[Nicholas J. Fuentes]] listed major donors to Donald Trump's campaign as [[Elon Musk]] ($270 million), [[Tim Mellon]] ($200 million), [[Sheldon Adelson|Miriam Adelson]] ($100 million), and [[Marc Andreessen]] ($65 million).
+(01:12:15:97) [[Nicholas J. Fuentes]] listed major donors to Donald Trump's campaign as [[Elon Musk]] ($270 million), [[Tim Mellon]] ($200 million), [[Miriam Adelson]] ($100 million), and [[Marc Andreessen]] ($65 million).
 (01:13:01:51) [[Nicholas J. Fuentes]] claimed the Trump administration is working overtime to fight anti-Semitism and [[Israel]]'s enemies, win the AI race, jack up the stock market, and cut corporate taxes, while cutting Medicaid to pay for corporate tax cuts and taking food stamps from 40 million people.
 
 ### AF 2025-11-06 1593
@@ -1168,7 +1168,7 @@
 
 
 ### AF 2025-08-04 1544
-(00:50:15) In the 2016 [[Republican Party|GOP]] primary, Donald Trump took a more neutral or balanced position on the [[Israel]]-[[Gaza Strip|Palestine]] conflict.
+(00:50:15) In the 2016 [[Republican Party|GOP]] primary, Donald Trump took a more neutral or balanced position on the [[Israel]]-[[Palestine]] conflict.
 
 
 ### AF 2025-08-04 1544
@@ -1176,7 +1176,7 @@
 
 
 ### AF 2025-08-04 1544
-(01:00:25) The Trump administration went to war with six out of eight [[Ivy League]] universities, seizing their federal funding unless they gave settlements to [[Jewish]] faculty, prevented pro-[[Gaza Strip|Palestine]] protests, installed an anti-Semitism monitor, and allowed oversight of [[Middle East]] Studies Departments by the [[United States Department of Education]].
+(01:00:25) The Trump administration went to war with six out of eight [[Ivy League]] universities, seizing their federal funding unless they gave settlements to [[Jewish]] faculty, prevented pro-[[Palestine]] protests, installed an anti-Semitism monitor, and allowed oversight of [[Middle East]] Studies Departments by the [[United States Department of Education]].
 
 
 ### AF 2025-08-04 1544
@@ -1212,7 +1212,7 @@
 
 
 ### AF 2025-07-31 1542
-(00:02:30) In response to [[Dominion of Canada|Canada]]'s announcement on [[Gaza Strip|Palestine]], Donald Trump stated on Truth Social that it would be very hard to reach a trade deal with [[Dominion of Canada|Canada]] and subsequently increased tariffs on Canadian goods by 10%.
+(00:02:30) In response to [[Dominion of Canada|Canada]]'s announcement on [[Palestine]], Donald Trump stated on Truth Social that it would be very hard to reach a trade deal with [[Dominion of Canada|Canada]] and subsequently increased tariffs on Canadian goods by 10%.
 
 
 ### AF 2025-07-31 1542
@@ -1228,7 +1228,7 @@
 
 
 ### AF 2025-07-31 1542
-(00:34:45) Donald Trump linked the ongoing [[US]]-[[Dominion of Canada|Canada]] trade negotiations, with a deadline of August 2nd, to [[Dominion of Canada|Canada]]'s stance on [[Gaza Strip|Palestine]], stating the recognition made a deal "very hard" and announcing a 10% tariff increase.
+(00:34:45) Donald Trump linked the ongoing [[US]]-[[Dominion of Canada|Canada]] trade negotiations, with a deadline of August 2nd, to [[Dominion of Canada|Canada]]'s stance on [[Palestine]], stating the recognition made a deal "very hard" and announcing a 10% tariff increase.
 
 
 ### AF 2025-07-31 1542
@@ -1296,7 +1296,7 @@
 
 
 ### AF 2025-07-28 1540
-(03:03:92) [[Nicholas J. Fuentes]] stated that Donald Trump's administration blackmailed [[Colombia]] and other [[Ivy League]] universities by withholding federal funds to force them to crack down on pro-[[Gaza Strip|Palestine]] protests and change curricula to be more pro-[[Israel]].
+(03:03:92) [[Nicholas J. Fuentes]] stated that Donald Trump's administration blackmailed [[Colombia]] and other [[Ivy League]] universities by withholding federal funds to force them to crack down on pro-[[Palestine]] protests and change curricula to be more pro-[[Israel]].
 
 
 ### AF 2025-07-28 1540
@@ -2432,10 +2432,10 @@
 (02:09:490) [[Nicholas J. Fuentes]] asserted that if Donald Trump were to die, the responsibility would lie with those who elevated [[JD Vance]] to power, suggesting their intentions were clear.
 
 ### AF 2024-11-08 1420
-(02:12:120) [[Howard Lutnick]], who leads Donald Trump's transition team, stated to [[Warner Bros. Discovery|CNN]] that [[Robert F. Kennedy Jr.]] would not be Secretary of [[Health and Human Services|HHS]].
+(02:12:120) [[Howard Lutnick]], who leads Donald Trump's transition team, stated to [[Warner Bros. Discovery|CNN]] that [[Robert F. Kennedy Jr.]] would not be Secretary of [[HHS]].
 
 ### AF 2024-11-08 1420
-(02:22:900) [[Nicholas J. Fuentes]] recalled Donald Trump's pledge to appoint [[Robert F. Kennedy Jr.]] as head of [[Health and Human Services|HHS]] to ban vaccines and fluoride, making [[United States|America]] "healthy again."
+(02:22:900) [[Nicholas J. Fuentes]] recalled Donald Trump's pledge to appoint [[Robert F. Kennedy Jr.]] as head of [[HHS]] to ban vaccines and fluoride, making [[United States|America]] "healthy again."
 
 ### AF 2024-11-07 1419
 (00:18:660) Donald Trump achieved a historic victory in the presidential election.
@@ -4592,7 +4592,7 @@
 (02:40:51) Donald Trump articulated his confidence in being able to quickly halt the war in [[Ukraine]] and conflicts in the [[Middle East]] by leveraging [[United States]] power and engaging directly with [[Vladimir Putin]] and [[Volodymyr Zelenskyy]].
 
 ### AF 2024-10-25 1413
-(02:41:21) [[Emmanuel Macron]], President of [[Government of France|France]], sought to tax [[United States]] companies, but Donald Trump's threat of a 100% tariff on [[French]] wines and champagnes led [[Emmanuel Macron]] to withdraw the tax within two minutes.
+(02:41:21) [[Emmanuel Macron]], President of [[France]], sought to tax [[United States]] companies, but Donald Trump's threat of a 100% tariff on [[French]] wines and champagnes led [[Emmanuel Macron]] to withdraw the tax within two minutes.
 
 ### AF 2024-10-25 1413
 (02:41:30) Donald Trump characterized the [[Joe Biden|Biden administration]] as "incompetent" and unable to effectively communicate, citing an instance where [[China|Chinese]] officials lectured [[United States]] representatives in [[Alaska]] about the [[United States]]' treatment of people.
@@ -4625,7 +4625,7 @@
 (02:54:34) [[Nicholas J. Fuentes]] previously argued against voting for Donald Trump, believing his presidency would not be significantly better than [[Kamala Harris]]', if at all.
 
 ### AF 2024-10-24 1412
-(03:00:58) [[Nicholas J. Fuentes]] believed that Donald Trump would inherit problems such as a potential war with [[Iran]], a future recession, and a defeat against the [[Government of Russia|Russian Federation]].
+(03:00:58) [[Nicholas J. Fuentes]] believed that Donald Trump would inherit problems such as a potential war with [[Iran]], a future recession, and a defeat against the [[Russian Federation]].
 
 ### AF 2024-10-24 1412
 (03:10:10) [[Nicholas J. Fuentes]] believed that a Donald Trump presidency would empower "the wrong people" on the right wing, who would "suffocate and fight [[us]]."
@@ -5030,7 +5030,7 @@
 (01:01:34:63) [[Howard Lutnick]], an ally of [[Jared Kushner]], will chair Donald Trump's transition team, responsible for hiring personnel.
 
 ### AF 2024-10-22 1410
-(01:01:46:49) [[Sheldon Adelson|Miriam Adelson]], a close friend of [[Jared Kushner]], is contributing $100 million to Donald Trump's campaign.
+(01:01:46:49) [[Miriam Adelson]], a close friend of [[Jared Kushner]], is contributing $100 million to Donald Trump's campaign.
 
 ### AF 2024-10-22 1410
 (01:02:37:03) [[Jared Kushner]], [[Ben Shapiro]], and Donald Trump visited Rebbe Schneerson's grave.
@@ -5141,7 +5141,7 @@
 (01:47:31) The [[Republican Jewish Coalition]] stated that Donald Trump was building the most pro-[[Israel]] administration in [[United States|U.S.]] history.
 
 ### AF 2024-11-19 1421
-(01:47:55) [[Sheldon Adelson|Miriam Adelson]], a pro-[[Israel]] donor, contributed $100 million to Donald Trump's campaign.
+(01:47:55) [[Miriam Adelson]], a pro-[[Israel]] donor, contributed $100 million to Donald Trump's campaign.
 
 ### AF 2024-11-19 1421
 (01:48:01) Donors like [[William Ackman]], who led efforts against anti-Semitism on campuses, supported Donald Trump and his allies.
@@ -5438,7 +5438,7 @@
 (01:04:30) Donald Trump promised to terminate the electric vehicle mandate on his first day back in office.
 
 ### AF 2024-10-25 1413
-(01:04:50) Donald Trump expressed openness to nuclear power, noting [[Government of France|France]]'s success with small, standardized plants, but criticized [[United States|U.S]]. projects for being over-regulated, citing an example where a nuclear plant wall had to be demolished for being a quarter-inch out of specification.
+(01:04:50) Donald Trump expressed openness to nuclear power, noting [[France]]'s success with small, standardized plants, but criticized [[United States|U.S]]. projects for being over-regulated, citing an example where a nuclear plant wall had to be demolished for being a quarter-inch out of specification.
 
 ### AF 2024-10-25 1413
 (01:06:33) Donald Trump recalled his uncle, [[MIT]] professor Dr. John Trump, a nuclear expert who warned that nuclear technology would eventually allow a weapon small enough to fit in a satchel to destroy [[New York]].
@@ -5819,7 +5819,7 @@
 (02:15:58) Donald Trump could not conceive of a charitable reason to oppose voter ID laws other than a desire to cheat.
 
 ### AF 2024-10-24 1412
-(00:54:20) [[Nicholas J. Fuentes]] argued that a potential second Donald Trump administration would be barely better than a [[Kamala Harris]] administration, inheriting problems like a potential war with [[Iran]], a future recession, and defeat against the [[Government of Russia|Russian Federation]].
+(00:54:20) [[Nicholas J. Fuentes]] argued that a potential second Donald Trump administration would be barely better than a [[Kamala Harris]] administration, inheriting problems like a potential war with [[Iran]], a future recession, and defeat against the [[Russian Federation]].
 
 ### AF 2024-10-24 1412
 (02:54:20) [[Nicholas J. Fuentes]] argued that the [[October 7th Attack]] was the sole event that revived Donald Trump's electoral chances by aligning donors and elites behind the reliably pro-[[Israel]] [[Republican Party]].
@@ -6014,7 +6014,7 @@
 (00:01:48) Donald Trump stated in an interview that the [[United States]] should not "totally get involved" with reinstalling the Shah in [[Iran]], but also asserted that [[Iran]] cannot have a nuclear weapon.
 
 ### AF 2024-10-17 1408
-(00:49:39) Donald Trump received massive funding for his main super PAC from pro-[[Israel]] donors, including a promised $100 million from [[Sheldon Adelson|Miriam Adelson]].
+(00:49:39) Donald Trump received massive funding for his main super PAC from pro-[[Israel]] donors, including a promised $100 million from [[Miriam Adelson]].
 
 ### AF 2024-10-17 1408
 (00:50:22) Pro-[[Israel]] donors to Donald Trump included [[Jacob Helberg]] and [[William Ackman]] from Wall Street and [[San Francisco Bay Area|Silicon Valley]].
@@ -6092,7 +6092,7 @@
 (00:04:20) [[Elon Musk]] donated $75 million to the Donald Trump campaign.
 
 ### AF 2024-10-16 1407
-(00:04:20) [[Sheldon Adelson|Miriam Adelson]] donated $100 million to the Donald Trump campaign.
+(00:04:20) [[Miriam Adelson]] donated $100 million to the Donald Trump campaign.
 
 ### AF 2024-10-16 1407
 (00:04:20) [[Peter Thiel]] donated to the Donald Trump campaign and was placed on the transition team, where he helped get [[Michael Anton]] a position on the [[U.S. National Security Council]].
@@ -6119,7 +6119,7 @@
 (01:17:00) [[Nicholas J. Fuentes]] predicted that if Donald Trump is elected, [[Jewish]]-backed interests will not shut down immigration but will escalate war with [[Iran]] and continue high immigration, as has historically happened.
 
 ### AF 2024-10-14 1405
-(02:08:58) Donald Trump owes his political resurgence to major pro-[[Israel]] donors, including [[Sheldon Adelson|Miriam Adelson]], [[Jeffrey Yass]], [[Isaac Perlmutter]], and [[David Sacks]], who funded his campaign.
+(02:08:58) Donald Trump owes his political resurgence to major pro-[[Israel]] donors, including [[Miriam Adelson]], [[Jeffrey Yass]], [[Isaac Perlmutter]], and [[David Sacks]], who funded his campaign.
 
 ### AF 2024-10-14 1405
 (02:09:05) Donald Trump's presidential transition team is led by [[Howard Lutnick]], a Zionist ally of [[Jared Kushner]], who advocates for military action against [[Iran]] and [[Hezbollah]].
@@ -6188,7 +6188,7 @@
 (01:32:08) [[Nicholas J. Fuentes]] suggested that a recent assassination attempt on Donald Trump would be falsely linked to [[Iran]] to build pretext for war, calling it "the most predictable shit ever."
 
 ### AF 2024-10-07 1401
-(00:09:49) Donald Trump held two events commemorating the [[October 7th Attack]], one with [[Chabad]] and another with [[Sheldon Adelson|Miriam Adelson]].
+(00:09:49) Donald Trump held two events commemorating the [[October 7th Attack]], one with [[Chabad]] and another with [[Miriam Adelson]].
 
 ### AF 2024-10-07 1401
 (00:11:59) [[Nicholas J. Fuentes]] argues that a second Donald Trump administration would result in an all-out war with [[Iran]].
@@ -6203,7 +6203,7 @@
 (00:24:31) [[Howard Lutnick]], a co-chair of Donald Trump's transition team, is actively using [[Jared Kushner]] to hire personnel for the forthcoming administration while stating that [[Heritage Foundation]]'s [[Project 2025]] is "radioactive" and that no one from it will be hired.
 
 ### AF 2024-10-07 1401
-(01:11:18) [[Sheldon Adelson|Miriam Adelson]] is writing a $100 million check to the Donald Trump campaign and has appeared with him at multiple events.
+(01:11:18) [[Miriam Adelson]] is writing a $100 million check to the Donald Trump campaign and has appeared with him at multiple events.
 
 ### AF 2024-10-07 1401
 (01:11:54) [[Nicholas J. Fuentes]] lists [[Howard Lutnick]], [[David Sacks]], [[William Ackman|Bill Ackman]], [[Jacob Helberg]], and [[Peter Thiel]] as allies who are financially supporting Donald Trump because they believe they will get their money's worth.
@@ -6266,7 +6266,7 @@
 (01:42:09) Trump attended two [[October 7th Attack|October 7th]] vigils, the first at the grave of Rebbe Menachem Schneerson of the [[Chabad]] Lubavitch dynasty in [[Brooklyn]] with [[Howard Lutnick]] and [[Ben Shapiro]].
 
 ### AF 2024-10-07 1401
-(01:43:24) Trump attended a second [[October 7th Attack|October 7th]] commemoration event with [[Sheldon Adelson|Miriam Adelson]], where he vowed not to allow a jihad on [[United States|America]] and [[Israel]], promised to support [[Israel]]'s war on terror, and stated all "[[Jews|Jew]] haters" would be deported.
+(01:43:24) Trump attended a second [[October 7th Attack|October 7th]] commemoration event with [[Miriam Adelson]], where he vowed not to allow a jihad on [[United States|America]] and [[Israel]], promised to support [[Israel]]'s war on terror, and stated all "[[Jews|Jew]] haters" would be deported.
 
 ### AF 2024-10-07 1401
 (01:44:38) Trump stated on [[Twitter]] that he would veto a federal abortion ban under any circumstances, asserting the issue should be decided by the states.
@@ -6713,7 +6713,7 @@
 (43:07:48) [[Nicholas J. Fuentes]] stated that Donald Trump is in the pocket of [[Israel]] and will give a war with [[Iran]], which is who "the [[Jews]] want."
 
 ### AF 2024-09-18 1391
-(44:44:08) [[Nicholas J. Fuentes]] referenced a $100 million donation from [[Sheldon Adelson|Miriam Adelson]] to Donald Trump with the intention of annexing the [[Gaza Strip|West Bank]], questioning how that would be possible with [[Iran]] in the way.
+(44:44:08) [[Nicholas J. Fuentes]] referenced a $100 million donation from [[Miriam Adelson]] to Donald Trump with the intention of annexing the [[Gaza Strip|West Bank]], questioning how that would be possible with [[Iran]] in the way.
 
 ### AF 2024-09-18 1391
 (46:50:48) [[Nicholas J. Fuentes]] claimed [[Ron DeSantis]], while in [[U.S. Congress|Congress]], demanded Donald Trump move the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]] to keep promises to his friend [[Sheldon Adelson]].
@@ -6725,7 +6725,7 @@
 (59:08:08) [[Nicholas J. Fuentes]] connected Donald Trump's friend [[Roger Stone]] to negotiating a 2016 meeting between Trump and [[Israel|Israeli]] ministers and spies.
 
 ### AF 2024-09-17 1390
-(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[Government of France|France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) Donald Trump ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get the president of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Sheldon Adelson|Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to Donald Trump and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Gaza Strip|Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and the president of [[Israel]] after pro-[[Gaza Strip|Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if Donald Trump wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
+(00:29:44) [[Israel]] launched a cyber attack against [[Hezbollah]] inside [[Lebanon]] by planting explosives inside encrypted messaging pagers and activating them remotely, killing a dozen people and injuring nearly 3,000. (00:46:32) The attack involved [[Israel]] intercepting a shipment of Taiwanese-made pagers ordered by [[Hezbollah]], implanting one or two ounces of explosive material in each device, and then hacking them to overheat the batteries and trigger the explosions. (00:54:48) The exploding pagers in [[Lebanon]] and [[Syria]] resulted in at least 11 deaths and 2,700 injuries, including an eight-year-old girl and the [[Iran|Iranian]] ambassador to [[Lebanon]], filling hospitals across the country. (01:15:22) [[Ben Shapiro]] joked about the pager attack, stating [[Hezbollah]] should be called "Hezla" because "[[Israel]] took their balls." (01:20:32) In April, [[Israel]] bombed the [[Iran|Iranian]] consulate in [[Damascus]], [[Syria]], killing seven [[Iran|Iranian]] generals in a deliberately provocative action. (01:22:52) In August, [[Israel]] assassinated [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]], on the inauguration day of [[Iran]]'s new president. (01:28:44) [[Israel]]'s defense minister [[Yoav Gallant]] met with senior [[Joe Biden|Biden]] administration official [[Amos Hochstein]] in [[Tel Aviv]] in an effort to prevent [[Israel]]'s conflict with [[Hezbollah]] from escalating into an all-out war. (01:38:06) The previous [[Iran|Iranian]] president died mysteriously in a helicopter crash earlier in the year, and the new reformist president, with the green light from the [[Ayatollah Ali Khamenei|Ayatollah]], has stated [[Iran]] is open to diplomatic relations with the [[United States]] and does not seek a nuclear arsenal. (01:46:04) [[Hezbollah]] uses pagers for encrypted messaging to evade surveillance by [[Israel|Israeli]] intelligence. (01:51:50) [[Israel]] possesses a nuclear arsenal and a superior conventional military compared to its neighbors, with the exception of [[Iran]] and its proxies. (01:53:42) [[Israel]]'s intention is to goad [[Hezbollah]] and [[Iran]] into attacking first, as the [[United States]] would be more likely to fight on [[Israel]]'s behalf if [[Israel]] is attacked. (02:04:00) After [[Israel]]'s April attack on the [[Iran|Iranian]] consulate, [[Iran]] retaliated two weeks later with a telegraphed barrage of hundreds of projectiles, most of which were intercepted by a coalition including the [[United States]], [[Jim Jordan|Jordan]], [[France]], and the [[United Kingdom]]. (02:05:40) After [[Israel]]'s August assassination in [[Tehran]], [[Iran]] prepared a massive counter-attack but backed down when the [[United States]] deployed two aircraft carriers and over two dozen warships to the [[region]], the largest naval presence since the 2003 invasion of [[Iraq]]. (02:12:20) [[Israel]] views [[Iran]] as the only threat to its regional hegemony, as [[Iran]] influences [[Shiite]] populations and militias across [[Syria]], [[Lebanon]], [[Iraq]], and [[Yemen]]. (02:17:00) [[Benjamin Netanyahu]] and the [[Likud]] leadership resolved after the [[October 7th Attack]] to use the crisis to draw the [[United States]] into defeating [[Iran]], enabling [[Israel]] to solve the [[Palestinian]] question and become the uncontested regional hegemon. (02:22:40) [[Israel]]'s long-term goal includes annexing [[Gaza Strip|Gaza]], the [[Gaza Strip|West Bank]], and southern [[Lebanon]], potentially seizing the [[Arab Republic of Egypt|Sinai Peninsula]], and building a third temple on the site of the Al-Aqsa Mosque. (02:26:20) [[Israel]]'s attack in [[Lebanon]] places [[Hezbollah]] and [[Iran]] in a checkmate position: if they retaliate, the [[United States]] will defend [[Israel]] and escalate the conflict; if they do not, [[Israel]] can continue to attack them with impunity and humiliate their governments. (02:32:20) [[Antony Blinken]], the [[United States]] [[U.S. Department of State|Secretary of State]], traveled to [[Israel]] after the [[October 7th Attack]] and stated, "I'm not coming to you just as [[United States|America]]'s [[U.S. Department of State|Secretary of State]]. I'm coming to you as a [[Jews|Jew]]." (02:32:40) [[Alejandro Mayorkas]], the [[United States]] Secretary of Homeland Security who administers the [[Secret Service]], previously ran the [[Hebrew Immigrant Aid Society]], a pro-immigration group that resettles refugees. (02:34:40) [[Nicholas J. Fuentes]] argued that [[United States]] foreign policy should seek to balance [[Israel]] and [[Iran]] by playing them off each other, reintegrating [[Iran]] diplomatically, and preventing either from dominating the [[Middle East]]'s resources and shipping routes. (02:38:20) [[China]] brokered a deal between [[Iran]] and [[Saudi Arabia]], and [[Iran]] is investing billions in [[Arab Republic of Egypt|Egypt]] and rebuilding relations with other Arab countries. (02:41:40) Donald Trump ripped up the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which was what [[Benjamin Netanyahu]] wanted. (02:43:20) [[Nicholas J. Fuentes]] stated that [[Israel]] is using the [[United States]]'s wealth and power to advance its own imperial ambitions, cannibalizing and weakening the [[United States]] in the process. (02:44:20) [[William Ackman|Bill Ackman]], a [[The Wall Street Journal|Wall Street]] billionaire, used his resources to help get the president of [[Harvard University]] fired for criticizing [[Israel]]. (02:44:40) [[Miriam Adelson]] is putting a hundred million dollars into the [[United States]] presidential election to achieve a pro-[[Israel]] outcome. (02:46:40) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]] flipped their support to Donald Trump and gave him millions in exchange for a promise, according to former [[Israel|Israeli]] ambassador [[David Friedman]], that he would annex the [[Gaza Strip|West Bank]] and [[Gaza Strip|Gaza]] and let [[Israel]] do what it wants. (02:48:00) After the [[October 7th Attack]], [[U.S. Congress|Congress]] moved to ban [[TikTok]], the only major social media platform where pro-[[Palestine]] hashtags were bigger than pro-[[Israel]] hashtags. (02:48:20) [[Elon Musk]] was summoned to [[Auschwitz]] in [[Germany]] for a meeting with [[Ben Shapiro]] and the president of [[Israel]] after pro-[[Palestine]] rhetoric surged on [[Twitter]]. (02:48:40) [[Facebook]] banned criticism of Zionism, and [[New York University]] made "Zionist" a protected class following pressure from billionaires who got the presidents of [[Harvard University]], the [[University of Pennsylvania]], and [[Columbia|Columbia University]] fired. (02:49:00) [[American Israel Public Affairs Committee|AIPAC]] plans to spend $100 million, and has already primaried members of "the squad" who voted against foreign aid to [[Israel]] with $10-15 million campaigns. (02:52:40) [[Nicholas J. Fuentes]] predicted that if Donald Trump wins the election and refuses to give [[Benjamin Netanyahu]] a war with [[Iran]], he will be assassinated and replaced by [[JD Vance]], who owes his political rise to [[Palantir Technologies]], a company [[Nicholas J. Fuentes]] characterized as a front for [[Israel Defense Forces|Mossad]]. (02:53:20) [[Nicholas J. Fuentes]] predicted a false flag attack on the [[United States]], similar to the [[September 11 attacks]], would be used to justify a war with [[Iran]] and [[Hezbollah]], leveraging the two aircraft carriers and two dozen [[U.S.]] warships already deployed to the [[region]]. (03:05:40) [[Nicholas J. Fuentes]] is scheduled to debate [[Sneako]] in person on an inaugural episode of the "Controlled Chaos" podcast on [[Rumble Inc.|Rumble]] in [[Miami]] in October, alongside hosts [[Myron]] and [[Elijah]]. (03:07:20) [[Keith Wood]] was supposed to debate a Muslim individual named Daniel, moderated by [[Sneako]], but the debate was postponed after [[Keith Wood]] agreed to a same-day debate and the other party canceled, yet proceeded to stream with [[Sneako]] that night anyway.(01:43:00) [[Nicholas J. Fuentes]] described [[City of Chicago]]'s Magnificent Mile as a location where people are being shot and killed, with Lakeshore Drive and I-90 being shut down due to fireworks.
 
 ### AF 2024-09-16 1389
 (00:00:00) [[Nicholas J. Fuentes]] opened his program by announcing a discussion on the second assassination attempt against Donald Trump.
@@ -6905,7 +6905,7 @@
 (01:08:58) Donald Trump had tapped his 2016 campaign manager, [[Corey Lewandowski]], to be an advisor to his
 
 ### AF 2024-09-12 1387
-(01:13:13) [[Sheldon Adelson|Miriam Adelson]] was giving $100 million to Donald Trump to secure his approval for [[Israel]]'s annexation of [[Gaza Strip|Palestine]].
+(01:13:13) [[Miriam Adelson]] was giving $100 million to Donald Trump to secure his approval for [[Israel]]'s annexation of [[Palestine]].
 
 ### AF 2024-09-12 1387
 (01:22:31) Donald Trump's 2018 border wall funding request was for $23 billion, while the [[United States]] later provided $250 billion to [[Ukraine]], $26 billion to [[Israel]], $1.3 billion to [[Arab Republic of Egypt|Egypt]], and $7 billion to [[Taiwan]].
@@ -6929,7 +6929,7 @@
 (00:06:31) [[Nicholas J. Fuentes]] argued that Donald Trump's campaign rhetoric on immigration lacks follow-through, a recurring issue with both major political parties.
 
 ### AF 2024-09-11 1386
-(00:15:00) [[Nicholas J. Fuentes]] described his nearly decade-long story as intertwined with the Donald Trump administration and the history of the [[United States|American]] right, having been present for events like the [[City of Charlottesville|Charlottesville]] rally and the [[January 6th Attack]].
+(00:15:00) [[Nicholas J. Fuentes]] described his nearly decade-long story as intertwined with the Donald Trump administration and the history of the [[United States|American]] right, having been present for events like the [[Charlottesville]] rally and the [[January 6th Attack]].
 
 ### AF 2024-09-11 1386
 (00:31:52) The 90-minute general election debate between Donald Trump and [[Kamala Harris]] was hosted by [[ABC News]] and featured heavily one-sided moderation against Donald Trump.
@@ -7010,7 +7010,7 @@
 (01:08:41) [[Nicholas J. Fuentes]] predicted that any attempt at mass deportation under Donald Trump would be met with wall-to-wall media coverage of "crying parents and children," causing the administration to back down.
 
 ### AF 2024-09-11 1386
-(01:09:03) [[Nicholas J. Fuentes]] argued that Donald Trump has been following his suggested playbook, such as visiting the border in [[City of Phoenix|Phoenix]] and shouting out [[Joe Arpaio]], and focusing on immigration during the debate.
+(01:09:03) [[Nicholas J. Fuentes]] argued that Donald Trump has been following his suggested playbook, such as visiting the border in [[Phoenix]] and shouting out [[Joe Arpaio]], and focusing on immigration during the debate.
 
 ### AF 2024-09-11 1386
 (01:10:01) [[Nicholas J. Fuentes]] demanded Donald Trump produce a serious immigration policy proposal written by restrictionists like [[Stephen Miller]] or [[Mark Krikorian]], moving beyond rhetoric to commitment.
@@ -7028,7 +7028,7 @@
 (00:03:48) A [[The New York Times|New York Times]]/Siena poll showed Donald Trump leading [[Kamala Harris]] in national polling, while other betting odds sites indicated the race was a dead heat.
 
 ### AF 2024-09-09 1385
-(00:04:41) Donald Trump attended a gala for the [[Republican Jewish Coalition]] where [[Sheldon Adelson|Miriam Adelson]] was present and praised the [[State of Israel]].
+(00:04:41) Donald Trump attended a gala for the [[Republican Jewish Coalition]] where [[Miriam Adelson]] was present and praised the [[State of Israel]].
 
 ### AF 2024-09-09 1385
 (00:05:06) Polling indicated Donald Trump had lost his lead with [[Catholic Church|Catholic]] voters to [[Kamala Harris]] and had lost considerable support among evangelical [[Christianity|Christians]].
@@ -7046,7 +7046,7 @@
 (00:55:01) Donald Trump had consistently indicated for four months that if elected, he would expand legal immigration, including stapling green cards to diplomas for foreign students.
 
 ### AF 2024-09-09 1385
-(00:57:01) Donald Trump, after receiving a planned $100 million donation from [[Sheldon Adelson|Miriam Adelson]], was threatening a war with [[Iran]].
+(00:57:01) Donald Trump, after receiving a planned $100 million donation from [[Miriam Adelson]], was threatening a war with [[Iran]].
 
 ### AF 2024-09-09 1385
 (00:57:42) Donald Trump's campaign managers were [[Chris LaCivita]] and [[Susie Wiles]].
@@ -7067,7 +7067,7 @@
 (01:03:09) [[Mike Cernovich]], [[Ashley St Claire]], [[Jack Posobiec]], and other pro-Donald Trump social media figures blamed pro-life voters for being alienated rather than Donald Trump for his abortion stance.
 
 ### AF 2024-09-09 1385
-(01:05:36) [[Sheldon Adelson|Miriam Adelson]] planned to cut a $100 million check to Donald Trump's campaign, following donations she and her husband [[Sheldon Adelson]] made in 2016 and 2020.
+(01:05:36) [[Miriam Adelson]] planned to cut a $100 million check to Donald Trump's campaign, following donations she and her husband [[Sheldon Adelson]] made in 2016 and 2020.
 
 ### AF 2024-09-09 1385
 (01:05:52) [[Jacob Helberg]] and [[William Ackman|Bill Ackman]], lifelong [[Democratic Party|Democrats]], became Donald Trump supporters after the [[October 7th Attack]] and began cutting large checks to his campaign.
@@ -7079,10 +7079,10 @@
 (01:10:46) Former [[U.S. Ambassador to Israel]] [[David Friedman]] was publishing a forthcoming book to pitch a one-state solution involving [[Israel]]'s annexation of the [[Gaza Strip]] and [[Gaza Strip|West Bank]] to a future President Donald Trump.
 
 ### AF 2024-09-09 1385
-(01:11:30) A [[Haaretz]] article earlier in the year stated [[Sheldon Adelson|Miriam Adelson]] was giving $100 million to Donald Trump in exchange for support for [[Israel]]'s annexation of the [[Gaza Strip|West Bank]].
+(01:11:30) A [[Haaretz]] article earlier in the year stated [[Miriam Adelson]] was giving $100 million to Donald Trump in exchange for support for [[Israel]]'s annexation of the [[Gaza Strip|West Bank]].
 
 ### AF 2024-09-09 1385
-(01:13:18) [[Nikki Haley]] endorsed Donald Trump in May while in [[Israel]] at the behest of her friend [[Sheldon Adelson|Miriam Adelson]], after which [[Sheldon Adelson|Miriam Adelson]] said she would cut a check to Donald Trump's campaign.
+(01:13:18) [[Nikki Haley]] endorsed Donald Trump in May while in [[Israel]] at the behest of her friend [[Miriam Adelson]], after which [[Miriam Adelson]] said she would cut a check to Donald Trump's campaign.
 
 ### AF 2024-09-09 1385
 (01:13:51) [[Benjamin Netanyahu]] remained in a holding pattern in the war in [[Gaza Strip|Gaza]], with the conflict expanding into the [[Gaza Strip|West Bank]] in anticipation of a Donald Trump victory.
@@ -7091,7 +7091,7 @@
 (01:32:29) The last action of the Donald Trump administration was to give Venezuelans Temporary Protected Status.
 
 ### AF 2024-09-09 1385
-(02:13:05) A super chatter suggested [[Sheldon Adelson|Miriam Adelson]]'s $100 million donation to Donald Trump's [[Preserve America]] super PAC might have stipulations to allow hundreds of thousands of [[Palestinian]] refugees into the [[United States]] once [[Israel]] takes over the [[Gaza Strip]] and [[Gaza Strip|West Bank]].
+(02:13:05) A super chatter suggested [[Miriam Adelson]]'s $100 million donation to Donald Trump's [[Preserve America]] super PAC might have stipulations to allow hundreds of thousands of [[Palestinian]] refugees into the [[United States]] once [[Israel]] takes over the [[Gaza Strip]] and [[Gaza Strip|West Bank]].
 
 ### AF 2024-09-09 1385
 (02:25:46) [[Nicholas J. Fuentes]] predicted [[Kamala Harris]] would win the presidential debate against Donald Trump because Donald Trump was unprepared, would get defensive on scandals and abortion, and struggled to debate women effectively.
@@ -7145,7 +7145,7 @@
 (01:04:04) [[Nicholas J. Fuentes]] argued that the discovery and arrest of [[Linda Sun]] demonstrated that [[China]] does not control the [[United States]] government, as both the Donald Trump and [[Joe Biden]] administrations have taken aggressive actions against [[China]], including arming [[Taiwan]].
 
 ### AF 2024-09-03 1382
-(01:19:16) [[Nicholas J. Fuentes]] cited examples of [[Jewish influence]], including [[William Ackman|Bill Ackman]]'s role in the firing of [[Harvard University]]'s president over pro-[[Gaza Strip|Palestine]] protests and [[Sheldon Adelson|Miriam Adelson]] donating $100 million to Donald Trump to expand [[Israel]]i settlements, as analogous to foreign agent activity.
+(01:19:16) [[Nicholas J. Fuentes]] cited examples of [[Jewish influence]], including [[William Ackman|Bill Ackman]]'s role in the firing of [[Harvard University]]'s president over pro-[[Palestine]] protests and [[Miriam Adelson]] donating $100 million to Donald Trump to expand [[Israel]]i settlements, as analogous to foreign agent activity.
 
 ### AF 2024-09-03 1382
 (01:34:25) An audience member asked if Donald Trump had been compromised by the [[American Israel Public Affairs Committee|Israel lobby]], noting a stark change in his rhetoric after the assassination attempt.
@@ -7355,7 +7355,7 @@
 (01:45:02) [[Nicholas J. Fuentes]] criticized Donald Trump for repeatedly committing to policies of "massive legal immigration," including stapling green cards to foreign student diplomas.
 
 ### AF 2024-08-26 1377
-(01:52:10) [[Nicholas J. Fuentes]] stated that Donald Trump attended a gala for the group "Stop Anti-Semitism" with billionaire donor [[Sheldon Adelson|Miriam Adelson]] and declared "[[Israel]] is too small."
+(01:52:10) [[Nicholas J. Fuentes]] stated that Donald Trump attended a gala for the group "Stop Anti-Semitism" with billionaire donor [[Miriam Adelson]] and declared "[[Israel]] is too small."
 
 ### AF 2024-08-26 1377
 (01:55:44) [[Nicholas J. Fuentes]] criticized Donald Trump for a social media post stating his administration would be "great for women's reproductive rights," which [[Nicholas J. Fuentes]] interpreted as support for abortion.
@@ -7436,7 +7436,7 @@
 (01:50:56) [[Nicholas J. Fuentes]] criticized commentator Emerald Robinson for crediting herself and [[Raheem Kassam]] for shifts in Donald Trump's campaign rhetoric, rather than his own long-standing advocacy.
 
 ### AF 2024-08-15 1375
-(00:01:31) [[Nicholas J. Fuentes]] announced a major victory in his "GROYPER WAR 2" campaign, claiming his pressure forced the Trump campaign to make concessions. (00:01:31) The Trump campaign rehired [[Corey Lewandowski]], the 2016 campaign manager, placing him in a senior role above advisors [[Chris LaCivita]] and [[Susie Wiles]]. (00:02:35) Donald Trump had not been holding many events in swing states and gave a press conference focused on inflation, which [[Nicholas J. Fuentes]] criticized as low-energy and disconnected from urgent issues like immigration and crime. (00:05:47) [[Nicholas J. Fuentes]] announced that his supporters would begin operations in [[State of Michigan|Michigan]], with a formal deployment date to be announced the following Monday. (00:07:35) [[Nicholas J. Fuentes]] stated that his campaign had received massive coverage from [[Warner Bros. Discovery|CNN]], [[MSNBC]], [[Washington Post]], and [[Newsweek]], and trended on [[Twitter]] and [[Truth Social]]. (00:08:20) [[Nicholas J. Fuentes]]'s campaign purchased the domain chrislacivita.com as part of its pressure tactics against the Trump campaign. (00:11:04) [[Nicholas J. Fuentes]] argued that the Trump campaign pandered to [[Israel]], [[American Israel Public Affairs Committee|AIPAC]], [[The Wall Street Journal|Wall Street]], [[San Francisco Bay Area|Silicon Valley]], minority voters, and corporations, but not to the concerns of white [[United States|Americans]] regarding immigration and crime. (00:12:58) The Trump campaign platform included a pledge to deport [[Hamas]] radicals from universities, a move [[Nicholas J. Fuentes]] characterized as pandering to [[Israel]]. (00:13:44) [[Nicholas J. Fuentes]] stated that 40,000 [[U.S.]] troops were stationed in the [[Middle East]] with over a dozen warships, and that the [[Israel|Israeli]] public was increasingly supportive of an all-out war in [[Lebanon]]. (00:14:18) [[Nicholas J. Fuentes]] cited a poll showing 87% of [[United States|Americans]] believed the border was a problem. (00:15:29) [[Nicholas J. Fuentes]] described [[City of Chicago|Chicago]] as a beautiful city being destroyed by adolescent [[black]] male criminals, citing car thefts, carjackings, and shootings. (00:16:44) [[Nicholas J. Fuentes]] claimed Donald Trump did not address [[black]] crime in [[City of Chicago|Chicago]] but instead pandered to liberal [[black]] journalists. (00:18:21) [[Nicholas J. Fuentes]] recounted an incident where a [[Republican Party|Republican]] official in [[State of Michigan|Michigan]] was shot and killed by a [[black]] man in front of his family during a walk. (00:20:25) [[Nicholas J. Fuentes]] criticized activist [[Scott Presler]] for focusing on getting the felon vote, arguing that felons should be locked up. (00:23:02) [[Nicholas J. Fuentes]] described caravans of illegal immigrants marching into [[United States|U.S.]] cities like an invading army. (00:25:53) [[Nicholas J. Fuentes]] claimed the Trump campaign's decision to rehire [[Corey Lewandowski]] was accelerated by the pressure from his "GROYPER WAR 2" campaign. (00:26:04) [[Corey Lewandowski]] was rehired by the Trump reelection campaign and placed in a senior advisory role above [[Chris LaCivita]] and [[Susie Wiles]]. (00:28:49) Polling showed [[Kamala Harris]] had closed the gap on Donald Trump in battleground states where Trump had held wide leads over [[Joe Biden|Biden]]. (00:29:10) In an effort to disrupt [[Kamala Harris|Harris]]'s momentum, the Trump campaign ramped up ad spending, participated in public appearances, and posted on [[Twitter]] for the first [[time]] in almost a year. (00:29:36) Donald Trump was set to hold a press conference at his [[New Jersey]] golf club. (00:29:48) [[Tara Palmieri]] of [[Puck News]] reported that [[Corey Lewandowski]] told allies he was returning as a campaign chairman, a layer above [[Susie Wiles]] and [[Chris LaCivita]], because Trump wanted the team that helped him win in 2016 back. (00:30:22) [[Nicholas J. Fuentes]] referenced a [[Daily Mail]] article stating Donald Trump wanted to fire [[Chris LaCivita]] and [[Susie Wiles]]. (00:31:25) [[Nicholas J. Fuentes]] claimed a cadre of paid influencers on [[Twitter]], including [[Charlie Kirk]] and [[Jack Posobiec]], were telling supporters everything was fine with the Trump campaign, which he argued was misleading. (00:32:31) [[Nicholas J. Fuentes]] argued the Trump campaign was losing support among non-college-educated white voters in the Rust Belt and had lost all momentum since the [[Republican Party|RNC]]. (00:38:09) [[Nicholas J. Fuentes]] stated that Trump's decision to shake up his campaign staff demonstrated he knew the race was tightening and his lead was diminishing. (00:40:11) [[Nicholas J. Fuentes]] argued that bringing back [[Corey Lewandowski]] showed Trump was nostalgic for the 2016 campaign energy and knew his current team was underperforming. (00:41:45) [[Nicholas J. Fuentes]] claimed sources on the Trump campaign told him the decision to put [[Corey Lewandowski]] at the top was accelerated by the pressure from his "GROYPER WAR 2" campaign. (00:42:00) [[Nicholas J. Fuentes]]'s campaign got "Fire LaCivita" trending on [[Twitter]] and blew up the Trump campaign's emails, which he claimed led to the staff change. (00:43:34) Donald Trump gave a press conference in [[North Carolina]] where he stood in front of a table of groceries and complained about the price of bacon and other goods, a strategy [[Nicholas J. Fuentes]] criticized as ineffective. (00:45:30) [[Kamala Harris]] campaigned in [[Atlanta]] with the [[Migos]] and in [[Wisconsin]] with [[Bon Iver]], drawing large, energetic crowds, while Trump focused on inflation. (00:46:33) [[The Wall Street Journal]] reported that in a speech in [[North Carolina]], Donald Trump complained bacon cost four or five times as much as it did a few years ago. (00:48:48) [[The Wall Street Journal]] noted that while inflation was still an issue with voters, it was improving, with consumer prices up 3% from a year earlier in July, the lowest rate since 2021. (00:50:50) [[Nicholas J. Fuentes]] argued that to win the election, Donald Trump needed to make it a referendum on immigration, crime, and avoiding [[World War III]], not inflation. (00:51:46) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democrats]] win by turning out non-white voters and young people through identity politics and cultural issues, not economic messaging. (00:55:49) [[Nicholas J. Fuentes]] suggested Donald Trump should give a speech in [[Arizona]] with [[Joe Arpaio]] announcing a plan to build a 30-foot border wall funded by taxing remittances and to deport five million illegal immigrants. (00:57:09) [[Nicholas J. Fuentes]] claimed [[Kamala Harris]] and [[Joe Biden|Biden]] were trying to position themselves as tough on the border, and Trump should call their bluff by proposing even stricter measures. (01:00:05) [[Nicholas J. Fuentes]] stated there were 40,000 [[U.S.]] troops in the [[Middle East]] and suggested Trump should campaign in [[Georgia]] on a promise not to start new wars. (01:01:02) [[Nicholas J. Fuentes]] proposed a campaign strategy for Donald Trump: talk about crime in [[State of Michigan|Michigan]], trade in [[Wisconsin]], the border in [[Arizona]], and avoiding war in [[Georgia]] and [[North Carolina]]. (01:03:40) [[Nicholas J. Fuentes]] argued that his proposed campaign strategy of re-industrialization, building a border wall, law and order, and non-interventionism was the winning 2016 playbook and remained popular. (01:07:29) [[Nicholas J. Fuentes]] claimed the Trump campaign had drifted into conventional [[Republican Party|Republican]] issues like tax cuts and low inflation, which he attributed to advisors like [[Grover Norquist]] and the [[Chamber of Commerce]]. (01:13:15) [[Nicholas J. Fuentes]] announced that his "GROYPER WAR" operations in [[State of Michigan|Michigan]] would be peaceful, legal, and involve no violence, intimidation, or association with controversial symbols. (01:16:58) [[Nicholas J. Fuentes]] stated he would not be doing a show the next day due to his birthday but would return on Monday to cover the [[DNC]] convention and give a "State of the Campaign" address. (01:18:50) [[Nicholas J. Fuentes]] claimed his phone had been blowing up with people offering to get involved in the campaign, including offers of trucking services, editing, photography, and web development. (01:19:24) [[Nicholas J. Fuentes]] announced he would open a portal on chrislacivita.com for people to submit their emails or tickets to volunteer for his campaign. (01:20:45) [[Nicholas J. Fuentes]] declared that enlistment for his "GROYPER WAR 2" campaign would start on Monday, with a countdown to deployment in [[State of Michigan|Michigan]]. (01:25:53) [[Nicholas J. Fuentes]] claimed that [[Starbucks]] was firing employees who protested [[Israel]]'s policy in [[Gaza Strip|Gaza]], similar to actions taken at [[Harvard University|Harvard]] and the [[University of Pennsylvania]]. (01:27:15) [[Nicholas J. Fuentes]] argued that if Trump won without disavowing new wars, he would be able to rally the country to war with media support, making opposition in 2028 more difficult. (01:29:48) [[Nicholas J. Fuentes]] stated that the entire right wing on the internet was now split between being pro- or anti-[[Nicholas J. Fuentes|Fuentes]], making him more polarizing than Trump. (01:33:34) A super chatter from [[Georgia]] reported that his [[black]] friends wanted to know why Trump appeared "neutered," to which he replied that the campaign managers were "boomers on their way out." (01:34:59) A super chatter from [[Dearborn]], [[State of Michigan|Michigan]], who identified as a Muslim, expressed support for [[Nicholas J. Fuentes]] and stated he would call on the Muslim population to join the "GROYPERS." (01:38:09) A super chatter who attended a Trump rally in [[Asheville]] was interviewed and criticized [[Chris LaCivita]], [[Susie Wiles]], and [[JD Vance]], which [[Nicholas J. Fuentes]] called "mean magic." (01:45:00) [[Nicholas J. Fuentes]] cited [[South Africa]] as an example of a government of resentful non-whites leading to white people being killed and raped, warning it could happen in the [[United States]]. (01:45:36) [[Nicholas J. Fuentes]] referenced [[Laura Loomer]] denying that he had anything to do with [[Corey Lewandowski]]'s hiring, which he argued only proved it was plausible. (01:47:06) A super chatter identifying as a [[Palestinian]] [[Christianity|Christian]] thanked [[Nicholas J. Fuentes]] for speaking on behalf of [[Gaza Strip|Gaza]] and requested prayers for the [[Christianity|Christian]] village of [[Beit Jala]] in the [[Gaza Strip|West Bank]], which he said was facing ethnic cleansing by [[Israel|Israeli]] settlers. (01:48:20) A super chatter who identified as an indie game developer offered to make an "[[United States|America]] First" turn-based pixel RPG, to which [[Nicholas J. Fuentes]] expressed interest. (01:49:04) A super chatter reported that on an [[Aidan Ross]] stream, Donald Trump complimented [[Alexandria Ocasio-Cortez|AOC]], saying she had a "beautiful spark." (01:49:19) A super chatter with a customer who worked for the Trump campaign said many people agreed with [[Nicholas J. Fuentes]] about [[Chris LaCivita]] and [[Susie Wiles]] and thought they would be fired after the [[DNC]] convention. (01:52:10) A super chatter asked if Trump's current trajectory or [[Vivek Ramaswamy]] promoting libertarianism and mass immigration was worse for the [[United States|America]] First movement; [[Nicholas J. Fuentes]] said it depended on the election outcome but that [[Vivek Ramaswamy|Ramaswamy]] would be the natural successor if Trump failed. (01:57:53) A super chatter asked about the potential for in-real-life action in states other than [[State of Michigan|Michigan]] and for [[Nicholas J. Fuentes]]'s thoughts on "white guy tacos." (02:00:10) A super chatter from [[New Orleans]] expressed support and awaited [[Nicholas J. Fuentes]]'s call. (02:03:15) A super chatter shared that his mother initially turned against [[Nicholas J. Fuentes]] due to attacks from "[[Jews]] and neocons on [[Twitter]]," but after watching a clip of [[Nicholas J. Fuentes|Fuentes]]'s mother call into his show, she realized he was human and mostly supported [[United States|America]] First. (02:05:06) [[Nicholas J. Fuentes]] praised a supporter known as "10 Rio" as a loyal [[United States|American]] who loved the country and was an asset to the cause, despite taking abuse. (02:06:39) [[Nicholas J. Fuentes]] criticized commentator [[Brandon (BAP)]] for skipping "GROYPER WAR 2" to go to [[South Korea]], calling it transnational behavior and suggesting he was looking for a specific type of companionship. (02:07:27) [[Nicholas J. Fuentes]] discussed commentator [[Chuck (likely Charles Johnson)]], noting his brilliant intellect but a mix of facts and wild
+(00:01:31) [[Nicholas J. Fuentes]] announced a major victory in his "GROYPER WAR 2" campaign, claiming his pressure forced the Trump campaign to make concessions. (00:01:31) The Trump campaign rehired [[Corey Lewandowski]], the 2016 campaign manager, placing him in a senior role above advisors [[Chris LaCivita]] and [[Susie Wiles]]. (00:02:35) Donald Trump had not been holding many events in swing states and gave a press conference focused on inflation, which [[Nicholas J. Fuentes]] criticized as low-energy and disconnected from urgent issues like immigration and crime. (00:05:47) [[Nicholas J. Fuentes]] announced that his supporters would begin operations in [[State of Michigan|Michigan]], with a formal deployment date to be announced the following Monday. (00:07:35) [[Nicholas J. Fuentes]] stated that his campaign had received massive coverage from [[Warner Bros. Discovery|CNN]], [[MSNBC]], [[Washington Post]], and [[Newsweek]], and trended on [[Twitter]] and [[Truth Social]]. (00:08:20) [[Nicholas J. Fuentes]]'s campaign purchased the domain chrislacivita.com as part of its pressure tactics against the Trump campaign. (00:11:04) [[Nicholas J. Fuentes]] argued that the Trump campaign pandered to [[Israel]], [[American Israel Public Affairs Committee|AIPAC]], [[The Wall Street Journal|Wall Street]], [[San Francisco Bay Area|Silicon Valley]], minority voters, and corporations, but not to the concerns of white [[United States|Americans]] regarding immigration and crime. (00:12:58) The Trump campaign platform included a pledge to deport [[Hamas]] radicals from universities, a move [[Nicholas J. Fuentes]] characterized as pandering to [[Israel]]. (00:13:44) [[Nicholas J. Fuentes]] stated that 40,000 [[U.S.]] troops were stationed in the [[Middle East]] with over a dozen warships, and that the [[Israel|Israeli]] public was increasingly supportive of an all-out war in [[Lebanon]]. (00:14:18) [[Nicholas J. Fuentes]] cited a poll showing 87% of [[United States|Americans]] believed the border was a problem. (00:15:29) [[Nicholas J. Fuentes]] described [[Chicago]] as a beautiful city being destroyed by adolescent [[black]] male criminals, citing car thefts, carjackings, and shootings. (00:16:44) [[Nicholas J. Fuentes]] claimed Donald Trump did not address [[black]] crime in [[Chicago]] but instead pandered to liberal [[black]] journalists. (00:18:21) [[Nicholas J. Fuentes]] recounted an incident where a [[Republican Party|Republican]] official in [[State of Michigan|Michigan]] was shot and killed by a [[black]] man in front of his family during a walk. (00:20:25) [[Nicholas J. Fuentes]] criticized activist [[Scott Presler]] for focusing on getting the felon vote, arguing that felons should be locked up. (00:23:02) [[Nicholas J. Fuentes]] described caravans of illegal immigrants marching into [[United States|U.S.]] cities like an invading army. (00:25:53) [[Nicholas J. Fuentes]] claimed the Trump campaign's decision to rehire [[Corey Lewandowski]] was accelerated by the pressure from his "GROYPER WAR 2" campaign. (00:26:04) [[Corey Lewandowski]] was rehired by the Trump reelection campaign and placed in a senior advisory role above [[Chris LaCivita]] and [[Susie Wiles]]. (00:28:49) Polling showed [[Kamala Harris]] had closed the gap on Donald Trump in battleground states where Trump had held wide leads over [[Joe Biden|Biden]]. (00:29:10) In an effort to disrupt [[Kamala Harris|Harris]]'s momentum, the Trump campaign ramped up ad spending, participated in public appearances, and posted on [[Twitter]] for the first [[time]] in almost a year. (00:29:36) Donald Trump was set to hold a press conference at his [[New Jersey]] golf club. (00:29:48) [[Tara Palmieri]] of [[Puck News]] reported that [[Corey Lewandowski]] told allies he was returning as a campaign chairman, a layer above [[Susie Wiles]] and [[Chris LaCivita]], because Trump wanted the team that helped him win in 2016 back. (00:30:22) [[Nicholas J. Fuentes]] referenced a [[Daily Mail]] article stating Donald Trump wanted to fire [[Chris LaCivita]] and [[Susie Wiles]]. (00:31:25) [[Nicholas J. Fuentes]] claimed a cadre of paid influencers on [[Twitter]], including [[Charlie Kirk]] and [[Jack Posobiec]], were telling supporters everything was fine with the Trump campaign, which he argued was misleading. (00:32:31) [[Nicholas J. Fuentes]] argued the Trump campaign was losing support among non-college-educated white voters in the Rust Belt and had lost all momentum since the [[Republican Party|RNC]]. (00:38:09) [[Nicholas J. Fuentes]] stated that Trump's decision to shake up his campaign staff demonstrated he knew the race was tightening and his lead was diminishing. (00:40:11) [[Nicholas J. Fuentes]] argued that bringing back [[Corey Lewandowski]] showed Trump was nostalgic for the 2016 campaign energy and knew his current team was underperforming. (00:41:45) [[Nicholas J. Fuentes]] claimed sources on the Trump campaign told him the decision to put [[Corey Lewandowski]] at the top was accelerated by the pressure from his "GROYPER WAR 2" campaign. (00:42:00) [[Nicholas J. Fuentes]]'s campaign got "Fire LaCivita" trending on [[Twitter]] and blew up the Trump campaign's emails, which he claimed led to the staff change. (00:43:34) Donald Trump gave a press conference in [[North Carolina]] where he stood in front of a table of groceries and complained about the price of bacon and other goods, a strategy [[Nicholas J. Fuentes]] criticized as ineffective. (00:45:30) [[Kamala Harris]] campaigned in [[Atlanta]] with the [[Migos]] and in [[Wisconsin]] with [[Bon Iver]], drawing large, energetic crowds, while Trump focused on inflation. (00:46:33) [[The Wall Street Journal]] reported that in a speech in [[North Carolina]], Donald Trump complained bacon cost four or five times as much as it did a few years ago. (00:48:48) [[The Wall Street Journal]] noted that while inflation was still an issue with voters, it was improving, with consumer prices up 3% from a year earlier in July, the lowest rate since 2021. (00:50:50) [[Nicholas J. Fuentes]] argued that to win the election, Donald Trump needed to make it a referendum on immigration, crime, and avoiding [[World War III]], not inflation. (00:51:46) [[Nicholas J. Fuentes]] stated that [[Democratic Party|Democrats]] win by turning out non-white voters and young people through identity politics and cultural issues, not economic messaging. (00:55:49) [[Nicholas J. Fuentes]] suggested Donald Trump should give a speech in [[Arizona]] with [[Joe Arpaio]] announcing a plan to build a 30-foot border wall funded by taxing remittances and to deport five million illegal immigrants. (00:57:09) [[Nicholas J. Fuentes]] claimed [[Kamala Harris]] and [[Joe Biden|Biden]] were trying to position themselves as tough on the border, and Trump should call their bluff by proposing even stricter measures. (01:00:05) [[Nicholas J. Fuentes]] stated there were 40,000 [[U.S.]] troops in the [[Middle East]] and suggested Trump should campaign in [[Georgia]] on a promise not to start new wars. (01:01:02) [[Nicholas J. Fuentes]] proposed a campaign strategy for Donald Trump: talk about crime in [[State of Michigan|Michigan]], trade in [[Wisconsin]], the border in [[Arizona]], and avoiding war in [[Georgia]] and [[North Carolina]]. (01:03:40) [[Nicholas J. Fuentes]] argued that his proposed campaign strategy of re-industrialization, building a border wall, law and order, and non-interventionism was the winning 2016 playbook and remained popular. (01:07:29) [[Nicholas J. Fuentes]] claimed the Trump campaign had drifted into conventional [[Republican Party|Republican]] issues like tax cuts and low inflation, which he attributed to advisors like [[Grover Norquist]] and the [[Chamber of Commerce]]. (01:13:15) [[Nicholas J. Fuentes]] announced that his "GROYPER WAR" operations in [[State of Michigan|Michigan]] would be peaceful, legal, and involve no violence, intimidation, or association with controversial symbols. (01:16:58) [[Nicholas J. Fuentes]] stated he would not be doing a show the next day due to his birthday but would return on Monday to cover the [[DNC]] convention and give a "State of the Campaign" address. (01:18:50) [[Nicholas J. Fuentes]] claimed his phone had been blowing up with people offering to get involved in the campaign, including offers of trucking services, editing, photography, and web development. (01:19:24) [[Nicholas J. Fuentes]] announced he would open a portal on chrislacivita.com for people to submit their emails or tickets to volunteer for his campaign. (01:20:45) [[Nicholas J. Fuentes]] declared that enlistment for his "GROYPER WAR 2" campaign would start on Monday, with a countdown to deployment in [[State of Michigan|Michigan]]. (01:25:53) [[Nicholas J. Fuentes]] claimed that [[Starbucks]] was firing employees who protested [[Israel]]'s policy in [[Gaza Strip|Gaza]], similar to actions taken at [[Harvard University|Harvard]] and the [[University of Pennsylvania]]. (01:27:15) [[Nicholas J. Fuentes]] argued that if Trump won without disavowing new wars, he would be able to rally the country to war with media support, making opposition in 2028 more difficult. (01:29:48) [[Nicholas J. Fuentes]] stated that the entire right wing on the internet was now split between being pro- or anti-[[Nicholas J. Fuentes|Fuentes]], making him more polarizing than Trump. (01:33:34) A super chatter from [[Georgia]] reported that his [[black]] friends wanted to know why Trump appeared "neutered," to which he replied that the campaign managers were "boomers on their way out." (01:34:59) A super chatter from [[Dearborn]], [[State of Michigan|Michigan]], who identified as a Muslim, expressed support for [[Nicholas J. Fuentes]] and stated he would call on the Muslim population to join the "GROYPERS." (01:38:09) A super chatter who attended a Trump rally in [[Asheville]] was interviewed and criticized [[Chris LaCivita]], [[Susie Wiles]], and [[JD Vance]], which [[Nicholas J. Fuentes]] called "mean magic." (01:45:00) [[Nicholas J. Fuentes]] cited [[South Africa]] as an example of a government of resentful non-whites leading to white people being killed and raped, warning it could happen in the [[United States]]. (01:45:36) [[Nicholas J. Fuentes]] referenced [[Laura Loomer]] denying that he had anything to do with [[Corey Lewandowski]]'s hiring, which he argued only proved it was plausible. (01:47:06) A super chatter identifying as a [[Palestinian]] [[Christianity|Christian]] thanked [[Nicholas J. Fuentes]] for speaking on behalf of [[Gaza Strip|Gaza]] and requested prayers for the [[Christianity|Christian]] village of [[Beit Jala]] in the [[Gaza Strip|West Bank]], which he said was facing ethnic cleansing by [[Israel|Israeli]] settlers. (01:48:20) A super chatter who identified as an indie game developer offered to make an "[[United States|America]] First" turn-based pixel RPG, to which [[Nicholas J. Fuentes]] expressed interest. (01:49:04) A super chatter reported that on an [[Aidan Ross]] stream, Donald Trump complimented [[Alexandria Ocasio-Cortez|AOC]], saying she had a "beautiful spark." (01:49:19) A super chatter with a customer who worked for the Trump campaign said many people agreed with [[Nicholas J. Fuentes]] about [[Chris LaCivita]] and [[Susie Wiles]] and thought they would be fired after the [[DNC]] convention. (01:52:10) A super chatter asked if Trump's current trajectory or [[Vivek Ramaswamy]] promoting libertarianism and mass immigration was worse for the [[United States|America]] First movement; [[Nicholas J. Fuentes]] said it depended on the election outcome but that [[Vivek Ramaswamy|Ramaswamy]] would be the natural successor if Trump failed. (01:57:53) A super chatter asked about the potential for in-real-life action in states other than [[State of Michigan|Michigan]] and for [[Nicholas J. Fuentes]]'s thoughts on "white guy tacos." (02:00:10) A super chatter from [[New Orleans]] expressed support and awaited [[Nicholas J. Fuentes]]'s call. (02:03:15) A super chatter shared that his mother initially turned against [[Nicholas J. Fuentes]] due to attacks from "[[Jews]] and neocons on [[Twitter]]," but after watching a clip of [[Nicholas J. Fuentes|Fuentes]]'s mother call into his show, she realized he was human and mostly supported [[United States|America]] First. (02:05:06) [[Nicholas J. Fuentes]] praised a supporter known as "10 Rio" as a loyal [[United States|American]] who loved the country and was an asset to the cause, despite taking abuse. (02:06:39) [[Nicholas J. Fuentes]] criticized commentator [[Brandon (BAP)]] for skipping "GROYPER WAR 2" to go to [[South Korea]], calling it transnational behavior and suggesting he was looking for a specific type of companionship. (02:07:27) [[Nicholas J. Fuentes]] discussed commentator [[Chuck (likely Charles Johnson)]], noting his brilliant intellect but a mix of facts and wild
 
 ### AF 2024-08-14 1374
 (00:20:55) Donald Trump was reportedly deeply upset with his 2024 campaign and regretted selecting [[JD Vance]] as his vice-presidential nominee, according to a report in the [[Daily Mail]] citing former aides.
@@ -7739,7 +7739,7 @@
 (01:30:42) [[Nicholas J. Fuentes]] outlines the three pillars of the original "Groyper War" from 2019—opposition to high legal immigration, social liberalism, and strong pro-[[Israel]] stance—and states the Donald Trump campaign is failing all three by promising green cards for foreign students, removing traditional marriage from the [[Republican Party]] platform, and pledging to bomb [[Iran]].
 
 ### AF 2024-08-09 1371
-(01:33:23) [[Nicholas J. Fuentes]] claims Donald Trump is receiving major financial support from pro-[[Israel]] figures like [[Sheldon Adelson|Miriam Adelson]], [[William Ackman|Bill Ackman]], and [[Jacob Helberg]] on the premise that he will support [[Israel]].
+(01:33:23) [[Nicholas J. Fuentes]] claims Donald Trump is receiving major financial support from pro-[[Israel]] figures like [[Miriam Adelson]], [[William Ackman|Bill Ackman]], and [[Jacob Helberg]] on the premise that he will support [[Israel]].
 
 ### AF 2024-08-09 1371
 (01:34:36) [[Nicholas J. Fuentes]] states that Donald Trump personally edited the 2024 [[Republican Party]] platform to remove support for traditional marriage and a federal abortion ban.
@@ -7904,7 +7904,7 @@
 (04:28:42) [[Nicholas J. Fuentes]] argued the Donald Trump campaign was poorly adapted to run against [[Kamala Harris]], having been designed to face [[Joe Biden]], and was losing momentum daily.
 
 ### AF 2024-08-07 1369
-(04:38:00) [[Nicholas J. Fuentes]] predicted Donald Trump was headed for defeat in November due to negative polling trends, an incompetent campaign unable to adapt, and anticipated election cheating in cities like [[Milwaukee]], [[Detroit]], [[Atlanta]], [[City of Phoenix|Phoenix]], and [[Philadelphia]].
+(04:38:00) [[Nicholas J. Fuentes]] predicted Donald Trump was headed for defeat in November due to negative polling trends, an incompetent campaign unable to adapt, and anticipated election cheating in cities like [[Milwaukee]], [[Detroit]], [[Atlanta]], [[Phoenix]], and [[Philadelphia]].
 
 ### AF 2024-08-07 1369
 (04:48:46) [[Nicholas J. Fuentes]] claimed that if Donald Trump lost the election, the blame would fall on Donald Trump, [[Chris LaCivita]], [[Susie Wiles]], and the [[Republican Party]] establishment that had taken over his campaign.
@@ -7937,7 +7937,7 @@
 (02:24:50) [[Benjamin Netanyahu|Netanyahu]] has pressured multiple [[United States]] presidents, including [[George W. Bush]], [[Barack Obama]], Donald Trump, and [[Joe Biden]], to go to war with [[Iran]].
 
 ### AF 2024-08-06 1368
-(03:13:50) Major lifelong [[Democratic Party]] donors like [[William Ackman]] and Jacob Helberg reportedly shifted their financial support to Donald Trump following the [[October 7th Attack]], perceiving the [[Democratic Party]] as too pro-[[Gaza Strip|Palestine]].
+(03:13:50) Major lifelong [[Democratic Party]] donors like [[William Ackman]] and Jacob Helberg reportedly shifted their financial support to Donald Trump following the [[October 7th Attack]], perceiving the [[Democratic Party]] as too pro-[[Palestine]].
 
 ### AF 2024-08-06 1368
 (03:21:30) Donald Trump's final vice presidential shortlist reportedly included [[Tim Scott]], [[Marco Rubio]], [[JD Vance]], and [[Doug Burgum]].
@@ -8045,7 +8045,7 @@
 (01:10:45) A viewer asked how [[Nicholas J. Fuentes]] saw the [[Jewish]] perspective if [[Ben Shapiro]] became Trump's VP, to which [[Nicholas J. Fuentes]] replied that [[Jews]] would vote [[Democratic Party|Democrat]] no matter what.
 
 ### AF 2024-07-31 1364
-(04:47:65) Donald Trump appeared in [[City of Chicago|Chicago]] for an interview hosted by the [[National Association of Black Journalists]].
+(04:47:65) Donald Trump appeared in [[Chicago]] for an interview hosted by the [[National Association of Black Journalists]].
 
 ### AF 2024-07-31 1364
 (05:21:75) The interview with Donald Trump was one of the only hostile interviews he has sat for in a long [[time]], contrasting with the favorable interviews he typically grants.
@@ -8084,7 +8084,7 @@
 (38:05:71) Donald Trump's campaign advisors [[Chris LaCivita]] and [[Susie Wiles]] orchestrated his appearances at unexpected locations to try to bring in a new audience.
 
 ### AF 2024-07-31 1364
-(41:36:51) In 2016, Donald Trump flipped [[Wisconsin|Wisconsin]], [[State of Michigan|Michigan]], and [[Pennsylvania]] by appealing to and turning out white voters, abandoning the conventional [[Republican Party|Republican]] playbook of appealing to minority demographics.
+(41:36:51) In 2016, Donald Trump flipped [[Wisconsin]], [[State of Michigan|Michigan]], and [[Pennsylvania]] by appealing to and turning out white voters, abandoning the conventional [[Republican Party|Republican]] playbook of appealing to minority demographics.
 
 ### AF 2024-07-31 1364
 (44:01:75) In 2020, Donald Trump shifted his strategy to appeal to [[black]] and [[Hispanic]] voters through policies like the First Step Act and the Platinum Plan, which caused him to suffer with the poorer and less educated white voters who carried him in 2016.
@@ -8105,7 +8105,7 @@
 (01:28:30) [[Nicholas J. Fuentes]] stated that Donald Trump could regain his support by disavowing [[Project 2025]], ceasing agitation for war with [[Iran]], and seriously discussing a border wall and mass deportations.
 
 ### AF 2024-07-30 1363
-(01:56:48) [[Sheldon Adelson]] and [[Sheldon Adelson|Miriam Adelson]] have given approximately $100 million every two-year election cycle to support Donald Trump and other candidates aligned with [[Israel]]'s interests.
+(01:56:48) [[Sheldon Adelson]] and [[Miriam Adelson]] have given approximately $100 million every two-year election cycle to support Donald Trump and other candidates aligned with [[Israel]]'s interests.
 
 ### AF 2024-07-29 1362
 (01:17:21) Donald Trump's 2016 campaign rhetoric radicalized supporters by framing the election as a crossroads against control by "global special interests," which [[Nicholas J. Fuentes]] interprets as including the [[American Israel Public Affairs Committee|Israel lobby]].
@@ -8210,7 +8210,7 @@
 (49:02:39) [[San Francisco Bay Area|Silicon Valley]] [[Jewish]] donors like [[William Ackman|Bill Ackman]], [[Jacob Helberg]], and [[David Sacks]], along with [[Benjamin Netanyahu|Bibi]] and [[JD Vance]], want Donald Trump to win the election.
 
 ### AF 2024-07-26 1361
-(49:13:59) Donald Trump received $100 million from [[Sheldon Adelson|Miriam Adelson]] and relies on support from Zionist donors for his campaign.
+(49:13:59) Donald Trump received $100 million from [[Miriam Adelson]] and relies on support from Zionist donors for his campaign.
 
 ### AF 2024-07-26 1361
 (50:09:71) [[Nicholas J. Fuentes]] forecasted a large-scale terror attack or an attempt on Donald Trump's life, blamed on [[Iran]], to propel the [[United States]] into a war with [[Iran]] once Donald Trump is in office and indebted to Zionist donors.
@@ -8414,7 +8414,7 @@
 (00:11:49) Major donor [[Ken Griffin]] of [[Citadel]] supported [[Ron DeSantis]] over Donald Trump in 2023.
 
 ### AF 2024-07-19 1356
-(00:12:08) [[Sheldon Adelson]]'s widow, [[Sheldon Adelson|Miriam Adelson]], stated she would sit out the [[Republican Party]] primary in 2023, indicating a lack of initial support for Donald Trump.
+(00:12:08) [[Sheldon Adelson]]'s widow, [[Miriam Adelson]], stated she would sit out the [[Republican Party]] primary in 2023, indicating a lack of initial support for Donald Trump.
 
 ### AF 2024-07-19 1356
 (00:12:25) [[Mike Cernovich]], who later positioned himself as a Donald Trump loyalist, previously shilled for [[Ron DeSantis]].
@@ -8489,7 +8489,7 @@
 (00:50:37) [[Mitch McConnell]] and [[Kevin McCarthy]], who both betrayed Donald Trump after [[January 6th Attack]], spoke or were in attendance at the 2024 [[Republican Party]] National Convention.
 
 ### AF 2024-07-19 1356
-(00:50:44) [[JD Vance]], Donald Trump's 2024 vice presidential pick, had called him "[[United States|America]]'s [[Adolf Hitler|Hitler]]" and a "noxious racist" as late as August 2017 following the [[City of Charlottesville|Charlottesville]] rally.
+(00:50:44) [[JD Vance]], Donald Trump's 2024 vice presidential pick, had called him "[[United States|America]]'s [[Adolf Hitler|Hitler]]" and a "noxious racist" as late as August 2017 following the [[Charlottesville]] rally.
 
 ### AF 2024-07-19 1356
 (00:51:21) [[Nicholas J. Fuentes]] argued that figures like [[The New York Times]], [[JD Vance]], and [[Chris LaCivita]] now support Donald Trump because he has surrendered to them, not because they were converted.
@@ -8564,7 +8564,7 @@
 (00:23:59) [[Nicholas J. Fuentes]] noted the assassination attempt on Donald Trump occurred just two days before the [[Republican Party|Republican]] National Convention in Milwaukee, where he was to be formally nominated.
 
 ### AF 2024-07-13 1355
-(00:26:25) [[Nicholas J. Fuentes]] initially considered but ruled out [[Israel]] or [[Israel Defense Forces|Mossad]] as culprits in the Donald Trump assassination attempt, citing Donald Trump's strong pro-[[Israel]] stance and support from donors like [[Sheldon Adelson|Miriam Adelson]].
+(00:26:25) [[Nicholas J. Fuentes]] initially considered but ruled out [[Israel]] or [[Israel Defense Forces|Mossad]] as culprits in the Donald Trump assassination attempt, citing Donald Trump's strong pro-[[Israel]] stance and support from donors like [[Miriam Adelson]].
 
 ### AF 2024-07-13 1355
 (00:28:50) [[Nicholas J. Fuentes]] theorized the [[Central Intelligence Agency|CIA]] or the [[United States|American]] deep state could be responsible for the Donald Trump assassination attempt due to his stated intent to end the war in [[Ukraine]], which threatens the military-industrial complex.
@@ -8633,7 +8633,7 @@
 (01:02:47) [[Nicholas J. Fuentes]] stated that people within the [[Project 2025]] initiative and the "Groypers" would have taken a bullet for Donald Trump and would not have allowed the security failure that led to the assassination attempt.
 
 ### AF 2024-07-13 1355
-(01:03:05) [[Nicholas J. Fuentes]] reported he was present at pro-Donald Trump events in Lansing, Harrisburg, [[City of Phoenix|Phoenix]], and the "Million MAGA March," and was at the [[January 6th Attack]], for which he received a subpoena and was placed on a no-fly list.
+(01:03:05) [[Nicholas J. Fuentes]] reported he was present at pro-Donald Trump events in Lansing, Harrisburg, [[Phoenix]], and the "Million MAGA March," and was at the [[January 6th Attack]], for which he received a subpoena and was placed on a no-fly list.
 
 ### AF 2024-07-13 1355
 (01:03:33) [[Nicholas J. Fuentes]] stated he lost his income, had his money confiscated, and was banned from all major and alternative platforms due to his support for Donald Trump and the [[January 6th Attack]].
@@ -8852,7 +8852,7 @@
 (02:22:01) [[Nicholas J. Fuentes]] pointed out that Donald Trump does not go to the gym, yet possesses an undeniable aura.
 
 ### AF 2024-07-05 1349
-(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) Donald Trump formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the Donald Trump campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the Donald Trump administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to Donald Trump who had previously called for Trump's removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on Donald Trump directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Sheldon Adelson|Miriam Adelson]] coalesced behind Donald Trump's 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the Donald Trump campaign. (00:52:56) Donald Trump's campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-Trump content. (01:00:02) Influenceable, under contract from the Donald Trump campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with Trump" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the Donald Trump campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for Donald Trump, each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating Donald Trump, but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize Trump. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that Donald Trump would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the Donald Trump campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
+(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) Donald Trump formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the Donald Trump campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the Donald Trump administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to Donald Trump who had previously called for Trump's removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on Donald Trump directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Miriam Adelson]] coalesced behind Donald Trump's 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the Donald Trump campaign. (00:52:56) Donald Trump's campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-Trump content. (01:00:02) Influenceable, under contract from the Donald Trump campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with Trump" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the Donald Trump campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for Donald Trump, each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating Donald Trump, but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize Trump. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that Donald Trump would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the Donald Trump campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
 
 ### AF 2024-07-03 1348
 (00:01:40) A new poll from [[The New York Times]] and Siena College showed Donald Trump leading [[Joe Biden]] 49% to 43% among likely voters nationally following a presidential debate.
@@ -8984,7 +8984,7 @@
 (02:29:29) A super chatter named David Joddy praised Donald Trump for being refreshingly honest about the [[country]] being a "dumpster fire," unlike other politicians who project "hokey cowardly optimism."
 
 ### AF 2024-06-25 1345
-(02:17:53) [[Sheldon Adelson|Miriam Adelson]] prepared to spend $100 million of her own money to support Donald Trump's presidential campaign in the fall.
+(02:17:53) [[Miriam Adelson]] prepared to spend $100 million of her own money to support Donald Trump's presidential campaign in the fall.
 
 ### AF 2024-06-25 1345
 (10:53:95) Donald Trump promised [[San Francisco Bay Area|Silicon Valley]] CEOs a policy to staple a green card to the diploma of every foreign student in [[the United States]], including those in two-year degree programs.
@@ -9008,10 +9008,10 @@
 (50:30:32) [[Sheldon Adelson]] gave roughly $100 million to Donald Trump's campaigns in 2016 and 2020 as a single-issue voter focused on [[Israel]].
 
 ### AF 2024-06-25 1345
-(50:55:40) [[Sheldon Adelson|Miriam Adelson]] recommitted $100 million to support Donald Trump's 2024 presidential campaign.
+(50:55:40) [[Miriam Adelson]] recommitted $100 million to support Donald Trump's 2024 presidential campaign.
 
 ### AF 2024-06-25 1345
-(51:45:24) [[Sheldon Adelson|Miriam Adelson]], deeply unnerved by the [[October 7th Attack]], was poised to shape a second Donald Trump administration's posture on the [[Israel|Israeli]]-[[Palestinian]] conflict.
+(51:45:24) [[Miriam Adelson]], deeply unnerved by the [[October 7th Attack]], was poised to shape a second Donald Trump administration's posture on the [[Israel|Israeli]]-[[Palestinian]] conflict.
 
 ### AF 2024-06-25 1345
 (58:12:86) [[Eich Perlmutter]], a [[Jews|Jewish Zionist]] friend of the Adelsons, gave $10 million to support Donald Trump.
@@ -9050,7 +9050,7 @@
 (27:04:91) Following the [[October 7th Attack]], [[Israel]] found itself alienated from many traditional allies but maintained support from the [[Republican Party]] base and Donald Trump.
 
 ### AF 2024-06-24 1344
-(27:47:11) [[Sheldon Adelson|Miriam Adelson]], widow of [[Sheldon Adelson]], committed over $100 million to Donald Trump's reelection campaign, reportedly confident he would allow [[Israel]] to annex the [[Gaza Strip]].
+(27:47:11) [[Miriam Adelson]], widow of [[Sheldon Adelson]], committed over $100 million to Donald Trump's reelection campaign, reportedly confident he would allow [[Israel]] to annex the [[Gaza Strip]].
 
 ### AF 2024-06-24 1344
 (28:25:77) [[Nikki Haley]], after serving as [[United Nations]] ambassador in the Donald Trump administration, joined the board of [[Boeing]].
@@ -9128,16 +9128,16 @@
 (00:10:30) [[Nicholas J. Fuentes]] called for a sustained, full-spectrum attack on the conservative movement, directing confrontation towards [[Turning Point USA]], Donald Trump, and [[The Daily Wire]], while ignoring internal drama and bad-faith critics.
 
 ### AF 2024-06-18 1343
-(00:38:01) [[Nicholas J. Fuentes]] argued that Donald Trump, who is set to receive over $100 million from [[Sheldon Adelson|Miriam Adelson]] and support from pro-[[Israel]] institutions, would make [[Israel]] more aggressive if elected, with a likely neocon cabinet including [[Rick Grenell]] and [[Nikki Haley]].
+(00:38:01) [[Nicholas J. Fuentes]] argued that Donald Trump, who is set to receive over $100 million from [[Miriam Adelson]] and support from pro-[[Israel]] institutions, would make [[Israel]] more aggressive if elected, with a likely neocon cabinet including [[Rick Grenell]] and [[Nikki Haley]].
 
 ### AF 2024-06-18 1343
-(00:40:06) [[Nicholas J. Fuentes]] cited a [[The Jerusalem Post|Haaretz]] report stating that [[Sheldon Adelson|Miriam Adelson]] wants the [[Gaza Strip|West Bank]] for [[Israel]] in exchange for her $100 million donation to Donald Trump's campaign.
+(00:40:06) [[Nicholas J. Fuentes]] cited a [[The Jerusalem Post|Haaretz]] report stating that [[Miriam Adelson]] wants the [[Gaza Strip|West Bank]] for [[Israel]] in exchange for her $100 million donation to Donald Trump's campaign.
 
 ### AF 2024-06-18 1343
-(00:40:53) [[Nicholas J. Fuentes]] stated that in Donald Trump's first term, [[Sheldon Adelson|Miriam Adelson]] secured the move of the [[United States Embassy in Jerusalem]], sovereignty over Jerusalem and the [[Golan Heights]], the designation of the [[Iran|IRGC]] as a terrorist group, and the tearing up of the [[Joint Comprehensive Plan of Action]].
+(00:40:53) [[Nicholas J. Fuentes]] stated that in Donald Trump's first term, [[Miriam Adelson]] secured the move of the [[United States Embassy in Jerusalem]], sovereignty over Jerusalem and the [[Golan Heights]], the designation of the [[Iran|IRGC]] as a terrorist group, and the tearing up of the [[Joint Comprehensive Plan of Action]].
 
 ### AF 2024-06-18 1343
-(00:53:55) [[Nicholas J. Fuentes]] stated that Donald Trump is performing well in polls because of the [[October 7th Attack]], which caused donors like [[William Ackman|Bill Ackman]] and [[Sheldon Adelson|Miriam Adelson]] to flip and support him, and that the election represents one faction of the [[Jewish]] elite fighting another.
+(00:53:55) [[Nicholas J. Fuentes]] stated that Donald Trump is performing well in polls because of the [[October 7th Attack]], which caused donors like [[William Ackman|Bill Ackman]] and [[Miriam Adelson]] to flip and support him, and that the election represents one faction of the [[Jewish]] elite fighting another.
 
 ### AF 2024-06-18 1343
 (00:59:21) [[Nicholas J. Fuentes]] explained that DACA, created in 2012 by [[Barack Obama]], has shielded over 800,000 illegal aliens from deportation, with the oldest recipients now in their early 40s, and that the program has faced repeated legal challenges from the Donald Trump administration and states like [[State of Texas|Texas]].
@@ -9149,13 +9149,13 @@
 (01:04:26) [[Nicholas J. Fuentes]] argued that any talk of DACA amnesty, including Donald Trump's flirtation with the idea in September 2017, directly leads to increased illegal immigration, as evidenced by the caravans from Central [[United States|America]] in the spring and fall of 2018.
 
 ### AF 2024-06-18 1343
-(01:11:06) [[Nicholas J. Fuentes]] stated that all the necessary support systems exist to push for a war with [[Iran]]—including [[The Daily Wire]], [[American Israel Public Affairs Committee|AIPAC]], a [[Republican Party]] majority, Donald Trump, [[Sheldon Adelson|Miriam Adelson]], and think tanks—but not for mass deportation.
+(01:11:06) [[Nicholas J. Fuentes]] stated that all the necessary support systems exist to push for a war with [[Iran]]—including [[The Daily Wire]], [[American Israel Public Affairs Committee|AIPAC]], a [[Republican Party]] majority, Donald Trump, [[Miriam Adelson]], and think tanks—but not for mass deportation.
 
 ### AF 2024-06-18 1343
 (01:11:56) [[Nicholas J. Fuentes]] claimed that Donald Trump told his [[The Wall Street Journal|Wall Street]] donors, like [[Ken Griffin]], that he wants to expand legal immigration, and told [[Phil McGraw]] that the [[United States]] desperately needs legal immigration, contradicting the [[United States|America]] First position.
 
 ### AF 2024-06-18 1343
-(01:12:46) [[Nicholas J. Fuentes]] questioned why his movement should support a pro-[[Israel]], pro-legal immigration candidate like Donald Trump, who is likely to deliver the [[Gaza Strip|West Bank]] to [[Israel]] at [[United States|American]] expense due to [[Sheldon Adelson|Miriam Adelson]]'s $100 million donation.
+(01:12:46) [[Nicholas J. Fuentes]] questioned why his movement should support a pro-[[Israel]], pro-legal immigration candidate like Donald Trump, who is likely to deliver the [[Gaza Strip|West Bank]] to [[Israel]] at [[United States|American]] expense due to [[Miriam Adelson]]'s $100 million donation.
 
 ### AF 2024-06-17 1342
 (01:11:34) [[Turning Point USA]] placed its 2024 summer conference in [[Detroit]], [[State of Michigan|Michigan]] to function as a political rally surrogate for Donald Trump in a swing state.
@@ -9176,7 +9176,7 @@
 (01:36:00) [[Nicholas J. Fuentes]] stated that the media's focus on [[Project 2025]] reveals they are not afraid of Donald Trump himself, but of the radical young people who might take control of his administration, and predicted media pressure would force Trump to back down on any radical appointments.
 
 ### AF 2024-06-06 1340
-(00:00:00) [[Nicholas J. Fuentes]] announced his intention to discuss a controversy surrounding Donald Trump and [[Sheldon Adelson|Miriam Adelson]] on his show.
+(00:00:00) [[Nicholas J. Fuentes]] announced his intention to discuss a controversy surrounding Donald Trump and [[Miriam Adelson]] on his show.
 
 ### AF 2024-06-06 1340
 (00:01:03) [[Nicholas J. Fuentes]] stated he had recently ramped up his criticism of Donald Trump, particularly after Donald Trump received an endorsement from [[Nikki Haley]].
@@ -9191,7 +9191,7 @@
 (00:04:47) [[Nicholas J. Fuentes]] reported that [[Nikki Haley]] traveled to [[Israel]] on behalf of Donald Trump, met with [[Benjamin Netanyahu]], and was to deliver a full report to Donald Trump upon her return.
 
 ### AF 2024-06-06 1340
-(00:05:28) [[Nicholas J. Fuentes]] stated that [[Sheldon Adelson|Miriam Adelson]], widow of [[Sheldon Adelson]], was negotiating a new deal to provide Donald Trump with $100 million for his campaign, potentially influencing vice presidential or cabinet selections like [[Nikki Haley]].
+(00:05:28) [[Nicholas J. Fuentes]] stated that [[Miriam Adelson]], widow of [[Sheldon Adelson]], was negotiating a new deal to provide Donald Trump with $100 million for his campaign, potentially influencing vice presidential or cabinet selections like [[Nikki Haley]].
 
 ### AF 2024-06-06 1340
 (00:08:16) [[Nicholas J. Fuentes]] argued that Donald Trump had no interest in governing during his first term, which led to bad personnel decisions, and predicted he would repeat those mistakes by bringing figures like [[Tim Scott]], [[Nikki Haley]], and [[JD Vance]] into his administration.
@@ -9215,7 +9215,7 @@
 (00:26:12) [[Nicholas J. Fuentes]] expressed that his heart was not in the Trump 2024 campaign, arguing that policy outcomes under Donald Trump and [[Joe Biden]] were largely similar.
 
 ### AF 2024-06-06 1340
-(00:27:04) [[Nicholas J. Fuentes]] argued that censorship and persecution of dissidents were worse under Donald Trump than under [[Joe Biden]], citing the [[January 6th Attack]], the [[City of Charlottesville|Charlottesville]] lawsuit, and online cancellations.
+(00:27:04) [[Nicholas J. Fuentes]] argued that censorship and persecution of dissidents were worse under Donald Trump than under [[Joe Biden]], citing the [[January 6th Attack]], the [[Charlottesville]] lawsuit, and online cancellations.
 
 ### AF 2024-06-06 1340
 (00:27:58) [[Nicholas J. Fuentes]] compared policy continuities between Donald Trump and [[Joe Biden]], such as the trade war, the [[Afghanistan]] withdrawal, and infrastructure spending, to argue the election was not an all-or-nothing choice.
@@ -9305,7 +9305,7 @@
 (01:06:00) [[Nicholas J. Fuentes]] stated that in 2015, Donald Trump told [[Jewish]] donors he did not want their money and mocked [[Marco Rubio]] for accepting money from [[Sheldon Adelson]].
 
 ### AF 2024-06-06 1340
-(01:06:31) [[Nicholas J. Fuentes]] stated that from his June 2015 announcement until February 2016, Donald Trump said he would be neutral on the [[Israel]]-[[Gaza Strip|Palestine]] conflict and criticized the [[American Israel Public Affairs Committee|Israel lobby]].
+(01:06:31) [[Nicholas J. Fuentes]] stated that from his June 2015 announcement until February 2016, Donald Trump said he would be neutral on the [[Israel]]-[[Palestine]] conflict and criticized the [[American Israel Public Affairs Committee|Israel lobby]].
 
 ### AF 2024-06-06 1340
 (01:08:16) [[Nicholas J. Fuentes]] argued that the Donald Trump administration failed to deliver on its 2016 promises: no border wall, no end to the wars in [[Afghanistan]] and [[Iraq]], no withdrawal from [[North Atlantic Treaty Organization|NATO]], no de-escalation with [[Russia]], no infrastructure bill, no mass deportations, and no law and order in cities.
@@ -9320,22 +9320,22 @@
 (01:11:02) [[Nicholas J. Fuentes]] summarized the pattern of Donald Trump's relationship with the [[American Israel Public Affairs Committee|Israel lobby]]: [[United States|America]] First rhetoric during the primary, a financial deal for the general election, followed by pro-[[Israel]] governance and no delivery for the base.
 
 ### AF 2024-06-06 1340
-(01:12:17) [[Nicholas J. Fuentes]] cited a Politico report stating that [[Sheldon Adelson|Miriam Adelson]] plans to bankroll a pro-Donald Trump super PAC called [[Preserve America]], expecting to spend more than the $90 million she donated to it four years ago.
+(01:12:17) [[Nicholas J. Fuentes]] cited a Politico report stating that [[Miriam Adelson]] plans to bankroll a pro-Donald Trump super PAC called [[Preserve America]], expecting to spend more than the $90 million she donated to it four years ago.
 
 ### AF 2024-06-06 1340
-(01:13:20) [[Nicholas J. Fuentes]] cited a [[The Jerusalem Post|Haaretz]] report that Donald Trump invited [[Sheldon Adelson|Miriam Adelson]] to a Shabbat dinner at Mar-a-Lago in March 2024 after winning the primary but did not immediately receive the check he wanted.
+(01:13:20) [[Nicholas J. Fuentes]] cited a [[The Jerusalem Post|Haaretz]] report that Donald Trump invited [[Miriam Adelson]] to a Shabbat dinner at Mar-a-Lago in March 2024 after winning the primary but did not immediately receive the check he wanted.
 
 ### AF 2024-06-06 1340
 (01:13:38) [[Nicholas J. Fuentes]] stated that a few days after the dinner, Donald Trump gave an interview to an [[Sheldon Adelson|Adelson]]-owned [[Israel|Israeli]] newspaper, [[Israel]] Hayom, proclaiming his loyalty to [[Israel]] and listing his pro-[[Israel]] accomplishments.
 
 ### AF 2024-06-06 1340
-(01:14:56) [[Nicholas J. Fuentes]] cited reports that [[Sheldon Adelson|Miriam Adelson]] wants Donald Trump to support [[Israel|Israeli]] annexation of the [[Gaza Strip|West Bank]] and [[United States|U.S]]. recognition of [[Israel|Israeli]] sovereignty over all disputed territories.
+(01:14:56) [[Nicholas J. Fuentes]] cited reports that [[Miriam Adelson]] wants Donald Trump to support [[Israel|Israeli]] annexation of the [[Gaza Strip|West Bank]] and [[United States|U.S]]. recognition of [[Israel|Israeli]] sovereignty over all disputed territories.
 
 ### AF 2024-06-06 1340
-(01:15:57) [[Nicholas J. Fuentes]] cited a [[New York]] Magazine story implying [[Sheldon Adelson|Miriam Adelson]] continued to sit out the race as an implicit threat to Donald Trump.
+(01:15:57) [[Nicholas J. Fuentes]] cited a [[New York]] Magazine story implying [[Miriam Adelson]] continued to sit out the race as an implicit threat to Donald Trump.
 
 ### AF 2024-06-06 1340
-(01:16:05) [[Nicholas J. Fuentes]] cited Politico reporting that Donald Trump and [[Sheldon Adelson|Miriam Adelson]] spoke on the phone several times after the March dinner.
+(01:16:05) [[Nicholas J. Fuentes]] cited Politico reporting that Donald Trump and [[Miriam Adelson]] spoke on the phone several times after the March dinner.
 
 ### AF 2024-06-06 1340
 (01:16:22) [[Nicholas J. Fuentes]] cited a [[Washington Post]] report that at a May 14th meeting with donors, Donald Trump said he would throw protesting students out of the [[country]] and vowed to set the pro-[[Palestinian]] movement back 25 or 30 years if elected.
@@ -9353,7 +9353,7 @@
 (03:17:68) Donald Trump stated that [[Nikki Haley]] would have a role in his future cabinet, a decision [[Nicholas J. Fuentes]] opposed.
 
 ### AF 2024-06-03 1339
-(03:55:08) [[Sheldon Adelson|Miriam Adelson]], the single largest contributor in [[United States|American]] politics, pledged over $90 million to a Donald Trump-aligned super PAC for the election cycle.
+(03:55:08) [[Miriam Adelson]], the single largest contributor in [[United States|American]] politics, pledged over $90 million to a Donald Trump-aligned super PAC for the election cycle.
 
 ### AF 2024-06-03 1339
 (04:44:56) [[Nicholas J. Fuentes]] expressed discomfort with personnel close to Donald Trump, including [[Rick Grenell]], [[Lindsey Graham]], and the potential vice-presidential candidacy of [[Tim Scott]].
@@ -9362,7 +9362,7 @@
 (09:14:40) [[Nicholas J. Fuentes]] claimed a [[The New York Post|New York Post]] journalist contacted him seeking a comment that he was anti-Donald Trump, which he refused to provide.
 
 ### AF 2024-06-03 1339
-(13:52:26) [[Laura Loomer]] argued that one could not simultaneously criticize the "[[American Israel Public Affairs Committee|Israel lobby]]" or figures like [[Sheldon Adelson|Miriam Adelson]] and support Donald Trump.
+(13:52:26) [[Laura Loomer]] argued that one could not simultaneously criticize the "[[American Israel Public Affairs Committee|Israel lobby]]" or figures like [[Miriam Adelson]] and support Donald Trump.
 
 ### AF 2024-06-03 1339
 (20:26:04) [[Nicholas J. Fuentes]] acknowledged that Donald Trump supported [[Israel]] but stated he personally did not and would not vote for [[Joe Biden]].
@@ -9425,7 +9425,7 @@
 (00:04:07) Donald Trump accepted an endorsement from [[Nikki Haley]] and indicated she would be "on the team in some form," which [[Nicholas J. Fuentes]] interpreted as a potential role in a future Trump cabinet.
 
 ### AF 2024-05-30 1338
-(00:05:39) [[Sheldon Adelson|Miriam Adelson]] pledged to donate more money to Donald Trump's campaign than [[Sheldon Adelson]] gave in 2016 or 2020.
+(00:05:39) [[Miriam Adelson]] pledged to donate more money to Donald Trump's campaign than [[Sheldon Adelson]] gave in 2016 or 2020.
 
 ### AF 2024-05-30 1338
 (00:08:11) Following his historic conviction, Donald Trump issued a press release soliciting campaign donations, which [[Nicholas J. Fuentes]] characterized as "e-begging."
@@ -9497,10 +9497,10 @@
 (00:45:02) Donald Trump is likely to bring more people like [[Jared Kushner]], [[Michael Anton]], [[Darren Beattie]], [[Mike Benz]], [[Peter Thiel]], [[Saurabh Sharma|Saurabh Swarma]], and [[JD Vance]] into a potential second administration.
 
 ### AF 2024-05-30 1338
-(00:48:00) In February 2016, Donald Trump said he would make an [[Israel]]-[[Gaza Strip|Palestine]] deal and would be neutral, and in December 2015, he said [[Israel]] does not want to make a deal with [[Gaza Strip|Palestine]].
+(00:48:00) In February 2016, Donald Trump said he would make an [[Israel]]-[[Palestine]] deal and would be neutral, and in December 2015, he said [[Israel]] does not want to make a deal with [[Palestine]].
 
 ### AF 2024-05-30 1338
-(00:49:53) Donald Trump now seems like a proxy of [[Israel]] so it can get support in its war, which is why [[Michael Rapaport]], [[William Ackman|Bill Ackman]], and [[Sheldon Adelson|Miriam Adelson]] are supporting him, argued [[Nicholas J. Fuentes]].
+(00:49:53) Donald Trump now seems like a proxy of [[Israel]] so it can get support in its war, which is why [[Michael Rapaport]], [[William Ackman|Bill Ackman]], and [[Miriam Adelson]] are supporting him, argued [[Nicholas J. Fuentes]].
 
 ### AF 2024-05-30 1338
 (00:56:52) Donald Trump's best-case scenario, per [[Nicholas J. Fuentes]], involves reclassifying 50,000 federal workers under Schedule F, firing them, and hiring 50,000 new people, including 1,000 "Groypers."
@@ -9680,10 +9680,10 @@
 (01:00:17) [[Nicholas J. Fuentes]] claimed that for the past year, Donald Trump's message had been dominated by talk of "witch hunts" and legal dramas, which bored voters and distracted from substantive issues.
 
 ### AF 2024-05-29 1337
-(01:01:01) [[Nicholas J. Fuentes]] said that tuning into a Donald Trump rally in 2024 felt like a "giant chore" and a soap opera, filled with tedious courtroom drama instead of empowering messages on issues like the border or [[Gaza Strip|Palestine]].
+(01:01:01) [[Nicholas J. Fuentes]] said that tuning into a Donald Trump rally in 2024 felt like a "giant chore" and a soap opera, filled with tedious courtroom drama instead of empowering messages on issues like the border or [[Palestine]].
 
 ### AF 2024-05-29 1337
-(01:01:33) [[Nicholas J. Fuentes]] stated that Donald Trump's rallies were now only watched by a "handful of [[Fox News]] boomers," while voters wanted to hear about the border, [[Gaza Strip|Palestine]], and the economy.
+(01:01:33) [[Nicholas J. Fuentes]] stated that Donald Trump's rallies were now only watched by a "handful of [[Fox News]] boomers," while voters wanted to hear about the border, [[Palestine]], and the economy.
 
 ### AF 2024-05-29 1337
 (01:02:01) [[Nicholas J. Fuentes]] argued that Donald Trump was subjected to a witch hunt because he "shattered foundational myths" by calling the [[Iraq]] war a mistake, criticizing free trade, and blaming illegal immigrants for rape.
@@ -9875,7 +9875,7 @@
 (00:47:11) [[Nicholas J. Fuentes]] believes the most important aspect of Donald Trump is his symbolic significance as a white, blonde-haired billionaire promoting "[[United States|America]] First."
 
 ### AF 2024-05-28 1336
-(00:48:14) Figures like [[Ben Shapiro]], [[Sheldon Adelson|Miriam Adelson]], and [[Bill Kristol]] initially opposed Donald Trump, supported [[Ron DeSantis]] and [[Nikki Haley]], and only reluctantly support Trump because he supports [[Israel]].
+(00:48:14) Figures like [[Ben Shapiro]], [[Miriam Adelson]], and [[Bill Kristol]] initially opposed Donald Trump, supported [[Ron DeSantis]] and [[Nikki Haley]], and only reluctantly support Trump because he supports [[Israel]].
 
 ### AF 2024-05-28 1336
 (00:48:57) [[Nicholas J. Fuentes]] views Donald Trump as a "mixed bag," an "[[Israel|Israeli]] op" not totally controlled by [[Israel]], better than [[Joe Biden]], but not ideal.
@@ -10142,7 +10142,7 @@
 (01:15:32) [[Nicholas J. Fuentes]] aligns with Donald Trump's political strategy, particularly his ability to win campaigns.
 
 ### AF 2024-04-03 1314
-(32:43:260) [[Nicholas J. Fuentes]] noted that the [[Jewish]] resettlement of [[Gaza Strip|Palestine]] and Donald Trump's grant of sovereignty over [[Jerusalem]] align with the red heifer prophecy.
+(32:43:260) [[Nicholas J. Fuentes]] noted that the [[Jewish]] resettlement of [[Palestine]] and Donald Trump's grant of sovereignty over [[Jerusalem]] align with the red heifer prophecy.
 
 ### AF 2024-04-02 1313
 (00:13:09) [[Tyler Boyer]], a [[Turning Point USA]] COO, [[Republican Party|RNC]] National Committee member, and [[Arizona]] elector for Trump, signaled that the [[The Daily Wire|Daily Wire]] parted ways with [[Candace Owens]] because her rhetoric aligned with Groypers.
@@ -10205,7 +10205,7 @@
 (03:33:19) The national defense strategy includes a Trump corollary to the Monroe Doctrine that will use the military to combat immigration and drug trafficking.
 
 ### AF 2025-12-06 1609
-(03:33:35) The Trump corollary to the [[Monroe Doctrine]] involves using the military to go to the border and engage inside [[Mexico]], [[Columbia|Colombia]], or other countries to fight drug traffickers.
+(03:33:35) The Trump corollary to the [[Monroe Doctrine]] involves using the military to go to the border and engage inside [[Mexico]], [[Colombia]], or other countries to fight drug traffickers.
 
 ### AF 2025-12-06 1609
 (03:33:51) The national security strategy describes [[United States]] operations in [[Venezuela]] as part of the Trump corollary to the [[Monroe Doctrine]].
@@ -10679,7 +10679,7 @@
 (00:01:25) A judge in [[New York|New York City]] ruled that Donald Trump owes over $300 million in a civil fraud case, with the total potentially exceeding $400 million if he appeals and is required to pay an additional 20%.
 
 ### AF 2024-02-21 1295
-(00:33:33) [[Nicholas J. Fuentes]] stated that Donald Trump's power is calibrated by [[Jewish]] interests, turning down his influence when he talks about cutting a deal with [[Gaza Strip|Palestine]] and turning up censorship.
+(00:33:33) [[Nicholas J. Fuentes]] stated that Donald Trump's power is calibrated by [[Jewish]] interests, turning down his influence when he talks about cutting a deal with [[Palestine]] and turning up censorship.
 
 ### AF 2024-02-21 1295
 (00:56:18) [[Nicholas J. Fuentes]] argued that the contours of political correctness are defined by these taboos, noting that at a Trump rally, one could talk about lizard people or Satanism but not about [[Jewish]] control of [[United States|America]].
@@ -10892,7 +10892,7 @@
 (49:13:650) In his withdrawal video, [[Ron DeSantis]] stated that a majority of [[Republican Party|Republican]] primary voters wanted to give Donald Trump another chance and criticized [[Nikki Haley]] as representing "warmed-over corporatism."
 
 ### AF 2024-01-23 1281
-(51:07:890) Donald Trump called [[Ron DeSantis]] a "terrific person" during a rally in [[City of Rochester|Rochester, New Hampshire]], after [[Ron DeSantis|DeSantis]] ended his campaign and offered an endorsement.
+(51:07:890) Donald Trump called [[Ron DeSantis]] a "terrific person" during a rally in [[Rochester, New Hampshire]], after [[Ron DeSantis|DeSantis]] ended his campaign and offered an endorsement.
 
 ### AF 2024-01-23 1281
 (51:25:090) Major [[The Wall Street Journal|Wall Street]] donor [[Ken Griffin]] of [[Citadel LLC]] publicly backed [[Ron DeSantis]] in late 2022, representing a pivot of financial elite support away from Donald Trump.
@@ -10961,7 +10961,7 @@
 (00:36:11) [[Nicholas J. Fuentes]] addressed criticism that his harsh stance on [[Israel]] was incompatible with his support for the pro-[[Israel]] Donald Trump.
 
 ### AF 2024-01-17 1278
-(00:37:07) [[Nicholas J. Fuentes]] noted that the [[American Israel Public Affairs Committee|Israel lobby]], led by figures like [[Sheldon Adelson|Miriam Adelson]], had backed [[Ron DeSantis]] and later [[Nikki Haley]], not Donald Trump.
+(00:37:07) [[Nicholas J. Fuentes]] noted that the [[American Israel Public Affairs Committee|Israel lobby]], led by figures like [[Miriam Adelson]], had backed [[Ron DeSantis]] and later [[Nikki Haley]], not Donald Trump.
 
 ### AF 2024-01-17 1278
 (00:42:00) Donald Trump had previously called [[Hezbollah]] "smart" and labeled [[Benjamin Netanyahu|Bibi Netanyahu]] a "traitor" for not protecting his people, rhetoric [[Nicholas J. Fuentes]] argued was not that of an [[Israel]] shill.
@@ -11411,10 +11411,10 @@
 (14:04:56) The [[Joe Biden|Biden administration]] had been building upon the [[Abraham Accords]], initiated under the Trump administration, to normalize ties between [[Saudi Arabia]] and [[Israel]].
 
 ### AF 2023-11-02 1242
-(00:32:09) Donald Trump was dogged for years by questions about his "good people on both sides" remark regarding the [[City of Charlottesville|Charlottesville]] protest, and [[Joe Biden]] began his presidential campaign talking about the event.
+(00:32:09) Donald Trump was dogged for years by questions about his "good people on both sides" remark regarding the [[Charlottesville]] protest, and [[Joe Biden]] began his presidential campaign talking about the event.
 
 ### AF 2023-11-02 1242
-(00:32:50) [[Richard Spencer]], [[Nicholas J. Fuentes]], and others at the [[City of Charlottesville|Charlottesville rally]] became a shadow the Trump administration had to avoid for four years.
+(00:32:50) [[Richard Spencer]], [[Nicholas J. Fuentes]], and others at the [[Charlottesville rally]] became a shadow the Trump administration had to avoid for four years.
 
 ### AF 2023-10-23 1240
 (00:36:53) [[Nicholas J. Fuentes]] cited [[Henry Kissinger]]'s recent criticism of mass immigration, contrasting it with his past criticism of Donald Trump's border wall as racist.
@@ -11477,7 +11477,7 @@
 (01:01:33) [[Nicholas J. Fuentes]] argued that Donald Trump's criticism of [[Benjamin Netanyahu|Bibi]] demonstrated he was an independent force, not a Zionist shill, unlike other politicians who were blackmailed or paid by [[Israel]].
 
 ### AF 2023-10-12 1234
-(01:02:29) [[Nicholas J. Fuentes]] pointed to Donald Trump's 2015 primary comments about making a deal for both [[Israel]] and [[Gaza Strip|Palestine]] and his long-standing criticism of the [[Iraq]] War as evidence he was not an agent of [[Israel]].
+(01:02:29) [[Nicholas J. Fuentes]] pointed to Donald Trump's 2015 primary comments about making a deal for both [[Israel]] and [[Palestine]] and his long-standing criticism of the [[Iraq]] War as evidence he was not an agent of [[Israel]].
 
 ### AF 2023-10-12 1234
 (01:04:01) [[Nicholas J. Fuentes]] noted that prominent Zionist commentators like [[Bret Stephens]], [[Max Boot]], [[Bill Kristol]], [[Ben Shapiro]], and [[Mark Levin]] were among the most vocal "Never Trumpers" in 2015, suggesting Donald Trump was not in their pocket.
@@ -11942,7 +11942,7 @@
 (01:17:04) [[Nicholas J. Fuentes]] asserted that the establishment's full-scale effort to defeat Donald Trump in the 2024 [[Republican Party|Republican]] primary, including promoting [[Ron DeSantis]], had already failed embarrassingly.
 
 ### AF 2023-08-25 1204
-(01:17:04) [[Nicholas J. Fuentes]] claimed that major donors like [[Ken Griffin]] and [[Sheldon Adelson|Miriam Adelson]], institutions like [[The Wall Street Journal|Wall Street]], and influencers like [[Elon Musk]] had backed [[Ron DeSantis]]'s failed primary challenge against Donald Trump.
+(01:17:04) [[Nicholas J. Fuentes]] claimed that major donors like [[Ken Griffin]] and [[Miriam Adelson]], institutions like [[The Wall Street Journal|Wall Street]], and influencers like [[Elon Musk]] had backed [[Ron DeSantis]]'s failed primary challenge against Donald Trump.
 
 ### AF 2023-08-25 1204
 (01:17:04) [[Nicholas J. Fuentes]] stated that [[Ron DeSantis]] began the primary race with a $200 million war chest and polled at 30%, while Donald Trump initially struggled to raise money.
@@ -12110,7 +12110,7 @@
 (01:03:19) [[Nicholas J. Fuentes]] noted that [[Elon Musk]] banned [[Kanye West]] from [[Twitter]] for incitement, employing similar justifications used against figures like himself, Donald Trump, [[Douglas Mackey|Ricky Vaughn]], and [[Alex Jones]].
 
 ### AF 2023-08-12 1200
-(01:04:03) [[Nicholas J. Fuentes]] stated that individuals were being arrested years after the [[City of Charlottesville|Charlottesville]] rally for carrying torches under an old KKK statute, analogous to the broad interpretation of Donald Trump's vague statements as threats.
+(01:04:03) [[Nicholas J. Fuentes]] stated that individuals were being arrested years after the [[Charlottesville]] rally for carrying torches under an old KKK statute, analogous to the broad interpretation of Donald Trump's vague statements as threats.
 
 ### AF 2023-08-12 1200
 (01:05:15) [[Nicholas J. Fuentes]] argued that the indictment of Donald Trump and the selection of Judge [[Tanya Chutkan]] were purely political acts, constituting an attempt to jail political opponents.
@@ -12380,7 +12380,7 @@
 (29:31:53) [[Nicholas J. Fuentes]] argued that the [[Joe Biden|Biden administration]] had been working against the [[Israel]] lobby more than the Trump administration, despite his personal support for Donald Trump.
 
 ### AF 2023-07-22 1191
-(32:53:70) [[Nicholas J. Fuentes]] contended it was better for [[Joe Biden]] to be in the [[Joe Biden|White House]] than Donald Trump regarding [[Israel]], because Donald Trump would actively help [[Benjamin Netanyahu|Netanyahu]] and [[Labor Party|Likud]].
+(32:53:70) [[Nicholas J. Fuentes]] contended it was better for [[Joe Biden]] to be in the [[Joe Biden|White House]] than Donald Trump regarding [[Israel]], because Donald Trump would actively help [[Benjamin Netanyahu|Netanyahu]] and [[Likud]].
 
 ### AF 2023-07-22 1190
 (00:18:46) The [[Manhattan DA]] filed the first of four rounds of charges against Donald Trump in 2023, followed by the [[U.S. Department of Justice|DOJ]] regarding classified documents. (00:53:62)
@@ -12839,7 +12839,7 @@
 (02:00:50) [[Nicholas J. Fuentes]] criticized Donald Trump and [[Robert F. Kennedy Jr.|RFK Jr.]] for not acknowledging that Arabs carried out the [[September 11 attacks]] with help from [[Israel]].
 
 ### AF 2023-05-31 1169
-(02:01:21) [[Nicholas J. Fuentes]] suggested that his dinner with Donald Trump and [[Kanye West]] caused [[Jews]] to flee Trump's camp, and that [[Ron DeSantis]] was subsequently crowned as the pro-[[Israel]] candidate after meeting with donor [[Sheldon Adelson|Miriam Adelson]] in [[Israel]].
+(02:01:21) [[Nicholas J. Fuentes]] suggested that his dinner with Donald Trump and [[Kanye West]] caused [[Jews]] to flee Trump's camp, and that [[Ron DeSantis]] was subsequently crowned as the pro-[[Israel]] candidate after meeting with donor [[Miriam Adelson]] in [[Israel]].
 
 ### AF 2023-05-31 1169
 (02:04:28) [[Nicholas J. Fuentes]] expressed support for Donald Trump over [[Ron DeSantis]], whom he viewed as the candidate anointed by pro-[[Israel]] figures, though he acknowledged Trump's connections through [[Jared Kushner]].
@@ -12998,7 +12998,7 @@
 (00:08:47) Trump had built 500 miles of border wall and implemented policies like "Remain in Mexico" that significantly reduced illegal immigration by the end of his term.
 
 ### AF 2021-08-12 0859
-(00:12:04) [[Nicholas J. Fuentes]] believed the [[City of Charlottesville|Charlottesville rally]] was intended to reunite a right wing that had splintered after the Trump election, citing divisions involving figures like [[Mike Cernovich]], [[Jeff Giza]], and [[Richard Spencer]].
+(00:12:04) [[Nicholas J. Fuentes]] believed the [[Charlottesville rally]] was intended to reunite a right wing that had splintered after the Trump election, citing divisions involving figures like [[Mike Cernovich]], [[Jeff Giza]], and [[Richard Spencer]].
 
 ### AF 2021-08-12 0859
 (00:22:17) [[Nicholas J. Fuentes]] recounted that in the spring and summer of 2019, during the Trump administration, illegal border crossings reached a high watermark of around 180,000 per month, which he considered a major betrayal.
@@ -13091,7 +13091,7 @@
 (21:27:42) [[Matt Gaetz]] defended [[Benjamin Netanyahu|Bibi]] despite [[Benjamin Netanyahu|Netanyahu's]] betrayal of Donald Trump, leading [[Nicholas J. Fuentes]] to question [[Matt Gaetz|Gaetz]]'s "[[United States|America]] First" credentials.
 
 ### AF 2021-06-14 0828
-(56:13:16) The [[City of Charlottesville|Charlottesville]] violence featured prominently in [[Joe Biden]]'s 2019 presidential campaign announcement, where he said Donald Trump had "shocked the conscience of the nation."
+(56:13:16) The [[Charlottesville]] violence featured prominently in [[Joe Biden]]'s 2019 presidential campaign announcement, where he said Donald Trump had "shocked the conscience of the nation."
 
 ### AF 2021-06-11 0827
 (00:09:36) [[Nicholas J. Fuentes]] argued that even if widespread fraud were proven in [[Country of Georgia|Georgia]] and other states, there is no constitutional mechanism for reinstating Donald Trump to the presidency.
@@ -13121,13 +13121,13 @@
 (00:15:05) [[Nicholas J. Fuentes]] stated Trump had betrayed his supporters who stormed the [[United States Capitol|Capitol]], endorsed terrible people, and failed to address tech censorship since leaving office.
 
 ### AF 2021-06-08 0825
-(00:21:29) [[Nicholas J. Fuentes]] cited Trump's endorsements of [[Marco Rubio]], [[Tim Scott]], and [[Greg Abbott]], and his support for [[Mike Johnson|Kevin McCarthy]] as [[Mike Johnson|Speaker of the House]], as evidence the former president was acting against the [[United States|America]] First agenda.
+(00:21:29) [[Nicholas J. Fuentes]] cited Trump's endorsements of [[Marco Rubio]], [[Tim Scott]], and [[Greg Abbott]], and his support for [[Kevin McCarthy]] as [[Mike Johnson|Speaker of the House]], as evidence the former president was acting against the [[United States|America]] First agenda.
 
 ### AF 2021-06-08 0825
 (00:22:14) [[Nicholas J. Fuentes]] criticized Trump for not creating his own social media platform on [[Gab]] or [[Parler]], and for giving only sporadic, aimless speeches since leaving office.
 
 ### AF 2021-06-08 0825
-(00:23:43) [[Nicholas J. Fuentes]] argued Trump was becoming a force for bad by being pro-vaccine, anti-cryptocurrency, and supportive of establishment [[Republican Party|Republicans]] like [[Mike Johnson|Kevin McCarthy]].
+(00:23:43) [[Nicholas J. Fuentes]] argued Trump was becoming a force for bad by being pro-vaccine, anti-cryptocurrency, and supportive of establishment [[Republican Party|Republicans]] like [[Kevin McCarthy]].
 
 ### AF 2021-06-08 0825
 (00:25:10) [[Nicholas J. Fuentes]] claimed Trump maintained a 97% approval rating among [[Republican Party|Republicans]] and remained the leader of the party, making a direct attack on him an unwise strategy.
@@ -13157,7 +13157,7 @@
 (00:33:06) [[Nicholas J. Fuentes]] argued that [[United States|American]] right-wing, nationalist, [[Christianity|Christian]] conservatives and Trump supporters are under targeted persecution by the [[United States]] federal government, intelligence community, and law enforcement under the [[Joe Biden|Biden]] administration.
 
 ### AF 2021-06-03 0822
-(00:49:49) [[Nicholas J. Fuentes]] claimed that [[Vladimir Putin]] had done more to speak up for the rights of [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] protesters than Donald Trump, [[Mike Pence]], or [[Republican Party|Republican]] congressional leaders like [[Mike Johnson|Kevin McCarthy]].
+(00:49:49) [[Nicholas J. Fuentes]] claimed that [[Vladimir Putin]] had done more to speak up for the rights of [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] protesters than Donald Trump, [[Mike Pence]], or [[Republican Party|Republican]] congressional leaders like [[Kevin McCarthy]].
 
 ### AF 2021-06-03 0822
 (01:06:47) [[Nicholas J. Fuentes]] stated that Donald Trump's "Make [[United States|America]] Great Again" slogan was revolutionary because it acknowledged that [[United States|America]] was once great, is not great now, but can be restored, a message that resonated with a sense of national decline.
@@ -13172,7 +13172,7 @@
 (25:55:280) A surge in mass shootings began after [[Joe Biden]] became president, following a period with few such incidents during the Donald Trump administration.
 
 ### AF 2021-06-01 0820
-(27:13:600) The [[City of Las Vegas|Las Vegas]] shooting occurred during the Donald Trump administration, which [[Nicholas J. Fuentes]] suggested involved "funny business."
+(27:13:600) The [[Las Vegas]] shooting occurred during the Donald Trump administration, which [[Nicholas J. Fuentes]] suggested involved "funny business."
 
 ### AF 2021-06-01 0820
 (32:00:560) [[Nicholas J. Fuentes]] stated that Donald Trump will be remembered as the last president to preside over the "good times" in [[United States|America]].
@@ -13190,7 +13190,7 @@
 (29:01:52) [[Nicholas J. Fuentes]] discusses a speech by former [[Mike Johnson|Speaker of the House]] [[Paul Ryan]] at the [[Ronald Reagan|Ronald Reagan Presidential Library]], in which Ryan warned that the [[Republican Party]] would not survive if it remained the party of Donald Trump.
 
 ### AF 2021-05-28 0819
-(33:00:22) [[Nicholas J. Fuentes]] notes that [[Paul Ryan]]'s speech criticized politicians who visit Donald Trump at Mar-a-Lago, implicitly targeting [[House]] Minority Leader [[Mike Johnson|Kevin McCarthy]].
+(33:00:22) [[Nicholas J. Fuentes]] notes that [[Paul Ryan]]'s speech criticized politicians who visit Donald Trump at Mar-a-Lago, implicitly targeting [[House]] Minority Leader [[Kevin McCarthy]].
 
 ### AF 2021-05-28 0819
 (33:19:34) [[Nicholas J. Fuentes]] quotes [[Paul Ryan]] expressing dismay at the "dishonorable and disgraceful end" of Donald Trump's presidency, while also crediting Trump for bringing new voters to the [[Republican Party]].
@@ -13199,13 +13199,13 @@
 (33:47:48) [[Nicholas J. Fuentes]] states that Donald Trump responded to [[Paul Ryan]]'s remarks by calling Ryan a "curse to the [[Republican Party]]" and a "weak and ineffective leader."
 
 ### AF 2021-05-28 0819
-(35:25:58) [[Nicholas J. Fuentes]] argues that the conflict between figures like [[Paul Ryan]] and Donald Trump is a "false dichotomy" designed to distract from the fact that supposed Trump allies like [[Mike Johnson|Kevin McCarthy]] are compromised and do not advance the [[United States|America]] First agenda.
+(35:25:58) [[Nicholas J. Fuentes]] argues that the conflict between figures like [[Paul Ryan]] and Donald Trump is a "false dichotomy" designed to distract from the fact that supposed Trump allies like [[Kevin McCarthy]] are compromised and do not advance the [[United States|America]] First agenda.
 
 ### AF 2021-05-28 0819
-(40:34:18) [[Nicholas J. Fuentes]] cites [[Matt Gaetz]] as saying the [[civil war]] within the [[Republican Party]] is over and that Donald Trump won, but argues this is incorrect because [[Mike Johnson|Kevin McCarthy]] and [[Mitch McConnell]] still control congressional leadership.
+(40:34:18) [[Nicholas J. Fuentes]] cites [[Matt Gaetz]] as saying the [[civil war]] within the [[Republican Party]] is over and that Donald Trump won, but argues this is incorrect because [[Kevin McCarthy]] and [[Mitch McConnell]] still control congressional leadership.
 
 ### AF 2021-05-28 0819
-(42:24:46) [[Nicholas J. Fuentes]] lists [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Tim Scott]], and [[Marco Rubio]] as examples of [[Republican Party|Republicans]] who have been endorsed by Donald Trump but are compromised and do not fully represent the Trumpist message.
+(42:24:46) [[Nicholas J. Fuentes]] lists [[Kevin McCarthy]], [[Mitch McConnell]], [[Tim Scott]], and [[Marco Rubio]] as examples of [[Republican Party|Republicans]] who have been endorsed by Donald Trump but are compromised and do not fully represent the Trumpist message.
 
 ### AF 2021-05-28 0819
 (49:54:58) [[Nicholas J. Fuentes]] criticizes the [[Republican Party]] for trying to return to pre-2016 norms after Donald Trump's presidency, endorsing candidates like [[Marco Rubio]] and [[Tim Scott]] instead of pushing the agenda further.
@@ -13262,7 +13262,7 @@
 (00:30:11) Donald Trump endorsed political figures including [[Tim Scott]], [[Marco Rubio]], and [[Elise Stefanik]], which critics argued bolstered the establishment he once opposed.
 
 ### AF 2021-05-14 0811
-(00:32:04) [[Mike Johnson|Kevin McCarthy]] and other [[Republican Party|Republican]] leaders visited Donald Trump at Mar-a-Lago to gain his endorsement.
+(00:32:04) [[Kevin McCarthy]] and other [[Republican Party|Republican]] leaders visited Donald Trump at Mar-a-Lago to gain his endorsement.
 
 ### AF 2021-05-14 0811
 (00:36:20) During the second 2016 presidential debate, Donald Trump brought [[Bill Clinton]]'s sexual assault accusers to the event and stated he would appoint a special prosecutor to investigate [[Hillary Clinton]].
@@ -13283,7 +13283,7 @@
 (03:14:00) [[Wolfie]] suggested holding a rally near Mar-a-Lago with speakers like [[Nicholas J. Fuentes]] to tell Donald Trump how his supporters feel, but [[Nicholas J. Fuentes|Fuentes]] noted people close to Trump had already done this without success.
 
 ### AF 2021-05-14 0811
-(03:25:16) [[Barack Obama administration|Obama's hot dog]] summarized that [[Russia]]'s system was bad, yet the [[United States|American]] regime used a fake political dossier to justify [[Foreign Intelligence Surveillance Act|FISA]] wiretapping of Donald Trump's populist campaign, which [[Nicholas J. Fuentes]] affirmed.
+(03:25:16) [[Obama's hot dog]] summarized that [[Russia]]'s system was bad, yet the [[United States|American]] regime used a fake political dossier to justify [[Foreign Intelligence Surveillance Act|FISA]] wiretapping of Donald Trump's populist campaign, which [[Nicholas J. Fuentes]] affirmed.
 
 ### AF 2021-05-12 0810
 (14:02:940) Donald Trump maintains a 97% approval rating within the [[Republican Party]] as of May 2021.
@@ -13337,7 +13337,7 @@
 (00:53:00) [[Nicholas J. Fuentes]] stated that the future of right-wing politics involved a [[civil war]] over who would succeed and inherit the legacy of Donald Trump, a battle he said was currently leaning towards "Trump imposters" like [[Tim Scott]] and [[Marco Rubio]].
 
 ### AF 2021-05-10 0808
-(00:58:00) [[Nicholas J. Fuentes]] expressed concern that Donald Trump, by endorsing candidates like [[Tim Scott]] and [[Marco Rubio]] and trying to secure a majority for [[Mike Johnson|Kevin McCarthy]], was engaging in counterrevolutionary behavior that bolstered the establishment.
+(00:58:00) [[Nicholas J. Fuentes]] expressed concern that Donald Trump, by endorsing candidates like [[Tim Scott]] and [[Marco Rubio]] and trying to secure a majority for [[Kevin McCarthy]], was engaging in counterrevolutionary behavior that bolstered the establishment.
 
 ### AF 2021-05-10 0808
 (01:00:00) [[Nicholas J. Fuentes]] stated that, if necessary, he and his supporters would refuse to vote for candidates like [[Tim Scott]] and [[Marco Rubio]], just as they withheld votes from [[Kelly Loeffler]] and [[David Perdue]] in the [[Country of Georgia|Georgia]] [[Senate]] runoffs, despite Donald Trump's pleas.
@@ -13358,7 +13358,7 @@
 (02:00:56) [[Nicholas J. Fuentes]] agreed with a viewer's account of their absentee ballot being intercepted and filled out by someone else, stating this type of mail-in ballot fraud constituted the fraud in the 2020 election, where ballots were fabricated to overcome Trump's election day lead.
 
 ### AF 2021-05-07 0807
-(02:02:07) [[Nicholas J. Fuentes]] responded to a viewer's experience in the Pilsen neighborhood of [[City of Chicago|Chicago]], stating that there is more minority support for Trump than people acknowledge and that [[City of Chicago|Chicago]]'s working-class neighborhoods retain an "old school streak."
+(02:02:07) [[Nicholas J. Fuentes]] responded to a viewer's experience in the Pilsen neighborhood of [[Chicago]], stating that there is more minority support for Trump than people acknowledge and that [[Chicago]]'s working-class neighborhoods retain an "old school streak."
 
 ### AF 2021-05-06 0806
 (00:02:36) Donald Trump created his own platform, a website called "From the Desk of Donald Trump," which allowed only him to post statements in a one-way format.
@@ -13469,7 +13469,7 @@
 (01:04:20:41) Following the release of the "Access [[Los Angeles|Hollywood]]" tape in October 2016, [[Paul Ryan]] held a conference call telling [[Republican Party|Republicans]] they did not have to endorse Donald Trump, and there were discussions about replacing him at the top of the ticket.
 
 ### AF 2021-04-26 0799
-(01:04:43:95) After the [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] riot, Donald Trump was roundly condemned by [[Congress]], including by former allies like [[Tim Scott]], [[Lindsey Graham]], [[Mitch McConnell]], and [[Mike Johnson|Kevin McCarthy]].
+(01:04:43:95) After the [[January 6th Attack|January 6th]] [[United States Capitol|Capitol]] riot, Donald Trump was roundly condemned by [[Congress]], including by former allies like [[Tim Scott]], [[Lindsey Graham]], [[Mitch McConnell]], and [[Kevin McCarthy]].
 
 ### AF 2021-04-26 0799
 (01:05:12:87) [[Nicholas J. Fuentes]] claimed that compared to figures like [[George W. Bush]], [[Condoleezza Rice]], and institutions like the [[Heritage Foundation]], [[Cato Institute]], and [[American Enterprise Institute]], Donald Trump did not represent establishment power.
@@ -13958,7 +13958,7 @@
 (01:01:23) [[Mitch McConnell]] condemned Donald Trump as "practically and morally responsible" for provoking the events of [[January 6th Attack|January 6th]], despite voting to acquit him.
 
 ### AF 2021-02-15 0761
-(01:01:58) Donald Trump met with [[Mike Johnson|Kevin McCarthy]] at Mar-a-Lago and pledged to help [[Republican Party|Republicans]] regain a majority in the [[House of Representatives]] in the 2022 midterms.
+(01:01:58) Donald Trump met with [[Kevin McCarthy]] at Mar-a-Lago and pledged to help [[Republican Party|Republicans]] regain a majority in the [[House of Representatives]] in the 2022 midterms.
 
 ### AF 2021-02-15 0761
 (01:02:36) [[Lindsey Graham]] stated that Donald Trump called him and indicated he would be a "team player" in the future of the [[Republican Party]].
@@ -13988,13 +13988,13 @@
 (55:04:00) [[Nicholas J. Fuentes]] stated there is no Trumpism without Donald Trump, and the [[United States|America]] First insurgency's future is critically dependent on his level of involvement.
 
 ### AF 2021-02-15 0761
-(55:20:92) [[Nicholas J. Fuentes]] warned that if Donald Trump campaigns for establishment candidates at the behest of [[Mitch McConnell]] and [[Mike Johnson|Kevin McCarthy]], he will be working against the [[United States|America]] First movement.
+(55:20:92) [[Nicholas J. Fuentes]] warned that if Donald Trump campaigns for establishment candidates at the behest of [[Mitch McConnell]] and [[Kevin McCarthy]], he will be working against the [[United States|America]] First movement.
 
 ### AF 2021-02-15 0761
 (56:37:54) [[Nicholas J. Fuentes]] reported that [[Lindsey Graham]] said Donald Trump called him and conveyed that the former president would be a "team player."
 
 ### AF 2021-02-15 0761
-(57:06:56) [[Nicholas J. Fuentes]] framed the battle for the [[Republican Party]]'s future as between the establishment ([[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], [[Ronna McDaniel]], [[Nikki Haley]]) and the [[United States|America]] First insurgency ([[Marjorie Taylor Greene]], [[Paul Gosar]], Donald Trump).
+(57:06:56) [[Nicholas J. Fuentes]] framed the battle for the [[Republican Party]]'s future as between the establishment ([[Mitch McConnell]], [[Kevin McCarthy]], [[Ronna McDaniel]], [[Nikki Haley]]) and the [[United States|America]] First insurgency ([[Marjorie Taylor Greene]], [[Paul Gosar]], Donald Trump).
 
 ### AF 2021-02-15 0761
 (58:17:54) [[Nicholas J. Fuentes]] credited Donald Trump with destroying the old [[Republican Party|Republican]] establishment and beginning a realignment of the party toward nationalism, populism, and a focus on the working class.
@@ -14102,7 +14102,7 @@
 (27:02:90) [[Nicholas J. Fuentes]] listed [[Adam Kinzinger]] among other [[Republican Party|Republicans]] in the [[House]] and [[Senate]] who did not support Donald Trump when it mattered and continued to criticize him during the impeachment trial.
 
 ### AF 2021-02-10 0759
-(28:54:52) [[Nicholas J. Fuentes]] held a solo rally with [[John Doyle]] in [[City of Lansing|Lansing]], [[State of Michigan|Michigan]], as part of Stop the Steal, which he believed could have been a tipping point for state legislatures to appoint their own electors for Donald Trump if not for external pressure.
+(28:54:52) [[Nicholas J. Fuentes]] held a solo rally with [[John Doyle]] in [[Lansing]], [[State of Michigan|Michigan]], as part of Stop the Steal, which he believed could have been a tipping point for state legislatures to appoint their own electors for Donald Trump if not for external pressure.
 
 ### AF 2021-02-10 0759
 (35:36:85) The [[House]] impeachment trial memorandum accused Donald Trump of being liable for insurrectionists who "killed a [[Capitol police]] officer by striking him in the head with a fire extinguisher," sourcing that claim solely to the [[The New York Times|New York Times]].
@@ -14150,13 +14150,13 @@
 (00:58:24) [[Nicholas J. Fuentes]] characterized the campaign against [[Marjorie Taylor Greene]] as a bad-faith political hit job intended to punish dissent and disempower Donald Trump supporters, not to address her comments.
 
 ### AF 2021-02-04 0755
-(01:02:20) [[Nicholas J. Fuentes]] stated that Donald Trump met with [[Mike Johnson|Kevin McCarthy]] at Mar-a-Lago and pledged to help him regain the [[House]] majority in 2022, while [[Mike Johnson|Kevin McCarthy]] was simultaneously working to remove one of Trump's biggest supporters, [[Marjorie Taylor Greene]], from her committees.
+(01:02:20) [[Nicholas J. Fuentes]] stated that Donald Trump met with [[Kevin McCarthy]] at Mar-a-Lago and pledged to help him regain the [[House]] majority in 2022, while [[Kevin McCarthy]] was simultaneously working to remove one of Trump's biggest supporters, [[Marjorie Taylor Greene]], from her committees.
 
 ### AF 2021-02-04 0755
-(01:03:09) [[Nicholas J. Fuentes]] listed [[Ted Cruz]], [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], [[Adam Kinzinger]], and [[Liz Cheney]] as examples of [[Republican Party]] figures who had turned against Donald Trump and his supporters.(01:04:55) The [[Zionist Organization of America|ZOA]] called for [[Nicholas J. Fuentes]] to be banned from all platforms.
+(01:03:09) [[Nicholas J. Fuentes]] listed [[Ted Cruz]], [[Mitch McConnell]], [[Kevin McCarthy]], [[Adam Kinzinger]], and [[Liz Cheney]] as examples of [[Republican Party]] figures who had turned against Donald Trump and his supporters.(01:04:55) The [[Zionist Organization of America|ZOA]] called for [[Nicholas J. Fuentes]] to be banned from all platforms.
 
 ### AF 2021-02-04 0755
-(01:09:34) [[Matt Gaetz]] stated on [[War Room]] with [[Steven Crowder|Steve Bannon]] that he would step down from [[Congress]] to defend Donald Trump in an impeachment trial.
+(01:09:34) [[Matt Gaetz]] stated on [[War Room]] with [[Steve Bannon]] that he would step down from [[Congress]] to defend Donald Trump in an impeachment trial.
 
 ### AF 2021-02-04 0755
 (01:11:36) Donald Trump's only significant political apology was for the "locker room talk" comments during the 2016 election.
@@ -14384,7 +14384,7 @@
 (00:23:30) [[Nicholas J. Fuentes]] reported that Trump was planning to unveil over a hundred pardons and sentence commutations on his final full day, a unilateral power he had used less frequently than his predecessors.
 
 ### AF 2021-01-19 0745
-(00:24:21) [[Nicholas J. Fuentes]] stated that despite having nothing left to lose, Trump's final pardons did not include loyalists like [[Julian Assange]], [[Edward Snowden]], [[Steven Crowder|Steve Bannon]], or [[United States Capitol|Capitol]] rioters, but instead rewarded enemies.
+(00:24:21) [[Nicholas J. Fuentes]] stated that despite having nothing left to lose, Trump's final pardons did not include loyalists like [[Julian Assange]], [[Edward Snowden]], [[Steve Bannon]], or [[United States Capitol|Capitol]] rioters, but instead rewarded enemies.
 
 ### AF 2021-01-19 0745
 (00:25:22) [[Nicholas J. Fuentes]] argued that none of Trump's die-hard supporters who breached the [[United States Capitol|Capitol]] on [[January 6th Attack|January 6th]] were being considered for pardons, while critics like [[Snoop Dogg]]'s associate were.
@@ -14396,10 +14396,10 @@
 (00:26:47) [[Nicholas J. Fuentes]] reported that [[Snoop Dogg]], an outspoken critic of Trump who made a video pretending to shoot a clown dressed as the president, had secretly lobbied [[the White House]] for the pardon of Michael "Harry O" [[Kamala Harris|Harris]].
 
 ### AF 2021-01-19 0745
-(00:28:08) [[Nicholas J. Fuentes]] characterized the Trump administration as one that "rewards its worst enemies and saboteurs and punishes its loyalists," with [[Steven Crowder|Steve Bannon]] facing jail while critics received pardons.
+(00:28:08) [[Nicholas J. Fuentes]] characterized the Trump administration as one that "rewards its worst enemies and saboteurs and punishes its loyalists," with [[Steve Bannon]] facing jail while critics received pardons.
 
 ### AF 2021-01-19 0745
-(00:28:56) [[Nicholas J. Fuentes]] reported a rumor that Trump wanted to pardon [[Julian Assange]] and [[Steven Crowder|Steve Bannon]] but was talked out of it by advisors after [[Mitch McConnell]] threatened to allow Trump's conviction in the [[Senate]] impeachment trial.
+(00:28:56) [[Nicholas J. Fuentes]] reported a rumor that Trump wanted to pardon [[Julian Assange]] and [[Steve Bannon]] but was talked out of it by advisors after [[Mitch McConnell]] threatened to allow Trump's conviction in the [[Senate]] impeachment trial.
 
 ### AF 2021-01-19 0745
 (00:30:02) [[Nicholas J. Fuentes]] asserted that the 2020 presidential election involved "massive voter fraud" and a "coordinated massive effort to overturn the results" in six states, which Trump had claimed since election night.
@@ -14534,7 +14534,7 @@
 (23:15:48) [[Nicholas J. Fuentes]] stated that President Trump, for the first [[time]], spoke at a "Stop the Steal" rally, organized with groups like Women for [[United States|America]] First and March for Trump.
 
 ### AF 2021-01-07 0741
-(24:43:24) [[Nicholas J. Fuentes]] said flights into [[Washington D.C.|Washington, D.C.]] were packed with Trump supporters from across the [[country]], including from liberal cities like [[City of Chicago|Chicago]].
+(24:43:24) [[Nicholas J. Fuentes]] said flights into [[Washington D.C.|Washington, D.C.]] were packed with Trump supporters from across the [[country]], including from liberal cities like [[Chicago]].
 
 ### AF 2021-01-07 0741
 (25:25:04) [[Nicholas J. Fuentes]] outlined the plan: the Trump rally on the Ellipse started at 8 a.m., the President spoke at 11 a.m., and then attendees marched to the [[Capitol building]].
@@ -15176,7 +15176,7 @@
 (02:06:07) [[Nicholas J. Fuentes]] cited a [[Project Veritas]] release of secret recordings showing [[Warner Bros. Discovery|CNN]] executives planning to suppress coverage of Donald Trump not conceding the election.
 
 ### AF 2020-12-01 0726
-(02:08:50) [[Nicholas J. Fuentes]] reported that the [[Arizona State Legislature]] canceled its official public hearing, forcing an unofficial hearing to be organized by the Trump campaign and [[Republican Party|Republican]] state lawmakers at a [[Hyatt]] hotel in [[City of Phoenix|Phoenix]].
+(02:08:50) [[Nicholas J. Fuentes]] reported that the [[Arizona State Legislature]] canceled its official public hearing, forcing an unofficial hearing to be organized by the Trump campaign and [[Republican Party|Republican]] state lawmakers at a [[Hyatt]] hotel in [[Phoenix]].
 
 ### AF 2020-12-01 0726
 (02:11:55) [[Nicholas J. Fuentes]] cited testimony from "Dr. Shiva" [[who]] argued that statistical analysis of [[Arizona]] vote chronologies was only possible if voting machines were destroying Trump ballots.
@@ -15314,7 +15314,7 @@
 (01:01:10) [[Nicholas J. Fuentes]] claimed that [[Gabriel Sterling]], [[Country of Georgia|Georgia]]'s voting implementation manager, said the discovery of the 2,600 ballots did not change the election outcome but slightly changed the percentages in Trump's favor.(01:27:26) [[Nicholas J. Fuentes]] stated that the [[United States|America]] First movement was largely responsible for the [[organization]] and turnout of the Million MAGA March in [[Washington D.C.|Washington, D.C.]].
 
 ### AF 2020-11-16 0721
-(01:56:01) [[Nicholas J. Fuentes]] commented on a tweet from [[Mike Johnson|Kevin McCarthy]], calling it "disgusting" and stating that if Donald Trump does not win the election, "Moloch worshipping pedophiles" like [[McCarthy]] would run the [[Republican Party]].
+(01:56:01) [[Nicholas J. Fuentes]] commented on a tweet from [[Kevin McCarthy]], calling it "disgusting" and stating that if Donald Trump does not win the election, "Moloch worshipping pedophiles" like [[McCarthy]] would run the [[Republican Party]].
 
 ### AF 2020-11-16 0721
 (02:28:37) [[Nicholas J. Fuentes]] stated that [[Governor Kemp]] was betraying Donald Trump by calling for a hand recount of votes in [[Country of Georgia|Georgia]].
@@ -15503,7 +15503,7 @@
 (01:27:33) The pattern observed in swing states was that Donald Trump held a lead, counting was stopped, and then resumed hours later with tens or hundreds of thousands of mail-in ballots favoring [[Joe Biden]] from major [[Democratic Party|Democratic]] cities.
 
 ### AF 2020-11-04 0716
-(01:43:14) A tweet from [[FiveThirtyEight]] reported that a batch of 23,277 votes from [[City of Philadelphia|Philadelphia]], [[Commonwealth of Pennsylvania|Pennsylvania]] were all for [[Joe Biden]], with zero votes for Donald Trump.
+(01:43:14) A tweet from [[FiveThirtyEight]] reported that a batch of 23,277 votes from [[Philadelphia]], [[Commonwealth of Pennsylvania|Pennsylvania]] were all for [[Joe Biden]], with zero votes for Donald Trump.
 
 ### AF 2020-11-04 0716
 (01:46:02) Donald Trump's campaign filed a lawsuit in [[Country of Georgia|Georgia]] to require counties to separate late-arriving absentee ballots, sought a recount in [[Wisconsin]], and sued for access to vote counting in [[State of Michigan|Michigan]] and [[Commonwealth of Pennsylvania|Pennsylvania]].
@@ -15518,7 +15518,7 @@
 (01:56:53) [[Nicholas J. Fuentes]] reported that Donald Trump's lead in [[Country of Georgia|Georgia]] had shrunk from 372,000 votes at midnight to 39,000 votes, which he attributed to the "Atlanta effect" similar to vote dumps in [[Milwaukee]] and [[City|Detroit]].
 
 ### AF 2020-11-04 0716
-(01:59:33) [[Nate Cohn]] stated that a vote dump in [[City of Phoenix|Maricopa County]], [[Arizona]] favored Donald Trump by 18 points, tightening the race and precluding a call for the state that night.
+(01:59:33) [[Nate Cohn]] stated that a vote dump in [[Maricopa County]], [[Arizona]] favored Donald Trump by 18 points, tightening the race and precluding a call for the state that night.
 
 ### AF 2020-11-04 0716
 (02:00:31) Major media outlets showed [[Joe Biden]] with 253 electoral votes and Donald Trump with 214, with several swing states between 86% and 95% reported.
@@ -15743,7 +15743,7 @@
 (03:47:28) Pre-election polling averages from [[RealClearPolitics]] had shown [[Joe Biden]] leading by five points in [[State of Michigan|Michigan]] and six points in [[Wisconsin]], but early returns showed Donald Trump performing strongly in both states.
 
 ### AF 2020-11-03 0715
-(03:47:48) Donald Trump was outperforming his 2016 vote totals in [[Oakland County]] and [[City of Detroit|Wayne County]], key [[Democratic Party|Democratic]] strongholds in [[State of Michigan|Michigan]].
+(03:47:48) Donald Trump was outperforming his 2016 vote totals in [[Oakland County]] and [[Wayne County]], key [[Democratic Party|Democratic]] strongholds in [[State of Michigan|Michigan]].
 
 ### AF 2020-11-03 0715
 (03:47:59) Donald Trump had exceeded his 2016 vote totals in [[Iowa]], specifically in [[Polk County]] and [[Cedar County]].
@@ -15848,7 +15848,7 @@
 (06:34:46) [[Nicholas J. Fuentes]] noted Trump held a 700,000-vote lead in [[Commonwealth of Pennsylvania|Pennsylvania]] with 67% of estimated votes reported, according to [[The New York Times]].
 
 ### AF 2020-11-03 0715
-(06:35:14) [[Nicholas J. Fuentes]] identified [[Pittsburgh]] and [[City of Philadelphia|Philadelphia]] as key [[Democratic Party|Democratic]] strongholds in [[Commonwealth of Pennsylvania|Pennsylvania]] where vote counting was only halfway complete, posing a potential challenge to Trump's lead.
+(06:35:14) [[Nicholas J. Fuentes]] identified [[Pittsburgh]] and [[Philadelphia]] as key [[Democratic Party|Democratic]] strongholds in [[Commonwealth of Pennsylvania|Pennsylvania]] where vote counting was only halfway complete, posing a potential challenge to Trump's lead.
 
 ### AF 2020-11-03 0715
 (06:36:03) [[Nicholas J. Fuentes]] referenced a [[FiveThirtyEight]] model stating that if Trump won [[State of Michigan|Michigan]], he would also win [[Country of Georgia|Georgia]], [[Commonwealth of Pennsylvania|Pennsylvania]], and [[Arizona]].
@@ -15863,7 +15863,7 @@
 (06:37:08) A friend from the Trump campaign told [[Nicholas J. Fuentes]] that they had won the election barring any theft of votes.
 
 ### AF 2020-11-03 0715
-(06:37:22) [[Nicholas J. Fuentes]] asserted the election would hinge on the Trump campaign's ability to prevent fraud in [[City of Philadelphia|Philadelphia]], [[Atlanta]], [[City|Detroit]], and [[Milwaukee]].
+(06:37:22) [[Nicholas J. Fuentes]] asserted the election would hinge on the Trump campaign's ability to prevent fraud in [[Philadelphia]], [[Atlanta]], [[City|Detroit]], and [[Milwaukee]].
 
 ### AF 2020-11-03 0715
 (06:38:48) [[Nicholas J. Fuentes]] calculated that Trump led [[Joe Biden]] 51% to 47% in [[Wisconsin]] and questioned if [[Milwaukee]]'s remaining votes alone could flip the state.
@@ -15902,7 +15902,7 @@
 (06:50:44) Trump had surpassed his 2016 popular vote total, according to a tweet cited by [[Nicholas J. Fuentes]].
 
 ### AF 2020-11-03 0715
-(06:51:01) [[Chris Buskirk]] tweeted that Trump had nearly matched his 2016 vote total in [[City of Philadelphia|Philadelphia]] with only 46% of votes counted, suggesting there weren't enough remaining votes for [[Joe Biden]] to close the gap in [[Commonwealth of Pennsylvania|Pennsylvania]].
+(06:51:01) [[Chris Buskirk]] tweeted that Trump had nearly matched his 2016 vote total in [[Philadelphia]] with only 46% of votes counted, suggesting there weren't enough remaining votes for [[Joe Biden]] to close the gap in [[Commonwealth of Pennsylvania|Pennsylvania]].
 
 ### AF 2020-11-03 0715
 (06:51:18) [[Nicholas J. Fuentes]] felt confident Trump would win [[Commonwealth of Pennsylvania|Pennsylvania]] and, based on [[John James]]'s performance, [[State of Michigan|Michigan]].
@@ -15998,7 +15998,7 @@
 (07:26:28) [[Nicholas J. Fuentes]] praised Trump's speech as perfect for declaring victory, spotlighting potential fraud, and threatening [[Supreme Court of the United States|Supreme Court]] action.
 
 ### AF 2020-11-03 0715
-(07:27:15) [[Nicholas J. Fuentes]] argued that Trump's decision to claim victory and threaten legal action prevented the election from being stolen in cities like [[Atlanta]] and [[City of Philadelphia|Philadelphia]].
+(07:27:15) [[Nicholas J. Fuentes]] argued that Trump's decision to claim victory and threaten legal action prevented the election from being stolen in cities like [[Atlanta]] and [[Philadelphia]].
 
 ### AF 2020-11-03 0715
 (07:28:55) [[Ben Shapiro]] tweeted that Trump had not already won the election and that it was deeply irresponsible for him to say so.
@@ -16232,7 +16232,7 @@
 (01:35:00) [[Nicholas J. Fuentes]] characterized the control of information by [[Facebook]], [[Google]], and [[Twitter]] as an existential threat more important than any single election, arguing it would make the election of someone like Donald Trump impossible in the future.
 
 ### AF 2020-10-27 0710
-(01:06:00) [[Nicholas J. Fuentes]] suggested the [[City of Philadelphia|Philadelphia]] riots might help Donald Trump win [[Commonwealth of Pennsylvania|Pennsylvania]] and the election by highlighting lawlessness a week before voters went to the polls.
+(01:06:00) [[Nicholas J. Fuentes]] suggested the [[Philadelphia]] riots might help Donald Trump win [[Commonwealth of Pennsylvania|Pennsylvania]] and the election by highlighting lawlessness a week before voters went to the polls.
 
 ### AF 2020-10-26 0709
 (00:50:15) Donald Trump signed an executive order reclassifying federal administration employees to allow for easier dismissal, a move characterized by critics as an edict expected under a dictatorship.
@@ -16529,7 +16529,7 @@
 (00:03:13) [[Nicholas J. Fuentes]] observed that significant [[Islam|Muslim]] terrorism in [[Europe]] and the [[United States]] subsided quickly after Donald Trump was elected.
 
 ### AF 2020-10-19 0704
-(00:05:01) [[Nicholas J. Fuentes]] cited the Bataclan mass shooting in [[Paris]], a truck attack in [[Nice]], and attacks in [[Sweden]], the [[Kingdom of the Netherlands|Netherlands]], [[San Bernardino]], and [[City of Orlando|Orlando]] as examples of frequent terrorism prior to Donald Trump's election.
+(00:05:01) [[Nicholas J. Fuentes]] cited the Bataclan mass shooting in [[Paris]], a truck attack in [[Nice]], and attacks in [[Sweden]], the [[Kingdom of the Netherlands|Netherlands]], [[San Bernardino]], and [[Orlando]] as examples of frequent terrorism prior to Donald Trump's election.
 
 ### AF 2020-10-19 0704
 (00:06:17) [[Nicholas J. Fuentes]] stated that [[Roger Cohen]], a [[Jews|Jewish]] writer for the [[The New York Times|New York Times]], argued that Donald Trump represents the last stand of white [[United States|America]] against the "great replacement."
@@ -16556,7 +16556,7 @@
 (00:24:36) [[Roger Cohen]] wrote that the "great replacement conspiracy theory" warns of "a genocide by substitution" and in Trump's case, a "white [[United States|American]] order replaced by brown Mexican rapists and [[black]] pillagers."
 
 ### AF 2020-10-19 0704
-(00:45:11) [[Nicholas J. Fuentes]] stated that two Trump supporters were killed, one in [[Denver]], [[State of Colorado|Colorado]] and another in [[City of Portland|Portland]], as part of what he called state-sponsored violence against representatives of the traditional [[United States|American]] nation.
+(00:45:11) [[Nicholas J. Fuentes]] stated that two Trump supporters were killed, one in [[Denver]], [[State of Colorado|Colorado]] and another in [[Portland]], as part of what he called state-sponsored violence against representatives of the traditional [[United States|American]] nation.
 
 ### AF 2020-10-19 0704
 (01:35:25) [[Nicholas J. Fuentes]] stated that his ideal speakers for a "[[Groyper]] Summit" would be [[Tucker Carlson]], [[Patrick Buchanan|Pat Buchanan]], and Donald Trump.
@@ -16832,7 +16832,7 @@
 (02:16:27) Donald Trump was looking to appoint another commissioner to the [[Federal Communications Commission|FCC]] to gain a majority to revise the interpretation of Section 230.
 
 ### AF 2020-10-15 0702
-(02:18:30) Policy actions taken for [[Israel]] under Donald Trump included recognizing [[City of Jerusalem|Jerusalem]] as the capital, moving the [[United States Embassy in Jerusalem|embassy]], recognizing [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], designating the [[Iran|IRGC]] as a terrorist group, allowing settlement expansion, greenlighting foreign aid, and passing anti-[[BDS]] laws.
+(02:18:30) Policy actions taken for [[Israel]] under Donald Trump included recognizing [[Jerusalem]] as the capital, moving the [[United States Embassy in Jerusalem|embassy]], recognizing [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], designating the [[Iran|IRGC]] as a terrorist group, allowing settlement expansion, greenlighting foreign aid, and passing anti-[[BDS]] laws.
 
 ### AF 2020-10-15 0702
 (02:20:27) Donald Trump facilitated normalization deals between [[Israel]] and both the [[United Arab Emirates]] and [[Bahrain]].
@@ -16847,7 +16847,7 @@
 (02:33:20) A voter at a Donald Trump town hall told him he had a great smile, which [[Nicholas J. Fuentes]] described as a humanizing moment.
 
 ### AF 2020-10-14 0701
-(02:21:17) [[Nicholas J. Fuentes]] asserted that Donald Trump's pro-[[Israel]] policies, such as moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], were driven by the $200 million campaign support from donor [[Sheldon Adelson]].
+(02:21:17) [[Nicholas J. Fuentes]] asserted that Donald Trump's pro-[[Israel]] policies, such as moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], were driven by the $200 million campaign support from donor [[Sheldon Adelson]].
 
 ### AF 2020-10-14 0701
 (02:21:53) [[Nicholas J. Fuentes]] listed Donald Trump's immigration achievements, including building 360 miles of border wall, cutting projected immigration by 47%, and ending catch-and-release for asylum seekers.
@@ -16862,7 +16862,7 @@
 (00:32:32) [[Vic Berger]], whose claim to fame is video edits of Donald Trump, appeared to advocate for violence against [[Timothy Gionet|Baked Alaska]] in a tweet.
 
 ### AF 2020-10-13 0700
-(01:01:40) [[Nicholas J. Fuentes]] contrasted the media's prolonged coverage of [[Heather Heyer]]'s death in [[City of Charlottesville|Charlottesville]] with the lack of coverage for two killed Trump supporters, [[Jay Bishop]] and [[Lee Keltner]].
+(01:01:40) [[Nicholas J. Fuentes]] contrasted the media's prolonged coverage of [[Heather Heyer]]'s death in [[Charlottesville]] with the lack of coverage for two killed Trump supporters, [[Jay Bishop]] and [[Lee Keltner]].
 
 ### AF 2020-10-13 0700
 (01:02:08) [[Nicholas J. Fuentes]] stated that a woman in [[Los Angeles]] was recently charged for deliberately running over Trump supporters at a pro-Trump rally with her car, another incident that received little media attention.
@@ -16889,7 +16889,7 @@
 (00:03:10) [[Reince Priebus]] was identified as one of the individuals responsible for selecting [[White House]] personnel [[who]] thwarted Donald Trump's agenda during his first term.
 
 ### AF 2020-10-09 0699
-(00:04:19) The second presidential debate between Donald Trump and [[Joe Biden]], scheduled for October 15th in [[City of Miami|Miami]], was officially canceled.
+(00:04:19) The second presidential debate between Donald Trump and [[Joe Biden]], scheduled for October 15th in [[Miami]], was officially canceled.
 
 ### AF 2020-10-09 0699
 (00:04:46) Following Donald Trump's refusal to participate in a virtual format, the [[Joe Biden|Biden]] campaign scheduled a town hall on [[ABC News]] for the same night.
@@ -17093,7 +17093,7 @@
 (00:53:59) [[Kamala Harris]] criticized Donald Trump for pulling the [[United States|U.S]]. out of the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which she said made the [[country]] less safe.
 
 ### AF 2020-10-07 0697
-(00:54:43) [[Mike Pence]] countered that Donald Trump kept his word by moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], a promise he said [[Joe Biden]] made but never fulfilled.
+(00:54:43) [[Mike Pence]] countered that Donald Trump kept his word by moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], a promise he said [[Joe Biden]] made but never fulfilled.
 
 ### AF 2020-10-07 0697
 (00:54:57) [[Mike Pence]] claimed [[North Atlantic Treaty Organization|NATO]] allies were contributing more to common defense than ever before due to Donald Trump's leadership.
@@ -17363,7 +17363,7 @@
 (05:31:54) According to data cited by [[Nicholas J. Fuentes]], [[Chris Wallace]] interrupted Donald Trump 76 times during the debate compared to 15 interruptions of [[Joe Biden]].
 
 ### AF 2020-09-30 0692
-(05:37:28) Throughout the debate, Donald Trump pressured [[Joe Biden]] into stating he was not in favor of the Green New Deal, [[Health and Human Services|Medicare]] for All, or defunding the police.
+(05:37:28) Throughout the debate, Donald Trump pressured [[Joe Biden]] into stating he was not in favor of the Green New Deal, [[Medicare]] for All, or defunding the police.
 
 ### AF 2020-09-30 0692
 (06:01:60) Donald Trump refused to commit to accepting the election results unequivocally, citing concerns about mail-in ballot fraud.
@@ -17483,7 +17483,7 @@
 (25:23:57) Donald Trump accused [[Democratic Party|Democrat]] governors in states like [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Michigan|Michigan]], and [[North Carolina]] of keeping their states shut down for political reasons until after the election, causing increased divorce, alcoholism, and drug abuse.
 
 ### AF 2020-09-29 0691
-(26:35:63) [[Joe Biden]] described a "K-shaped recovery" where millionaires and billionaires like Donald Trump did well, making an additional $300 billion during the crisis, while working-class people in towns like [[City of Scranton|Scranton]] suffered.
+(26:35:63) [[Joe Biden]] described a "K-shaped recovery" where millionaires and billionaires like Donald Trump did well, making an additional $300 billion during the crisis, while working-class people in towns like [[Scranton]] suffered.
 
 ### AF 2020-09-29 0691
 (27:02:35) [[Joe Biden]] claimed Donald Trump would be the first president to leave office with fewer jobs than when he started, and that the people losing jobs were front-line workers.
@@ -17534,10 +17534,10 @@
 (42:57:63) [[Joe Biden]] stated, "My son did nothing wrong at Burisma," and accused Donald Trump of not wanting to talk about the needs of the [[United States|American]] people.
 
 ### AF 2020-09-29 0691
-(43:32:97) [[Chris Wallace]] ended the segment and moved to the issue of race, noting [[Joe Biden]] said Donald Trump's "very fine people on both sides" comment after [[City of Charlottesville|Charlottesville]] directly led to his presidential run.
+(43:32:97) [[Chris Wallace]] ended the segment and moved to the issue of race, noting [[Joe Biden]] said Donald Trump's "very fine people on both sides" comment after [[Charlottesville]] directly led to his presidential run.
 
 ### AF 2020-09-29 0691
-(44:53:83) [[Joe Biden]] described the 2017 [[City of Charlottesville|Charlottesville rally]] with people carrying torches and spewing anti-Semitic bile, accompanied by the [[Ku Klux Klan]], and stated Donald Trump's "very fine people on both sides" remark was a [[turning point]].
+(44:53:83) [[Joe Biden]] described the 2017 [[Charlottesville rally]] with people carrying torches and spewing anti-Semitic bile, accompanied by the [[Ku Klux Klan]], and stated Donald Trump's "very fine people on both sides" remark was a [[turning point]].
 
 ### AF 2020-09-29 0691
 (45:36:29) [[Joe Biden]] cited the peaceful protest at the [[White House]] after [[George Floyd]]'s death, accusing Donald Trump of having military use tear gas to clear a path so he could walk to a church and hold up a Bible.
@@ -17552,7 +17552,7 @@
 (48:06:59) Donald Trump claimed he had the support of 250 military leaders and generals, and almost every law enforcement group, while [[Joe Biden]] couldn't say "law enforcement" without losing radical left supporters.
 
 ### AF 2020-09-29 0691
-(48:48:33) Donald Trump accused [[Joe Biden]] of being controlled by radical left [[Democratic Party|Democrats]] [[who]] run cities like [[City of Portland|Portland]], [[City of Chicago|Chicago]], and [[City of Seattle|Seattle]], and stated he would restore law and order if called in.
+(48:48:33) Donald Trump accused [[Joe Biden]] of being controlled by radical left [[Democratic Party|Democrats]] [[who]] run cities like [[Portland]], [[Chicago]], and [[Seattle]], and stated he would restore law and order if called in.
 
 ### AF 2020-09-29 0691
 (49:47:97) [[Joe Biden]] answered yes, citing systemic injustice in education, work, and law enforcement, but stated the vast majority of police officers were good and that bad apples needed to be held(01:31:01) Donald Trump argued that modern cars have become too expensive due to the proliferation of onboard computers designed to save small amounts of gasoline.
@@ -17597,7 +17597,7 @@
 (01:42:55) Donald Trump asserted that mail-in voting would lead to massive fraud, referencing alleged incidents in [[State of West Virginia|West Virginia]] where mail carriers sold ballots and ballots were dumped in rivers.
 
 ### AF 2020-09-29 0691
-(01:46:53) Donald Trump urged his supporters to go to the polls and watch carefully, citing an incident in [[City of Philadelphia|Philadelphia]] where poll watchers were allegedly thrown out, and stated he could not accept the election if he saw "tens of thousands of ballots being manipulated."
+(01:46:53) Donald Trump urged his supporters to go to the polls and watch carefully, citing an incident in [[Philadelphia]] where poll watchers were allegedly thrown out, and stated he could not accept the election if he saw "tens of thousands of ballots being manipulated."
 
 ### AF 2020-09-29 0691
 (01:47:42) Donald Trump stated that if the election was fraudulent, he would not accept the results, defining a fraudulent election as one involving 80 million unsolicited mail-in ballots that the system was not equipped to handle.
@@ -17870,7 +17870,7 @@
 (00:46:03) [[Nicholas J. Fuentes]] argued that the primary objective of the coronavirus pandemic response was to sabotage Donald Trump's re-election by proposing another lockdown as his poll numbers improved.
 
 ### AF 2020-09-10 0678
-(00:07:59) The Trump campaign released an advertisement featuring [[Joe Biden]] saying "largely peaceful protests" juxtaposed with footage of violent riots, police attacks, and a bombed federal courthouse in [[City of Portland|Portland]].
+(00:07:59) The Trump campaign released an advertisement featuring [[Joe Biden]] saying "largely peaceful protests" juxtaposed with footage of violent riots, police attacks, and a bombed federal courthouse in [[Portland]].
 
 ### AF 2020-09-10 0678
 (00:22:18) [[Nicholas J. Fuentes]] cited the accidental erasure of phone records for 15 people involved in the Trump investigation as an example of the law not applying to people at the top.
@@ -17885,7 +17885,7 @@
 (03:04:05) [[Nate Silver]] and other political analysts reportedly argued that the more violent [[Black Lives Matter]] protests were perceived, the more swing states drifted towards Donald Trump.
 
 ### AF 2020-09-09 0677
-(03:36:50) [[Nicholas J. Fuentes]] argued that Donald Trump should allow riots in cities like [[City of Minneapolis|Minneapolis]] and [[City of Kenosha|Kenosha]] to continue through the election to improve his chances in swing states like [[Wisconsin]] and [[Minnesota]].
+(03:36:50) [[Nicholas J. Fuentes]] argued that Donald Trump should allow riots in cities like [[Minneapolis]] and [[Kenosha]] to continue through the election to improve his chances in swing states like [[Wisconsin]] and [[Minnesota]].
 
 ### AF 2020-09-09 0677
 (04:25:40) [[Nicholas J. Fuentes]] reported that major news stories, such as troop withdrawals from [[Iraq]] and Donald Trump's [[Nobel Peace Prize]] nomination, were being suppressed on social media platforms like [[Twitter]] in favor of negative stories about Donald Trump.
@@ -17981,10 +17981,10 @@
 (01:00:01) [[Nicholas J. Fuentes]] identified Donald Trump personally, [[Tucker Carlson]] on [[Fox News|Fox]], and independent figures like himself as pockets of resistance against powerful institutions, but stated the goal must be to infiltrate and build institutions to gain political power.
 
 ### AF 2020-09-01 0672
-(00:20:44) Donald Trump visited [[City of Kenosha|Kenosha]], [[Wisconsin]], to survey the rubble of destroyed buildings following riots, producing campaign optics that [[Nicholas J. Fuentes]] described as effective.
+(00:20:44) Donald Trump visited [[Kenosha]], [[Wisconsin]], to survey the rubble of destroyed buildings following riots, producing campaign optics that [[Nicholas J. Fuentes]] described as effective.
 
 ### AF 2020-09-01 0672
-(00:35:32) [[Nicholas J. Fuentes]] argued that Trump's campaign strategy, including his visit to [[City of Kenosha|Kenosha]], signaled a return to his 2016 instincts and a move away from the influence of [[Jared Kushner]].
+(00:35:32) [[Nicholas J. Fuentes]] argued that Trump's campaign strategy, including his visit to [[Kenosha]], signaled a return to his 2016 instincts and a move away from the influence of [[Jared Kushner]].
 
 ### AF 2020-09-01 0672
 (00:56:84) A trending hashtag on [[Twitter]] alleged that Donald Trump suffered a series of mini-strokes last year, a claim [[Nicholas J. Fuentes]] characterized as astroturfed and artificially amplified.
@@ -18014,7 +18014,7 @@
 (06:04:14) [[Nicholas J. Fuentes]] suggested that if Donald Trump refused to concede a contested election, the ensuing constitutional crisis would depend on where institutional power—including the military, Secret Service, and social media giants like [[Twitter]] and [[Facebook]]—aligned.
 
 ### AF 2020-08-31 0671
-(00:02:30) [[City of Portland|Portland]] experienced 90 days of continuous unrest involving [[Antifa]] and [[Black Lives Matter]], including an attempt to explode a federal courthouse with explosives and fireworks. (00:03:06) A caravan of approximately 600 Trump supporters with trucks and flags entered [[City of Portland|Portland]], leading to a major clash with left-wing protesters. (00:03:19) [[Jay Bishop]], a member of the group [[Patriot Prayer]], was shot and killed by an [[Antifa]] member during the clashes in [[City of Portland|Portland]]. (00:04:02) Major media outlets like the [[Associated Press]] and the [[The New York Times|New York Times]] did not report that an [[Antifa]] member killed a Trump supporter in [[City of Portland|Portland]]. (00:04:43) [[Nicholas J. Fuentes]] covered three days of the [[Republican Party|RNC]], specifically Monday, Wednesday, and Thursday. (00:05:50) [[Nicholas J. Fuentes]] hosted [[Patrick]], [[Jaden]], [[Beardson]], and [[Jake Lloyd]] in [[City of Chicago|Chicago]] after plans to attend the [[Republican Party|RNC]] in [[Jacksonville]] were canceled. (00:07:29) Donald Trump's speech at the [[Republican Party|RNC]] was distinct from the mainstream establishment performances of other speakers. (00:08:54) [[Mike Pence]] delivered a strong performance at the [[Republican Party|RNC]], and Donald Trump's speech was also considered strong despite some expected "cringe" elements. (00:09:11) The final night of the [[Republican Party|RNC]] featured a fireworks display, an opera singer, and Donald Trump's family in front of the [[White House]], which was considered a great success. (00:09:48) Donald Trump's speech at the [[Republican Party|RNC]] drew 23.4 million television viewers, while [[Joe Biden]]'s drew 24.6 million, according to [[Nielsen]]. (00:10:00) The [[DNC]] averaged 21.6 million viewers across four nights, while the [[Republican Party|RNC]] averaged 19.4 million. (00:10:21) Donald Trump publicly disputed the [[Nielsen]] ratings on [[Twitter]], claiming the [[Republican Party|RNC]] had 147.9 million viewers when digital viewership was included. (00:11:56) Major cable news channels like [[MSNBC]] and [[Warner Bros. Discovery|CNN]] carried wall-to-wall coverage of the [[DNC]] but did not carry the first nights of the [[Republican Party|RNC]]. (00:12:30) The [[Republican Party|RNC]] featured a noticeable number of [[black]] speakers, with 12 appearing over the course of the convention. (00:14:16) [[Tim Scott]] invoked [[George Floyd]] and [[Breonna Taylor]] during his speech at the [[Republican Party|RNC]]. (00:14:28) [[Nikki Haley]] spoke of her [[India|Indian]] roots and alluded to her decision to take down the Confederate flag during her [[Republican Party|RNC]] speech. (00:14:33) [[Herschel Walker]] stated he had seen racism up close and that Donald Trump was not racist during his [[Republican Party|RNC]] speech. (00:15:14) [[Mark]] and [[Patricia McCloskey]], the couple [[who]] pointed guns at [[Black Lives Matter]] protesters in [[City of St. Louis|St. Louis]], spoke at the [[Republican Party|RNC]] about suburban safety. (00:16:48) Speeches at the [[Republican Party|RNC]] played to white anxiety about crime, immigration, and demographic change, with Donald Trump specifically talking about illegal immigration and the wall. (00:17:32) The [[Republican Party|RNC]] included speeches about rioting and looting from figures like the [[McCloskeys]] and a police chief, alongside messages from [[Mike Pence]] and Donald Trump. (00:19:16) Donald Trump's 2016 victory involved flipping [[Wisconsin]], [[State of Michigan|Michigan]], and [[Commonwealth of Pennsylvania|Pennsylvania]] by tapping into the white working class, a realignment [[Republican Party|Republicans]] needed to double down on. (00:21:00) The [[Republican Party]] was losing or had lost states like [[State of California|California]], [[State of New Mexico|New Mexico]], [[State of Nevada|Nevada]], [[State of Colorado|Colorado]], [[Arizona]], and [[State of Virginia|Virginia]], making the Midwestern states crucial for future elections. (00:23:27) The [[Republican Party|RNC]]'s production value, including a giant fireworks display on the [[National Mall]] and an opera singer, was considered far superior to the [[DNC]]'s remote, audience-less presentation. (00:24:01) [[Joe Biden]] gave a 25-minute speech to an empty convention room during the [[DNC]], followed by a finale featuring video call grids of supporters. (00:27:08) The [[DNC]] featured a musical performance by [[Billy Porter]], while the [[Republican Party|RNC]] featured an Italian opera singer performing "Ave Maria" on a [[White House]] balcony. (00:31:38) [[City of Kenosha|Kenosha]], [[Wisconsin]], experienced widespread destruction including looting, arson, and a car lot fire causing $2.5 million in damage, following the police shooting of [[Jacob Blake]]. (00:32:11) [[Kyle Rittenhouse]], a 17-year-old Trump supporter from [[Illinois]], shot and killed two people in [[City of Kenosha|Kenosha]] during the unrest. (00:36:46) The unrest in [[City of Kenosha|Kenosha]] began after [[Jacob Blake]] was shot seven times by [[City of Kenosha|Kenosha]] police officer [[Rustin Shesky]] while being taken into custody. (00:38:18) [[Jacob Blake]] was charged with sexual assault, trespassing, and disorderly conduct in connection with domestic abuse on July 6, and an arrest warrant was issued on July 7. (00:39:02) According to the [[Kenosha Professional Police Association]], [[Jacob Blake]] was armed with a knife, fought with officers, and put one in a headlock before being shot. (00:45:46) Following the looting of the Magnificent Mile in [[City of Chicago|Chicago]], the [[city]] deployed a significant police presence, public works trucks, and implemented a curfew. (00:47:51) [[City of Portland|Portland]] and [[Washington D.C.|Washington, D.C.]] were among the worst-affected cities by prolonged unrest, largely due to the persistent presence of [[Antifa]]. (00:48:51) A caravan of about 600 vehicles carrying Trump supporters arrived in downtown [[City of Portland|Portland]] and was confronted by protesters, leading to several arrests and a fatal shooting. (00:49:30) Donald Trump invoked [[City of Portland|Portland]] as a liberal [[city]] overrun with violence in a speech at the [[Republican Party|RNC]] as part of his law and order campaign theme. (00:50:07) Trump supporters and [[Black Lives Matter]]/[[Antifa]] protesters directly engaged in [[City of Portland|Portland]], using non-lethal weapons like paintball guns, [[mace]], pepper spray, skateboards, and bricks. (00:52:53) [[Jay Bishop]] (also identified as Aaron Danielson), a supporter of the [[Patriot Prayer]] group, was shot and killed on a street in [[City of Portland|Portland]] around 8:45 PM local [[time]]. (00:53:28) Donald Trump praised [[Jay Bishop]] with a post on [[Twitter]] that read "Rest in Peace Jay." (00:54:48) [[Kyle Rittenhouse]] shot and killed two [[Antifa]] or [[Black Lives Matter]] protesters in [[City of Kenosha|Kenosha]], which he claimed was in self-defense. (00:57:50) [[James Fields]] was sentenced to life in prison plus 419 years for his actions during the [[City of Charlottesville|Charlottesville]] rally. (01:00:39) In [[Louisville]], [[State of Kentucky|Kentucky]], charges were dropped against 92 protesters [[who]] demonstrated in front of the attorney general's home over the [[Breonna Taylor]] case. (01:01:17) [[Laura Trump]] said Donald Trump was going to meet with [[Jacob Blake]]'s family to talk about criminal justice reform. (01:01:58) [[Jared Kushner]] said he was going to talk to [[LeBron James]] about issues. (01:05:20) [[Kyle Rittenhouse]] was facing state charges in [[Wisconsin]] and could not receive a presidential pardon. (01:13:49) [[John Podesta]] discussed within the [[Democratic Party]] elite what would happen if Donald Trump won and [[Joe Biden]] refused to concede the election. (01:14:49) The components for a potential revolution or coup against Donald Trump existed, including media control, mobilizable protesters, hostile elements within the [[Republican Party]] and [[White House]], and a deep state willing to sabotage the president. (01:15:50) A scenario was outlined where media and social media could propagate a narrative of election illegitimacy, mobilize protesters, and create a constitutional crisis to install [[Joe Biden]] and [[Kamala Harris]]. (01:19:35) [[Black Lives Matter]]'s approval rating among white people had turned negative after initially being positive following the death of [[George Floyd]], while remaining unchanged for [[black]] and [[Hispanic]] people. (02:00:39) [[Elijah Schaffer]] responded to criticism by [[Nicholas J. Fuentes]], calling him a "[[State of California|California]] conservative" while claiming to be "risking my life and shaping the narrative." (02:01:01) [[Elijah Schaffer]] deleted an interview he conducted with [[Nicholas J. Fuentes]] a couple of years prior and later smeared him. (02:02:05) [[Destiny]] debated [[Hasan Piker|Vaush]] on the [[Kyle Rittenhouse]] case, arguing it was okay to defend oneself from a violent mob, which led to significant criticism from [[the left]]. (02:03:50) During a debate, [[Hasan Piker|Vaush]] cited events from Marvel movies as a data point in an argument about real-life police encounters, which [[Destiny]] dismissed. (02:06:08) [[Salim]] asked [[Nicholas J. Fuentes]] if it was [[time]] for his "[[Washington D.C.|DC]] buddy" to "reign in the QAnon thing," suggesting it could mislead well-meaning Trump supporters. (02:07:56) Two of the three people shot by [[Kyle Rittenhouse]] in [[City of Kenosha|Kenosha]] were reported to be [[Jews|Jewish]]. (02:13:20) Donald Trump claimed on [[Laura Ingraham]]'s show that "people in dark shadows [[who]] control the streets" and "planes of men in [[black]] uniforms" were controlling the riots and traveling the [[United States]]. (02:17:20) [[Kevin Brow]] suggested that if Donald Trump used [[COINTELPRO]]-style tactics against [[Black Lives Matter]] and [[Antifa]] by tracing and seizing their funding, the movement would cannibalize itself.
+(00:02:30) [[Portland]] experienced 90 days of continuous unrest involving [[Antifa]] and [[Black Lives Matter]], including an attempt to explode a federal courthouse with explosives and fireworks. (00:03:06) A caravan of approximately 600 Trump supporters with trucks and flags entered [[Portland]], leading to a major clash with left-wing protesters. (00:03:19) [[Jay Bishop]], a member of the group [[Patriot Prayer]], was shot and killed by an [[Antifa]] member during the clashes in [[Portland]]. (00:04:02) Major media outlets like the [[Associated Press]] and the [[The New York Times|New York Times]] did not report that an [[Antifa]] member killed a Trump supporter in [[Portland]]. (00:04:43) [[Nicholas J. Fuentes]] covered three days of the [[Republican Party|RNC]], specifically Monday, Wednesday, and Thursday. (00:05:50) [[Nicholas J. Fuentes]] hosted [[Patrick]], [[Jaden]], [[Beardson]], and [[Jake Lloyd]] in [[Chicago]] after plans to attend the [[Republican Party|RNC]] in [[Jacksonville]] were canceled. (00:07:29) Donald Trump's speech at the [[Republican Party|RNC]] was distinct from the mainstream establishment performances of other speakers. (00:08:54) [[Mike Pence]] delivered a strong performance at the [[Republican Party|RNC]], and Donald Trump's speech was also considered strong despite some expected "cringe" elements. (00:09:11) The final night of the [[Republican Party|RNC]] featured a fireworks display, an opera singer, and Donald Trump's family in front of the [[White House]], which was considered a great success. (00:09:48) Donald Trump's speech at the [[Republican Party|RNC]] drew 23.4 million television viewers, while [[Joe Biden]]'s drew 24.6 million, according to [[Nielsen]]. (00:10:00) The [[DNC]] averaged 21.6 million viewers across four nights, while the [[Republican Party|RNC]] averaged 19.4 million. (00:10:21) Donald Trump publicly disputed the [[Nielsen]] ratings on [[Twitter]], claiming the [[Republican Party|RNC]] had 147.9 million viewers when digital viewership was included. (00:11:56) Major cable news channels like [[MSNBC]] and [[Warner Bros. Discovery|CNN]] carried wall-to-wall coverage of the [[DNC]] but did not carry the first nights of the [[Republican Party|RNC]]. (00:12:30) The [[Republican Party|RNC]] featured a noticeable number of [[black]] speakers, with 12 appearing over the course of the convention. (00:14:16) [[Tim Scott]] invoked [[George Floyd]] and [[Breonna Taylor]] during his speech at the [[Republican Party|RNC]]. (00:14:28) [[Nikki Haley]] spoke of her [[India|Indian]] roots and alluded to her decision to take down the Confederate flag during her [[Republican Party|RNC]] speech. (00:14:33) [[Herschel Walker]] stated he had seen racism up close and that Donald Trump was not racist during his [[Republican Party|RNC]] speech. (00:15:14) [[Mark]] and [[Patricia McCloskey]], the couple [[who]] pointed guns at [[Black Lives Matter]] protesters in [[St. Louis]], spoke at the [[Republican Party|RNC]] about suburban safety. (00:16:48) Speeches at the [[Republican Party|RNC]] played to white anxiety about crime, immigration, and demographic change, with Donald Trump specifically talking about illegal immigration and the wall. (00:17:32) The [[Republican Party|RNC]] included speeches about rioting and looting from figures like the [[McCloskeys]] and a police chief, alongside messages from [[Mike Pence]] and Donald Trump. (00:19:16) Donald Trump's 2016 victory involved flipping [[Wisconsin]], [[State of Michigan|Michigan]], and [[Commonwealth of Pennsylvania|Pennsylvania]] by tapping into the white working class, a realignment [[Republican Party|Republicans]] needed to double down on. (00:21:00) The [[Republican Party]] was losing or had lost states like [[State of California|California]], [[State of New Mexico|New Mexico]], [[State of Nevada|Nevada]], [[State of Colorado|Colorado]], [[Arizona]], and [[State of Virginia|Virginia]], making the Midwestern states crucial for future elections. (00:23:27) The [[Republican Party|RNC]]'s production value, including a giant fireworks display on the [[National Mall]] and an opera singer, was considered far superior to the [[DNC]]'s remote, audience-less presentation. (00:24:01) [[Joe Biden]] gave a 25-minute speech to an empty convention room during the [[DNC]], followed by a finale featuring video call grids of supporters. (00:27:08) The [[DNC]] featured a musical performance by [[Billy Porter]], while the [[Republican Party|RNC]] featured an Italian opera singer performing "Ave Maria" on a [[White House]] balcony. (00:31:38) [[Kenosha]], [[Wisconsin]], experienced widespread destruction including looting, arson, and a car lot fire causing $2.5 million in damage, following the police shooting of [[Jacob Blake]]. (00:32:11) [[Kyle Rittenhouse]], a 17-year-old Trump supporter from [[Illinois]], shot and killed two people in [[Kenosha]] during the unrest. (00:36:46) The unrest in [[Kenosha]] began after [[Jacob Blake]] was shot seven times by [[Kenosha]] police officer [[Rustin Shesky]] while being taken into custody. (00:38:18) [[Jacob Blake]] was charged with sexual assault, trespassing, and disorderly conduct in connection with domestic abuse on July 6, and an arrest warrant was issued on July 7. (00:39:02) According to the [[Kenosha Professional Police Association]], [[Jacob Blake]] was armed with a knife, fought with officers, and put one in a headlock before being shot. (00:45:46) Following the looting of the Magnificent Mile in [[Chicago]], the [[city]] deployed a significant police presence, public works trucks, and implemented a curfew. (00:47:51) [[Portland]] and [[Washington D.C.|Washington, D.C.]] were among the worst-affected cities by prolonged unrest, largely due to the persistent presence of [[Antifa]]. (00:48:51) A caravan of about 600 vehicles carrying Trump supporters arrived in downtown [[Portland]] and was confronted by protesters, leading to several arrests and a fatal shooting. (00:49:30) Donald Trump invoked [[Portland]] as a liberal [[city]] overrun with violence in a speech at the [[Republican Party|RNC]] as part of his law and order campaign theme. (00:50:07) Trump supporters and [[Black Lives Matter]]/[[Antifa]] protesters directly engaged in [[Portland]], using non-lethal weapons like paintball guns, [[mace]], pepper spray, skateboards, and bricks. (00:52:53) [[Jay Bishop]] (also identified as Aaron Danielson), a supporter of the [[Patriot Prayer]] group, was shot and killed on a street in [[Portland]] around 8:45 PM local [[time]]. (00:53:28) Donald Trump praised [[Jay Bishop]] with a post on [[Twitter]] that read "Rest in Peace Jay." (00:54:48) [[Kyle Rittenhouse]] shot and killed two [[Antifa]] or [[Black Lives Matter]] protesters in [[Kenosha]], which he claimed was in self-defense. (00:57:50) [[James Fields]] was sentenced to life in prison plus 419 years for his actions during the [[Charlottesville]] rally. (01:00:39) In [[Louisville]], [[State of Kentucky|Kentucky]], charges were dropped against 92 protesters [[who]] demonstrated in front of the attorney general's home over the [[Breonna Taylor]] case. (01:01:17) [[Laura Trump]] said Donald Trump was going to meet with [[Jacob Blake]]'s family to talk about criminal justice reform. (01:01:58) [[Jared Kushner]] said he was going to talk to [[LeBron James]] about issues. (01:05:20) [[Kyle Rittenhouse]] was facing state charges in [[Wisconsin]] and could not receive a presidential pardon. (01:13:49) [[John Podesta]] discussed within the [[Democratic Party]] elite what would happen if Donald Trump won and [[Joe Biden]] refused to concede the election. (01:14:49) The components for a potential revolution or coup against Donald Trump existed, including media control, mobilizable protesters, hostile elements within the [[Republican Party]] and [[White House]], and a deep state willing to sabotage the president. (01:15:50) A scenario was outlined where media and social media could propagate a narrative of election illegitimacy, mobilize protesters, and create a constitutional crisis to install [[Joe Biden]] and [[Kamala Harris]]. (01:19:35) [[Black Lives Matter]]'s approval rating among white people had turned negative after initially being positive following the death of [[George Floyd]], while remaining unchanged for [[black]] and [[Hispanic]] people. (02:00:39) [[Elijah Schaffer]] responded to criticism by [[Nicholas J. Fuentes]], calling him a "[[State of California|California]] conservative" while claiming to be "risking my life and shaping the narrative." (02:01:01) [[Elijah Schaffer]] deleted an interview he conducted with [[Nicholas J. Fuentes]] a couple of years prior and later smeared him. (02:02:05) [[Destiny]] debated [[Hasan Piker|Vaush]] on the [[Kyle Rittenhouse]] case, arguing it was okay to defend oneself from a violent mob, which led to significant criticism from [[the left]]. (02:03:50) During a debate, [[Hasan Piker|Vaush]] cited events from Marvel movies as a data point in an argument about real-life police encounters, which [[Destiny]] dismissed. (02:06:08) [[Salim]] asked [[Nicholas J. Fuentes]] if it was [[time]] for his "[[Washington D.C.|DC]] buddy" to "reign in the QAnon thing," suggesting it could mislead well-meaning Trump supporters. (02:07:56) Two of the three people shot by [[Kyle Rittenhouse]] in [[Kenosha]] were reported to be [[Jews|Jewish]]. (02:13:20) Donald Trump claimed on [[Laura Ingraham]]'s show that "people in dark shadows [[who]] control the streets" and "planes of men in [[black]] uniforms" were controlling the riots and traveling the [[United States]]. (02:17:20) [[Kevin Brow]] suggested that if Donald Trump used [[COINTELPRO]]-style tactics against [[Black Lives Matter]] and [[Antifa]] by tracing and seizing their funding, the movement would cannibalize itself.
 
 ### AF 2020-08-27 0670
 (00:28:46) Donald Trump delivered the keynote speech on the final night of the [[Republican Party|Republican National Convention]], accepting the party's nomination for [[Joe Biden|President of the United States]].
@@ -18026,7 +18026,7 @@
 (00:36:48) Donald Trump withdrew the [[United States]] from the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] negotiated by the [[Barack Obama administration|Obama administration]].
 
 ### AF 2020-08-27 0670
-(00:36:58) Donald Trump recognized [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]] and moved the [[United States]] [[United States Embassy in Jerusalem|embassy]] there from [[Rishon LeZion|Tel Aviv]].
+(00:36:58) Donald Trump recognized [[Jerusalem]] as the capital of [[Israel]] and moved the [[United States]] [[United States Embassy in Jerusalem|embassy]] there from [[Rishon LeZion|Tel Aviv]].
 
 ### AF 2020-08-27 0670
 (00:37:57) Donald Trump's administration brokered a peace agreement between [[Israel]] and the [[United Arab Emirates]], the first such deal in the [[Middle East]] in 25 years.
@@ -18128,7 +18128,7 @@
 (01:11:08) Donald Trump pledged to create 10 million jobs in 10 months, hire more police, increase penalties for assaults on law enforcement, and ban sanctuary cities.
 
 ### AF 2020-08-27 0670
-(01:12:18) Donald Trump vowed to uphold religious liberty, defend the [[U.S. Constitution|Second Amendment]], protect [[Health and Human Services|Medicare]] and [[Social Security]], and always protect patients with pre-existing conditions.
+(01:12:18) Donald Trump vowed to uphold religious liberty, defend the [[U.S. Constitution|Second Amendment]], protect [[Medicare]] and [[Social Security]], and always protect patients with pre-existing conditions.
 
 ### AF 2020-08-27 0670
 (01:13:40) Donald Trump promised to greatly expand energy development to keep [[United States|America]] energy independent and number one in the world.
@@ -18293,7 +18293,7 @@
 (01:07:45:97) [[Mike Pence]] stated he was present when Donald Trump gave the order to take out [[Iran]]'s top general, [[Qasem Soleimani]], [[who]] would never harm another [[United States|American]].
 
 ### AF 2020-08-26 0669
-(01:08:52:52) [[Mike Pence]] credited Donald Trump with moving the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], setting the stage for the first Arab [[country]] to recognize [[Israel]] in 26 years.
+(01:08:52:52) [[Mike Pence]] credited Donald Trump with moving the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], setting the stage for the first Arab [[country]] to recognize [[Israel]] in 26 years.
 
 ### AF 2020-08-26 0669
 (01:09:21:88) [[Mike Pence]] stated the Trump administration appointed more than 200 conservative federal judges and supported the right to life and the [[U.S. Constitution|Second Amendment]] right to keep and bear arms.
@@ -18350,7 +18350,7 @@
 (00:19:36) [[Jim Jordan]] argued that Donald Trump fought against [[Democratic Party|Democratic]] policies, took on political opponents he called "the swamp," and survived investigations including the [[Russia]] inquiry and impeachment.
 
 ### AF 2020-08-24 0668
-(00:23:58) [[Jim Jordan]] listed policy achievements under Donald Trump, including tax cuts, reduced regulations, economic growth, the lowest unemployment in 50 years, withdrawal from the [[Iran]] nuclear deal, moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], securing the release of hostages from [[North Korea]], and negotiating the USMCA trade agreement.
+(00:23:58) [[Jim Jordan]] listed policy achievements under Donald Trump, including tax cuts, reduced regulations, economic growth, the lowest unemployment in 50 years, withdrawal from the [[Iran]] nuclear deal, moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], securing the release of hostages from [[North Korea]], and negotiating the USMCA trade agreement.
 
 ### AF 2020-08-24 0668
 (00:35:94) [[Jim Jordan]] recounted a personal story where Donald Trump called to console his family after the death of his nephew and later spoke with the grieving father.
@@ -18407,7 +18407,7 @@
 (01:21:10) [[Andrew Pollack]] accused the media of turning his daughter's murder into a coordinated attack on Donald Trump, [[Republican Party|Republicans]], and the [[U.S. Constitution|Second Amendment]].
 
 ### AF 2020-08-24 0668
-(01:22:17) [[Andrew Pollack]] blamed the [[City of Parkland|Parkland]] shooting on the school district's implementation of "restorative justice" policies, which he said were pioneered by the [[Obama]]-[[Joe Biden|Biden]] administration and which Donald Trump later rescinded.
+(01:22:17) [[Andrew Pollack]] blamed the [[Parkland]] shooting on the school district's implementation of "restorative justice" policies, which he said were pioneered by the [[Obama]]-[[Joe Biden|Biden]] administration and which Donald Trump later rescinded.
 
 ### AF 2020-08-24 0668
 (01:24:03) [[Andrew Pollack]] argued that the safety of [[United States|American]] children depended on the re-election of Donald Trump.
@@ -18452,7 +18452,7 @@
 (02:01:09) [[Nicholas J. Fuentes]] reacted to the speech by former [[United Nations|U.N]]. Ambassador [[Nikki Haley]], [[who]] argued that [[Joe Biden]] and [[Democratic Party|Democrats]] "blame [[United States|America]] first," while Donald Trump always puts [[United States|America]] first.
 
 ### AF 2020-08-24 0668
-(02:02:31) [[Nikki Haley]] contrasted the foreign policy of the Donald Trump administration with that of the [[Obama]]-[[Joe Biden|Biden]] administration, stating Trump stood up to enemies, imposed sanctions on [[North Korea]], ripped up the [[Iran]] nuclear deal, and moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]].
+(02:02:31) [[Nikki Haley]] contrasted the foreign policy of the Donald Trump administration with that of the [[Obama]]-[[Joe Biden|Biden]] administration, stating Trump stood up to enemies, imposed sanctions on [[North Korea]], ripped up the [[Iran]] nuclear deal, and moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]].
 
 ### AF 2020-08-24 0668
 (02:03:37) [[Nikki Haley]] claimed [[Joe Biden]] was "good for [[Iran]] and [[Islamic State of Iraq and Syria|ISIS]], great for communist [[China]]," while Donald Trump was tough on [[China]], defeated [[Islamic State of Iraq and Syria|ISIS]], and told the world what it needed to hear.
@@ -18485,7 +18485,7 @@
 (02:00:19) [[Nicholas J. Fuentes]], identifying as [[Catholic Church|Catholic]], stated his opposition to LGBTQ policies but argued Donald Trump's material actions on the issue were limited to appointing [[Rick Grenell|Richard Grenell]] and an initiative to decriminalize homosexuality in [[African continent|Africa]].
 
 ### AF 2020-08-24 0668
-(02:01:25) [[Nicholas J. Fuentes]] acknowledged Donald Trump's pro-[[Israel]] actions, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], designating the [[Iran|IRGC]] as a terrorist [[organization]], recognizing [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and overlooking settlement expansion and spying incidents.
+(02:01:25) [[Nicholas J. Fuentes]] acknowledged Donald Trump's pro-[[Israel]] actions, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], designating the [[Iran|IRGC]] as a terrorist [[organization]], recognizing [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and overlooking settlement expansion and spying incidents.
 
 ### AF 2020-08-24 0668
 (02:02:57) [[Nicholas J. Fuentes]] stated that Donald Trump's administration had withdrawn troops from [[Syria]] and [[Afghanistan]], pledged further withdrawals, and started no new wars in the [[Middle East]].
@@ -18653,7 +18653,7 @@
 (03:09:07) [[Nicholas J. Fuentes]] argued that the right must unite around empowering its own side and institutions against [[the left]], citing Trump's platform and [[Viktor Orbán]]'s tenets of [[Christianity|Christian]] nationalism as a model.
 
 ### AF 2020-08-20 0665
-(03:17:35) [[Nicholas J. Fuentes]] criticized the Trump administration for prioritizing policies favorable to [[Israel]]—like recognizing sovereignty over the [[Israel|Golan Heights]] and moving the [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]]—over domestic [[United States|America]] First priorities like the border wall.
+(03:17:35) [[Nicholas J. Fuentes]] criticized the Trump administration for prioritizing policies favorable to [[Israel]]—like recognizing sovereignty over the [[Israel|Golan Heights]] and moving the [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]]—over domestic [[United States|America]] First priorities like the border wall.
 
 ### AF 2020-08-20 0665
 (03:55:32) [[Nicholas J. Fuentes]] listed Trump's recent first-term achievements as cutting temporary work visas, closing borders, reducing green cards, building 300 miles of border wall, repealing an [[Obama]]-era [[Department of Housing and Urban Development|HUD]] regulation, and signing a Section 230 executive order.
@@ -18668,7 +18668,7 @@
 (03:59:54) [[Nicholas J. Fuentes]] analyzed that Trump's 2020 electoral path required holding typical [[Republican Party|Republican]] states plus swing states like [[Arizona]], [[State of Florida|Florida]], and [[North Carolina]], and winning just one of the Midwestern states of [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Michigan|Michigan]], [[Wisconsin]], or [[Minnesota]].
 
 ### AF 2020-08-20 0665
-(04:03:48) [[Nicholas J. Fuentes]] predicted that if Trump won the 2020 election, [[the left]]'s reaction would escalate from the 2016 protests to widespread political violence and riots akin to those in [[City of Portland|Portland]] in every major [[city]].
+(04:03:48) [[Nicholas J. Fuentes]] predicted that if Trump won the 2020 election, [[the left]]'s reaction would escalate from the 2016 protests to widespread political violence and riots akin to those in [[Portland]] in every major [[city]].
 
 ### AF 2020-08-19 0664
 (00:12:30) A speaker at the [[Democratic National Convention]] argued that Donald Trump did not care about victims of gun violence and that [[Joe Biden]] had a record of taking on the [[National Rifle Association|NRA]].
@@ -18704,7 +18704,7 @@
 (01:23:14) [[Elizabeth Warren]] blamed Donald Trump's incompetence for [[United States|America]]'s high [[COVID-19]] death toll and economic collapse, which she said disproportionately affected [[Black]] and brown families.
 
 ### AF 2020-08-19 0664
-(01:29:01) [[Barack Obama]], speaking from [[City of Philadelphia|Philadelphia]] at the [[Democratic National Convention]], framed the 2020 election as a pivotal moment for [[United States|America]]'s democracy, criticizing Donald Trump for failing to take the presidency seriously.
+(01:29:01) [[Barack Obama]], speaking from [[Philadelphia]] at the [[Democratic National Convention]], framed the 2020 election as a pivotal moment for [[United States|America]]'s democracy, criticizing Donald Trump for failing to take the presidency seriously.
 
 ### AF 2020-08-19 0664
 (01:31:23) [[Barack Obama]] stated he had hoped Donald Trump might show interest in the job of president for the sake of the [[country]], but that he never did, leading to severe consequences including 170,000 [[COVID-19]] deaths and a diminished global reputation.
@@ -18725,7 +18725,7 @@
 (02:04:44) [[Kamala Harris]] characterized the national mood under Donald Trump as one of constant chaos, incompetence, and callousness.
 
 ### AF 2020-08-18 0663
-(00:46:57) During the [[Democratic National Convention]] keynote, a group of young elected officials argued that Donald Trump delivered constant chaos while [[Joe Biden]] would provide healthcare, fair pay, and protect [[Social Security]] and [[Health and Human Services|Medicare]].
+(00:46:57) During the [[Democratic National Convention]] keynote, a group of young elected officials argued that Donald Trump delivered constant chaos while [[Joe Biden]] would provide healthcare, fair pay, and protect [[Social Security]] and [[Medicare]].
 
 ### AF 2020-08-18 0663
 (01:17:93) At the [[Democratic National Convention]], [[Sally Yates]] stated that Donald Trump used his presidency for self-benefit, trampled the rule of law, weaponized the [[U.S. Department of Justice|Justice Department]], fawned over [[Vladimir Putin]], and sabotaged the postal service to suppress voting.
@@ -18758,7 +18758,7 @@
 (02:01:00) Multiple speakers, including a veteran with multiple myeloma and [[U.S. Senate]] candidate [[Sara Gideon]] of [[State of Maine|Maine]], criticized Donald Trump for undermining the [[United States Postal Service]] and advocated for voting by mail.
 
 ### AF 2020-08-17 0662
-(02:06:00) [[Gretchen Whitmer|Governor Gretchen Whitmer]] of [[State of Michigan|Michigan]] spoke from a [[UAW]] hall in [[City of Lansing|Lansing]], crediting the [[Obama-Biden]] administration with saving the auto industry and criticizing Donald Trump's pandemic response, while arguing essential workers were the nation's MVPs.
+(02:06:00) [[Gretchen Whitmer|Governor Gretchen Whitmer]] of [[State of Michigan|Michigan]] spoke from a [[UAW]] hall in [[Lansing]], crediting the [[Obama-Biden]] administration with saving the auto industry and criticizing Donald Trump's pandemic response, while arguing essential workers were the nation's MVPs.
 
 ### AF 2020-08-17 0662
 (02:22:00) [[Catherine Cortez Masto|Senator Catherine Cortez Masto]] of [[State of Nevada|Nevada]] defended vote-by-mail systems and accused Donald Trump of trying to suppress votes by threatening funding and suing her state, urging viewers to help flip the [[U.S. Senate]].
@@ -18791,7 +18791,7 @@
 (00:14:33) [[Nicholas J. Fuentes]] claimed that the most significant fiscal cost to the [[United States]] government is mass migration, and that electing an immigration restrictionist like Donald Trump would save money regardless of other spending.
 
 ### AF 2020-08-12 0660
-(00:21:24) [[The New York Times]] reported that [[Joe Biden]] framed his 2020 presidential run as a response to Donald Trump's comments about the Unite the Right rally in [[City of Charlottesville|Charlottesville]], stating it motivated his campaign for the "soul of the nation."
+(00:21:24) [[The New York Times]] reported that [[Joe Biden]] framed his 2020 presidential run as a response to Donald Trump's comments about the Unite the Right rally in [[Charlottesville]], stating it motivated his campaign for the "soul of the nation."
 
 ### AF 2020-08-12 0660
 (00:25:05) [[Nicholas J. Fuentes]] argued that [[Kamala Harris]], as the daughter of immigrants, represents a "revolutionary view of [[United States|America]]" focused on replacing the historic [[United States|American]] nation with a new population and values like racial justice, in direct opposition to Donald Trump's "Make [[United States|America]] Great Again" message.
@@ -18977,7 +18977,7 @@
 (02:12:50) [[Nicholas J. Fuentes]] hinted that his [[United States|America]] First network has many connections to Trump, describing it as "a giant octopus encircling the globe."
 
 ### AF 2020-07-27 0649
-(00:29:06) The [[Republican Party]] proposed a new coronavirus relief package that included a second round of $1,200 direct payments to individuals and $2,400 to couples, with the same income thresholds as the previous round. (00:30:66) The [[Republican Party]]'s proposed relief bill slashed enhanced federal unemployment benefits from a $600 weekly bonus to a system based on 70% of previous wages, capped at a maximum of $500 per week. (00:53:96) A media report, citing experts and former law enforcement officials, stated that far-right terrorism was the number one threat to the [[United States]] and governments on both sides of [[the Atlantic]]. (00:58:62) [[Bill Kristol]] retweeted and helped promote a new podcast called "Gen Z [[Republican Party|GOP]]" launched by four young men, which was also covered by the [[The Boston Globe|Boston Globe]] and other media outlets. (01:08:10) The "Gen Z [[Republican Party|GOP]]" group, founded by individuals including [[Sam Garber|Samuel Garber]], officially launched with a video stating their opposition to Donald Trump and a desire to build a future [[Republican Party]] that stays away from "unproductive discourse." (01:11:36) The "Gen Z [[Republican Party|GOP]]" group's stated platform included support for free trade, fiscal responsibility, bipartisan border security reform, public-private partnerships for healthcare, climate change solutions, and proclaiming that "[[Black Lives Matter]]." (01:13:43) [[Steven Crowder|Steve Bannon]] once characterized figures like [[Paul Ryan]] as people "grown in a Petri dish at the [[Heritage Foundation]]." (01:14:59) [[Nicholas J. Fuentes]] argued that establishment conservative figures like [[Charlie Kirk]], [[Ben Shapiro]], and [[The Daily Wire|Daily Wire]] represented a capitulation to liberal humanism, holding progressive views on most issues for social acceptability. (01:23:39) [[Nicholas J. Fuentes]] posited that the "Gen Z [[Republican Party|GOP]]" project was a potential psychological operation intended to shift the Overton window leftward, making established conservative figures like [[Charlie Kirk]] and [[Ben Shapiro]] appear more palatable and right-wing by contrast. (01:25:09) Donald Trump maintained an approval rating above 90% within the [[Republican Party]]. (01:32:28) [[Nicholas J. Fuentes]] stated that the mission of his movement was to make the [[Republican Party]] so hostile and intolerant towards left-wing figures that they would have to join the [[Democratic Party]]. (01:33:06) A report by [[Seth Jones]] of the [[Center for Strategic and International Studies]]' Transnational Threats Project claimed that 13 out of 14 terrorist incidents in the [[United States]] from January 1 to May 8 were classified as right-wing. (01:34:36) [[Nicholas J. Fuentes]] argued that reports on domestic terrorism systematically excluded violence committed by non-white or non-right-wing groups, such as [[Black Lives Matter]] or [[Antifa]], from their definitions and statistics. (01:39:66) [[Nicholas J. Fuentes]] identified the [[Anti-Defamation League|ADL]] and the [[Southern Poverty Law Center|SPLC]] as [[American Jewish Committee|Jewish organizations]] that produce and launder propaganda through NGOs and think tanks to be disseminated by left-wing media. (01:53:88) [[Mitch McConnell]] unveiled the [[Republican Party]]'s coronavirus relief plan, which proposed $105 billion to help schools reopen, $16 billion for state testing capacity, $26 billion for vaccine development, and liability shields for businesses, doctors, and schools. (01:56:82) The [[Republican Party]]'s proposed relief bill included $190 billion for additional Paycheck Protection Program loans and allowed small businesses with fewer than 300 employees that saw revenue fall by more than 50% to apply for a second round of aid. (02:00:90) [[Nicholas J. Fuentes]] criticized the [[Republican Party]]'s proposed coronavirus relief as grossly inadequate, noting that only $250 billion of trillions in total bailout spending went to direct payments to [[United States|Americans]]. (02:03:47) [[Nicholas J. Fuentes]] argued that the economic damage from government-mandated lockdowns was permanent, citing an example from [[China]] where 20% of restaurants were predicted never to reopen. (02:07:72) [[Nicholas J. Fuentes]] stated that the [[Republican Party]] deserved to lose the upcoming election for offering a stingy relief bill after having inflicted economic damage through lockdowns, but that voting for Donald Trump remained imperative as the only alternative to a [[Democratic Party]] victory.(01:23:06) Attendees at [[Nicholas J. Fuentes]]'s "GROIPER meetups" included lawyers, scientists, and doctors, whom he described as "super high quality people."
+(00:29:06) The [[Republican Party]] proposed a new coronavirus relief package that included a second round of $1,200 direct payments to individuals and $2,400 to couples, with the same income thresholds as the previous round. (00:30:66) The [[Republican Party]]'s proposed relief bill slashed enhanced federal unemployment benefits from a $600 weekly bonus to a system based on 70% of previous wages, capped at a maximum of $500 per week. (00:53:96) A media report, citing experts and former law enforcement officials, stated that far-right terrorism was the number one threat to the [[United States]] and governments on both sides of [[the Atlantic]]. (00:58:62) [[Bill Kristol]] retweeted and helped promote a new podcast called "Gen Z [[Republican Party|GOP]]" launched by four young men, which was also covered by the [[The Boston Globe|Boston Globe]] and other media outlets. (01:08:10) The "Gen Z [[Republican Party|GOP]]" group, founded by individuals including [[Sam Garber|Samuel Garber]], officially launched with a video stating their opposition to Donald Trump and a desire to build a future [[Republican Party]] that stays away from "unproductive discourse." (01:11:36) The "Gen Z [[Republican Party|GOP]]" group's stated platform included support for free trade, fiscal responsibility, bipartisan border security reform, public-private partnerships for healthcare, climate change solutions, and proclaiming that "[[Black Lives Matter]]." (01:13:43) [[Steve Bannon]] once characterized figures like [[Paul Ryan]] as people "grown in a Petri dish at the [[Heritage Foundation]]." (01:14:59) [[Nicholas J. Fuentes]] argued that establishment conservative figures like [[Charlie Kirk]], [[Ben Shapiro]], and [[The Daily Wire|Daily Wire]] represented a capitulation to liberal humanism, holding progressive views on most issues for social acceptability. (01:23:39) [[Nicholas J. Fuentes]] posited that the "Gen Z [[Republican Party|GOP]]" project was a potential psychological operation intended to shift the Overton window leftward, making established conservative figures like [[Charlie Kirk]] and [[Ben Shapiro]] appear more palatable and right-wing by contrast. (01:25:09) Donald Trump maintained an approval rating above 90% within the [[Republican Party]]. (01:32:28) [[Nicholas J. Fuentes]] stated that the mission of his movement was to make the [[Republican Party]] so hostile and intolerant towards left-wing figures that they would have to join the [[Democratic Party]]. (01:33:06) A report by [[Seth Jones]] of the [[Center for Strategic and International Studies]]' Transnational Threats Project claimed that 13 out of 14 terrorist incidents in the [[United States]] from January 1 to May 8 were classified as right-wing. (01:34:36) [[Nicholas J. Fuentes]] argued that reports on domestic terrorism systematically excluded violence committed by non-white or non-right-wing groups, such as [[Black Lives Matter]] or [[Antifa]], from their definitions and statistics. (01:39:66) [[Nicholas J. Fuentes]] identified the [[Anti-Defamation League|ADL]] and the [[Southern Poverty Law Center|SPLC]] as [[American Jewish Committee|Jewish organizations]] that produce and launder propaganda through NGOs and think tanks to be disseminated by left-wing media. (01:53:88) [[Mitch McConnell]] unveiled the [[Republican Party]]'s coronavirus relief plan, which proposed $105 billion to help schools reopen, $16 billion for state testing capacity, $26 billion for vaccine development, and liability shields for businesses, doctors, and schools. (01:56:82) The [[Republican Party]]'s proposed relief bill included $190 billion for additional Paycheck Protection Program loans and allowed small businesses with fewer than 300 employees that saw revenue fall by more than 50% to apply for a second round of aid. (02:00:90) [[Nicholas J. Fuentes]] criticized the [[Republican Party]]'s proposed coronavirus relief as grossly inadequate, noting that only $250 billion of trillions in total bailout spending went to direct payments to [[United States|Americans]]. (02:03:47) [[Nicholas J. Fuentes]] argued that the economic damage from government-mandated lockdowns was permanent, citing an example from [[China]] where 20% of restaurants were predicted never to reopen. (02:07:72) [[Nicholas J. Fuentes]] stated that the [[Republican Party]] deserved to lose the upcoming election for offering a stingy relief bill after having inflicted economic damage through lockdowns, but that voting for Donald Trump remained imperative as the only alternative to a [[Democratic Party]] victory.(01:23:06) Attendees at [[Nicholas J. Fuentes]]'s "GROIPER meetups" included lawyers, scientists, and doctors, whom he described as "super high quality people."
 
 ### AF 2020-07-27 0649
 (01:42:06) [[Nicholas J. Fuentes]] expressed frustration that people were still talking about Donald Trump, [[Russia]], and [[Hillary Clinton]] instead of focusing on current national unrest.
@@ -19013,10 +19013,10 @@
 (01:07:25) The [[Republican Party|RNC]] canceled its large-scale nominating convention in [[Jacksonville]], [[State of Florida|Florida]], which had been moved from [[Charlotte]], [[North Carolina]], due to the coronavirus pandemic, marking a retreat by the Trump campaign from holding a full-scale event.
 
 ### AF 2020-07-22 0646
-(00:01:04) Donald Trump deployed 150 federal police under the [[U.S. Department of Homeland Security|Department of Homeland Security]] to [[City of Portland|Portland]] to restore order amid widespread unrest.
+(00:01:04) Donald Trump deployed 150 federal police under the [[U.S. Department of Homeland Security|Department of Homeland Security]] to [[Portland]] to restore order amid widespread unrest.
 
 ### AF 2020-07-22 0646
-(00:02:14) Donald Trump announced plans to send federal police into [[City of Chicago|Chicago]] and [[Kansas City]] as part of an expansion of the federal law enforcement surge, with talks of extending the program to [[Albuquerque]].
+(00:02:14) Donald Trump announced plans to send federal police into [[Chicago]] and [[Kansas City]] as part of an expansion of the federal law enforcement surge, with talks of extending the program to [[Albuquerque]].
 
 ### AF 2020-07-22 0646
 (00:03:45) A report from [[Forbes]] projected that Donald Trump would have cut annual legal immigration by close to 50% between fiscal year 2016 and fiscal year 2021.
@@ -19031,7 +19031,7 @@
 (00:20:37) Donald Trump had constructed approximately 230 miles of an 18-foot concrete and steel border fence and negotiated with [[Mexico]] to make illegal immigration more difficult.
 
 ### AF 2020-07-22 0646
-(00:41:02) Donald Trump initiated a surge of federal security forces into [[United States|U.S]]. cities, specifically targeting [[City of Chicago|Chicago]], [[Kansas City]], and [[Albuquerque]], as part of a crime crackdown named Operation Legend.
+(00:41:02) Donald Trump initiated a surge of federal security forces into [[United States|U.S]]. cities, specifically targeting [[Chicago]], [[Kansas City]], and [[Albuquerque]], as part of a crime crackdown named Operation Legend.
 
 ### AF 2020-07-22 0646
 (00:41:59) Operation Legend was named after four-year-old Legend Talifero, [[who]] was fatally shot in [[Kansas City]] in June; the boy's mother joined Donald Trump at the operation's announcement.
@@ -19046,10 +19046,10 @@
 (00:51:43) [[Nicholas J. Fuentes]] identified [[Tucker Carlson]], himself, [[Michelle Malkin]], and sometimes Donald Trump as the only people "telling it like it is."
 
 ### AF 2020-07-20 0644
-(01:27:52) President Trump threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[City of Chicago|Chicago]], [[New York|New York City]], [[City of Philadelphia|Philadelphia]], [[City|Detroit]], [[Baltimore]], and [[Oakland]] to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[City of Portland|Portland]], [[Oregon]].
+(01:27:52) President Trump threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[Chicago]], [[New York|New York City]], [[Philadelphia]], [[City|Detroit]], [[Baltimore]], and [[Oakland]] to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[Portland]], [[Oregon]].
 
 ### AF 2020-07-20 0644
-(01:28:58) President Trump deployed federal officers from the [[U.S. Marshals Service]] and [[Customs and Border Protection]] to [[City of Portland|Portland]], [[Oregon]] under an executive order protecting statues, allowing deployment without state permission.
+(01:28:58) President Trump deployed federal officers from the [[U.S. Marshals Service]] and [[Customs and Border Protection]] to [[Portland]], [[Oregon]] under an executive order protecting statues, allowing deployment without state permission.
 
 ### AF 2020-07-20 0644
 (01:38:34) [[Nicholas J. Fuentes]] stated that President Trump had failed to deliver on his 2016 campaign promises of law and order, criticizing the administration for tweets and speeches rather than tangible action to secure [[United States|American]] cities.
@@ -19625,7 +19625,7 @@
 (12:54:44) [[Nicholas J. Fuentes]] argued that advisors including [[Jared Kushner]], [[Ivanka Trump]], [[Brad Parscale]], and [[Mick Mulvaney]] had taken over the Donald Trump administration and steered it away from his populist instincts.
 
 ### AF 2020-06-23 0627
-(23:58:08) At a [[Students for Trump]] event in [[City of Phoenix|Phoenix]], Donald Trump denounced the movement to remove statues as "the behavior of a totalitarian movement" and reiterated his intent to prosecute vandals.
+(23:58:08) At a [[Students for Trump]] event in [[Phoenix]], Donald Trump denounced the movement to remove statues as "the behavior of a totalitarian movement" and reiterated his intent to prosecute vandals.
 
 ### AF 2020-06-23 0627
 (01:44:32) [[Nicholas J. Fuentes]] agreed that Donald Trump would solve the [[country]]'s issues if he followed through on his [[Twitter]] statements.
@@ -19718,7 +19718,7 @@
 (41:22:57) [[Barack Obama]] established the DACA program through an executive order, an action [[Nicholas J. Fuentes]] argued lacked constitutional authority, while Trump's subsequent attempt to rescind it was blocked by the courts.
 
 ### AF 2020-06-18 0624
-(51:36:65) [[Nicholas J. Fuentes]] argued that the most tangible achievement of Trump's presidency would be moving the [[United States]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]].
+(51:36:65) [[Nicholas J. Fuentes]] argued that the most tangible achievement of Trump's presidency would be moving the [[United States]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]].
 
 ### AF 2020-06-18 0624
 (01:11:36) A [[Fox News]] poll showed [[Joe Biden]] leading Donald Trump by 12 points, a result noted by a viewer named [[United States|American]] Spoons.
@@ -19748,7 +19748,7 @@
 (02:06:39) A viewer named DeBeers stated that "69" had done more to put criminals in jail than Donald Trump, a claim [[Nicholas J. Fuentes]] agreed was true.
 
 ### AF 2020-06-17 0623
-(00:20:32) The District Attorney in [[Atlanta]] charged [[Garrett Rolfe]], the police officer [[who]] shot and killed [[Rayshard Brooks]], with felony murder and ten other charges, potentially carrying the death penalty. (00:41:90) The [[|Fulton County]] District Attorney, [[Paul Howard]], announced the charges against [[Garrett Rolfe]] and a second officer, [[Devin Brosnan]], [[who]] faced three charges including aggravated assault. (00:47:72) [[Rayshard Brooks]] was shot and killed after turning a police taser on officers following a struggle where he failed a sobriety test. (00:53:02) [[Devin Brosnan]]'s attorney, [[Don Samuel]], disputed [[Paul Howard]]'s claim that [[Devin Brosnan]] had agreed to become a state's witness against [[Garrett Rolfe]]. (01:13:66) Unconfirmed rumors circulated on social media that the entire [[Atlanta Police Department]] might go on strike in response to the charges against [[Garrett Rolfe]]. (01:42:66) [[Google]] demonetized the conservative websites [[The Federalist]] and [[Zero Hedge]] via its [[Google AdSense]] platform due to content opposing [[Black Lives Matter]]. (02:08:44) A report from [[Revolver News|The National Pulse]] revealed that [[Google]] lobbyist [[Max Pappas]] contacted nearly 100 influential conservative figures and think tanks following the demonetization of [[The Federalist]] and [[Zero Hedge]]. (02:15:56) Major conservative think tanks including the [[Cato Institute]], [[American Enterprise Institute]], and the [[Competitive Enterprise Institute]] received funding from [[Google]]. (02:43:00) Following outreach from [[Google]] lobbyist [[Max Pappas]], several conservative think tanks defended [[Google]]'s actions against [[The Federalist]] and [[Zero Hedge]]. (03:48:78) The [[Heritage Foundation]] and other conservative think tanks participated in a convention or fundraiser hosted by [[Google]] months prior. (08:47:54) Donald Trump signed an executive order aimed at limiting police powers to use chokeholds. (08:53:24) [[Supreme Court of the United States|Supreme Court]] Justice [[Neil Gorsuch]] authored the decision in a landmark case extending workplace discrimination protections to LGBT individuals. (09:02:00) [[Senate Majority Leader]] [[Mitch McConnell]] opposed Donald Trump on the issue of renaming military bases named after Confederate generals. (11:22:22) Conservative commentators [[Ben Shapiro]] and [[Dennis Prager]], along with [[Mitch McConnell]], have publicly agreed that censorship against the political right is wrong. (13:21:12) [[Google]] lobbyist [[Max Pappas]], hired in 2017, contacted conservative influencers to manage the fallout from the [[The Federalist]] and [[Zero Hedge]] demonetization story. (14:33:22) [[Mark Jamison]], a visiting scholar at the [[American Enterprise Institute]], tweeted an op-ed entitled "[[Concept|Big Tech]] is biased and that's a good thing" ahead of the demonetization news. (14:49:24) [[James Pethokoukis]] of the [[American Enterprise Institute]] published an article endorsing [[Google]]'s actions and claiming conservative alarm over anti-conservative bias fails a reality test. (15:29:48) [[Julian Sanchez]], a contributor to the [[Cato Institute]] and [[Reason Magazine]], stated that only conservative sites publicly complain about censorship because other sites lack a "martyr complex." (15:56:02) [[Patrick Hedger]] of the [[Competitive Enterprise Institute]] wrote for the Never-Trump blog [[The Bulwark]], which had recently criticized [[Michelle Malkin]] and [[Nicholas J. Fuentes]]. (16:07:56) [[Patrick Hedger]] argued on the [[Competitive Enterprise Institute]] website that [[Google]], [[Amazon Inc.|Amazon]], and [[Facebook]] face robust competition, justifying a lack of government investigation or intervention. (17:48:04) The [[Conservative Political Action Conference]] ([[Conservative Political Action Conference|CPAC]]) receives annual funding from [[Google]] and once hosted a panel on tech censorship by [[Google]] while being financially supported by the company. (18:03:22) [[Jim Hoft]] was reportedly removed from a [[Conservative Political Action Conference|CPAC]] panel about tech censorship, which was funded by [[Google]]. (19:47:06) Commentators [[Bill Kristol]] and [[Bret Stephens]] were cited as examples of conservatives [[who]] support increased immigration. (27:39:96) Casino magnate [[Sheldon Adelson]], a major [[Republican Party|Republican]] donor, attended Donald Trump campaign galas and fundraisers wearing a yarmulke with a "Make [[United States|America]] Great Again" slogan. (27:57:02) [[Jared Kushner]] and his allies were cited as influential figures within the Donald Trump [[White House]] whose presence correlated with specific policy outcomes. (28:00:92) [[Neil Gorsuch]] and [[Fox News]] were listed as parts of a conservative movement whose direction is influenced by its financial backers. (29:52:74) [[Ben Shapiro]], described as the son of immigrants [[who]] attended private [[Jews|Jewish]] school and [[University of California, Los Angeles|UCLA]], lives in [[Los Angeles]] and is a frequent commentator for heartland conservatives. (30:38:68) [[Nicholas J. Fuentes]] argued that average [[United States|Americans]] have nothing in common with figures like [[Jared Kushner]], [[Ben Shapiro]], [[Bret Stephens]], or [[Bill Kristol]]. (32:57:08) In high school and college, [[Nicholas J. Fuentes]] was influenced by the narratives presented by [[Prager University|PragerU]] and [[Ben Shapiro]] about political conflict being between [[Democratic Party|Democrats]] and [[Republican Party|Republicans]]. (35:21:72) [[Nicholas J. Fuentes]] questioned how Donald Trump and the [[Republican Party]] could take no action on [[big tech]] censorship, suggesting they do not represent the interests of their base. (36:02:64) Officer [[Derek Chauvin]] was under investigation and facing trial for the killing of [[George Floyd]]. (36:08:14) [[Travis McMichael]] was brought in by a District Attorney in [[Country of Georgia|Georgia]] over the case of [[Ahmaud Arbery]]. (37:26:26) [[Garrett Rolfe]] was fired by the [[Atlanta Police Department]] after the killing of [[Rayshard Brooks]]. (37:54:92) [[Devin Brosnan]]'s attorney stated his client was "absolutely not guilty of any crime" and had not agreed to be a state's witness, contradicting [[Paul Howard]]'s announcement. (38:50:48) [[Rayshard Brooks]] had a criminal record that included theft, receiving stolen property, child abuse, and domestic battery. (43:14:20) Rumors indicated that four of the six zones of the [[Atlanta Police Department]] were experiencing major walk-offs, with scanner traffic in Zone Six silent for 20 minutes. (46:14:28) In [[City of Seattle|Seattle]], activists established an autonomous zone (CHAZ) where individuals with firearms effectively became the governing authority in the absence of police. (51:52:74) [[Nicholas J. Fuentes]] questioned whether Donald Trump could order the military to restore order in [[United States|American]] streets and whether the [[U.S. Department of Defense|Pentagon]] would follow such orders. (53:50:06) [[Nicholas J. Fuentes]] stated that a [[city]]'s demographic composition, specifically its proportion of [[black]] and [[Hispanic]] residents, is a primary determinant of whether it will experience civil unrest. (54:34:00) [[Nicholas J. Fuentes]] argued that [[United States|American]] cities are deteriorating because the people living in them originate from countries with lower levels of societal development. (55:03:70) A [[black]] rapper in the [[City of Seattle|Seattle]] autonomous zone (CHAZ) was able to establish control over a commune without police, while still receiving electricity and running water and receiving approval from government officials. (56:26:18) [[Nicholas J. Fuentes]] speculated that [[Charlie Kirk]] and [[Scott Pressler]] would retreat to gated communities in white neighborhoods rather than engage in voter outreach in troubled urban areas during a societal collapse. (59:08:70) [[Nicholas J. Fuentes]] stated that some of his followers still believe in [[QAnon]] narratives about Donald Trump and are therefore not yet serious about political action. (01:01:39) [[Nicholas J. Fuentes]] expressed hope that police officers across the [[country]] would resign or go on strike to show the public what a nation without law enforcement looks like.
+(00:20:32) The District Attorney in [[Atlanta]] charged [[Garrett Rolfe]], the police officer [[who]] shot and killed [[Rayshard Brooks]], with felony murder and ten other charges, potentially carrying the death penalty. (00:41:90) The [[|Fulton County]] District Attorney, [[Paul Howard]], announced the charges against [[Garrett Rolfe]] and a second officer, [[Devin Brosnan]], [[who]] faced three charges including aggravated assault. (00:47:72) [[Rayshard Brooks]] was shot and killed after turning a police taser on officers following a struggle where he failed a sobriety test. (00:53:02) [[Devin Brosnan]]'s attorney, [[Don Samuel]], disputed [[Paul Howard]]'s claim that [[Devin Brosnan]] had agreed to become a state's witness against [[Garrett Rolfe]]. (01:13:66) Unconfirmed rumors circulated on social media that the entire [[Atlanta Police Department]] might go on strike in response to the charges against [[Garrett Rolfe]]. (01:42:66) [[Google]] demonetized the conservative websites [[The Federalist]] and [[Zero Hedge]] via its [[Google AdSense]] platform due to content opposing [[Black Lives Matter]]. (02:08:44) A report from [[Revolver News|The National Pulse]] revealed that [[Google]] lobbyist [[Max Pappas]] contacted nearly 100 influential conservative figures and think tanks following the demonetization of [[The Federalist]] and [[Zero Hedge]]. (02:15:56) Major conservative think tanks including the [[Cato Institute]], [[American Enterprise Institute]], and the [[Competitive Enterprise Institute]] received funding from [[Google]]. (02:43:00) Following outreach from [[Google]] lobbyist [[Max Pappas]], several conservative think tanks defended [[Google]]'s actions against [[The Federalist]] and [[Zero Hedge]]. (03:48:78) The [[Heritage Foundation]] and other conservative think tanks participated in a convention or fundraiser hosted by [[Google]] months prior. (08:47:54) Donald Trump signed an executive order aimed at limiting police powers to use chokeholds. (08:53:24) [[Supreme Court of the United States|Supreme Court]] Justice [[Neil Gorsuch]] authored the decision in a landmark case extending workplace discrimination protections to LGBT individuals. (09:02:00) [[Senate Majority Leader]] [[Mitch McConnell]] opposed Donald Trump on the issue of renaming military bases named after Confederate generals. (11:22:22) Conservative commentators [[Ben Shapiro]] and [[Dennis Prager]], along with [[Mitch McConnell]], have publicly agreed that censorship against the political right is wrong. (13:21:12) [[Google]] lobbyist [[Max Pappas]], hired in 2017, contacted conservative influencers to manage the fallout from the [[The Federalist]] and [[Zero Hedge]] demonetization story. (14:33:22) [[Mark Jamison]], a visiting scholar at the [[American Enterprise Institute]], tweeted an op-ed entitled "[[Concept|Big Tech]] is biased and that's a good thing" ahead of the demonetization news. (14:49:24) [[James Pethokoukis]] of the [[American Enterprise Institute]] published an article endorsing [[Google]]'s actions and claiming conservative alarm over anti-conservative bias fails a reality test. (15:29:48) [[Julian Sanchez]], a contributor to the [[Cato Institute]] and [[Reason Magazine]], stated that only conservative sites publicly complain about censorship because other sites lack a "martyr complex." (15:56:02) [[Patrick Hedger]] of the [[Competitive Enterprise Institute]] wrote for the Never-Trump blog [[The Bulwark]], which had recently criticized [[Michelle Malkin]] and [[Nicholas J. Fuentes]]. (16:07:56) [[Patrick Hedger]] argued on the [[Competitive Enterprise Institute]] website that [[Google]], [[Amazon Inc.|Amazon]], and [[Facebook]] face robust competition, justifying a lack of government investigation or intervention. (17:48:04) The [[Conservative Political Action Conference]] ([[Conservative Political Action Conference|CPAC]]) receives annual funding from [[Google]] and once hosted a panel on tech censorship by [[Google]] while being financially supported by the company. (18:03:22) [[Jim Hoft]] was reportedly removed from a [[Conservative Political Action Conference|CPAC]] panel about tech censorship, which was funded by [[Google]]. (19:47:06) Commentators [[Bill Kristol]] and [[Bret Stephens]] were cited as examples of conservatives [[who]] support increased immigration. (27:39:96) Casino magnate [[Sheldon Adelson]], a major [[Republican Party|Republican]] donor, attended Donald Trump campaign galas and fundraisers wearing a yarmulke with a "Make [[United States|America]] Great Again" slogan. (27:57:02) [[Jared Kushner]] and his allies were cited as influential figures within the Donald Trump [[White House]] whose presence correlated with specific policy outcomes. (28:00:92) [[Neil Gorsuch]] and [[Fox News]] were listed as parts of a conservative movement whose direction is influenced by its financial backers. (29:52:74) [[Ben Shapiro]], described as the son of immigrants [[who]] attended private [[Jews|Jewish]] school and [[University of California, Los Angeles|UCLA]], lives in [[Los Angeles]] and is a frequent commentator for heartland conservatives. (30:38:68) [[Nicholas J. Fuentes]] argued that average [[United States|Americans]] have nothing in common with figures like [[Jared Kushner]], [[Ben Shapiro]], [[Bret Stephens]], or [[Bill Kristol]]. (32:57:08) In high school and college, [[Nicholas J. Fuentes]] was influenced by the narratives presented by [[Prager University|PragerU]] and [[Ben Shapiro]] about political conflict being between [[Democratic Party|Democrats]] and [[Republican Party|Republicans]]. (35:21:72) [[Nicholas J. Fuentes]] questioned how Donald Trump and the [[Republican Party]] could take no action on [[big tech]] censorship, suggesting they do not represent the interests of their base. (36:02:64) Officer [[Derek Chauvin]] was under investigation and facing trial for the killing of [[George Floyd]]. (36:08:14) [[Travis McMichael]] was brought in by a District Attorney in [[Country of Georgia|Georgia]] over the case of [[Ahmaud Arbery]]. (37:26:26) [[Garrett Rolfe]] was fired by the [[Atlanta Police Department]] after the killing of [[Rayshard Brooks]]. (37:54:92) [[Devin Brosnan]]'s attorney stated his client was "absolutely not guilty of any crime" and had not agreed to be a state's witness, contradicting [[Paul Howard]]'s announcement. (38:50:48) [[Rayshard Brooks]] had a criminal record that included theft, receiving stolen property, child abuse, and domestic battery. (43:14:20) Rumors indicated that four of the six zones of the [[Atlanta Police Department]] were experiencing major walk-offs, with scanner traffic in Zone Six silent for 20 minutes. (46:14:28) In [[Seattle]], activists established an autonomous zone (CHAZ) where individuals with firearms effectively became the governing authority in the absence of police. (51:52:74) [[Nicholas J. Fuentes]] questioned whether Donald Trump could order the military to restore order in [[United States|American]] streets and whether the [[U.S. Department of Defense|Pentagon]] would follow such orders. (53:50:06) [[Nicholas J. Fuentes]] stated that a [[city]]'s demographic composition, specifically its proportion of [[black]] and [[Hispanic]] residents, is a primary determinant of whether it will experience civil unrest. (54:34:00) [[Nicholas J. Fuentes]] argued that [[United States|American]] cities are deteriorating because the people living in them originate from countries with lower levels of societal development. (55:03:70) A [[black]] rapper in the [[Seattle]] autonomous zone (CHAZ) was able to establish control over a commune without police, while still receiving electricity and running water and receiving approval from government officials. (56:26:18) [[Nicholas J. Fuentes]] speculated that [[Charlie Kirk]] and [[Scott Pressler]] would retreat to gated communities in white neighborhoods rather than engage in voter outreach in troubled urban areas during a societal collapse. (59:08:70) [[Nicholas J. Fuentes]] stated that some of his followers still believe in [[QAnon]] narratives about Donald Trump and are therefore not yet serious about political action. (01:01:39) [[Nicholas J. Fuentes]] expressed hope that police officers across the [[country]] would resign or go on strike to show the public what a nation without law enforcement looks like.
 
 ### AF 2020-06-16 0622
 (01:17:12) [[Nicholas J. Fuentes]] agreed with a viewer named Enemy AC130 that "blackpill junkies" are prone to sinful actions and despair is a sin, advising trust in God over trust in Donald Trump.
@@ -19817,10 +19817,10 @@
 (10:04:44) [[Nicholas J. Fuentes]] stated that the Donald Trump campaign was advertised as a [[turning point]] and repudiation of the previous 30 years of [[United States|American]] politics, including the presidencies of [[Barack Obama]], [[George W. Bush]], [[Bill Clinton]], and [[Ronald Reagan]].
 
 ### AF 2020-06-11 0619
-(10:48:42) [[Nicholas J. Fuentes]] argued that the [[Barack Obama]] administration exhibited more law and order than the Donald Trump administration, citing the duration and scale of protests in [[City of St. Louis|Ferguson]] and Baltimore compared to the 2020 unrest.
+(10:48:42) [[Nicholas J. Fuentes]] argued that the [[Barack Obama]] administration exhibited more law and order than the Donald Trump administration, citing the duration and scale of protests in [[Ferguson]] and Baltimore compared to the 2020 unrest.
 
 ### AF 2020-06-11 0619
-(11:03:88) [[Nicholas J. Fuentes]] contrasted the law enforcement response to unrest in [[City of St. Louis|Ferguson]] and Baltimore under [[Barack Obama]] with the ongoing protests and autonomous zone in [[City of Seattle|Seattle]] under Donald Trump.
+(11:03:88) [[Nicholas J. Fuentes]] contrasted the law enforcement response to unrest in [[Ferguson]] and Baltimore under [[Barack Obama]] with the ongoing protests and autonomous zone in [[Seattle]] under Donald Trump.
 
 ### AF 2020-06-11 0619
 (11:22:36) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] was, in some ways, more successful on immigration enforcement, such as deportations, than Donald Trump had been.
@@ -20741,7 +20741,7 @@
 (01:06:04) Donald Trump called on the [[United States Congress]] to approve $50 billion for the [[Small Business Administration]] to provide low-interest loans and to enact payroll tax relief as part of an economic stimulus.
 
 ### AF 2020-03-11 0562
-(01:06:04) Donald Trump authorized the [[Treasury Department|United States Department of the Treasury]] to defer tax payments for individuals and businesses affected by the coronavirus.
+(01:06:04) Donald Trump authorized the [[United States Department of the Treasury]] to defer tax payments for individuals and businesses affected by the coronavirus.
 
 ### AF 2020-03-10 0561
 (00:45:08) [[Nicholas J. Fuentes]] predicted [[Joe Biden]] would perform poorly in debates against Donald Trump due to a lack of stamina and reliance on teleprompters, contrasting him with [[Hillary Clinton]]'s sharper 2016 debate performances.
@@ -20927,7 +20927,7 @@
 (00:09:48) [[Julian Assange]] released damaging information about [[Hillary Clinton]] and the [[DNC]] during the 2016 election not out of alignment with Donald Trump's nationalism, but because he viewed [[Hillary Clinton|Clinton]] as a greater threat from the warfare and surveillance state.
 
 ### AF 2020-02-20 0551
-(00:22:00) [[Julian Assange]]'s lawyer, [[Edward Fitzgerald]], told a [[City of London|London]] court that [[Dana Rohrabacher]] visited Assange at the Ecuadorian [[United States Embassy in Jerusalem|embassy]] on the instruction of Donald Trump to offer the described quid pro quo deal.
+(00:22:00) [[Julian Assange]]'s lawyer, [[Edward Fitzgerald]], told a [[London]] court that [[Dana Rohrabacher]] visited Assange at the Ecuadorian [[United States Embassy in Jerusalem|embassy]] on the instruction of Donald Trump to offer the described quid pro quo deal.
 
 ### AF 2020-02-20 0551
 (00:24:29) [[Dana Rohrabacher]] denied ever speaking to Donald Trump about [[Julian Assange]] and stated his visit was a personal fact-finding mission.
@@ -21257,7 +21257,7 @@
 (39:30:65) Donald Trump criticized the governor of [[Commonwealth of Pennsylvania|Pennsylvania]] for vetoing legislation to expand school choice to 50,000 children.
 
 ### AF 2020-02-04 0539
-(40:09:07) Donald Trump announced that fourth-grader Janiyah [[Pearl Davis|Davis]] from [[City of Philadelphia|Philadelphia]] would receive an opportunity scholarship to attend the school of her choice.
+(40:09:07) Donald Trump announced that fourth-grader Janiyah [[Pearl Davis|Davis]] from [[Philadelphia]] would receive an opportunity scholarship to attend the school of her choice.
 
 ### AF 2020-02-04 0539
 (41:28:29) Donald Trump credited [[Melania Trump]] with launching the "Be Best" initiative to advance a safe, healthy, and drug-free life for the next generation.
@@ -21269,13 +21269,13 @@
 (43:03:19) Donald Trump announced record permanent funding for the nation's [[historically black colleges and universities]].
 
 ### AF 2020-02-04 0539
-(44:01:50) Donald Trump pledged to always protect patients with pre-existing conditions, [[Health and Human Services|Medicare]], and [[Social Security]].
+(44:01:50) Donald Trump pledged to always protect patients with pre-existing conditions, [[Medicare]], and [[Social Security]].
 
 ### AF 2020-02-04 0539
 (45:37:17) Donald Trump claimed 132 lawmakers in [[Congress]] had endorsed legislation to impose a "socialist takeover" of the healthcare system, which would wipe out the private health insurance plans of 180 million [[United States|Americans]].
 
 ### AF 2020-02-04 0539
-(46:22:07) Donald Trump stated that over 130 legislators had endorsed legislation providing free taxpayer-funded healthcare to millions of illegal aliens, which would raise [[Health and Human Services|Medicare]] costs and act as a lure for illegal immigration.
+(46:22:07) Donald Trump stated that over 130 legislators had endorsed legislation providing free taxpayer-funded healthcare to millions of illegal aliens, which would raise [[Medicare]] costs and act as a lure for illegal immigration.
 
 ### AF 2020-02-04 0539
 (47:39:10) Donald Trump announced that over 100 miles of a border wall had been completed, with over 500 miles fully completed soon, and that his administration was taking on big pharmaceutical companies.
@@ -21368,7 +21368,7 @@
 (01:19:49:99) Donald Trump announced [[the United States]] was working to end [[United States|America]]'s longest war and bring troops home from [[Afghanistan]], where peace talks were underway.
 
 ### AF 2020-02-04 0539
-(01:20:40:93) Donald Trump recognized military spouse Amy Williams from [[City of Fort Bragg|Fort Bragg]], [[North Carolina]], whose husband was on his fourth deployment, and then surprised her by having her husband, Sergeant First Class Townsend Williams, return from deployment in the gallery.
+(01:20:40:93) Donald Trump recognized military spouse Amy Williams from [[Fort Bragg]], [[North Carolina]], whose husband was on his fourth deployment, and then surprised her by having her husband, Sergeant First Class Townsend Williams, return from deployment in the gallery.
 
 ### AF 2020-02-04 0539
 (01:23:30:22) Donald Trump listed [[United States|American]] heroes including [[Thomas Edison]], [[Theodore Roosevelt]], [[George Washington]], [[Abraham Lincoln]], [[Frederick Douglass]], [[Amelia Earhart]], [[Harriet Tubman]], the [[Wright brothers]], and [[Neil Armstrong]].
@@ -21473,7 +21473,7 @@
 (00:01:24) [[Jared Kushner]], the son-in-law of Donald Trump, was the primary architect of the peace plan, working in coalition with the [[Israel|Israeli]] government.
 
 ### AF 2020-01-28 0534
-(00:37:36) Donald Trump stated that [[City of Jerusalem|Jerusalem]] would remain [[Israel]]'s "undivided capital" under the peace plan, but that a future [[Palestinian]] state could have its capital in eastern [[City of Jerusalem|Jerusalem]].
+(00:37:36) Donald Trump stated that [[Jerusalem]] would remain [[Israel]]'s "undivided capital" under the peace plan, but that a future [[Palestinian]] state could have its capital in eastern [[Jerusalem]].
 
 ### AF 2020-01-28 0534
 (00:39:30) Donald Trump said that neither [[Palestinians]] nor [[Israel|Israelis]] would be uprooted from their homes under the plan, a provision interpreted as allowing illegal [[Israel|Israeli]] settlements to remain.
@@ -21482,7 +21482,7 @@
 (00:42:05) The unveiling event at [[the White House]] featured Donald Trump and [[Benjamin Netanyahu|Bibi]] flanked by dozens of right-wing supporters of [[Israel]], including donor [[Sheldon Adelson]] and [[Republican Party|GOP]] [[members of Congress]].
 
 ### AF 2020-01-28 0534
-(01:00:00) [[Nicholas J. Fuentes]] listed several actions taken by the Donald Trump administration at [[Israel]]'s behest, including recognizing [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], designating [[Iran|Iran's]] [[Iran|IRGC]] as a terrorist group, solidifying aid, revoking [[Palestinian]] aid, and moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]].
+(01:00:00) [[Nicholas J. Fuentes]] listed several actions taken by the Donald Trump administration at [[Israel]]'s behest, including recognizing [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], designating [[Iran|Iran's]] [[Iran|IRGC]] as a terrorist group, solidifying aid, revoking [[Palestinian]] aid, and moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]].
 
 ### AF 2020-01-27 0533
 (00:00:31) The [[Supreme Court of the United States]] issued a ruling allowing a Donald Trump administration immigration rule on "public charge" inadmissibility to take effect, overturning a lower court injunction.
@@ -21749,7 +21749,7 @@
 (00:30:04) [[Nicholas J. Fuentes]] claimed Trump was up against the [[U.S. Department of Defense|Pentagon]], the [[U.S. Department of Defense|DOD]], the military-industrial complex, the [[Israel lobby]], and donor [[Sheldon Adelson]], [[who]] had previously said the [[United States]] should nuke [[Iran]].
 
 ### AF 2020-01-07 0520
-(00:31:04) [[Nicholas J. Fuentes]] noted that Trump's administration had named the [[Iran|IRGC]] a terrorist group, recognized [[Israel]]i sovereignty over the [[Israel|Golan Heights]], and moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], delivering on priorities for Zionist donors.
+(00:31:04) [[Nicholas J. Fuentes]] noted that Trump's administration had named the [[Iran|IRGC]] a terrorist group, recognized [[Israel]]i sovereignty over the [[Israel|Golan Heights]], and moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], delivering on priorities for Zionist donors.
 
 ### AF 2020-01-07 0520
 (00:31:35) [[Nicholas J. Fuentes]] asserted that [[Israel]] and [[AIPAC]] were unhappy with the Trump administration's cancellation of regime change in [[Syria]], attempts to pull troops from the [[region]], and decision not to retaliate militarily after the Gulf of Oman tanker incidents and the downing of a [[United States|U.S.]] drone.
@@ -21911,7 +21911,7 @@
 (01:19:40) The Donald Trump administration announced an executive order to expand the federal definition of anti-Semitism on college campuses to include criticism of [[Israel]]'s nationality, aiming to threaten universities that allow [[BDS|Boycott, Divestment and Sanctions]] ([[BDS]]) activism.
 
 ### AF 2019-12-10 0510
-(01:43:08) The Donald Trump administration's policy shifts regarding [[Israel]] included recognizing [[City of Jerusalem|Jerusalem]] as its capital, moving the [[United States Embassy in Jerusalem|U.S. embassy]], recognizing [[Israel|Golan Heights]] as [[Israel|Israeli]] territory, affirming the legality of [[Gaza Strip|West Bank]] settlements, and maintaining $38 billion in military aid.
+(01:43:08) The Donald Trump administration's policy shifts regarding [[Israel]] included recognizing [[Jerusalem]] as its capital, moving the [[United States Embassy in Jerusalem|U.S. embassy]], recognizing [[Israel|Golan Heights]] as [[Israel|Israeli]] territory, affirming the legality of [[Gaza Strip|West Bank]] settlements, and maintaining $38 billion in military aid.
 
 ### AF 2019-12-10 0510
 (01:45:44) [[Paul Krugman]] wrote a column in the [[The New York Times]] titled "Donald Trump is Bad for the [[Jews]]," characterizing the Trump administration as an "anti-[[democratic]], white nationalist regime."
@@ -22673,13 +22673,13 @@
 (10:36:66) The Trump administration took no action to punish or privately reprimand the [[Israel|Israeli government]] after [[United States|U.S]]. intelligence agencies concluded it had placed surveillance devices in [[Washington D.C.|Washington, D.C.]], a departure from the diplomatic reprimands typical of past administrations.
 
 ### AF 2019-09-13 0461
-(15:25:84) The Trump administration recognized [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], and issued unprecedented sanctions against [[Iran|Iran's]] [[Iran|IRGC]] without punishing [[Israel]] for expanding settlements.
+(15:25:84) The Trump administration recognized [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]], moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], and issued unprecedented sanctions against [[Iran|Iran's]] [[Iran|IRGC]] without punishing [[Israel]] for expanding settlements.
 
 ### AF 2019-09-13 0461
 (22:08:82) [[Sheldon Adelson]] was the single largest individual donor to Donald Trump's last presidential election campaign, which [[Nicholas J. Fuentes]] cited as a reason for the administration's lenient response to [[Israel|Israeli]] espionage.
 
 ### AF 2019-09-13 0461
-(22:21:46) [[Steven Crowder|Steve Bannon]] solicited campaign funds from the [[Zionist Organization of America]] while working for the Trump campaign, according to [[Nicholas J. Fuentes]].
+(22:21:46) [[Steve Bannon]] solicited campaign funds from the [[Zionist Organization of America]] while working for the Trump campaign, according to [[Nicholas J. Fuentes]].
 
 ### AF 2019-09-12 0460
 (00:00:00) [[Nicholas J. Fuentes]] argued that modern political debates are won through memorable, attention-grabbing moments and soundbites, not substantive policy discussion, a lesson he credited Donald Trump with mastering in 2016.
@@ -22748,7 +22748,7 @@
 (01:28:00) [[Nicholas J. Fuentes]] expressed ambivalence about the collapsed peace talks, stating his primary concern was a full [[United States|U.S]]. withdrawal from [[Afghanistan]] by the end of Donald Trump's first term.
 
 ### AF 2019-09-06 0456
-(00:11:36) [[Nicholas J. Fuentes]] confirmed he will debate [[Jacob Wohl]] on Donald Trump's foreign policy, with a focus on [[Israel]], at the upcoming demandfreespeech.org event in [[City of Miami|Miami]].
+(00:11:36) [[Nicholas J. Fuentes]] confirmed he will debate [[Jacob Wohl]] on Donald Trump's foreign policy, with a focus on [[Israel]], at the upcoming demandfreespeech.org event in [[Miami]].
 
 ### AF 2019-09-06 0456
 (00:15:13) The [[Republican Party]] in [[State of Texas|Texas]] is concerned that Donald Trump's nine-point victory margin in the state in 2016, the smallest for a [[Republican Party|Republican]] presidential candidate in two decades, indicates a trend of declining support that could cost the party [[House]] seats and potentially its majority in the state [[House]].
@@ -22841,7 +22841,7 @@
 (00:48:19) [[Nicholas J. Fuentes]] stated that Donald Trump himself identified personnel and staffing as his administration's biggest problem in an interview with a reporter.
 
 ### AF 2019-08-29 0451
-(00:30:59) [[Jeffrey Epstein]] was indicted for child sex trafficking before his death in jail on August 10th, 2019, a death officially ruled a suicide by the medical examiner. (00:33:04) [[Jeffrey Epstein]] was [[Jews|Jewish]]. (00:33:50) [[Jeffrey Epstein]]'s criminal case was officially dismissed by Judge [[Richard Berman]] on August 29th, 2019, citing his death. (00:34:24) Judge [[Richard Berman]] allowed accusers of [[Jeffrey Epstein]] to deliver victim impact statements in court on August 27th, 2019, even though the accused was not present. (00:35:04) [[State of Florida|Florida]] prosecutors previously offered [[Jeffrey Epstein]] a plea deal without input from his accusers years prior to the 2019 case. (00:35:57) [[Jeffrey Epstein]]'s private plane was [[known]] as the "Lolita Express." (00:57:55) [[Kim Kardashian]] announced a new album by [[Kanye West]] titled "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," scheduled for release on September 27th, 2019. (01:07:06) A comprehensive new study published in *Science* magazine concluded there is no single "gay gene," with same-sex sexual behavior influenced by many genetic variants and environmental factors. (01:18:11) Only ten [[Democratic Party|Democratic]] candidates qualified for the third 2020 presidential primary debate on September 12th in [[City|Houston]]: [[Joe Biden]], [[Bernie Sanders]], [[Elizabeth Warren]], [[Kamala Harris]], [[Peter Buttigieg|Pete Buttigieg]], [[Andrew Yang]], [[Cory Booker]], [[Beto O'Rourke]], [[Julian Castro]], and [[Amy Klobuchar]]. (01:18:59) [[Tulsi Gabbard]] and billionaire activist [[Tom Steyer]] failed to qualify for the September 2019 [[Democratic Party|Democratic]] debate, with Gabbard needing two more qualifying polls and [[Tom Steyer|Steyer]] needing one. (01:21:04) [[Democratic Party|Democratic]] candidates [[Kirsten Gillibrand]], [[John Hickenlooper]], [[Jay Inslee]], [[Seth Moulton]], and [[Eric Swalwell]] dropped out of the 2020 presidential race by late August 2019. (01:22:28) [[Joe Biden]] maintained a double-digit lead in most national and state polls for the [[Democratic Party|Democratic]] nomination through August 2019, despite attacks from rivals and personal scandals. (01:25:58) [[Elizabeth Warren]] was rising in the polls as the main competitor to [[Joe Biden]] for the [[Democratic Party|Democratic]] nomination by late August 2019, while [[Kamala Harris]]'s support was fading and [[Peter Buttigieg|Pete Buttigieg]] had failed to surge. (01:26:37) [[Nicholas J. Fuentes]] predicted that if [[Joe Biden]] won the [[Democratic Party|Democratic]] nomination, the contest for his running mate would likely be between [[Kamala Harris]] and [[Elizabeth Warren]]. (01:29:12) Donald Trump was co-opted by the deep state within two years of his presidency, according to [[Nicholas J. Fuentes]], transforming from an unconventional outsider into a figure virtually indistinguishable from establishment [[Republican Party|Republicans]] like [[Mitt Romney]], [[Ted Cruz]], and [[Marco Rubio]]. (01:31:14) [[Barack Obama]]'s presidency failed to end the forever wars or stop deficit spending, despite his anti-establishment "hope and change" rhetoric, paralleling Donald Trump's experience according to [[Nicholas J. Fuentes]]. (01:33:04) [[Jeffrey Epstein]] was about to give up information on the [[United Kingdom|British]] Royal Family, the [[Israel|Israeli government]], [[Los Angeles|Hollywood]] celebrities, and [[Bill Clinton]] before he was murdered in jail, according to [[Nicholas J. Fuentes]]. (01:34:36) [[Nicholas J. Fuentes]] argued that the powers that be killed [[Jeffrey Epstein]] in a transparent manner to send a message of intimidation and demonstrate their capability to silence anyone, even with public knowledge. (01:39:27) The media's ability to distract the public from major events like the [[Jeffrey Epstein]] case or the [[City of Las Vegas|Las Vegas]] mass shooting demonstrates a population that lacks the agency to achieve reform, according to [[Nicholas J. Fuentes]]. (01:48:55) [[Nicholas J. Fuentes]] argued that the only enduring "white pill" or source of hope is the belief that "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," transcending the temporal power of figures like [[Jeffrey Epstein]].
+(00:30:59) [[Jeffrey Epstein]] was indicted for child sex trafficking before his death in jail on August 10th, 2019, a death officially ruled a suicide by the medical examiner. (00:33:04) [[Jeffrey Epstein]] was [[Jews|Jewish]]. (00:33:50) [[Jeffrey Epstein]]'s criminal case was officially dismissed by Judge [[Richard Berman]] on August 29th, 2019, citing his death. (00:34:24) Judge [[Richard Berman]] allowed accusers of [[Jeffrey Epstein]] to deliver victim impact statements in court on August 27th, 2019, even though the accused was not present. (00:35:04) [[State of Florida|Florida]] prosecutors previously offered [[Jeffrey Epstein]] a plea deal without input from his accusers years prior to the 2019 case. (00:35:57) [[Jeffrey Epstein]]'s private plane was [[known]] as the "Lolita Express." (00:57:55) [[Kim Kardashian]] announced a new album by [[Kanye West]] titled "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," scheduled for release on September 27th, 2019. (01:07:06) A comprehensive new study published in *Science* magazine concluded there is no single "gay gene," with same-sex sexual behavior influenced by many genetic variants and environmental factors. (01:18:11) Only ten [[Democratic Party|Democratic]] candidates qualified for the third 2020 presidential primary debate on September 12th in [[City|Houston]]: [[Joe Biden]], [[Bernie Sanders]], [[Elizabeth Warren]], [[Kamala Harris]], [[Peter Buttigieg|Pete Buttigieg]], [[Andrew Yang]], [[Cory Booker]], [[Beto O'Rourke]], [[Julian Castro]], and [[Amy Klobuchar]]. (01:18:59) [[Tulsi Gabbard]] and billionaire activist [[Tom Steyer]] failed to qualify for the September 2019 [[Democratic Party|Democratic]] debate, with Gabbard needing two more qualifying polls and [[Tom Steyer|Steyer]] needing one. (01:21:04) [[Democratic Party|Democratic]] candidates [[Kirsten Gillibrand]], [[John Hickenlooper]], [[Jay Inslee]], [[Seth Moulton]], and [[Eric Swalwell]] dropped out of the 2020 presidential race by late August 2019. (01:22:28) [[Joe Biden]] maintained a double-digit lead in most national and state polls for the [[Democratic Party|Democratic]] nomination through August 2019, despite attacks from rivals and personal scandals. (01:25:58) [[Elizabeth Warren]] was rising in the polls as the main competitor to [[Joe Biden]] for the [[Democratic Party|Democratic]] nomination by late August 2019, while [[Kamala Harris]]'s support was fading and [[Peter Buttigieg|Pete Buttigieg]] had failed to surge. (01:26:37) [[Nicholas J. Fuentes]] predicted that if [[Joe Biden]] won the [[Democratic Party|Democratic]] nomination, the contest for his running mate would likely be between [[Kamala Harris]] and [[Elizabeth Warren]]. (01:29:12) Donald Trump was co-opted by the deep state within two years of his presidency, according to [[Nicholas J. Fuentes]], transforming from an unconventional outsider into a figure virtually indistinguishable from establishment [[Republican Party|Republicans]] like [[Mitt Romney]], [[Ted Cruz]], and [[Marco Rubio]]. (01:31:14) [[Barack Obama]]'s presidency failed to end the forever wars or stop deficit spending, despite his anti-establishment "hope and change" rhetoric, paralleling Donald Trump's experience according to [[Nicholas J. Fuentes]]. (01:33:04) [[Jeffrey Epstein]] was about to give up information on the [[United Kingdom|British]] Royal Family, the [[Israel|Israeli government]], [[Los Angeles|Hollywood]] celebrities, and [[Bill Clinton]] before he was murdered in jail, according to [[Nicholas J. Fuentes]]. (01:34:36) [[Nicholas J. Fuentes]] argued that the powers that be killed [[Jeffrey Epstein]] in a transparent manner to send a message of intimidation and demonstrate their capability to silence anyone, even with public knowledge. (01:39:27) The media's ability to distract the public from major events like the [[Jeffrey Epstein]] case or the [[Las Vegas]] mass shooting demonstrates a population that lacks the agency to achieve reform, according to [[Nicholas J. Fuentes]]. (01:48:55) [[Nicholas J. Fuentes]] argued that the only enduring "white pill" or source of hope is the belief that "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," transcending the temporal power of figures like [[Jeffrey Epstein]].
 
 ### AF 2019-08-28 0450
 (00:42:19) As [[Italian Republic|Italy]]'s Interior Minister, [[Matteo Salvini]] reduced the rate of illegal immigration into the entire [[Europe|European continent]] by 92%, a policy achievement [[Nicholas J. Fuentes]] contrasted with the worsening illegal immigration situation under Donald Trump's presidency in the [[United States]].
@@ -22952,7 +22952,7 @@
 (00:34:22) Donald Trump tweeted a quote from [[Wayne Alan Root]] calling him "the greatest president for [[Jews]] and for [[Israel]] in the history of the world" and stating [[Jews]] in [[Israel]] love him "like he's the [[Martin Luther King Jr.|King]] of [[Israel]]."
 
 ### AF 2019-08-21 0445
-(00:37:46) Donald Trump's administration moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], labeled [[Hezbollah]] a terrorist group, recognized [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and approved $38 billion in aid to [[Israel]].
+(00:37:46) Donald Trump's administration moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], labeled [[Hezbollah]] a terrorist group, recognized [[Israel]]'s sovereignty over the [[Israel|Golan Heights]], and approved $38 billion in aid to [[Israel]].
 
 ### AF 2019-08-20 0444
 (00:02:21) Donald Trump attacked [[Rashida Tlaib]] and [[Ilhan Omar]] on social media, calling them anti-[[Jews|Jewish]], anti-Semitic, and anti-[[Israel]].
@@ -22973,7 +22973,7 @@
 (00:21:35) The Tax Cuts and Jobs Act of 2017, passed by the Donald Trump administration, was largely a corporate tax cut, reducing the corporate rate from approximately 34% to 21%.
 
 ### AF 2019-08-20 0444
-(00:22:23) [[Steven Crowder|Steve Bannon]], after leaving the Donald Trump administration, explained that the 2017 tax cut was mainly designed to shift production from [[China]] to [[United States|America]] and reorient supply chains.
+(00:22:23) [[Steve Bannon]], after leaving the Donald Trump administration, explained that the 2017 tax cut was mainly designed to shift production from [[China]] to [[United States|America]] and reorient supply chains.
 
 ### AF 2019-08-20 0444
 (00:24:05) [[Nicholas J. Fuentes]] argued that a recession before the 2020 election would make it virtually impossible for Donald Trump to win re-election, citing unfulfilled promises on immigration, ongoing foreign wars, and unresolved trade issues.
@@ -23060,7 +23060,7 @@
 (01:45:00) Trump announced an additional 10% tariff on $300 billion worth of [[China|Chinese]] goods, set to take effect on September 1st, escalating the ongoing trade war.
 
 ### AF 2019-08-06 0434
-(43:28:00) [[Nicholas J. Fuentes]] analyzed that [[China|Chinese]] President [[Xi Jinping]] was resisting a trade deal in the hope that Trump would lose the 2020 election, believing a [[Democratic Party|Democratic]] successor would be more accommodating to [[City of Beijing|Beijing]].
+(43:28:00) [[Nicholas J. Fuentes]] analyzed that [[China|Chinese]] President [[Xi Jinping]] was resisting a trade deal in the hope that Trump would lose the 2020 election, believing a [[Democratic Party|Democratic]] successor would be more accommodating to [[Beijing]].
 
 ### AF 2019-08-05 0433
 (01:11:38) [[Nicholas J. Fuentes]] argued that the solution to immigration concerns was through the legitimate political process, not violence, and that figures like Donald Trump, [[Fox News]], and himself diagnosed the same problem but sought different, peaceful solutions.
@@ -23078,7 +23078,7 @@
 (01:45:20) [[Nicholas J. Fuentes]] argued that the elite, having underestimated Donald Trump's 2016 election, developed a long-term strategy of social media censorship and orchestrating or exploiting crisis events to prevent similar political movements from gaining prominence again.
 
 ### AF 2019-08-01 0432
-(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When Donald Trump took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) Donald Trump announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steven Crowder|Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling Donald Trump an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) Donald Trump sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) Donald Trump and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) Donald Trump sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) Donald Trump had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, Donald Trump stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) Donald Trump's proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, Donald Trump eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) Donald Trump downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The Trump administration had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[City of Kabul|Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, Donald Trump announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
+(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When Donald Trump took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) Donald Trump announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling Donald Trump an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) Donald Trump sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) Donald Trump and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) Donald Trump sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) Donald Trump had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, Donald Trump stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) Donald Trump's proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, Donald Trump eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) Donald Trump downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The Trump administration had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, Donald Trump announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
 
 ### AF 2019-07-31 0431
 (01:08:21) [[Joe Biden]] argued that his moderate platform on issues like healthcare and immigration made him the most electable candidate against Donald Trump, contrasting himself with more progressive rivals.
@@ -23354,7 +23354,7 @@
 (07:11:35) [[Nicholas J. Fuentes]] expressed hope that Donald Trump would resist calls for war with [[Iran]], citing the president's downplaying of the tanker and drone incidents as evidence of his restraint.
 
 ### AF 2019-06-19 0410
-(00:11:10) [[Nicholas J. Fuentes]] planned to review Donald Trump's 2019 re-election rally in [[City of Orlando|Orlando]], which he characterized as lacking the focus and insurgent energy of the 2016 campaign.
+(00:11:10) [[Nicholas J. Fuentes]] planned to review Donald Trump's 2019 re-election rally in [[Orlando]], which he characterized as lacking the focus and insurgent energy of the 2016 campaign.
 
 ### AF 2019-06-19 0410
 (00:12:34) [[Nicholas J. Fuentes]] argued that Donald Trump's 2019 rally message on issues like socialism was indistinguishable from traditional [[Republican Party]] figures like [[Marco Rubio]] and failed to emphasize core 2016 themes like immigration, trade, and foreign policy.
@@ -23531,7 +23531,7 @@
 (01:03:04) Donald Trump called for passing "Kate's Law," ending sanctuary cities and catch-and-release, deporting gang members, stopping human trafficking and illegal immigration, and establishing a merit-based immigration system.
 
 ### AF 2019-06-18 0409
-(01:03:43) Donald Trump warned that more than 120 [[Democratic Party|Democrats]] in [[Congress]] supported "crazy [[Bernie Sanders]]' socialist government takeover of health care," which he said would end [[Health and Human Services|Medicare]] and terminate private insurance for 180 million [[United States|Americans]].
+(01:03:43) Donald Trump warned that more than 120 [[Democratic Party|Democrats]] in [[Congress]] supported "crazy [[Bernie Sanders]]' socialist government takeover of health care," which he said would end [[Medicare]] and terminate private insurance for 180 million [[United States|Americans]].
 
 ### AF 2019-06-18 0409
 (01:04:09) Donald Trump declared, "[[United States|America]] will never be a socialist [[country]]."
@@ -23555,7 +23555,7 @@
 (01:06:53) Donald Trump declared the [[Islamic State of Iraq and Syria|ISIS]] caliphate had been "totally obliterated 100%."
 
 ### AF 2019-06-18 0409
-(01:07:14) Donald Trump stated his administration re-established friendship with [[Israel]], recognized [[City of Jerusalem|Jerusalem]] as its capital, opened the [[United States Embassy in Jerusalem|U.S. embassy]] there, and recognized [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]].
+(01:07:14) Donald Trump stated his administration re-established friendship with [[Israel]], recognized [[Jerusalem]] as its capital, opened the [[United States Embassy in Jerusalem|U.S. embassy]] there, and recognized [[Israel|Israeli]] sovereignty over the [[Israel|Golan Heights]].
 
 ### AF 2019-06-18 0409
 (01:07:49) Donald Trump cited his withdrawal from the "disastrous" [[Joint Comprehensive Plan of Action|Iran nuclear deal]] and the imposition of the toughest ever sanctions on [[Iran]], which he called the world's number one [[state]] sponsor of terrorism.
@@ -23660,13 +23660,13 @@
 (01:49:52) Donald Trump's administration was influenced by special interests including [[Sheldon Adelson]], the [[AIPAC]], [[Benjamin Netanyahu|Bibi]], and [[Jared Kushner]].
 
 ### AF 2019-06-18 0409
-(01:58:18) Donald Trump's June 2019 rally in [[City of Orlando|Orlando]] was trending on [[Twitter]] alongside topics like the [[United States Holocaust Memorial Museum|Holocaust]] and [[City of Auschwitz|Auschwitz]].
+(01:58:18) Donald Trump's June 2019 rally in [[Orlando]] was trending on [[Twitter]] alongside topics like the [[United States Holocaust Memorial Museum|Holocaust]] and [[Auschwitz]].
 
 ### AF 2019-06-18 0409
 (01:58:34) Donald Trump claimed his administration created six million jobs in two years, a figure [[Nicholas J. Fuentes]] publicly stated he believed despite private skepticism about its plausibility.
 
 ### AF 2019-06-18 0409
-(02:05:03) An attendee at Donald Trump's [[City of Orlando|Orlando]] rally reported that journalists were taking posed pictures of every [[black]] [[person]] wearing MAGA gear.
+(02:05:03) An attendee at Donald Trump's [[Orlando]] rally reported that journalists were taking posed pictures of every [[black]] [[person]] wearing MAGA gear.
 
 ### AF 2019-06-18 0409
 (02:07:29) [[Nicholas J. Fuentes]] predicted that [[Israel]] would "cash out huge" during a second Donald Trump term.
@@ -23681,7 +23681,7 @@
 (00:06:50) [[Steve Daines]] introduced a bill to [[Congress]] proposing a constitutional amendment to ban burning the [[United States]] flag, which Donald Trump endorsed on [[Twitter]].
 
 ### AF 2019-06-17 0408
-(00:09:30) [[Nicholas J. Fuentes]] announced he was considering live-streaming and reacting to a Donald Trump campaign rally in [[City of Orlando|Orlando]], [[State of Florida|Florida]] scheduled for the following day.
+(00:09:30) [[Nicholas J. Fuentes]] announced he was considering live-streaming and reacting to a Donald Trump campaign rally in [[Orlando]], [[State of Florida|Florida]] scheduled for the following day.
 
 ### AF 2019-06-17 0408
 (00:22:50) [[Ben Shapiro]] defended [[National Football League|NFL]] players kneeling during the national anthem, a position opposed by Donald Trump and many conservatives at the [[time]].
@@ -23735,7 +23735,7 @@
 (00:07:18) [[Wilt Chamberlain|Will Chamberlain]] used his father's money and [[Qatar|Qatari]] funds to purchase [[The Human Events|Human Events]] to gatekeep the alt-right and MAGA movement.
 
 ### AF 2019-06-11 0404
-(00:34:24) [[Nicholas J. Fuentes]] argued that Donald Trump could not pass meaningful immigration or trade reform because [[Republican Party]] leaders like [[Paul Ryan]], [[Mitch McConnell]], and [[Mike Johnson|Kevin McCarthy]] were funded by big business interests like the [[Charles Koch|Koch brothers]].
+(00:34:24) [[Nicholas J. Fuentes]] argued that Donald Trump could not pass meaningful immigration or trade reform because [[Republican Party]] leaders like [[Paul Ryan]], [[Mitch McConnell]], and [[Kevin McCarthy]] were funded by big business interests like the [[Charles Koch|Koch brothers]].
 
 ### AF 2019-06-10 0403
 (00:48:49) [[Milo Yiannopoulos]] published an article titled "Say farewell to the Klepto Queens of the [[United Kingdom|British]] far right" on his website Dangerous.com, alleging that two producers, [[Kaelin Robertson]] and [[George Lulyn John]], engaged in financial fraud and sabotage within the right-wing movement. (00:52:51) The article accused [[Kaelin Robertson]] and [[George Lulyn John]] of stealing tens of thousands of dollars from [[Tommy Robinson]], defrauding [[Alex Jones]] with inflated expense claims, and endangering the lives of [[Gavin McInnes]] and [[Tommy Robinson]] by leaking their security information to [[the left]]-wing [[organization]] [[Hope Not Hate]]. (00:56:33) The article further alleged that [[Lauren Southern]] (real name [[Lauren Boebert|Lauren Simonson]]) was aware of and encouraged the activities of her producers, [[Kaelin Robertson]] and [[George Lulyn John]]. (01:01:21) [[Nicholas J. Fuentes]] argued that the alleged actions of [[Kaelin Robertson]] and [[George Lulyn John]] demonstrated a pattern of problematic behavior when individuals not living conservative lifestyles, particularly women and homosexuals, are brought into conservative political movements. (01:06:41) [[Nicholas J. Fuentes]] characterized [[Milo Yiannopoulos]], [[Lauren Southern]], [[Kaelin Robertson]], and [[George Lulyn John]] as grifters motivated by money rather than genuine political conviction. (01:09:15) [[Nicholas J. Fuentes]] asserted that personal character is the most important factor for success in an insurgent nationalist political movement, citing the failures of [[Richard Spencer]] and [[Milo Yiannopoulos]] as examples of ideological and financial approaches undermined by character deficits. (01:25:39) [[Nicholas J. Fuentes]] stated that [[Milo Yiannopoulos]] received $15 million from the [[Mercer family]] after being fired from [[Breitbart News|Breitbart]] and disinvited from [[Conservative Political Action Conference|CPAC]], but subsequently fell into debt and irrelevance due to personal character failings. (01:33:39) [[Nicholas J. Fuentes]] cited [[Mike Cernovich]] as an archetypal example of a grifter, noting his rapid shift from authoring "The MAGA Mindset" to disavowing Donald Trump, conservatism, and even [[Catholic Church|Catholicism]]. (04:44:49) Donald Trump threatened to impose a 5% tariff on all goods imported from [[Mexico]] on June 10th, 2019, unless [[Mexico]] changed its policies to reduce the flow of migrants across the [[United States]] border. (05:03:29) The Trump administration announced a deal with [[Mexico]] on Friday, June 7th, 2019, and suspended the threatened tariffs, claiming [[Mexico]] had agreed to deploy [[U.S. Department of Defense|National Guard]] troops to its southern border and to implement measures related to asylum seekers. (05:40:93) [[Nicholas J. Fuentes]] claimed that the details of the [[United States|U.S]].-[[Mexico]] deal were disputed, with the [[Mexican government]] stating there was no secret written agreement and only a commitment to review migrant flows in the future, while the Trump administration insisted a deal had been signed. (05:57:79) [[Nicholas J. Fuentes]] argued that Donald Trump's retreat from the tariff threat followed a pattern of making threats on issues like immigration and then backing down, which he characterized as a strategy to convince voters of his seriousness ahead of the 2020 election rather than a genuine attempt to solve the problem. (07:03:29) The [[Vatican]] issued a document during Pride Month affirming traditional gender roles, which [[Nicholas J. Fuentes]] praised as evidence that the [[Catholic Church]] is fighting globalism. (07:49:01) [[Nicholas J. Fuentes]] released a premium show analyzing the newly announced [[National Conservatism|National Conservatism Conference]], organized by [[Youram Hazony|Yoram Hazony]] and [[David Brog]], questioning its funding and associations. (08:50:59) [[Nicholas J. Fuentes]] discussed a [[The New York Times|New York Times]] article about former alt-right figure [[Caleb Cain]], criticizing it for contradictions, such as comparing the engagement of [[ContraPoints]] to [[Stefan Molyneux]]. (09:13:41) [[Nicholas J. Fuentes]] noted that [[Caleb Cain]]'s story of being radicalized and then de-radicalized by online content mirrored the alleged final actions of [[Kaelin Robertson]] and [[George Lulyn John]], [[who]] reportedly reached out to journalists claiming to have been de-radicalized after their activities were challenged. (13:36:39) [[Lauren Southern]] began her career as a content creator on the Canadian outlet [[Rebel Media]], alongside figures like [[Gavin McInnes]] and [[Faith Goldy]]. (14:34:25) [[Lauren Southern]] hired two homosexual producers, [[Kaelin Robertson]] and [[George Lulyn John]], [[who]] had previously worked for [[Rebel Media]] and [[Alex Jones|InfoWars]], to film her documentaries. (25:13:89) [[Nicholas J. Fuentes]] noted that [[George Lulyn John]] was reportedly a former transgender female [[who]] later identified as a gay man. (42:04:65) [[Nicholas J. Fuentes]] recalled that [[Lauren Southern]] had contacted him two years prior during the "Thought Wars" debate about the role of women in the right-wing movement, where he argued they were a net negative. (43:04:71) [[Nicholas J. Fuentes]] referenced the allegation that [[Kaelin Robertson]], brought into the movement by [[Lauren Southern]], leaked [[Gavin McInnes]]'s itinerary information to [[Antifa]], endangering his life. (46:01:61) [[Nicholas J. Fuentes]] stated that the proposed [[United States|U.S]].-[[Mexico]] deal included a "third safe [[country]]" agreement, which would allow the [[United States]] to reject asylum claims from migrants [[who]] passed through [[Mexico]] without first seeking asylum there, a provision he considered a potential game-changer. (48:54:31) Donald Trump tweeted that the [[United States|U.S]]. had "fully signed and documented" an immigration deal with [[Mexico]], but that it required a vote by [[Mexico]]'s legislative body and that tariffs would be reinstated if approval was not forthcoming. (49:40:43) [[Nicholas J. Fuentes]] compared the [[United States|U.S]].-[[Mexico]] immigration deal to other unfulfilled "agreements in principle" by the Trump administration, including denuclearization with [[North Korea]], a trade deal with [[China]], and the withdrawal of troops from [[Syria]]. (50:55:61) [[Marcelo Ebrard]], [[Mexico]]'s foreign minister, stated at a press conference that there was no secret [[United States|U.S]].-[[Mexico]] agreement, only an understanding to evaluate the flow of migrants in the coming months and consider further actions if numbers did not fall. (52:57:33) According to reports cited by [[Nicholas J. Fuentes]], part of the [[United States|U.S]].-[[Mexico]] deal involved [[Mexico]] deploying its [[U.S. Department of Defense|National Guard]] to its southern border with [[Guatemala]] and expanding the Migrant Protection Protocols (Remain in Mexico) policy. (53:44:19) [[Nicholas J. Fuentes]] clarified that the Migrant Protection Protocols, which allow asylum seekers to wait in [[Mexico]] while their claims are processed, were not the same as the more consequential "third safe [[country]]" agreement he had hoped for. (56:59:95) [[Nicholas J. Fuentes]] suggested that [[Mitch McConnell]] and congressional [[Republican Party|Republicans]] might have thwarted Donald Trump's tariff threat, but argued Trump should have let them override it to expose their opposition to his immigration agenda. (01:00:00.23) [[Nicholas J. Fuentes]] argued that if Donald Trump were serious about immigration, he would have imposed the tariffs on [[Mexico]], dared [[Mitch McConnell]] to override them, and allowed [[Republican Party|Republican]] voters to revolt against the party for blocking the measure.
@@ -23753,13 +23753,13 @@
 (00:06:50) Donald Trump began a [[state]] visit to the [[United Kingdom]], meeting with the [[Queen]] and facing protests from figures like [[Sadiq Khan]].
 
 ### AF 2019-06-03 0399
-(00:16:18) [[Sadiq Khan]], the Mayor of [[City of London|London]], released a video for [[Elle]] magazine stating that Trump's values were the "complete opposite of [[City of London|London]]'s values," citing diversity, women's equality, and reproductive rights.
+(00:16:18) [[Sadiq Khan]], the Mayor of [[London]], released a video for [[Elle]] magazine stating that Trump's values were the "complete opposite of [[London]]'s values," citing diversity, women's equality, and reproductive rights.
 
 ### AF 2019-06-03 0399
-(00:17:04) [[Sadiq Khan]] led large protests in [[City of London|London]] against President Trump's [[state]] visit, comparing him to [[Adolf Hitler]] and [[Benito Mussolini]].
+(00:17:04) [[Sadiq Khan]] led large protests in [[London]] against President Trump's [[state]] visit, comparing him to [[Adolf Hitler]] and [[Benito Mussolini]].
 
 ### AF 2019-06-03 0399
-(00:19:12) [[Sadiq Khan]], the five-foot-six [[Islam|Muslim]] Mayor of [[City of London|London]], criticized Trump while holding a sign that read "Only weak men fear strong women."
+(00:19:12) [[Sadiq Khan]], the five-foot-six [[Islam|Muslim]] Mayor of [[London]], criticized Trump while holding a sign that read "Only weak men fear strong women."
 
 ### AF 2019-06-03 0399
 (00:23:46) Donald Trump, during a [[state]] dinner in [[United Kingdom|England]], stated that the special relationship between the [[United States]] and the [[United Kingdom]] was cemented by their "crusade against the [[Nazis]]" in World War II.
@@ -23777,7 +23777,7 @@
 (00:04:20) [[López Obrador]], the President of [[Mexico]], strongly criticized Trump's tariff announcement.
 
 ### AF 2019-05-31 0398
-(00:13:51) [[Nicholas J. Fuentes]] noted that the private wall built by [[Steven Crowder|Steve Bannon]] and [[Kris Kobach|Chris Kobach]] constituted nearly half the length of new border wall constructed by the Trump administration, which stood at 1.1 miles.
+(00:13:51) [[Nicholas J. Fuentes]] noted that the private wall built by [[Steve Bannon]] and [[Kris Kobach|Chris Kobach]] constituted nearly half the length of new border wall constructed by the Trump administration, which stood at 1.1 miles.
 
 ### AF 2019-05-31 0398
 (00:17:15) Trump announced the tariff plan via [[Twitter]], stating it was a response to illegal immigration and drug trafficking from [[Mexico]].
@@ -24221,13 +24221,13 @@
 (00:32:24) President Trump told [[United States|Americans]] to "get their shots" as nearly 700 measles cases were reported across 22 states, according to the [[Centers for Disease Control and Prevention|CDC]].
 
 ### AF 2019-04-25 0374
-(00:51:46) [[Joe Biden]] announced his candidacy with a campaign video focusing on the 2017 [[City of Charlottesville|Charlottesville rally]] and Trump's response to it.
+(00:51:46) [[Joe Biden]] announced his candidacy with a campaign video focusing on the 2017 [[Charlottesville rally]] and Trump's response to it.
 
 ### AF 2019-04-25 0374
 (01:10:04) [[Sonny Perdue]] and officials within the Trump administration were pushing for an expansion of foreign agricultural worker visas, signaling the direction of [[Jared Kushner]]'s immigration plan.
 
 ### AF 2019-04-25 0374
-(07:06:34) [[Joe Biden]]'s campaign video framed his candidacy as a response to the 2017 [[City of Charlottesville|Charlottesville rally]] and Trump's subsequent "very fine people on both sides" remark.
+(07:06:34) [[Joe Biden]]'s campaign video framed his candidacy as a response to the 2017 [[Charlottesville rally]] and Trump's subsequent "very fine people on both sides" remark.
 
 ### AF 2019-04-25 0374
 (17:30:98) [[Nicholas J. Fuentes]] contrasted advertisements for Trump, which showed people working in industry, with those for [[Joe Biden]] and [[Barack Obama]], which showed activists.
@@ -24362,7 +24362,7 @@
 (37:04:24) [[Nicholas J. Fuentes]] argued that Donald Trump's designation of the [[Iran|Islamic Revolutionary Guard Corps]] as a terrorist [[organization]] was a concession to [[Israel]] intended to shore up [[Benjamin Netanyahu|Bibi]]'s re-election campaign, similar to the [[United States|U.S]]. recognition of [[Israeli sovereignty over the Golan Heights]].
 
 ### AF 2019-04-09 0363
-(41:13:94) Donald Trump's pro-[[Israel]] actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[Israeli sovereignty over the Golan Heights]], affirming foreign aid, attacking Congresswoman [[Ilhan Omar]], and attending the [[AIPAC]] conference.
+(41:13:94) Donald Trump's pro-[[Israel]] actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], recognizing [[Israeli sovereignty over the Golan Heights]], affirming foreign aid, attacking Congresswoman [[Ilhan Omar]], and attending the [[AIPAC]] conference.
 
 ### AF 2019-04-08 0362
 (00:08:31) [[Kirstjen Nielsen]] and [[John Kelly]] were chiefly responsible for the situation at the [[United States]]-[[Mexico]] border, having actively worked against President Trump's immigration agenda within the administration.
@@ -24428,7 +24428,7 @@
 (00:33:59) [[Nicholas J. Fuentes]] contended that allegations of inappropriate behavior would be particularly damaging to [[Joe Biden]] after the Me Too movement, the [[Brett Kavanaugh]] hearings, and the cases of [[Roy Moore]] and Donald Trump.
 
 ### AF 2019-04-01 0358
-(00:36:52) [[Steven Crowder|Steve Bannon]] stated that no [[Democratic Party|Democratic]] candidate had yet emerged as someone [[who]] could really beat Donald Trump in the 2020 election.
+(00:36:52) [[Steve Bannon]] stated that no [[Democratic Party|Democratic]] candidate had yet emerged as someone [[who]] could really beat Donald Trump in the 2020 election.
 
 ### AF 2019-04-01 0358
 (00:38:23) [[Nicholas J. Fuentes]] argued that Donald Trump did not deserve to be re-elected based on his record, but would still vote for him if he was on net better than a [[Democratic Party|Democrat]].
@@ -24446,7 +24446,7 @@
 (47:23:260) [[Justin Trudeau]] of [[Dominion of Canada|Canada]], [[Emmanuel Macron]] of [[France]], and [[Theresa May]] of the [[United Kingdom]] had approval ratings below 30%, while [[Matteo Salvini]] in [[Italian Republic|Italy]] and Donald Trump in the [[United States]] had growing support.
 
 ### AF 2019-03-29 0357
-(01:15:02:380) [[Nicholas J. Fuentes]] discussed the possibility that if Donald Trump were reelected, efforts to build the Third Temple in [[City of Jerusalem|Jerusalem]] might commence, touching on both [[Jews|Jewish]] and [[Christianity|Christian]] eschatological beliefs.
+(01:15:02:380) [[Nicholas J. Fuentes]] discussed the possibility that if Donald Trump were reelected, efforts to build the Third Temple in [[Jerusalem]] might commence, touching on both [[Jews|Jewish]] and [[Christianity|Christian]] eschatological beliefs.
 
 ### AF 2019-03-28 0356
 (02:10:46) Donald Trump tweeted that [[Mexico]], [[Honduras]], [[Guatemala]], and [[El Salvador]] were doing nothing to stop the flow of illegal immigrants to the [[United States]], blaming them and the [[Democratic Party|Democrats]].
@@ -24536,7 +24536,7 @@
 (00:16:40) Donald Trump's administration secured $38 billion in foreign aid for [[Israel]] over a ten-year period.
 
 ### AF 2019-03-21 0352
-(00:16:50) The [[United States]] under Donald Trump revoked all foreign aid to [[Gaza Strip|Palestine]] and became the only [[country]] with no diplomatic relationship with it.
+(00:16:50) The [[United States]] under Donald Trump revoked all foreign aid to [[Palestine]] and became the only [[country]] with no diplomatic relationship with it.
 
 ### AF 2019-03-21 0352
 (00:16:58) Donald Trump withdrew the [[United States]] from the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], a key priority for [[Israel]].
@@ -24593,10 +24593,10 @@
 (13:03:28) [[Nicholas J. Fuentes]] argued that the Trump administration had failed to deliver on key promises, including building zero miles of new border barrier and failing to withdraw from major wars in [[Syria]], [[Afghanistan]], and [[Iraq]].
 
 ### AF 2019-03-14 0347
-(14:02:56) The Trump administration successfully moved the [[United States Embassy in Jerusalem|U.S. embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]] and formally recognized [[City of Jerusalem|Jerusalem]] as [[Israel]]'s capital.
+(14:02:56) The Trump administration successfully moved the [[United States Embassy in Jerusalem|U.S. embassy]] in [[Israel]] to [[Jerusalem]] and formally recognized [[Jerusalem]] as [[Israel]]'s capital.
 
 ### AF 2019-03-14 0347
-(14:18:38) [[Nicholas J. Fuentes]] stated that the Trump administration defunded aid to [[Gaza Strip|Palestine]].
+(14:18:38) [[Nicholas J. Fuentes]] stated that the Trump administration defunded aid to [[Palestine]].
 
 ### AF 2019-03-14 0347
 (14:24:90) [[Nicholas J. Fuentes]] noted that the Trump administration withdrew from the [[Iran]] nuclear deal.
@@ -24623,7 +24623,7 @@
 (24:11:94) The Trump administration passed criminal justice reform legislation.
 
 ### AF 2019-03-14 0347
-(24:32:30) [[Nicholas J. Fuentes]] listed policy victories for other groups during Donald Trump's term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as [[Israel]]'s capital, withdrawing from the [[Iran]] nuclear deal, cutting aid to [[Gaza Strip|Palestine]], and changing language on the [[Israel|Golan Heights]].
+(24:32:30) [[Nicholas J. Fuentes]] listed policy victories for other groups during Donald Trump's term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as [[Israel]]'s capital, withdrawing from the [[Iran]] nuclear deal, cutting aid to [[Palestine]], and changing language on the [[Israel|Golan Heights]].
 
 ### AF 2019-03-14 0347
 (25:46:26) [[Nicholas J. Fuentes]] stated that Donald Trump would not face a serious primary challenger for the 2020 election, as the [[Republican Party|RNC]] had endorsed him earlier than any previous candidate.
@@ -24689,7 +24689,7 @@
 (00:35:14) [[Nicholas J. Fuentes]] stated that border security had worsened under the Trump administration compared to the [[Barack Obama]] administration.
 
 ### AF 2019-03-12 0345
-(00:38:20) [[Steven Crowder|Steve Bannon]] had described Donald Trump as the "last shot" to create a paradigm shift uniting the working class, a project [[Nicholas J. Fuentes]] argued had failed.
+(00:38:20) [[Steve Bannon]] had described Donald Trump as the "last shot" to create a paradigm shift uniting the working class, a project [[Nicholas J. Fuentes]] argued had failed.
 
 ### AF 2019-03-12 0345
 (00:39:01) Donald Trump stated in an interview that he would not try to regulate [[big tech]] companies, saying the solution to tech bias was to "just be good."
@@ -24734,7 +24734,7 @@
 (00:59:00) Donald Trump stated at a press [[pool]] that the [[Democratic Party]] had become the "anti-[[Israel]] party."
 
 ### AF 2019-03-08 0343
-(01:01:50) [[Nicholas J. Fuentes]] listed Donald Trump's pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the [[Palestinian Authority]].
+(01:01:50) [[Nicholas J. Fuentes]] listed Donald Trump's pro-[[Israel]] actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the [[Palestinian Authority]].
 
 ### AF 2019-03-05 0341
 (01:02:26) Donald Trump declared in his [[State of Illinois|State]] of the Union address that the [[United States]] would bring in more legal immigrants than ever before, a policy change he later affirmed to reporters and reiterated at [[Conservative Political Action Conference|CPAC]].
@@ -24845,7 +24845,7 @@
 (00:36:27) In 2018, as a result of Donald Trump's "Buy [[United States|American]], Hire [[United States|American]]" policy, wages rose by 3%, with higher increases in states like [[Minnesota]] that had lower levels of legal immigration.
 
 ### AF 2019-02-20 0335
-(00:04:20) [[Nicholas J. Fuentes]] recounted that [[Jussie Smollett]] reported being attacked on January 29th by two individuals he identified as MAGA supporters in [[City of Chicago|Chicago]].
+(00:04:20) [[Nicholas J. Fuentes]] recounted that [[Jussie Smollett]] reported being attacked on January 29th by two individuals he identified as MAGA supporters in [[Chicago]].
 
 ### AF 2019-02-20 0335
 (00:07:16) [[Jussie Smollett]] allegedly received a threatening letter composed of magazine cutouts a week prior to the staged attack, which he claimed was from a Donald Trump supporter.
@@ -24902,7 +24902,7 @@
 (00:20:46) Donald Trump met with "angel moms"—mothers of children killed by illegal immigrants—[[who]] urged him not to sign the funding bill, but he signed it anyway.
 
 ### AF 2019-02-15 0333
-(00:21:07) Alongside the funding bill, Donald Trump declared a national emergency to seek an additional $6.6 billion from [[U.S. Department of Defense|Pentagon]] and [[Janet Yellen|Treasury Department]] funds for the border wall, a move immediately challenged in court.
+(00:21:07) Alongside the funding bill, Donald Trump declared a national emergency to seek an additional $6.6 billion from [[U.S. Department of Defense|Pentagon]] and [[Treasury Department]] funds for the border wall, a move immediately challenged in court.
 
 ### AF 2019-02-15 0333
 (00:22:08) [[Mitch McConnell]] passed the funding bill in the [[Senate]] with 84 votes, a margin [[Nicholas J. Fuentes]] argued was not necessarily veto-proof given Donald Trump's high support among [[Republican Party|Republican]] voters.
@@ -25052,7 +25052,7 @@
 (01:18:00) Donald Trump could access approximately $680 million in [[Treasury]] forfeiture funds for border security without declaring a national emergency.
 
 ### AF 2019-02-13 0331
-(01:51:00) [[Nicholas J. Fuentes]] stated that the firing of [[Steven Crowder|Steve Bannon]] was a substantial loss for the Trump administration, leaving [[Stephen Miller]] as the only remaining prominent advocate for the [[United States|America]] First agenda in [[the White House]].
+(01:51:00) [[Nicholas J. Fuentes]] stated that the firing of [[Steve Bannon]] was a substantial loss for the Trump administration, leaving [[Stephen Miller]] as the only remaining prominent advocate for the [[United States|America]] First agenda in [[the White House]].
 
 ### AF 2019-02-12 0330
 (00:02:15) Trump financed his own presidential campaign and stated during a debate that he had no donors, contrasting himself with other candidates.
@@ -25070,7 +25070,7 @@
 (01:08:14) [[Nicholas J. Fuentes]] contrasted the proposed $1.6 billion for border security with the $716 billion allocated for military spending in the 2018 Omnibus spending bill, which Trump had signed while promising never to sign a similar bill again without border security funding.
 
 ### AF 2019-02-08 0328
-(01:09:40) [[Nicholas J. Fuentes]] listed policy achievements of the Trump administration that benefited the [[Republican Party|GOP]] establishment, including tax cuts, deregulation, approval of the Keystone pipeline, drilling in [[Alaska]], and moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]].
+(01:09:40) [[Nicholas J. Fuentes]] listed policy achievements of the Trump administration that benefited the [[Republican Party|GOP]] establishment, including tax cuts, deregulation, approval of the Keystone pipeline, drilling in [[Alaska]], and moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]].
 
 ### AF 2019-02-08 0328
 (01:11:44) [[Nicholas J. Fuentes]] reported that [[Republican Party|Republican]] leaders, including [[Mitch McConnell]], were preparing to present Trump with an immigration deal similar to the previous year's, offering $1.6 billion for border security, and threatening to override a presidential veto if he rejected it.
@@ -25385,7 +25385,7 @@
 (00:16:51) Congressional [[Democratic Party|Democratic]] leadership in the [[United States House of Representatives]] stated they were prepared to offer Donald Trump $5.7 billion for border security, but explicitly none for a wall, and only if he agreed to reopen the government.
 
 ### AF 2019-01-23 0316
-(00:21:59) Donald Trump formally recognized [[Venezuela|Venezuelan]] opposition leader Juan Guaidó as the rightful interim president of [[Venezuela]], a move also supported by [[Paraguay]], [[Brazil]], [[Chile]], [[Peru]], [[Ecuador]], [[Columbia|Colombia]], [[Argentina]], [[Costa Rica]], [[Guatemala]], and [[Dominion of Canada|Canada]].
+(00:21:59) Donald Trump formally recognized [[Venezuela|Venezuelan]] opposition leader Juan Guaidó as the rightful interim president of [[Venezuela]], a move also supported by [[Paraguay]], [[Brazil]], [[Chile]], [[Peru]], [[Ecuador]], [[Colombia]], [[Argentina]], [[Costa Rica]], [[Guatemala]], and [[Dominion of Canada|Canada]].
 
 ### AF 2019-01-23 0316
 (00:22:50) [[Nicolás Maduro]] responded to Donald Trump's recognition of Juan Guaidó by cutting off diplomatic ties with the [[United States]] and giving [[United States|American]] diplomats 72 hours to leave [[Venezuela]].
@@ -25613,7 +25613,7 @@
 (06:48:77) [[Nicholas J. Fuentes]] argued that Donald Trump had consolidated control of the [[Republican Party]] and that the new gatekeeper of the conservative establishment was [[Ben Shapiro]], following the defeat of figures like [[Bill Kristol]] and [[The Weekly Standard]].
 
 ### AF 2019-01-03 0305
-(16:20:69) [[Nicholas J. Fuentes]] outlined [[Rashida Tlaib]]'s platform as consisting of abolishing [[U.S. Immigration and Customs Enforcement|ICE]], [[Health and Human Services|Medicare]] for all, debt-free college, and impeaching Donald Trump.
+(16:20:69) [[Nicholas J. Fuentes]] outlined [[Rashida Tlaib]]'s platform as consisting of abolishing [[U.S. Immigration and Customs Enforcement|ICE]], [[Medicare]] for all, debt-free college, and impeaching Donald Trump.
 
 ### AF 2019-01-03 0305
 (30:19:81) Donald Trump hosted a surprise press conference where he brought out [[border patrol]] agents to argue for the border wall.
@@ -25706,7 +25706,7 @@
 (15:34:82) [[Nicholas J. Fuentes]] reported that Donald Trump stated he told [[Benjamin Netanyahu|Bibi]] that [[Israel]] receives $4.5 billion a year from the [[United States]] and is capable of defending itself.
 
 ### AF 2018-12-27 0302
-(15:48:72) [[Nicholas J. Fuentes]] noted that Donald Trump cited his administration's move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]] as evidence of his support for [[Israel]].
+(15:48:72) [[Nicholas J. Fuentes]] noted that Donald Trump cited his administration's move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]] as evidence of his support for [[Israel]].
 
 ### AF 2018-12-27 0302
 (16:21:38) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] signed a law providing [[Israel]] with $3.8 billion per year over ten years, making Donald Trump's cited figure of $4.5 billion significant.
@@ -26462,10 +26462,10 @@
 (00:33:52) [[Nicholas J. Fuentes]] argued that the meeting between Donald Trump and [[Kanye West]] was a political maneuver with no cost to the [[Republican Party]] and the potential to marginally increase [[black]] support for [[Republican Party|Republicans]] or suppress [[black]] turnout for [[Democratic Party|Democrats]].
 
 ### AF 2018-10-11 0259
-(01:50:04) [[Nicholas J. Fuentes]] noted that Donald Trump's first foreign visit was to [[City of Riyadh|Riyadh]], [[Saudi Arabia]], where he signed a $110 billion arms contract, and that [[Congress]] was investigating Khashoggi's disappearance under a 2012 international sanctions law.
+(01:50:04) [[Nicholas J. Fuentes]] noted that Donald Trump's first foreign visit was to [[Riyadh]], [[Saudi Arabia]], where he signed a $110 billion arms contract, and that [[Congress]] was investigating Khashoggi's disappearance under a 2012 international sanctions law.
 
 ### AF 2018-10-10 0258
-(00:07:00) Donald Trump authored an op-ed in [[Russia Today|USA Today]] titled "[[Democratic Party|Democrats]]’ ‘[[Health and Human Services|Medicare]] for All’ plan will demolish promises to seniors," in which he characterized the [[Democratic Party]] as a radical socialist party that seeks to model the [[United States]] economy after [[Venezuela]].
+(00:07:00) Donald Trump authored an op-ed in [[Russia Today|USA Today]] titled "[[Democratic Party|Democrats]]’ ‘[[Medicare]] for All’ plan will demolish promises to seniors," in which he characterized the [[Democratic Party]] as a radical socialist party that seeks to model the [[United States]] economy after [[Venezuela]].
 
 ### AF 2018-10-10 0258
 (00:08:20) In his op-ed, Donald Trump argued that the [[Democratic Party]]'s support for open borders, combined with proposals for government-run healthcare, would allow millions of illegal immigrants to take advantage of benefits paid for by [[United States|American]] taxpayers.
@@ -26540,7 +26540,7 @@
 (38:19:00) [[Nicholas J. Fuentes]] argued that Donald Trump achieved the [[United States–Mexico–Canada Agreement|USMCA]] through a brawling style of diplomacy involving threats of tariffs on [[Dominion of Canada|Canada]] and [[Mexico]].
 
 ### AF 2018-10-01 0251
-(39:24:00) [[Nicholas J. Fuentes]] stated that the successful renegotiation of [[North American Free Trade Agreement|NAFTA]] into the [[United States–Mexico–Canada Agreement|USMCA]] gave Donald Trump political capital and credibility for future negotiations with [[China]] and the [[Europe|European Union]].
+(39:24:00) [[Nicholas J. Fuentes]] stated that the successful renegotiation of [[North American Free Trade Agreement|NAFTA]] into the [[United States–Mexico–Canada Agreement|USMCA]] gave Donald Trump political capital and credibility for future negotiations with [[China]] and the [[European Union]].
 
 ### AF 2018-10-01 0251
 (40:22:00) [[Nicholas J. Fuentes]] claimed that Donald Trump's use of tariffs in trade negotiations blew out the arguments of free-market think tanks like the [[Heritage Foundation]], the [[Cato Institute]], and the [[American Enterprise Institute]].
@@ -26777,7 +26777,7 @@
 (00:38:07) [[Nicholas J. Fuentes]] criticized Representative [[Buddy Carter]] for explicitly stating he did not want to regulate [[Twitter]], which [[Nicholas J. Fuentes]] argued undermined Trump's leverage to threaten regulation to curb censorship.
 
 ### AF 2018-09-06 0234
-(01:20:20) [[Nicholas J. Fuentes]] dismissed as preposterous an excerpt from [[Bob Woodward]]'s new book alleging Trump laughed at [[City of Charlottesville|Charlottesville]] rally coverage and insulted [[Heather Heyer]].
+(01:20:20) [[Nicholas J. Fuentes]] dismissed as preposterous an excerpt from [[Bob Woodward]]'s new book alleging Trump laughed at [[Charlottesville]] rally coverage and insulted [[Heather Heyer]].
 
 ### AF 2018-09-05 0233
 (00:00:35) [[The New York Times]] published an anonymous op-ed titled "I Am Part of the Resistance Inside the Trump Administration," authored by a self-described high-level senior official within the Donald Trump administration.
@@ -26801,7 +26801,7 @@
 (00:14:13) [[Nikki Haley]], [[Mike Pence]], and [[John Bolton]] were identified as figures within the Donald Trump administration [[who]] advocated for a more hawkish foreign policy, particularly regarding [[Syria]] and [[Russia]].
 
 ### AF 2018-09-05 0233
-(00:14:55) The anonymous [[The New York Times]] op-ed positioned figures like [[Stephen Miller]] and [[Steven Crowder|Steve Bannon]] as Donald Trump loyalists, in contrast to establishment "guardians" within the administration.
+(00:14:55) The anonymous [[The New York Times]] op-ed positioned figures like [[Stephen Miller]] and [[Steve Bannon]] as Donald Trump loyalists, in contrast to establishment "guardians" within the administration.
 
 ### AF 2018-09-05 0233
 (00:15:29) The anonymous op-ed stated its goal was to defend traditional [[Republican Party]] principles like "free minds, free people, free trade" against Donald Trump's agenda.
@@ -26852,7 +26852,7 @@
 (00:44:08) [[Johnny DeStefano]] was responsible for the hiring of [[Brian Hook]], a co-founder of the neoconservative [[John Hay Initiative]] which organized a letter of [[Republican Party|Republican]] foreign policy experts refusing to back Donald Trump, as a senior advisor to [[Michael Pompeo|Mike Pompeo]].
 
 ### AF 2018-09-05 0233
-(00:50:23) [[Nicholas J. Fuentes]] cited the firing of [[Daryl Cooper|Darren Beattie]] from the Donald Trump administration after [[Warner Bros. Discovery|CNN]] reported his attendance at a conference with [[Richard Spencer]] as an example of competent Trump loyalists being purged while NeverTrumpers remained.
+(00:50:23) [[Nicholas J. Fuentes]] cited the firing of [[Darren Beattie]] from the Donald Trump administration after [[Warner Bros. Discovery|CNN]] reported his attendance at a conference with [[Richard Spencer]] as an example of competent Trump loyalists being purged while NeverTrumpers remained.
 
 ### AF 2018-09-05 0233
 (01:04:13) [[Nicholas J. Fuentes]] speculated that [[Raj Shah]], a deputy communications director in the Donald Trump administration and a [[known]] NeverTrumper, could be the anonymous author of [[The New York Times]] op-ed.
@@ -26954,7 +26954,7 @@
 (00:08:47) [[Nicholas J. Fuentes]] claimed the reversal in opinion on [[John McCain]] occurred because he was against Donald Trump, [[who]] represented nationalism against the "globalist establishment."
 
 ### AF 2018-08-27 0227
-(00:24:31) [[John McCain]] became a vocal critic of Donald Trump, aligning with major news media, [[Democratic Party|Democrats]], establishment [[Republican Party|Republicans]], multinational corporations, [[Los Angeles|Hollywood]], banks, and the [[Europe|European Union]].
+(00:24:31) [[John McCain]] became a vocal critic of Donald Trump, aligning with major news media, [[Democratic Party|Democrats]], establishment [[Republican Party|Republicans]], multinational corporations, [[Los Angeles|Hollywood]], banks, and the [[European Union]].
 
 ### AF 2018-08-27 0227
 (00:30:56) [[Bill O'Reilly]] tweeted that he had scolded Donald Trump during the election for doubting [[John McCain]]'s service.
@@ -26981,7 +26981,7 @@
 (00:06:05) [[Nicholas J. Fuentes]] contrasted Trump's stance with potential 2016 [[Republican Party|Republican]] nominees like [[Marco Rubio]], [[Ted Cruz]], and [[George W. Bush|Jeb Bush]].
 
 ### AF 2018-08-23 0225
-(00:07:50) [[Daryl Cooper|Darren Beattie]], a speechwriter for Donald Trump, was fired from the [[White House]] after it was revealed he had spoken at the H.L. Mencken Club conference, which also featured white nationalists.
+(00:07:50) [[Darren Beattie]], a speechwriter for Donald Trump, was fired from the [[White House]] after it was revealed he had spoken at the H.L. Mencken Club conference, which also featured white nationalists.
 
 ### AF 2018-08-23 0225
 (00:09:28) [[Nicholas J. Fuentes]] argued that having figures like Donald Trump and [[Tucker Carlson]] in positions of influence, supported by a network of aligned individuals in [[Washington D.C.|Washington]] D.C., had a disproportionate effect on public discourse regarding [[South Africa]].
@@ -27044,7 +27044,7 @@
 (00:25:24) Media defenders of [[John Brennan]] argued that revoking his security clearance was a tyrannical abuse of power by Donald Trump.
 
 ### AF 2018-08-20 0222
-(00:55:42) [[Daryl Cooper|Darren Beattie]], a Donald Trump speechwriter [[who]] worked with [[Stephen Miller]], was fired from [[the White House]] after [[Warner Bros. Discovery|CNN]] reported his attendance at the H.L. Mencken Club conference where [[Richard Spencer]] was also present.
+(00:55:42) [[Darren Beattie]], a Donald Trump speechwriter [[who]] worked with [[Stephen Miller]], was fired from [[the White House]] after [[Warner Bros. Discovery|CNN]] reported his attendance at the H.L. Mencken Club conference where [[Richard Spencer]] was also present.
 
 ### AF 2018-08-20 0222
 (00:58:59) [[Nicholas J. Fuentes]] attributed poor personnel decisions in the Donald Trump [[White House]] to the [[Republican Party|RNC]] and [[Mike Pence]] filling positions instead of loyal campaign staff.
@@ -27410,7 +27410,7 @@
 (01:42:46) A caller asked [[Nicholas J. Fuentes]] about [[Mitch McConnell]], to which he responded that [[Mitch McConnell]] is not an ideologue but a politician [[who]] follows the direction of a strong president like Donald Trump.
 
 ### AF 2018-07-12 0199
-(00:30:38) Donald Trump traveled from [[Brussels]] to [[City of London|London]] to meet with [[Theresa May]] and was scheduled to meet the [[United Kingdom|British]] monarch the following day before proceeding to [[Country of Scotland|Scotland]] and then [[Helsinki]].
+(00:30:38) Donald Trump traveled from [[Brussels]] to [[London]] to meet with [[Theresa May]] and was scheduled to meet the [[United Kingdom|British]] monarch the following day before proceeding to [[Country of Scotland|Scotland]] and then [[Helsinki]].
 
 ### AF 2018-07-12 0199
 (00:56:14) Donald Trump concluded a summit with the 29 member states of [[North Atlantic Treaty Organization|NATO]] in [[Brussels]].
@@ -27491,7 +27491,7 @@
 (16:17:24) Donald Trump demanded that [[North Atlantic Treaty Organization|NATO]] members increase their defense spending to 4% of GDP, which was seen as a potential negotiating tactic.
 
 ### AF 2018-07-11 0198
-(36:24:10) Donald Trump's schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[City of London|London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in [[Helsinki]], [[Finland]].
+(36:24:10) Donald Trump's schedule after the [[North Atlantic Treaty Organization|NATO]] summit included meetings with Prime Minister [[Theresa May]] and the Queen in [[London]], a trip to [[Country of Scotland|Scotland]], and a meeting with [[Russian]] President [[Vladimir Putin]] in [[Helsinki]], [[Finland]].
 
 ### AF 2018-07-10 0197
 (00:05:32) [[Nicholas J. Fuentes]] announced the show's topics would include the [[Supreme Court of the United States|Supreme Court]] confirmation process for [[Brett Kavanaugh]], abortion, the Unmasking [[Antifa]] Act of 2018, and trips by Donald Trump and [[Michael Pompeo|Mike Pompeo]].
@@ -27650,7 +27650,7 @@
 (01:51:01) [[Nicholas J. Fuentes]] argued the media's constant portrayal of Donald Trump as an illegitimate [[Adolf Hitler|Hitler]]-like figure contributed to political violence against figures like [[Steve Scalise]] and [[Ron Paul|Rand Paul]].
 
 ### AF 2018-06-28 0190
-(01:52:04) [[Nicholas J. Fuentes]] highlighted the hypocrisy of media figures [[who]] dismissed conspiracy theories about shootings like [[City of Parkland|Parkland]] while promoting the [[Christopher Steele|Steele dossier]] allegation that Donald Trump engaged with prostitutes in [[City of Moscow|Moscow]].
+(01:52:04) [[Nicholas J. Fuentes]] highlighted the hypocrisy of media figures [[who]] dismissed conspiracy theories about shootings like [[Parkland]] while promoting the [[Christopher Steele|Steele dossier]] allegation that Donald Trump engaged with prostitutes in [[Moscow]].
 
 ### AF 2018-06-28 0190
 (01:04:49) [[Nicholas J. Fuentes]] speculated that if the shooter's name was [[Jared Ramos]], the media would lose interest because it did not fit a narrative of white male Trump supporters.
@@ -27884,13 +27884,13 @@
 (50:41:99) [[Laura Loomer]] cited text messages from the [[Inspector General]] report where [[Federal Bureau of Investigation|FBI]] agents [[Peter Strzok]] and [[Lisa Page]] disparaged Donald Trump supporters as "stupid," "hillbillies," and "pieces of shit."
 
 ### AF 2018-06-18 0182
-(50:55:65) [[Laura Loomer]] asserted that most victims of the [[City of Las Vegas|Las Vegas]] shooting were Donald Trump supporters, as the [[country]] music concert audience tended to be patriotic and [[Republican Party|Republican]].
+(50:55:65) [[Laura Loomer]] asserted that most victims of the [[Las Vegas]] shooting were Donald Trump supporters, as the [[country]] music concert audience tended to be patriotic and [[Republican Party|Republican]].
 
 ### AF 2018-06-18 0182
-(01:05:45:35) [[Laura Loomer]] argued that if the public knew [[Islamic State of Iraq and Syria|ISIS]] terrorists crossed the [[United States|U.S]].-Mexico border to carry out the [[City of Las Vegas|Las Vegas]] shooting, it would validate Donald Trump's policies for a border wall and travel ban.
+(01:05:45:35) [[Laura Loomer]] argued that if the public knew [[Islamic State of Iraq and Syria|ISIS]] terrorists crossed the [[United States|U.S]].-Mexico border to carry out the [[Las Vegas]] shooting, it would validate Donald Trump's policies for a border wall and travel ban.
 
 ### AF 2018-06-08 0181
-(01:25:08) Trump advocated for [[Russia]]'s inclusion in the [[Group of Seven|G7]] summit, which was being held in [[Dominion of Canada|Canada]] amid trade disputes with the [[United States]] and the [[Europe|European Union]].
+(01:25:08) Trump advocated for [[Russia]]'s inclusion in the [[Group of Seven|G7]] summit, which was being held in [[Dominion of Canada|Canada]] amid trade disputes with the [[United States]] and the [[European Union]].
 
 ### AF 2018-06-08 0181
 (02:29:10) [[Nicholas J. Fuentes]] recommended that young conservatives seeking political involvement start by volunteering for campaigns, citing his own experience volunteering for the Trump campaign in October 2016.
@@ -28001,7 +28001,7 @@
 (00:44:53) Trump withdrew the [[United States]] from the [[Trans-Pacific Partnership]] and renegotiated a trade deal with [[South Korea]].
 
 ### AF 2018-06-05 0178
-(00:45:09) The Trump administration renegotiated the [[North American Free Trade Agreement]] and initiated a trade war involving tariffs on the [[Europe|European Union]], [[China]], [[Dominion of Canada|Canada]], and [[Mexico]].
+(00:45:09) The Trump administration renegotiated the [[North American Free Trade Agreement]] and initiated a trade war involving tariffs on the [[European Union]], [[China]], [[Dominion of Canada|Canada]], and [[Mexico]].
 
 ### AF 2018-06-05 0178
 (00:48:58) On immigration, Trump rescinded the [[DACA]] program, though its implementation was delayed by court challenges, and increased [[U.S. Immigration and Customs Enforcement|ICE]] arrests of illegal immigrants by 42% in fiscal year 2017.
@@ -28049,7 +28049,7 @@
 (01:03:11) [[Nicholas J. Fuentes]] stated a preference for a Trump dictatorship over the existing [[United States|American]] political system, citing the need for a figure like [[Francisco Franco]] or [[Augusto Pinochet]] to restore order.
 
 ### AF 2018-06-01 0176
-(00:04:06) Trump canceled a planned summit with [[North Korea]] one week prior, citing a souring of relations. (00:06:09) [[North Korea]] adopted a conciliatory tone towards Trump following the cancellation, calling him a bold leader and expressing a desire to negotiate. (00:06:20) Trump met with [[North Korea|North Korean]] envoy [[Kim Yong-chol]] for 80 minutes, during which he received a letter from [[Kim Jong Un|Kim Jong-un]]. (00:06:48) Trump announced the summit with [[North Korea]] was back on for June 12th in [[Singapore]], following the meeting with [[Kim Yong-chol]]. (00:07:10) Trump stated both the [[United States]] and [[North Korea]] were moving towards denuclearization, a position [[North Korea]] had reiterated. (00:08:14) The Goodlatte bill proposed a DACA amnesty in exchange for funding for a border wall, an end to chain migration, and an end to the diversity visa lottery system. (00:10:14) A narrative suggested [[John Bolton]] controlled Trump's foreign policy and had ruined [[North Korea]] negotiations by invoking the [[Libya]] model. (00:13:04) Unemployment in the [[United States]] reached 3.8%, its lowest level in 18 years, while wages rose 2.7%. (00:14:24) A major problem with immigration is that it drives down wages by increasing the labor supply, according to an economic argument. (00:15:33) A booming economy, deregulation, lower taxes, and reduced immigration contributed to rising wages and low unemployment. (00:16:15) The [[United States]] economy saw a net increase of 223,000 jobs. (00:17:32) Trump's ability to maneuver on immigration was restricted by [[Congress]] refusing to appropriate money for a border wall and courts tying up his executive orders. (00:18:38) A strong economy in 2018 was seen as suppressing a [[Democratic Party|Democratic]] "blue wave" and encouraging [[Republican Party|Republican]] turnout in the midterm elections. (00:19:14) [[Nicholas J. Fuentes]] announced a special guest, Jason "[[Party Goy]]," would join to discuss [[Kanye West]]'s new album "[[Kanye West|Ye]]." (00:25:01) [[Patrick Little]]'s 2018 [[Senate]] campaign in [[State of California|California]] focused on issues like [[Jews|Jewish]] supremacy and the [[USS Liberty]] incident. (00:25:59) [[Ben Shapiro]] argued that suggesting a [[Jews|Jew]] has dual loyalty is anti-Semitic, during an early [[Twitter]] argument with [[Nicholas J. Fuentes]]. (00:28:30) [[Paul Nehlen]]'s public statements on controversial issues created baggage for others attempting to discuss similar topics, according to [[Nicholas J. Fuentes]]. (00:29:00) The "Unite the Right" rally in [[City of Charlottesville|Charlottesville]] made it more difficult to convert people to dissident right-wing views, according to [[Nicholas J. Fuentes]]. (00:29:41) Figures like [[Milo Yiannopoulos]] and [[Mike Cernovich]] being labeled "alt-right" allowed dissident views to spread under the radar like a "Trojan horse." (00:30:14) [[Paul Nehlen]] performed poorly in an interview with [[John Cardillo]], appearing unprepared on basic questions about his views. (00:32:02) Guest Jason "[[Party Goy]]" identified as a conservative [[who]] agreed with [[Nicholas J. Fuentes]] on most issues. (00:32:28) [[Kanye West]] streamed his new album "[[Kanye West|Ye]]" via a listening party in [[Wyoming]] on an app called Wave, attended by journalists, celebrities, and featured artists. (00:33:17) Guest Jason "[[Party Goy]]" stated [[Kanye West]]'s album "[[Kanye West|Ye]]" embodied a "classic, but current" feeling and improved with repeated listens. (00:34:08) [[Nicholas J. Fuentes]]'s initial reaction to "[[Kanye West|Ye]]" was positive, then negative, before ultimately concluding the album was "epic" after multiple listens. (00:35:56) Guest Jason "[[Party Goy]]]] characterized "[[Kanye West|Ye]]" as a mix between [[Kanye West]]'s albums "Yeezus" and "My Beautiful Dark Twisted Fantasy." (00:36:46) [[Kanye West]]'s "old" sound from his first three albums involved sampling sped-up soul songs, distinct from the sound on "[[Kanye West|Ye]]." (00:37:18) [[Kanye West]]'s music took a negative and depressing turn after the death of his mother, with "[[Kanye West|Ye]]" representing a return to a more joyful tone. (00:39:06) [[Nicholas J. Fuentes]] proposed that [[Kanye West]]'s albums "Yeezus," "Life of Pablo," and "[[Kanye West|Ye]]" formed a new triumvirate similar to his first three albums. (00:39:48) [[Kanye West]]'s album "[[Kanye West|Ye]]" consisted of seven songs totaling 23 minutes, a concise format with [[little]] filler compared to "Life of Pablo." (00:40:44) [[Kanye West]]'s album "Life of Pablo" had a sloppy, delayed release with changing details, while "[[Kanye West|Ye]]" was seen as crisp and professionally mastered. (00:42:19) [[Kanye West]]'s personal life, including having children with [[Kim Kardashian]], contributed to a matured and happier sound on "[[Kanye West|Ye]]." (00:44:11) [[Kanye West]]'s support for Trump did not prevent his album "[[Kanye West|Ye]]" from receiving largely positive critical reviews. (00:45:51) [[Pusha T]] had rumored that [[Kanye West]]'s album would be super political, but "[[Kanye West|Ye]]" contained minimal overt political content beyond a mention of MAGA hats. (00:46:59) [[Kanye West]]'s album "[[Kanye West|Ye]]" had a low-key release without a major [[ad]] campaign, which [[Nicholas J. Fuentes]] saw as evidence of his genuineness. (00:48:25) The song "I Thought About Killing You" on "[[Kanye West|Ye]]" explores dark thoughts, with [[Kanye West]] stating "the brightest thoughts are often next to the darkest thoughts." (00:50:51) [[Kim Kardashian]] consistently defended [[Kanye West]] against critics like [[Taylor Swift]] and in media appearances, demonstrating loyalty. (00:52:29) [[Nicholas J. Fuentes]] argued that artists like [[Kanye West]] have an obligation to explore ideas beyond spousal approval, similar to politicians. (00:54:51) Guest Jason "[[Party Goy]]]] ranked [[Kanye West]]'s top three albums as "College Dropout," "Late Registration," and "Graduation." (00:55:53) [[Nicholas J. Fuentes]] ranked [[Kanye West]]'s top three albums as "Graduation," "My Beautiful Dark Twisted Fantasy," and "Yeezus." (00:57:35) [[Nicholas J. Fuentes]] considered the songs "Paranoid" and "Streetlights" on [[Kanye West]]'s "808s & Heartbreak" to be severely underrated. (00:59:10) Guest Jason "[[Party Goy]]]] stated he autistically listens to the same songs, like [[Steven Crowder|Steve]] Winwood's "Higher Love," repeatedly due to specific chord progressions. (01:00:45) Music critic [[Anthony Fauci|Anthony]] Fantano ("The Needle Drop") blocked [[Nicholas J. Fuentes]] on [[Twitter]], likely due to political differences. (01:01:07) [[Nicholas J. Fuentes]] expressed disappointment that figures he admires, like [[Samuel J. Hyde|Sam Hyde]], do not reciprocate his appreciation for their work. (01:01:30) Rapper [[Vic Mensa]] tweeted a negative response calling [[Nicholas J. Fuentes]] a "white nationalist," despite [[Nicholas J. Fuentes]] regularly listening to his music. (01:02:50) [[Nicholas J. Fuentes]] described driving through the [[Southern United States|South]] Side of [[City of Chicago|Chicago]] as akin to a war zone, feeling unsafe when lost and low on gas. (01:04:29) Guest Jason "[[Party Goy]]]] offered to produce trap music for [[Nicholas J. Fuentes]] if he wanted to start a music career. (01:05:00) [[Nicholas J. Fuentes]] played the euphonium in high school marching band, memorizing fingerings without deeply learning music theory. (01:06:50) [[Nicholas J. Fuentes]] announced he would take a vacation from his show the week of June 11th-15th to work on new projects in seclusion.
+(00:04:06) Trump canceled a planned summit with [[North Korea]] one week prior, citing a souring of relations. (00:06:09) [[North Korea]] adopted a conciliatory tone towards Trump following the cancellation, calling him a bold leader and expressing a desire to negotiate. (00:06:20) Trump met with [[North Korea|North Korean]] envoy [[Kim Yong-chol]] for 80 minutes, during which he received a letter from [[Kim Jong Un|Kim Jong-un]]. (00:06:48) Trump announced the summit with [[North Korea]] was back on for June 12th in [[Singapore]], following the meeting with [[Kim Yong-chol]]. (00:07:10) Trump stated both the [[United States]] and [[North Korea]] were moving towards denuclearization, a position [[North Korea]] had reiterated. (00:08:14) The Goodlatte bill proposed a DACA amnesty in exchange for funding for a border wall, an end to chain migration, and an end to the diversity visa lottery system. (00:10:14) A narrative suggested [[John Bolton]] controlled Trump's foreign policy and had ruined [[North Korea]] negotiations by invoking the [[Libya]] model. (00:13:04) Unemployment in the [[United States]] reached 3.8%, its lowest level in 18 years, while wages rose 2.7%. (00:14:24) A major problem with immigration is that it drives down wages by increasing the labor supply, according to an economic argument. (00:15:33) A booming economy, deregulation, lower taxes, and reduced immigration contributed to rising wages and low unemployment. (00:16:15) The [[United States]] economy saw a net increase of 223,000 jobs. (00:17:32) Trump's ability to maneuver on immigration was restricted by [[Congress]] refusing to appropriate money for a border wall and courts tying up his executive orders. (00:18:38) A strong economy in 2018 was seen as suppressing a [[Democratic Party|Democratic]] "blue wave" and encouraging [[Republican Party|Republican]] turnout in the midterm elections. (00:19:14) [[Nicholas J. Fuentes]] announced a special guest, Jason "[[Party Goy]]," would join to discuss [[Kanye West]]'s new album "[[Kanye West|Ye]]." (00:25:01) [[Patrick Little]]'s 2018 [[Senate]] campaign in [[State of California|California]] focused on issues like [[Jews|Jewish]] supremacy and the [[USS Liberty]] incident. (00:25:59) [[Ben Shapiro]] argued that suggesting a [[Jews|Jew]] has dual loyalty is anti-Semitic, during an early [[Twitter]] argument with [[Nicholas J. Fuentes]]. (00:28:30) [[Paul Nehlen]]'s public statements on controversial issues created baggage for others attempting to discuss similar topics, according to [[Nicholas J. Fuentes]]. (00:29:00) The "Unite the Right" rally in [[Charlottesville]] made it more difficult to convert people to dissident right-wing views, according to [[Nicholas J. Fuentes]]. (00:29:41) Figures like [[Milo Yiannopoulos]] and [[Mike Cernovich]] being labeled "alt-right" allowed dissident views to spread under the radar like a "Trojan horse." (00:30:14) [[Paul Nehlen]] performed poorly in an interview with [[John Cardillo]], appearing unprepared on basic questions about his views. (00:32:02) Guest Jason "[[Party Goy]]" identified as a conservative [[who]] agreed with [[Nicholas J. Fuentes]] on most issues. (00:32:28) [[Kanye West]] streamed his new album "[[Kanye West|Ye]]" via a listening party in [[Wyoming]] on an app called Wave, attended by journalists, celebrities, and featured artists. (00:33:17) Guest Jason "[[Party Goy]]" stated [[Kanye West]]'s album "[[Kanye West|Ye]]" embodied a "classic, but current" feeling and improved with repeated listens. (00:34:08) [[Nicholas J. Fuentes]]'s initial reaction to "[[Kanye West|Ye]]" was positive, then negative, before ultimately concluding the album was "epic" after multiple listens. (00:35:56) Guest Jason "[[Party Goy]]]] characterized "[[Kanye West|Ye]]" as a mix between [[Kanye West]]'s albums "Yeezus" and "My Beautiful Dark Twisted Fantasy." (00:36:46) [[Kanye West]]'s "old" sound from his first three albums involved sampling sped-up soul songs, distinct from the sound on "[[Kanye West|Ye]]." (00:37:18) [[Kanye West]]'s music took a negative and depressing turn after the death of his mother, with "[[Kanye West|Ye]]" representing a return to a more joyful tone. (00:39:06) [[Nicholas J. Fuentes]] proposed that [[Kanye West]]'s albums "Yeezus," "Life of Pablo," and "[[Kanye West|Ye]]" formed a new triumvirate similar to his first three albums. (00:39:48) [[Kanye West]]'s album "[[Kanye West|Ye]]" consisted of seven songs totaling 23 minutes, a concise format with [[little]] filler compared to "Life of Pablo." (00:40:44) [[Kanye West]]'s album "Life of Pablo" had a sloppy, delayed release with changing details, while "[[Kanye West|Ye]]" was seen as crisp and professionally mastered. (00:42:19) [[Kanye West]]'s personal life, including having children with [[Kim Kardashian]], contributed to a matured and happier sound on "[[Kanye West|Ye]]." (00:44:11) [[Kanye West]]'s support for Trump did not prevent his album "[[Kanye West|Ye]]" from receiving largely positive critical reviews. (00:45:51) [[Pusha T]] had rumored that [[Kanye West]]'s album would be super political, but "[[Kanye West|Ye]]" contained minimal overt political content beyond a mention of MAGA hats. (00:46:59) [[Kanye West]]'s album "[[Kanye West|Ye]]" had a low-key release without a major [[ad]] campaign, which [[Nicholas J. Fuentes]] saw as evidence of his genuineness. (00:48:25) The song "I Thought About Killing You" on "[[Kanye West|Ye]]" explores dark thoughts, with [[Kanye West]] stating "the brightest thoughts are often next to the darkest thoughts." (00:50:51) [[Kim Kardashian]] consistently defended [[Kanye West]] against critics like [[Taylor Swift]] and in media appearances, demonstrating loyalty. (00:52:29) [[Nicholas J. Fuentes]] argued that artists like [[Kanye West]] have an obligation to explore ideas beyond spousal approval, similar to politicians. (00:54:51) Guest Jason "[[Party Goy]]]] ranked [[Kanye West]]'s top three albums as "College Dropout," "Late Registration," and "Graduation." (00:55:53) [[Nicholas J. Fuentes]] ranked [[Kanye West]]'s top three albums as "Graduation," "My Beautiful Dark Twisted Fantasy," and "Yeezus." (00:57:35) [[Nicholas J. Fuentes]] considered the songs "Paranoid" and "Streetlights" on [[Kanye West]]'s "808s & Heartbreak" to be severely underrated. (00:59:10) Guest Jason "[[Party Goy]]]] stated he autistically listens to the same songs, like [[Steven Crowder|Steve]] Winwood's "Higher Love," repeatedly due to specific chord progressions. (01:00:45) Music critic [[Anthony Fauci|Anthony]] Fantano ("The Needle Drop") blocked [[Nicholas J. Fuentes]] on [[Twitter]], likely due to political differences. (01:01:07) [[Nicholas J. Fuentes]] expressed disappointment that figures he admires, like [[Samuel J. Hyde|Sam Hyde]], do not reciprocate his appreciation for their work. (01:01:30) Rapper [[Vic Mensa]] tweeted a negative response calling [[Nicholas J. Fuentes]] a "white nationalist," despite [[Nicholas J. Fuentes]] regularly listening to his music. (01:02:50) [[Nicholas J. Fuentes]] described driving through the [[Southern United States|South]] Side of [[Chicago]] as akin to a war zone, feeling unsafe when lost and low on gas. (01:04:29) Guest Jason "[[Party Goy]]]] offered to produce trap music for [[Nicholas J. Fuentes]] if he wanted to start a music career. (01:05:00) [[Nicholas J. Fuentes]] played the euphonium in high school marching band, memorizing fingerings without deeply learning music theory. (01:06:50) [[Nicholas J. Fuentes]] announced he would take a vacation from his show the week of June 11th-15th to work on new projects in seclusion.
 
 ### AF 2018-05-31 0175
 (00:00:00) [[Nicholas J. Fuentes]] announced upcoming topics for his show, including the [[Samantha Bee]] controversy, new steel and aluminum tariffs on allies, and the pardon of [[Dinesh D'Souza]] by Donald Trump.
@@ -28070,10 +28070,10 @@
 (00:16:07) [[Nicholas J. Fuentes]] supported Donald Trump's rhetoric about "[[fair]] trade, not free trade," emphasizing the need for reciprocity and protecting [[United States|American]] manufacturing and raw materials for national security.
 
 ### AF 2018-05-31 0175
-(00:34:29) [[Nicholas J. Fuentes]] asserted that tariffs provide diplomatic leverage, citing how Donald Trump used trade pressure on [[China]] to gain cooperation on [[North Korea]] and could use it on the [[Europe|European Union]] regarding [[Iran]].
+(00:34:29) [[Nicholas J. Fuentes]] asserted that tariffs provide diplomatic leverage, citing how Donald Trump used trade pressure on [[China]] to gain cooperation on [[North Korea]] and could use it on the [[European Union]] regarding [[Iran]].
 
 ### AF 2018-05-31 0175
-(00:35:53) [[Nicholas J. Fuentes]] argued that Donald Trump uses tariffs comprehensively, linking trade concessions to diplomatic goals, such as easing tariffs if the [[Europe|European Union]] cooperates on [[Iran]] sanctions.
+(00:35:53) [[Nicholas J. Fuentes]] argued that Donald Trump uses tariffs comprehensively, linking trade concessions to diplomatic goals, such as easing tariffs if the [[European Union]] cooperates on [[Iran]] sanctions.
 
 ### AF 2018-05-30 0174
 (01:09:40) Donald Trump tweeted that [[Bob Iger]] of [[ABC News|ABC]] called [[Valerie Jarrett]] to apologize for [[Roseanne Barr]]'s comments but never called him to apologize for horrible statements made about him on the network.
@@ -28157,7 +28157,7 @@
 (01:16:45:93) [[Nicholas J. Fuentes]] criticized [[Ron Paul]] and [[Ryan Dawson]] for calling Donald Trump a warmonger over the [[North Korea]] summit, attributing their view to a blinding ideology of radical non-intervention.
 
 ### AF 2018-05-28 0172
-(01:13:32) Donald Trump defended attendees of the [[City of Charlottesville|Charlottesville rally]], stating there were "very fine people on both sides."
+(01:13:32) Donald Trump defended attendees of the [[Charlottesville rally]], stating there were "very fine people on both sides."
 
 ### AF 2018-05-25 0171
 (00:06:32) Trump canceled a summit with [[North Korea]] scheduled for June 12th in [[Singapore]], citing "tremendous anger and open hostility" in recent [[North Korea|North Korean]] statements.
@@ -28307,10 +28307,10 @@
 (00:15:30) Donald Trump's administration employed a strategy of dual containment against [[Iran]] and [[North Korea]], using interconnected economic and diplomatic pressure across multiple geopolitical theaters to gain leverage.
 
 ### AF 2018-05-14 0163
-(00:10:53) The [[United States]] officially opened its new [[United States Embassy in Jerusalem|embassy]] in [[City of Jerusalem|Jerusalem]], a move announced by Donald Trump in December 2017 in fulfillment of a campaign promise.
+(00:10:53) The [[United States]] officially opened its new [[United States Embassy in Jerusalem|embassy]] in [[Jerusalem]], a move announced by Donald Trump in December 2017 in fulfillment of a campaign promise.
 
 ### AF 2018-05-14 0163
-(00:11:08) Donald Trump recognized [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]] and moved the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]].
+(00:11:08) Donald Trump recognized [[Jerusalem]] as the capital of [[Israel]] and moved the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]].
 
 ### AF 2018-05-14 0163
 (00:18:56) Every [[United States|U.S]]. president since 1995 signed six-month waivers to delay moving the [[United States Embassy in Jerusalem|embassy]] until Donald Trump executed the law.
@@ -28322,7 +28322,7 @@
 (00:25:11) [[Benjamin Netanyahu|Bibi]] faced a fragile political coalition and a major investigation in [[Israel]], making him reliant on a base that strongly supported Donald Trump.
 
 ### AF 2018-05-14 0163
-(00:27:59) Donald Trump stated his desire for a comprehensive peace in the [[Middle East]], connecting issues in [[Iran]], [[Syria]], [[Yemen]], and the [[Israel]]-[[Gaza Strip|Palestine]] conflict.
+(00:27:59) Donald Trump stated his desire for a comprehensive peace in the [[Middle East]], connecting issues in [[Iran]], [[Syria]], [[Yemen]], and the [[Israel]]-[[Palestine]] conflict.
 
 ### AF 2018-05-14 0163
 (00:28:19) During a [[state]] visit, Donald Trump told [[France|French]] President [[Emmanuel Macron|Macron]] that a revised [[Iran]] deal should address [[Iran|Iranian]] aggression, its missile program, and the civil wars in [[Syria]] and [[Yemen]].
@@ -28337,7 +28337,7 @@
 (00:45:34) Investigations revealed connections between [[Federal Bureau of Investigation|FBI]] officials [[Peter Strzok]] and [[Lisa Page]], and [[Bruce Ohr]], [[who]] used the [[Christopher Steele|Steele dossier]] to obtain a [[Foreign Intelligence Surveillance Act|FISA]] warrant to spy on the Donald Trump campaign.
 
 ### AF 2018-05-11 0162
-(04:08:29) [[Nicholas J. Fuentes]] attended a Donald Trump rally in [[Elkhart, Indiana]], driving approximately two hours from [[City of Chicago|Chicago]] with his friend [[Steven Crowder|Steve]] W. Chatterston.
+(04:08:29) [[Nicholas J. Fuentes]] attended a Donald Trump rally in [[Elkhart, Indiana]], driving approximately two hours from [[Chicago]] with his friend [[Steven Crowder|Steve]] W. Chatterston.
 
 ### AF 2018-05-11 0162
 (04:58:49) [[Nicholas J. Fuentes]] observed that approximately 10,000 people lined up for the Donald Trump rally at a middle school, with about 7,500 attendees and thousands turned away due to the venue's capacity.
@@ -28367,7 +28367,7 @@
 (31:55:65) [[Nicholas J. Fuentes]] pointed to an episode of the television show *Roseanne* that featured a plotline about a character losing his job to an illegal immigrant as evidence of cultural normalization of Donald Trump supporter views.
 
 ### AF 2018-05-11 0162
-(33:11:35) [[Nicholas J. Fuentes]] stated that Donald Trump had ordered the [[Health and Human Services|Department of Health and Human Services]] to take action against pharmaceutical companies to lower drug prices.
+(33:11:35) [[Nicholas J. Fuentes]] stated that Donald Trump had ordered the [[Department of Health and Human Services]] to take action against pharmaceutical companies to lower drug prices.
 
 ### AF 2018-05-11 0162
 (33:28:73) [[Nicholas J. Fuentes]] reported that a meeting between Donald Trump and [[Kim Jong Un|Kim Jong-un]] of [[North Korea]] was scheduled for June 12th in [[Singapore]] to discuss denuclearization.
@@ -28793,7 +28793,7 @@
 (00:09:14) Donald Trump issued continuous, explicit warnings to [[Vladimir Putin]] and [[Bashar al-Assad]] about an impending strike following the chemical attack in [[Syria]].
 
 ### AF 2018-04-11 0143
-(00:10:13) Donald Trump canceled a planned trip to [[Columbia|Colombia]] and [[Peru]] amid the [[Syria]] crisis.
+(00:10:13) Donald Trump canceled a planned trip to [[Colombia]] and [[Peru]] amid the [[Syria]] crisis.
 
 ### AF 2018-04-11 0143
 (00:10:38) Donald Trump tweeted a warning to [[Vladimir Putin]] about sending missiles to [[Syria]] in response to the chemical attack.
@@ -28868,10 +28868,10 @@
 (09:01:770) Donald Trump's administration declared that [[Islamic State of Iraq and Syria|ISIS]] had been defeated and was winding down the [[U.S. Department of Defense|U.S. military]] presence in [[Syria]].
 
 ### AF 2018-04-04 0138
-(14:28:230) Donald Trump announced the [[United States]] would maintain its military presence in [[Syria]], a decision [[Nicholas J. Fuentes]] speculated was influenced by pressure from [[Saudi Arabia]], [[Israel]], and the [[United States Capitol|U.S. Congress]].
+(14:28:230) Donald Trump announced the [[United States]] would maintain its military presence in [[Syria]], a decision [[Nicholas J. Fuentes]] speculated was influenced by pressure from [[Saudi Arabia]], [[Israel]], and the [[U.S. Congress]].
 
 ### AF 2018-04-04 0138
-(15:54:970) [[Nicholas J. Fuentes]] argued that Donald Trump's foreign policy decisions, such as recognizing [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]], were influenced by the need to court donors like [[Sheldon Adelson]] and the [[Charles Koch|Koch brothers]] for the 2018 midterm elections.
+(15:54:970) [[Nicholas J. Fuentes]] argued that Donald Trump's foreign policy decisions, such as recognizing [[Jerusalem]] as the capital of [[Israel]], were influenced by the need to court donors like [[Sheldon Adelson]] and the [[Charles Koch|Koch brothers]] for the 2018 midterm elections.
 
 ### AF 2018-04-04 0138
 (16:17:830) [[Paul Ryan]] and Donald Trump were cited as needing to court major [[Republican Party|Republican]] donors, including [[Sheldon Adelson]] and the [[Charles Koch|Koch brothers]], for the 2018 midterm elections.
@@ -28883,7 +28883,7 @@
 (00:42:14) Donald Trump tripled down on a statement that [[United States]] troops would be withdrawn from [[Syria]].
 
 ### AF 2018-04-03 0137
-(01:15:44) [[Nicholas J. Fuentes]] disavowed and ended his association with [[Paul Nealon]], citing campaign finance irregularities, doxxing of [[Douglas Mackey|Ricky Vaughn]], and behavior that made him a liability to supporters including [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], and Donald Trump.
+(01:15:44) [[Nicholas J. Fuentes]] disavowed and ended his association with [[Paul Nealon]], citing campaign finance irregularities, doxxing of [[Douglas Mackey|Ricky Vaughn]], and behavior that made him a liability to supporters including [[Steve Bannon]], [[Ann Coulter]], and Donald Trump.
 
 ### AF 2018-04-03 0137
 (01:57:46) Donald Trump threatened to cancel the [[North American Free Trade Agreement|NAFTA]] agreement and revoke foreign aid to [[Honduras]] if [[Mexico]] did not stop a migrant caravan from reaching the [[United States]] border.
@@ -28934,7 +28934,7 @@
 (00:48:56) The caller Joe presented a "2D chess theory" that Donald Trump and [[Jefferson Beauregard Sessions III|Jeff Sessions]] knowingly proposed an [[Bureau of Alcohol, Tobacco, Firearms and Explosives|ATF]] bump [[stock]] ban they expected to fail in court, as the [[Bureau of Alcohol, Tobacco, Firearms and Explosives|ATF]] had previously authorized bump stocks as non-firearm accessories, a move [[Dianne Feinstein]] and [[Chuck Schumer]] criticized as insufficient, demanding legislation instead.
 
 ### AF 2018-03-30 0135
-(00:49:57) [[Nicholas J. Fuentes]] argued that the lack of immediate executive action on bump stocks after the [[City of Parkland|Parkland]] shooting and the subsequent fading of the issue from public consciousness lends credibility to the theory that Trump is strategically delaying, and that compromising on gun rights would only hurt his base without winning over moderates.
+(00:49:57) [[Nicholas J. Fuentes]] argued that the lack of immediate executive action on bump stocks after the [[Parkland]] shooting and the subsequent fading of the issue from public consciousness lends credibility to the theory that Trump is strategically delaying, and that compromising on gun rights would only hurt his base without winning over moderates.
 
 ### AF 2018-03-30 0135
 (00:53:10) [[Nicholas J. Fuentes]] stated that Donald Trump has deliberately forced long-simmering cultural divisions like gun rights into the open through his rhetoric, causing [[the left]] to prematurely show its hand by demanding extreme measures like repealing the [[U.S. Constitution|Second Amendment]], which will backfire electorally.
@@ -29267,7 +29267,7 @@
 (00:01:12) Donald Trump called his economic advisor [[Gary Cohn]] a globalist, a term the mainstream media characterized as an anti-Semitic slur.
 
 ### AF 2018-03-09 0122
-(00:02:52) Donald Trump and [[Steven Crowder|Steve Bannon]] used the term "globalist" to describe a collection of international bankers, corporations, politicians, and media figures they accused of harming the [[country]].
+(00:02:52) Donald Trump and [[Steve Bannon]] used the term "globalist" to describe a collection of international bankers, corporations, politicians, and media figures they accused of harming the [[country]].
 
 ### AF 2018-03-09 0122
 (00:04:34) [[Stephen Miller]], an advisor to Donald Trump, used the term "cosmopolitan" to describe people in world cities [[who]] allegedly feel at home everywhere and nowhere.
@@ -29315,7 +29315,7 @@
 (05:14:520) Donald Trump had reset relations with [[Saudi Arabia]] and supported rebels in [[Iran]].
 
 ### AF 2018-03-08 0121
-(05:48:180) A report from [[City of Beijing|Beijing]] indicated that the [[North Korea|North Korean]] regime viewed Donald Trump as a "wild card" compared to [[Barack Obama]].
+(05:48:180) A report from [[Beijing]] indicated that the [[North Korea|North Korean]] regime viewed Donald Trump as a "wild card" compared to [[Barack Obama]].
 
 ### AF 2018-03-08 0121
 (06:18:320) Donald Trump had publicly insulted [[Kim Jong Un|Kim Jong-un]], calling him "fat," "short," and "Rocket Man."
@@ -29330,10 +29330,10 @@
 (08:33:860) Donald Trump signed tariffs on steel and aluminum into law.
 
 ### AF 2018-03-08 0121
-(15:02:860) During the 2017 [[City of Charlottesville|Charlottesville]] rally, [[Nicholas J. Fuentes]] was in a hotel lobby with [[James Allsup]], [[Timothy Gionet|Baked Alaska]], and [[Millennial Matt]] when Donald Trump stated there were "very fine people on both sides," which they cheered.
+(15:02:860) During the 2017 [[Charlottesville]] rally, [[Nicholas J. Fuentes]] was in a hotel lobby with [[James Allsup]], [[Timothy Gionet|Baked Alaska]], and [[Millennial Matt]] when Donald Trump stated there were "very fine people on both sides," which they cheered.
 
 ### AF 2018-03-06 0119
-(00:01:05) [[Gary Cohn]] offered his resignation as chief economic adviser to President Trump following Trump's comments about "very fine people" at the [[City of Charlottesville|Charlottesville rally]].
+(00:01:05) [[Gary Cohn]] offered his resignation as chief economic adviser to President Trump following Trump's comments about "very fine people" at the [[Charlottesville rally]].
 
 ### AF 2018-03-06 0119
 (00:17:50) President Trump described the diplomatic overtures from [[North Korea]] as "promising" and expressed faith in the goodwill of the negotiations while crediting a strict sanctions regime.
@@ -29381,7 +29381,7 @@
 (00:29:40) Donald Trump planned to implement tariffs of 25% on steel and 10% on aluminum, citing national security concerns identified by the [[United States]] Commerce Department.
 
 ### AF 2018-03-01 0116
-(02:04:40) The [[Europe|European Union]], led by [[Jean-Claude Juncker]], reacted furiously to Donald Trump's proposed steel and aluminum tariffs, threatening a retaliatory trade war.
+(02:04:40) The [[European Union]], led by [[Jean-Claude Juncker]], reacted furiously to Donald Trump's proposed steel and aluminum tariffs, threatening a retaliatory trade war.
 
 ### AF 2018-03-01 0116
 (02:10:40) Donald Trump's proposed tariffs relied on a [[United States]] Commerce Department assessment that foreign dependence on steel and aluminum posed a national security threat, with only one [[United States|U.S]]. company producing military-grade aluminum.
@@ -29447,7 +29447,7 @@
 (23:08:82) Following the [[State of Florida|Florida]] shooting, Donald Trump addressed the issue as a mental health and community problem, urged troubled individuals to seek help from faith leaders or police, and announced plans to meet with [[state]] governors to find solutions.
 
 ### AF 2018-02-15 0109
-(24:33:26) Donald Trump canceled a rally in [[Commonwealth of Pennsylvania|Pennsylvania]] to visit [[City of Parkland|Parkland, Florida]] and meet with grieving families.
+(24:33:26) Donald Trump canceled a rally in [[Commonwealth of Pennsylvania|Pennsylvania]] to visit [[Parkland, Florida]] and meet with grieving families.
 
 ### AF 2018-02-15 0109
 (32:47:84) In January, Donald Trump expressed willingness to legalize [[Deferred Action for Childhood Arrivals|DACA]] and stated he would "sign anything" during a bipartisan meeting, leading to criticism from some supporters.
@@ -29534,7 +29534,7 @@
 (00:10:04) The proposed military spending increase under Donald Trump included modernization and expansion of the nuclear arsenal, contingent on other nations halting their own expansions.
 
 ### AF 2018-02-12 0106
-(00:10:23) To finance new spending, Donald Trump's budget proposed $250 billion in cuts to [[Health and Human Services|Medicare]] through administrative reductions, not benefit changes, and imposed work requirements on the SNAP program.
+(00:10:23) To finance new spending, Donald Trump's budget proposed $250 billion in cuts to [[Medicare]] through administrative reductions, not benefit changes, and imposed work requirements on the SNAP program.
 
 ### AF 2018-02-12 0106
 (00:10:54) Donald Trump's budget proposed the repeal of the Affordable Care Act, the implementation of paid family leave programs by states, and cuts to funding for the arts, [[National Aeronautics and Space Administration|NASA]], and scientific research.
@@ -29612,7 +29612,7 @@
 (30:36:86) [[Douglas Mackey|Ricky Vaughn]] stated he was instrumental in marshaling support for Donald Trump and undermining other candidates during the 2016 election through activities on [[Twitter]].
 
 ### AF 2018-02-06 0102
-(00:34:48) [[Nicholas J. Fuentes]] argued that to reach a bigger audience, the movement must appeal more broadly, contrasting the current "alt-right" strategy with the earlier "big tent" approach that included figures like [[Mike Cernovich]], [[Breitbart News|Breitbart]], [[Steven Crowder|Steve Bannon]], and Donald Trump.
+(00:34:48) [[Nicholas J. Fuentes]] argued that to reach a bigger audience, the movement must appeal more broadly, contrasting the current "alt-right" strategy with the earlier "big tent" approach that included figures like [[Mike Cernovich]], [[Breitbart News|Breitbart]], [[Steve Bannon]], and Donald Trump.
 
 ### AF 2018-02-06 0102
 (00:36:27) [[Nicholas J. Fuentes]] stated that the message can remain the same but the delivery and aesthetics must change to reach a bigger audience, using examples like [[Mike Cernovich|Mike Enoch]]'s ideas delivered in the style of [[Paul Nealon]] or Donald Trump.
@@ -29873,10 +29873,10 @@
 (34:41:38) Donald Trump stated that close to 100% of the territory in [[Iraq]] and [[Syria]] had been liberated from [[Islamic State of Iraq and Syria|ISIS]].
 
 ### AF 2018-01-30 0097
-(35:07:74) Donald Trump cited his recognition of [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]] and subsequent defunding of the [[United Nations]] as examples of his foreign policy stance.
+(35:07:74) Donald Trump cited his recognition of [[Jerusalem]] as the capital of [[Israel]] and subsequent defunding of the [[United Nations]] as examples of his foreign policy stance.
 
 ### AF 2018-01-30 0097
-(35:24:62) Donald Trump's recognition of [[City of Jerusalem|Jerusalem]] as [[Israel|Israel's]] capital fulfilled a [[United States|U.S]]. law passed by [[Congress]] in 1995.
+(35:24:62) Donald Trump's recognition of [[Jerusalem]] as [[Israel|Israel's]] capital fulfilled a [[United States|U.S]]. law passed by [[Congress]] in 1995.
 
 ### AF 2018-01-30 0097
 (36:03:28) Donald Trump stated he "stood with the protesters of [[Iran]]," a gesture seen as increasing pressure on [[Iran]] during renegotiations of the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
@@ -29927,7 +29927,7 @@
 (06:37:38) [[Nicholas J. Fuentes]] alleged [[Fusion GPS]] was given access to the national security database and [[Foreign Intelligence Surveillance Act|FISA]] surveillance apparatus by the [[Barack Obama administration|Obama administration]] to illegally [[target]] Donald Trump as a political opponent.
 
 ### AF 2018-01-29 0096
-(07:48:58) [[Nicholas J. Fuentes]] stated the dossier was a 35-[[page]] document compiled by former [[United Kingdom|British]] spy [[Christopher Steele]], which alleged Donald Trump was compromised by [[Vladimir Putin]] during a trip to [[City of Moscow|Moscow]].
+(07:48:58) [[Nicholas J. Fuentes]] stated the dossier was a 35-[[page]] document compiled by former [[United Kingdom|British]] spy [[Christopher Steele]], which alleged Donald Trump was compromised by [[Vladimir Putin]] during a trip to [[Moscow]].
 
 ### AF 2018-01-29 0096
 (10:15:30) [[Nicholas J. Fuentes]] claimed if the memo's allegations of a high-level conspiracy against Donald Trump were true, it would result in "serious heads rolling" and major upheaval, surpassing the Watergate scandal.
@@ -30134,7 +30134,7 @@
 (00:22:47) The [[Democratic Party|DNC]] and the [[Hillary Clinton]] campaign paid a shell company, which paid [[Fusion GPS]], which paid former [[United Kingdom|British]] spy [[Christopher Steele]], to compile the Trump dossier containing opposition research on Donald Trump.
 
 ### AF 2018-01-12 0085
-(00:23:48) The Trump dossier, compiled by [[Christopher Steele]], alleged that Donald Trump was invited to [[City of Moscow|Moscow]] by [[Vladimir Putin]], stayed in a room reserved for [[Barack Obama]], and had prostitutes urinate on the bed while [[Vladimir Putin]] filmed it for blackmail.
+(00:23:48) The Trump dossier, compiled by [[Christopher Steele]], alleged that Donald Trump was invited to [[Moscow]] by [[Vladimir Putin]], stayed in a room reserved for [[Barack Obama]], and had prostitutes urinate on the bed while [[Vladimir Putin]] filmed it for blackmail.
 
 ### AF 2018-01-12 0085
 (00:24:03) [[Devin Nunes]] discovered that the Trump dossier, funded by the [[Hillary Clinton]] campaign and the [[Democratic Party|DNC]], was used as the basis for [[Foreign Intelligence Surveillance Act|FISA]] warrants to spy on the Donald Trump campaign and transition team.
@@ -30266,13 +30266,13 @@
 (45:08:91) [[Paul Nehlen]] stated he was furious with Donald Trump for launching 59 Tomahawk missiles into [[Syria]].
 
 ### AF 2018-01-05 0080
-(01:08:72) [[Steven Crowder|Steve Bannon]] and Donald Trump experienced a public split, which was commented on by commentators including [[Ben Shapiro]] and [[Steven Crowder]].
+(01:08:72) [[Steve Bannon]] and Donald Trump experienced a public split, which was commented on by commentators including [[Ben Shapiro]] and [[Steven Crowder]].
 
 ### AF 2018-01-05 0080
 (18:50:82) Donald Trump tweeted about [[Al-Waleed bin Talal]], accusing him of trying to buy [[United States|US]] elections through his donations to [[Barack Obama]] and [[Hillary Clinton]].
 
 ### AF 2018-01-05 0080
-(21:08:76) The Trump-[[Russia]] dossier, published by [[BuzzFeed]], contained fabricated allegations about Donald Trump's activities in [[City of Moscow|Moscow]] and was used by the [[Federal Bureau of Investigation|FBI]] as the basis for opening the [[Russia]] investigation.
+(21:08:76) The Trump-[[Russia]] dossier, published by [[BuzzFeed]], contained fabricated allegations about Donald Trump's activities in [[Moscow]] and was used by the [[Federal Bureau of Investigation|FBI]] as the basis for opening the [[Russia]] investigation.
 
 ### AF 2018-01-05 0080
 (30:33:88) Donald Trump demanded $18 billion in funding for a border wall and an additional $17 billion for other security measures, including 5,000 new [[border patrol]] agents, in exchange for protecting [[Deferred Action for Childhood Arrivals|DACA]] recipients.
@@ -30281,19 +30281,19 @@
 (00:12:57) [[Laura Loomer]] argued that the problem with [[Jews|Jewish]]-controlled media organizations is their leadership's leftist, anti-Trump, and often anti-[[Israel]] political allegiance, which sides with [[Palestinians]] and Islamists.
 
 ### AF 2018-01-04 0079
-(00:21:18) [[Laura Loomer]] cited a recent instance in [[State of New Jersey|New Jersey]] where an imam told a mosque it was okay to kill [[Jews]] in retaliation for Trump's decision on [[City of Jerusalem|Jerusalem]].
+(00:21:18) [[Laura Loomer]] cited a recent instance in [[State of New Jersey|New Jersey]] where an imam told a mosque it was okay to kill [[Jews]] in retaliation for Trump's decision on [[Jerusalem]].
 
 ### AF 2018-01-03 0078
-(00:38:880) [[Steven Crowder|Steve Bannon]] and Donald Trump engaged in a public dispute following the release of excerpts from [[Michael Wolff]]'s upcoming book *Fire and Fury*.
+(00:38:880) [[Steve Bannon]] and Donald Trump engaged in a public dispute following the release of excerpts from [[Michael Wolff]]'s upcoming book *Fire and Fury*.
 
 ### AF 2018-01-03 0078
-(00:50:980) Donald Trump issued a written statement disassociating his presidency and his 2016 election win from [[Steven Crowder|Steve Bannon]], stating [[Bannon]] had "lost his mind."
+(00:50:980) Donald Trump issued a written statement disassociating his presidency and his 2016 election win from [[Steve Bannon]], stating [[Bannon]] had "lost his mind."
 
 ### AF 2018-01-03 0078
 (03:33:220) [[Thomas Barrack Jr.]], a billionaire confidant of Donald Trump, denied on [[Twitter]] a quote attributed to him in [[Michael Wolff]]'s book that called the president "crazy" and "stupid."
 
 ### AF 2018-01-03 0078
-(05:37:800) Donald Trump's statement claimed [[Steven Crowder|Steve Bannon]] had "very [[little]] contact with the President" and "no influence" during his [[time]] in the [[White House]].
+(05:37:800) Donald Trump's statement claimed [[Steve Bannon]] had "very [[little]] contact with the President" and "no influence" during his [[time]] in the [[White House]].
 
 ### AF 2018-01-03 0078
 (11:41:160) A prior media report claimed [[Rex Tillerson]] called Donald Trump an "idiot," a claim both Tillerson and Trump later denied as false.
@@ -30314,7 +30314,7 @@
 (41:00:760) Donald Trump signed an executive order disbanding his Presidential Advisory Commission on Election Integrity, established after the 2016 election, citing lack of cooperation from states.
 
 ### AF 2018-01-03 0078
-(50:06:820) The political future of candidates backed by [[Steven Crowder|Steve Bannon]] in the 2018 primaries was cast into doubt following his public rift with Donald Trump.
+(50:06:820) The political future of candidates backed by [[Steve Bannon]] in the 2018 primaries was cast into doubt following his public rift with Donald Trump.
 
 ### AF 2018-01-02 0077
 (00:26:11) [[Nicholas J. Fuentes]] argued that Donald Trump was ideologically, politically, and personally disinclined to pursue a major ground war in [[Iran]], which would require 200,000-300,000 troops and cost over a trillion dollars.
@@ -30335,13 +30335,13 @@
 (00:13:20) [[Crown Prince Mohammed bin Salman]] of [[Saudi Arabia]] rose to prominence during the presidency of Donald Trump, with [[Jared Kushner]] cultivating a personal friendship with him.
 
 ### AF 2018-01-01 0076
-(00:20:30) Donald Trump's administration recognized [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]], a move seen as less critical of [[Israel]] and less supportive of [[Iran]] compared to the prior [[Obama]] administration.
+(00:20:30) Donald Trump's administration recognized [[Jerusalem]] as the capital of [[Israel]], a move seen as less critical of [[Israel]] and less supportive of [[Iran]] compared to the prior [[Obama]] administration.
 
 ### AF 2018-01-01 0076
 (00:21:40) Donald Trump tweeted that he would withhold $255 million in foreign aid to [[Pakistan]] because the [[country]] was harboring terrorists.
 
 ### AF 2018-01-01 0076
-(00:28:00) In April 2017, Donald Trump ordered a launch of 52 missiles against a [[Syria|Syrian]] regime airbase in [[City of Homs|Homs]] in response to a chemical weapons attack.
+(00:28:00) In April 2017, Donald Trump ordered a launch of 52 missiles against a [[Syria|Syrian]] regime airbase in [[Homs]] in response to a chemical weapons attack.
 
 ### AF 2018-01-01 0076
 (00:29:50) The missile strike on [[Syria]] occurred while Donald Trump was hosting [[China|Chinese]] [[White House|President]] [[Xi Jinping]] at Mar-a-Lago, and analysts later interpreted the action as political theater intended to deter [[North Korea]] and signal to [[China]].
@@ -30371,7 +30371,7 @@
 (00:26:37) [[Nicholas J. Fuentes]] claimed that [[Paul Ryan]] and [[Mitch McConnell]] had no plan to repeal Obamacare ready when Donald Trump was inaugurated on January 20, 2017, despite their long tenures in leadership.
 
 ### AF 2017-12-22 0075
-(00:48:32) [[Nicholas J. Fuentes]] listed his goals for the next five years as seeing the border wall built, Donald Trump re-elected, the [[Republican Party]] consolidated around the [[America First]] platform, [[Steven Crowder|Steve Bannon]] leading the political movement, and like-minded candidates entering congressional leadership.
+(00:48:32) [[Nicholas J. Fuentes]] listed his goals for the next five years as seeing the border wall built, Donald Trump re-elected, the [[Republican Party]] consolidated around the [[America First]] platform, [[Steve Bannon]] leading the political movement, and like-minded candidates entering congressional leadership.
 
 ### AF 2017-12-22 0075
 (00:49:37) [[Nicholas J. Fuentes]] predicted Donald Trump is setting himself up for a strong position in the 2020 election, with [[Democratic Party|Democrats]] in a weak position, a dynamic similar to 2016, making re-election "most definitely within the realm of possibility."
@@ -30380,7 +30380,7 @@
 (00:03:30) Donald Trump commuted the 25-year prison sentence of [[Sholom Rubashkin]], [[who]] had served 8 years for bank fraud and employing 400 illegal immigrants at a meat processing plant.
 
 ### AF 2017-12-21 0074
-(00:06:20) Donald Trump moved the [[United States]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]], fulfilling a provision of [[United States|U.S]]. law dating to 1995.
+(00:06:20) Donald Trump moved the [[United States]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]], fulfilling a provision of [[United States|U.S]]. law dating to 1995.
 
 ### AF 2017-12-21 0074
 (00:06:30) In August, Donald Trump expressed sympathy for the [[Deferred Action for Childhood Arrivals|DACA]] program before ultimately repealing it, with legal protections for recipients set to expire by March.
@@ -30428,7 +30428,7 @@
 (00:33:25) Donald Trump's first-year accomplishments were compared favorably to a hypothetical first year of a presidency by [[Marco Rubio]], [[George W. Bush|Jeb Bush]], or [[Ted Cruz]].
 
 ### AF 2017-12-21 0074
-(00:44:30) [[Nicholas J. Fuentes]] argued that Donald Trump's pro-[[Israel]] actions, such as recognizing [[City of Jerusalem|Jerusalem]], constituted political pandering rather than selling out, noting he did not move the [[United States Embassy in Jerusalem|embassy]] or launch wars for [[Israel]] like [[George W. Bush]] or [[Barack Obama]].
+(00:44:30) [[Nicholas J. Fuentes]] argued that Donald Trump's pro-[[Israel]] actions, such as recognizing [[Jerusalem]], constituted political pandering rather than selling out, noting he did not move the [[United States Embassy in Jerusalem|embassy]] or launch wars for [[Israel]] like [[George W. Bush]] or [[Barack Obama]].
 
 ### AF 2017-12-21 0074
 (00:46:40) [[Nicholas J. Fuentes]] contended that Donald Trump's destruction of [[Islamic State of Iraq and Syria|ISIS]] benefited [[Iran]]'s regional hegemony and was done against the wishes of some ministers in [[Israel]].
@@ -30440,10 +30440,10 @@
 (00:37:54) Donald Trump's administration passed the Tax Cuts and Jobs Act, a sweeping overhaul of the tax code representing the first major reform since 1986.
 
 ### AF 2017-12-20 0073
-(03:48:02) Donald Trump threatened to cut off foreign aid to any [[country]] that voted in favor of a [[United Nations]] General Assembly resolution opposing [[United States|U.S]]. recognition of [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]].
+(03:48:02) Donald Trump threatened to cut off foreign aid to any [[country]] that voted in favor of a [[United Nations]] General Assembly resolution opposing [[United States|U.S]]. recognition of [[Jerusalem]] as the capital of [[Israel]].
 
 ### AF 2017-12-20 0073
-(04:00:42) Donald Trump had previously announced [[United States|U.S]]. recognition of [[City of Jerusalem|Jerusalem]] as [[Israel]]'s capital but simultaneously signed a waiver delaying the move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]], as required by a 1995 law.
+(04:00:42) Donald Trump had previously announced [[United States|U.S]]. recognition of [[Jerusalem]] as [[Israel]]'s capital but simultaneously signed a waiver delaying the move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]], as required by a 1995 law.
 
 ### AF 2017-12-18 0071
 (31:13:42) [[Jada Franson]], whose videos were retweeted by Trump, was banned from [[Twitter]].
@@ -30533,22 +30533,22 @@
 (01:41:05) [[Nicholas J. Fuentes]] described Donald Trump's travels to states like [[State of West Virginia|West Virginia]], [[Commonwealth of Pennsylvania|Pennsylvania]], [[Arizona]], and [[Utah]] as strategic efforts to build a new political coalition and secure a congressional majority for future policy goals like immigration reform.
 
 ### AF 2017-12-07 0066
-(02:00:57) [[Nicholas J. Fuentes]] suggested Donald Trump's announcement about moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]] may have been a concession to [[AIPAC]] lobbying, possibly influenced by donor [[Sheldon Adelson]], in exchange for support on tax reform.
+(02:00:57) [[Nicholas J. Fuentes]] suggested Donald Trump's announcement about moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]] may have been a concession to [[AIPAC]] lobbying, possibly influenced by donor [[Sheldon Adelson]], in exchange for support on tax reform.
 
 ### AF 2017-12-06 0065
 (00:01:04) The controversy originated from a criticism of [[Lauren Southern]] regarding her past relationship with a [[Islam|Muslim]] man, to which she responded by noting the individual was a Trump supporter and [[Christianity|Christian]].
 
 ### AF 2017-12-05 0064
-(01:15:54) [[Nicholas J. Fuentes]] reported that Donald Trump made phone calls to [[Palestinian Authority]] [[White House|President]] [[Mahmoud Abbas]] and Jordanian [[Martin Luther King Jr.|King]] [[King Abdullah II]], informing them the [[United States]] would move its [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]] and recognize [[City of Jerusalem|Jerusalem]] as the capital of [[Israel]].
+(01:15:54) [[Nicholas J. Fuentes]] reported that Donald Trump made phone calls to [[Palestinian Authority]] [[White House|President]] [[Mahmoud Abbas]] and Jordanian [[Martin Luther King Jr.|King]] [[King Abdullah II]], informing them the [[United States]] would move its [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]] and recognize [[Jerusalem]] as the capital of [[Israel]].
 
 ### AF 2017-12-05 0064
-(01:18:44) [[Nicholas J. Fuentes]] reported that Donald Trump's decision to move the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]] and recognize it as [[Israel|Israel's]] capital would effectively legitimize [[Israel]]'s annexation of East [[City of Jerusalem|Jerusalem]], breaking with 50 years of [[United States|American]] precedent.
+(01:18:44) [[Nicholas J. Fuentes]] reported that Donald Trump's decision to move the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]] and recognize it as [[Israel|Israel's]] capital would effectively legitimize [[Israel]]'s annexation of East [[Jerusalem]], breaking with 50 years of [[United States|American]] precedent.
 
 ### AF 2017-12-05 0064
-(01:19:52) [[Nicholas J. Fuentes]] listed international reactions against Donald Trump's [[City of Jerusalem|Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] of [[Turkey]], [[who]] threatened to sever ties with [[Israel]].
+(01:19:52) [[Nicholas J. Fuentes]] listed international reactions against Donald Trump's [[Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] of [[Turkey]], [[who]] threatened to sever ties with [[Israel]].
 
 ### AF 2017-12-05 0064
-(01:20:48) [[Nicholas J. Fuentes]] noted that the foreign ministers of [[Germany]], the [[Europe|European Union]], and [[France]] all criticized Donald Trump's move to recognize [[City of Jerusalem|Jerusalem]] as [[Israel|Israel's]] capital as counterproductive.
+(01:20:48) [[Nicholas J. Fuentes]] noted that the foreign ministers of [[Germany]], the [[European Union]], and [[France]] all criticized Donald Trump's move to recognize [[Jerusalem]] as [[Israel|Israel's]] capital as counterproductive.
 
 ### AF 2017-12-05 0064
 (01:24:04) [[Nicholas J. Fuentes]] speculated that Donald Trump's [[United States Embassy in Jerusalem|embassy]] move might be intended to provoke outrage and signal a rejection of a two-[[state]] solution, aligning with a reported proposal from Crown Prince [[Mohammed bin Salman]] and [[Jared Kushner]] that offered [[Palestinians]] no sovereign [[state]].
@@ -30569,7 +30569,7 @@
 (14:23:66) [[Michael Flynn]] pleaded guilty to charges of lying to the [[Federal Bureau of Investigation|FBI]] and, in cooperation with [[Robert Mueller]], disclosed that a senior Trump transition official directed him in December 2016 to make overtures to [[Russia]].
 
 ### AF 2017-12-04 0063
-(29:24:66) Donald Trump was rumored to be preparing an announcement to recognize [[City of Jerusalem|Jerusalem]] as the official capital of [[Israel]], a move warned against by [[Mahmoud Abbas]], [[Jim Jordan|Jordan]], and [[Arab Republic of Egypt|Egypt]].
+(29:24:66) Donald Trump was rumored to be preparing an announcement to recognize [[Jerusalem]] as the official capital of [[Israel]], a move warned against by [[Mahmoud Abbas]], [[Jim Jordan|Jordan]], and [[Arab Republic of Egypt|Egypt]].
 
 ### AF 2017-12-04 0063
 (33:22:20) Donald Trump issued an unconditional endorsement and called [[Roy Moore]] to offer support ahead of the Alabama [[Senate]] election.
@@ -30599,7 +30599,7 @@
 (00:20:42) The senior Trump transition official [[who]] directed [[Michael Flynn]] to contact [[Russia]] regarding the [[United Nations Security Council]] vote was [[Jared Kushner]].
 
 ### AF 2017-12-01 0062
-(00:31:18) [[Axios]] reported that [[White House|President]] Donald Trump would announce within four days that [[City of Jerusalem|Jerusalem]] is the capital of [[Israel]].
+(00:31:18) [[Axios]] reported that [[White House|President]] Donald Trump would announce within four days that [[Jerusalem]] is the capital of [[Israel]].
 
 ### AF 2017-11-28 0059
 (00:17:10) [[Nicholas J. Fuentes]] argued that the escalating nuclear crisis with [[North Korea]] had become the dominant international affairs issue of the Trump presidency.
@@ -30611,7 +30611,7 @@
 (00:51:10) [[Nicholas J. Fuentes]] credited Donald Trump with setting a cooperative yet assertive tone in the [[United States]]'s relationship with [[China]].
 
 ### AF 2017-11-22 0056
-(02:14:16) A Cuban-[[United States|American]] anarcho-capitalist caller from [[City of Miami|Miami]] argued that Cubans are the most conservative [[Hispanic]] demographic, with 60% voting for Donald Trump, due to their [[Europe|European]] cultural roots and experience fleeing socialism.
+(02:14:16) A Cuban-[[United States|American]] anarcho-capitalist caller from [[Miami]] argued that Cubans are the most conservative [[Hispanic]] demographic, with 60% voting for Donald Trump, due to their [[Europe|European]] cultural roots and experience fleeing socialism.
 
 ### AF 2017-11-21 0055
 (43:41:02) [[Nicholas J. Fuentes]] cited a federal judge in [[Hawaii]] and another in [[Washington D.C.|Washington]] as having unconstitutionally blocked Trump's immigration ban, which was authorized by the Immigration and Nationalities Act passed by [[Congress]].
@@ -30641,13 +30641,13 @@
 (11:59:34) [[Nicholas J. Fuentes]] framed the [[Alabama]] [[Senate]] special election as a crucial watershed for the 2018 midterms and for Donald Trump's first term.
 
 ### AF 2017-11-16 0052
-(12:54:42) [[Nicholas J. Fuentes]] stated that the August [[Republican Party|GOP]] primary in [[Alabama]] was the first [[time]] the MAGA [[America First]] agenda, headed by [[Steven Crowder|Steve Bannon]], was pitted against Donald Trump, [[who]] endorsed [[Luther Strange]].
+(12:54:42) [[Nicholas J. Fuentes]] stated that the August [[Republican Party|GOP]] primary in [[Alabama]] was the first [[time]] the MAGA [[America First]] agenda, headed by [[Steve Bannon]], was pitted against Donald Trump, [[who]] endorsed [[Luther Strange]].
 
 ### AF 2017-11-16 0052
 (13:10:22) Donald Trump endorsed [[Luther Strange]] in the [[Alabama]] [[Senate]] primary, held a rally for him, directed the [[Republican Party]] to back him, and brushed off claims that [[Luther Strange]] was a water boy for [[Mitch McConnell]].
 
 ### AF 2017-11-16 0052
-(13:56:18) [[Roy Moore]] exemplified the insurgent [[Steven Crowder|Steve Bannon]] mindset that had drifted away from Donald Trump since he entered office, according to [[Nicholas J. Fuentes]].
+(13:56:18) [[Roy Moore]] exemplified the insurgent [[Steve Bannon]] mindset that had drifted away from Donald Trump since he entered office, according to [[Nicholas J. Fuentes]].
 
 ### AF 2017-11-16 0052
 (37:48:48) [[Nicholas J. Fuentes]] argued that the instability caused by Donald Trump revealed people's true characters, citing [[Ben Shapiro]]'s shift from making fun of feminists in 2014 to being a "liar" in 2017.
@@ -30656,7 +30656,7 @@
 (06:18:56) During the 2016 general election, Donald Trump faced numerous sexual abuse allegations that were later dropped and were connected to a lawyer [[who]] had worked for the [[Democratic Party]] for 30 years.
 
 ### AF 2017-11-10 0051
-(12:44:04) [[Roy Moore]] defeated [[Luther Strange]], the candidate supported by [[Mitch McConnell]] and Donald Trump, in the [[Republican Party|Republican]] primary, with [[Steven Crowder|Steve Bannon]] and [[Breitbart News|Breitbart]] backing Moore's campaign.
+(12:44:04) [[Roy Moore]] defeated [[Luther Strange]], the candidate supported by [[Mitch McConnell]] and Donald Trump, in the [[Republican Party|Republican]] primary, with [[Steve Bannon]] and [[Breitbart News|Breitbart]] backing Moore's campaign.
 
 ### AF 2017-11-10 0051
 (17:25:20) [[Nicholas J. Fuentes]] argued that figures like [[Ben Shapiro]] were deliberately sabotaging Donald Trump and the [[America First]] platform.
@@ -30704,7 +30704,7 @@
 (01:00:00) [[Nicholas J. Fuentes]] listed several of Donald Trump's campaign promises he believed were already achieved or underway, including defeating [[Islamic State of Iraq and Syria|ISIS]], repealing globalist trade deals, constructing border wall prototypes, and undermining the [[Obamacare]] law.
 
 ### AF 2017-11-03 0046
-(01:04:00) [[Nicholas J. Fuentes]] announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[City of Chicago|Chicago]], [[Boston]], [[New York]], and [[Los Angeles]], with the goal of protesting daily until Donald Trump and [[Mike Pence]] were removed from power.
+(01:04:00) [[Nicholas J. Fuentes]] announced that the [[Antifa]]-affiliated group Refuse Fascism would begin protests in over two dozen cities, including [[Honolulu]], [[Atlanta]], [[Chicago]], [[Boston]], [[New York]], and [[Los Angeles]], with the goal of protesting daily until Donald Trump and [[Mike Pence]] were removed from power.
 
 ### AF 2017-11-03 0046
 (01:42:00) [[Nicholas J. Fuentes]] framed the global political conflict as between traditionalist leaders like Donald Trump, [[Nigel Farage]], [[Marine Le Pen]], and [[Vladimir Putin]], and globalist leaders like [[Justin Trudeau]], [[Angela Merkel]], [[Barack Obama]], [[Emmanuel Macron]], and [[Theresa May]].
@@ -30746,7 +30746,7 @@
 (00:12:50) [[George Papadopoulos]] attempted to set up a meeting between [[Vladimir Putin]] and Donald Trump through contacts in the [[Russian]] government, which was documented in emails obtained by the [[Mueller]] probe.
 
 ### AF 2017-10-30 0042
-(00:14:26) [[Robert Mueller]]'s investigation had produced no evidence incriminating Donald Trump, [[Steven Crowder|Steve Bannon]], or anyone in the [[Kanye West|West]] Wing after nearly 12 months.
+(00:14:26) [[Robert Mueller]]'s investigation had produced no evidence incriminating Donald Trump, [[Steve Bannon]], or anyone in the [[Kanye West|West]] Wing after nearly 12 months.
 
 ### AF 2017-10-30 0042
 (00:17:34) [[Chuck Schumer]] and [[Nancy Pelosi]] called for an outside investigation into [[Robert Mueller]]'s probe and warned of swift [[Senate]] action if Donald Trump dismissed [[Robert Mueller]].
@@ -30779,7 +30779,7 @@
 (02:09:12) [[Senator Jeff Flake]] announced he would not seek re-election in the 2018 [[Republican Party|GOP]] primary for [[Arizona]], citing an inability to be complicit in what he called the reckless and dangerous behavior of the Trump administration.
 
 ### AF 2017-10-24 0038
-(02:26:74) [[Nicholas J. Fuentes]] characterized [[Jeff Flake's]] retirement speech as dishonest, arguing his decision was driven by an inability to win re-election against a [[Steven Crowder|Steve Bannon]]-backed challenger rather than principled opposition to Donald Trump.
+(02:26:74) [[Nicholas J. Fuentes]] characterized [[Jeff Flake's]] retirement speech as dishonest, arguing his decision was driven by an inability to win re-election against a [[Steve Bannon]]-backed challenger rather than principled opposition to Donald Trump.
 
 ### AF 2017-10-24 0038
 (03:14:56) [[Nicholas J. Fuentes]] argued that [[Flake's]] admission that a "traditional [[Republican Party|Republican]]" [[who]] was pro-free trade and pro-immigration could not win in [[Arizona]] demonstrated how Donald Trump had shifted the political center for white [[United States|Americans]] and [[Republican Party|Republicans]].
@@ -30797,7 +30797,7 @@
 (07:28:28) [[Nicholas J. Fuentes]] recalled defending Donald Trump during a September 2017 controversy over a potential [[Deferred Action for Childhood Arrivals|DACA]] deal with [[Chuck Schumer]] and [[Nancy Pelosi]], arguing that no concrete legislation had been agreed upon and that Trump's long-held platform made a sudden reversal unlikely.
 
 ### AF 2017-10-24 0038
-(08:30:34) [[Nicholas J. Fuentes]] suggested that [[Stephen Miller]]'s role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with Donald Trump's own opposition, and that the president's actions serviced the political ascendancy of [[Steven Crowder|Steve Bannon]] and [[Roy Moore]] in [[Alabama]].
+(08:30:34) [[Nicholas J. Fuentes]] suggested that [[Stephen Miller]]'s role in shooting down a [[Deferred Action for Childhood Arrivals|DACA]] immigration deal was likely aligned with Donald Trump's own opposition, and that the president's actions serviced the political ascendancy of [[Steve Bannon]] and [[Roy Moore]] in [[Alabama]].
 
 ### AF 2017-10-24 0038
 (08:31:74) [[Nicholas J. Fuentes]] accused mainstream media outlets like [[Washington Post|The Hill]] of misleading coverage by reporting the resumption of the [[United States|U.S]]. refugee program while omitting Donald Trump's simultaneous ban on refugees from 11 specific countries.
@@ -30809,16 +30809,16 @@
 (00:55:670) Donald Trump referred to soldiers [[who]] died in Niger as "losers" and "suckers," creating a major political controversy.
 
 ### AF 2017-10-23 0037
-(33:42:410) [[Steven Crowder|Steve Bannon]], the former [[White House]] strategist [[who]] runs [[Breitbart News]], maintained influence and had the ear of Donald Trump.
+(33:42:410) [[Steve Bannon]], the former [[White House]] strategist [[who]] runs [[Breitbart News]], maintained influence and had the ear of Donald Trump.
 
 ### AF 2017-10-23 0037
-(34:24:630) Donald Trump had constructed border wall prototypes in [[City of San Diego|San Diego]] and was assembling funding for the project.
+(34:24:630) Donald Trump had constructed border wall prototypes in [[San Diego]] and was assembling funding for the project.
 
 ### AF 2017-10-23 0037
 (34:40:150) Donald Trump rejected a legislative deal that would have legalized [[Deferred Action for Childhood Arrivals|DACA]] recipients because it did not include funding for a border wall or an end to chain migration.
 
 ### AF 2017-10-23 0037
-(35:05:950) [[Steven Crowder|Steve Bannon]] was leading an effort to primary establishment [[Republican Party]] members [[who]] were not sufficiently supportive of Donald Trump's immigration and trade agenda.
+(35:05:950) [[Steve Bannon]] was leading an effort to primary establishment [[Republican Party]] members [[who]] were not sufficiently supportive of Donald Trump's immigration and trade agenda.
 
 ### AF 2017-10-23 0037
 (47:15:230) Donald Trump's 2016 campaign success in the Midwest and New [[United Kingdom|England]] served as a prototype for a potential anti-immigration political movement, according to [[Nicholas J. Fuentes]].
@@ -30827,7 +30827,7 @@
 (01:03:55:150) [[Nicholas J. Fuentes]] listed his top three [[United States|U.S]]. presidents as Donald Trump, [[Andrew Jackson]], and [[John F. Kennedy]].
 
 ### AF 2017-10-18 0034
-(00:03:02) [[Paul Nehlen]] told [[Steven Crowder|Steve Bannon]] he was supporting Donald Trump for [[president]] because Trump was the only candidate talking about trade deals and illegal immigration.
+(00:03:02) [[Paul Nehlen]] told [[Steve Bannon]] he was supporting Donald Trump for [[president]] because Trump was the only candidate talking about trade deals and illegal immigration.
 
 ### AF 2017-10-18 0034
 (00:03:55) [[Paul Nehlen]] worked behind the scenes for [[Judge Moore]]'s campaign and praised [[Moore]] for stating he would support Donald Trump as long as Trump supported the [[U.S. Constitution|Constitution]].
@@ -30875,13 +30875,13 @@
 (02:24:34) Earlier in Donald Trump's term, [[Mark Meadows]] led the [[House Freedom Caucus]] in opposing the [[United States|American]] Health Care Act, preventing its passage.
 
 ### AF 2017-10-16 0032
-(02:30:06) [[Steven Crowder|Steve Bannon]]'s primary challenge against [[Luther Strange]] in [[Alabama]] succeeded despite Donald Trump's endorsement and a rally in [[Huntsville]] for Strange.
+(02:30:06) [[Steve Bannon]]'s primary challenge against [[Luther Strange]] in [[Alabama]] succeeded despite Donald Trump's endorsement and a rally in [[Huntsville]] for Strange.
 
 ### AF 2017-10-16 0032
-(03:31:94) [[Nicholas J. Fuentes]] argued that as [[Republican Party|GOP]] members feared [[Steven Crowder|Steve Bannon]]'s primary challenges, they would "jump ship" from [[Mitch McConnell]] and begin voting with Donald Trump on issues like border wall funding, healthcare reform, and tax reform.
+(03:31:94) [[Nicholas J. Fuentes]] argued that as [[Republican Party|GOP]] members feared [[Steve Bannon]]'s primary challenges, they would "jump ship" from [[Mitch McConnell]] and begin voting with Donald Trump on issues like border wall funding, healthcare reform, and tax reform.
 
 ### AF 2017-10-16 0032
-(03:33:24) [[Nicholas J. Fuentes]] stated that Donald Trump released [[Steven Crowder|Steve Bannon]] from [[the White House]] so [[Bannon]] could more effectively wage a "guerrilla war" against the [[Republican Party|GOP]] establishment without the president appearing directly responsible.
+(03:33:24) [[Nicholas J. Fuentes]] stated that Donald Trump released [[Steve Bannon]] from [[the White House]] so [[Bannon]] could more effectively wage a "guerrilla war" against the [[Republican Party|GOP]] establishment without the president appearing directly responsible.
 
 ### AF 2017-10-16 0032
 (04:41:02) [[Ann Coulter]] posted daily updates stating "border wall progress, zero" to keep pressure on Donald Trump.
@@ -30920,7 +30920,7 @@
 (31:30:19) [[Nicholas J. Fuentes]] claimed that Donald Trump frequently disparages the [[black]] community.
 
 ### AF 2017-10-06 0026
-(00:03:47) The Donald Trump administration's [[Health and Human Services|Department of Health and Human Services]] repealed an [[Barack Obama administration|Obama administration]] rule that had mandated employer-provided birth control coverage, expanding religious and moral exemptions for employers.
+(00:03:47) The Donald Trump administration's [[Department of Health and Human Services]] repealed an [[Barack Obama administration|Obama administration]] rule that had mandated employer-provided birth control coverage, expanding religious and moral exemptions for employers.
 
 ### AF 2017-10-02 0022
 (01:07:30:51) [[Nicholas J. Fuentes]] argued that Donald Trump is not at fault for tax breaks favoring the wealthy because he does not write the laws, which are shaped by congressional campaign donors.
@@ -31016,7 +31016,7 @@
 (00:19:03) The [[United States Congress]] passed a resolution forcing Donald Trump to condemn white nationalists and the alt-right.
 
 ### AF 2017-09-18 0012
-(00:38:52) [[Paul Ryan]] and Donald Trump stated the [[City of Charlottesville|Charlottesville]] rally was "not [[United States|American]]."
+(00:38:52) [[Paul Ryan]] and Donald Trump stated the [[Charlottesville]] rally was "not [[United States|American]]."
 
 ### AF 2017-09-19 0013
 (01:46:39) Trump declared "Americanism, not Globalism, will be our credo" during his 2016 [[Republican Party|Republican National Convention]] acceptance speech.
@@ -31055,7 +31055,7 @@
 (00:15:34) [[Nicholas J. Fuentes]] analyzes Donald Trump's strategy by comparing the [[Deferred Action for Childhood Arrivals|DACA]] situation to the [[United States|U.S]]. missile strike on [[Syria]] in April, which he argues was a limited show of force aimed at [[China]] and [[North Korea]], not the start of a war.
 
 ### AF 2017-09-14 0010
-(00:22:51) [[Nicholas J. Fuentes]] notes that Donald Trump removed [[Steven Crowder|Steve Bannon]] and [[Sebastian Gorka]] from the [[White House]] earlier in the month, with rumors of [[Steven Crowder|Steve Bannon]] returning to lead [[Breitbart News|Breitbart]].
+(00:22:51) [[Nicholas J. Fuentes]] notes that Donald Trump removed [[Steve Bannon]] and [[Sebastian Gorka]] from the [[White House]] earlier in the month, with rumors of [[Steve Bannon]] returning to lead [[Breitbart News|Breitbart]].
 
 ### AF 2017-09-14 0010
 (00:23:39) [[Nicholas J. Fuentes]] argues that Donald Trump's [[Deferred Action for Childhood Arrivals|DACA]] negotiations with [[Democratic Party|Democrats]] are a tactic to pressure [[Paul Ryan]] and [[Mitch McConnell]] into offering wall funding to avoid a deal that would hurt the [[Republican Party]].
@@ -31094,7 +31094,7 @@
 (02:19:34) [[Nicholas J. Fuentes]] stated that Trump's policies, such as the RAISE Act to cut legal immigration and deporting illegal immigrants including [[Deferred Action for Childhood Arrivals|DACA]] recipients, were correct steps to combat the foreign birth rate problem.
 
 ### AF 2017-09-01 0007
-(00:02:52) The [[Deferred Action for Childhood Arrivals|DACA]] program, created under [[Barack Obama]], provides temporary legal status to certain undocumented immigrants [[who]] entered the [[United States]] as children. (00:03:04) Rumors circulated that Donald Trump was considering canceling the [[Deferred Action for Childhood Arrivals|DACA]] program, with a final decision from [[the White House]] expected the following Tuesday. (00:03:26) [[Paul Ryan]] publicly urged Donald Trump to allow [[Congress]] to address and potentially preserve the [[Deferred Action for Childhood Arrivals|DACA]] program through legislation. (00:04:20) The [[Republican Party]] had failed to repeal the [[Obamacare]] health law despite controlling both houses of [[Congress]] and campaigning on its repeal for years. (00:04:54) Donald Trump was elected on a platform that included ending [[Deferred Action for Childhood Arrivals|DACA]] and removing undocumented immigrants from the [[United States]]. (00:05:19) In April, Donald Trump had stated he would keep [[Deferred Action for Childhood Arrivals|DACA]], causing concern among his immigration-restrictionist supporters. (00:05:42) Donald Trump was [[known]] to test public reaction to policy ideas through back-channel rumors before making a final decision. (00:06:27) Donald Trump, as [[White House|President]] of the [[United States]], has a primary duty to serve the interests of [[United States|American]] citizens over non-citizens. (00:08:46) [[Paul Ryan]] argued that [[Deferred Action for Childhood Arrivals|DACA]] recipients were living in "limbo" and faced difficult circumstances. (00:11:12) In the 1980s, [[Ronald Reagan]] granted amnesty to approximately three million undocumented immigrants in exchange for promised border security measures that were never fully implemented. (00:25:38) An 88-year-old [[Germany|German]] woman named Ursula Haverbeck was sentenced to two years in prison by a court in [[Hamburg]] for [[United States Holocaust Memorial Museum|Holocaust]] denial, a crime in [[Germany]]. (00:26:40) [[Ben Shapiro]], [[Dave Rubin]], and [[Steven Crowder]], prominent figures [[who]] advocate for free speech, were criticized for not speaking out against Ursula Haverbeck's imprisonment. (00:28:30) [[United States Holocaust Memorial Museum|Holocaust]] denial is a criminal offense in 13 countries, including [[Germany]]. (00:31:19) [[Ben Shapiro]] built a multi-million dollar media career primarily on advocating for free speech and open discourse. (00:31:35) [[Ben Shapiro]]'s career was allegedly advanced through nepotistic connections, including his father's assistance in securing jobs and a book deal. (00:32:02) [[Ben Shapiro]]'s public platform frequently focuses on themes of free speech, civil discourse, and the open exchange of ideas. (00:35:50) [[Amazon Inc.|Amazon]]'s acquisition of [[Whole Foods]] was quickly approved by the [[U.S. Antitrust Commission]], which had several vacant seats at the [[time]]. (00:40:29) Support for mass immigration among both the [[Democratic Party]] and the [[Republican Party]] is driven by [[Democratic Party|Democrats]] seeking new voters and [[Republican Party|Republicans]] seeking cheap labor for corporate donors. (00:40:45) [[Cabot Phillips]], a commentator for [[Campus Reform]], supports immigration policies favored by the [[Leadership Institute]] and its corporate donors [[who]] benefit from low-skilled labor. (00:43:10) [[Ben Shapiro]] and others at [[The Daily Wire]] refuse to debate members of the alt-right, despite building their brands on free speech principles. (00:44:21) [[Michael J. Knowles]] of [[The Daily Wire]] had previously interviewed [[James Allsup]]. (00:44:58) On [[Dave Rubin|The Rubin Report]], [[Ben Shapiro]] stated that "real racists" should have their careers and families destroyed through public shaming. (00:45:02) [[Paul Ryan]] opposed Donald Trump's agenda due to lobbying influence, establishment politics, and his own presidential ambitions within the [[Republican Party]]. (00:47:24) [[Nicholas J. Fuentes]] planned to have guests like [[Faith Goldy]], [[Paul Miller|Paul Town]], [[Paul Nehlen]], and possibly [[Richard Spencer]] on future episodes of his show. (00:48:47) [[Nicholas J. Fuentes]] made a bet with Phil Swanson that he would be confronted by a social justice warrior within six weeks of attending classes at [[Auburn University]]. (00:48:57) If he were [[president]], [[Nicholas J. Fuentes]] would immediately terminate [[Deferred Action for Childhood Arrivals|DACA]], triple the size of [[U.S. Immigration and Customs Enforcement|ICE]], and prosecute governors of sanctuary cities. (00:50:50) [[Faith Goldy]] demonstrated courage by appearing on [[The Daily Stormer]] podcast and reporting from the [[Charlottesville rally]] despite significant backlash. (00:51:18) [[Ezra Levant]] of [[The Rebel Media|Rebel Media]] was defended by [[Faith Goldy]] during an internal controversy at the outlet, a stance [[Nicholas J. Fuentes]] disagreed with. (00:52:52) [[Ronald Reagan]]'s hawkish foreign policy and military expansion were a necessary response to the threat posed by the [[Soviet Union]] under leaders like [[Leonid Brezhnev]] and [[Yuri Andropov]]. (00:54:47) [[Thomas Aquinas|St. Thomas Aquinas]] provided sophisticated philosophical arguments for the existence of God and the truth of [[Christianity]] that far surpass the critiques of modern atheists like [[Richard Dawkins]] and [[Christopher Hitchens]]. (00:55:34) [[Christopher Hitchens]] typically debated mainstream [[Christianity|Christian]] figures on television rather than engaging with the philosophical arguments of giants like [[Thomas Aquinas|St. Thomas Aquinas]]. (00:56:56) [[Martin Luther]]'s Protestant Reformation played an important cultural role in Western history, according to historian [[Jacques Barzun]]. (01:00:52) [[Nicholas J. Fuentes]] receives frequent unsolicited emails from viewers containing elaborate but impractical plans for political projects, stage plays, and economic models. (01:02:50) The alt-right conspiracy theory posits that a secret, omnipotent cabal controls world events and silences dissenters, yet demands public figures explicitly oppose it. (01:02:55) [[Barack Obama]]'s rapid withdrawal of troops from [[Iraq]] created a power vacuum that contributed to the rise of the [[Islamic State of Iraq and Syria|ISIS]] terrorist group. (01:03:24) [[Nicholas J. Fuentes]] expressed interest in interviewing [[Timothy Gionet|Baked Alaska]] following his involvement in the [[Charlottesville rally]]. (01:04:39) [[Christopher Cantwell]] faced up to 60 years in prison for pepper-spraying a counter-protester at the [[Charlottesville rally]], a sentence critics deemed excessively harsh for a political activist. (01:06:06) Donald Trump joked that he would build a border wall using the skulls of transgender people. (01:06:12) [[Jesse Jackson]] claimed Donald Trump would not get into heaven because of his immigration policies. (01:06:24) Secession of states like [[State of California|California]] or [[State of Texas|Texas]] is unrealistic because the federal government relies on their massive economic contributions through tax revenue. (01:06:30) The [[Civil War|American Civil War]] was fundamentally fought over tax revenue, as Southern states provided 70% of federal tariff income before seceding. (01:07:08) A military solution involving [[China]], [[State of Japan|Japan]], [[Russia]], and the [[Philippines]] may be necessary to eliminate the nuclear threat from [[North Korea]] if diplomacy fails. (01:08:15) [[Nicholas J. Fuentes]] and [[James Allsup]] position themselves as creators of a positive, ideologically coherent alternative to what they see as the opportunistic critique of figures like [[Ben Shapiro]]. (01:09:01) [[Millennial Matt]] is considered a good-hearted and humorous figure within the online political sphere, though his views sometimes fall outside the mainstream Overton window. (01:10:58) [[Paul Miller|Paul Town]] is regarded as a sincere and well-intentioned activist, in contrast to many others in politics [[who]] are seen as opportunistic. (01:11:27) [[Richard Spencer]]'s alt-right strategy employs controversial [[Germany|Nazi]] and [[Ku Klux Klan|KKK]] aesthetics to create an exclusive movement, but its effectiveness in achieving political change is questioned. (01:14:12) [[Nicholas J. Fuentes]] was suspended from [[Twitter]] for posting a meme that [[Kassy Dillon|Cassie Dillon]] interpreted as a threat, leading her to contact his employer. (01:15:34) [[Nicholas J. Fuentes]] and [[Rightside Broadcasting]] parted ways mutually after the [[Charlottesville rally]], as his controversial political movement was incompatible with their need for access to Donald Trump's [[White House]]. (01:17:16) [[Samuel J. Hyde|Sam Hyde]] is a controversial comedian considered dangerous by some for his edgy content. (01:19:44) [[Nicholas J. Fuentes]] is a fan of [[France|French]] nationalist politician [[Marine Le Pen]]. (01:19:53) [[Alex Jones]] is seen as lacking a coherent political ideology despite his influential media platform. (01:20:33) [[Robert E. Lee]] was related to a wide array of historical figures, including boxer [[Muhammad Ali]]. (01:22:51) [[The Young Turks|Cenk Uygur]] of [[The Young Turks]] produced a critical segment about [[Nicholas J. Fuentes]], calling him "smug." (01:23:13) [[Woodrow Wilson]] established the [[Federal Reserve]], instituted the federal income tax, and led the [[United States]] into [[World War III|World War I]]. (01:23:30) [[Louis Brandeis]], a [[Supreme Court of the United States|Supreme Court]] Justice and close advisor to [[Woodrow Wilson]], was allegedly involved in brokering a deal for [[United States|U.S.]] entry into [[World War III|World War I]] in exchange for [[United Kingdom|British]] support for a [[Jews|Jewish]] homeland. (01:25:25) [[Nicholas J. Fuentes]] advocates for a "responsible [[Christianity|Christian]] capitalism" rather than socialism. (01:28:30) [[Frame Game Radio]] is recognized as one of the most original and insightful creators of political content on [[Twitter]]. (01:28:50) The "Fourteen Words" white supremacist slogan is framed as no different from the rallying cries of groups like [[Black Lives Matter]], [[La Raza]], or the [[Council on American-Islamic Relations]]. (01:29:12) [[Nicholas J. Fuentes]] rejects fascism and national socialism but is open to authoritarianism, hierarchy, and aristocracy, and opposes democracy as a failed system. (01:30:08) Critics [[who]] advocate "punching right" at other conservatives are accused of lacking strategic thought and contributing to the overwhelming opposition already faced by the right from banks, government, and the [[Republican Party]]. (01:32:06) [[Julian Assange]], though left-leaning, serves a valuable purpose by challenging the establishment through [[WikiLeaks]]. (01:33:02) [[Nicholas J. Fuentes]] scored a 34 on the ACT college entrance exam. (01:33:37) Recommended books for the movement include *Death of the [[Kanye West|West]]* by [[Patrick Buchanan|Pat Buchanan]], *Summa Theologica* by [[Thomas Aquinas|St. Thomas Aquinas]], and works by [[Samuel Huntington|Samuel P. Huntington]], [[Robert D. Kaplan]], and [[Julius Evola]]. (01:36:20) The triumph of modernist empiricism and rationalism in the 20th and 21st centuries has led to widespread spiritual misery, contrary to its promises of human flourishing. (01:37:24) [[Nicholas J. Fuentes]] is of mixed Italian, Mexican, and [[Ireland|Irish]] ancestry. (01:40:06) The [[Pope Francis|Catholic Church]] has been plagued by institutional corruption and pedophilia scandals, potentially linked to the reforms of [[Vatican II]] or [[Freemasonry]] infiltration. (01:40:44) Post-[[Vatican II]] [[Catholic]] Masses conducted in the vernacular often feature mundane homilies that detract from the sacredness of the ritual, unlike the traditional [[Latin Mass]]. (01:42:30) The most efficient method for dealing with communists is "physical removal," a euphemism for violent repression. (01:42:52) [[Islam]] is on a demographic trajectory to potentially conquer [[Europe]] due to mass migration and high birth rates. (01:43:14) Just as [[Israel]] was created as a [[Jews|Jewish]] homeland, [[Nicholas J. Fuentes]] suggested it might be [[time]] for a [[Christianity|Christian]] reconquest of [[City of Istanbul|Constantinople]] and [[Anatolia]]. (01:46:20) [[Aaron Bandler]] of [[The Daily Wire]] accused [[Nicholas J. Fuentes]] of antisemitism for stating that many early [[Bolshevik Party|Bolshevik]] leaders were ethnically [[Jews|Jewish]], a historical fact exemplified by figures like [[Leon Trotsky]] (born Lev Bronstein). (01:48:20) [[Nicholas J. Fuentes]] attributed his successful first week on his independent show to the support of online figures like [[Swag Blog]], [[Paul Miller|Paul Town]], [[Daryl Cooper|Beardson]], [[Wild Goose]], [[Andrew Quackson]], [[Spaceboys]], and [[Stevie Chats]]. (01:48:54) The takedown of the [[Reagan Battalion]] account demonstrated that organized online activists could overcome opponents with alleged high-level connections and resources.
+(00:02:52) The [[Deferred Action for Childhood Arrivals|DACA]] program, created under [[Barack Obama]], provides temporary legal status to certain undocumented immigrants [[who]] entered the [[United States]] as children. (00:03:04) Rumors circulated that Donald Trump was considering canceling the [[Deferred Action for Childhood Arrivals|DACA]] program, with a final decision from [[the White House]] expected the following Tuesday. (00:03:26) [[Paul Ryan]] publicly urged Donald Trump to allow [[Congress]] to address and potentially preserve the [[Deferred Action for Childhood Arrivals|DACA]] program through legislation. (00:04:20) The [[Republican Party]] had failed to repeal the [[Obamacare]] health law despite controlling both houses of [[Congress]] and campaigning on its repeal for years. (00:04:54) Donald Trump was elected on a platform that included ending [[Deferred Action for Childhood Arrivals|DACA]] and removing undocumented immigrants from the [[United States]]. (00:05:19) In April, Donald Trump had stated he would keep [[Deferred Action for Childhood Arrivals|DACA]], causing concern among his immigration-restrictionist supporters. (00:05:42) Donald Trump was [[known]] to test public reaction to policy ideas through back-channel rumors before making a final decision. (00:06:27) Donald Trump, as [[White House|President]] of the [[United States]], has a primary duty to serve the interests of [[United States|American]] citizens over non-citizens. (00:08:46) [[Paul Ryan]] argued that [[Deferred Action for Childhood Arrivals|DACA]] recipients were living in "limbo" and faced difficult circumstances. (00:11:12) In the 1980s, [[Ronald Reagan]] granted amnesty to approximately three million undocumented immigrants in exchange for promised border security measures that were never fully implemented. (00:25:38) An 88-year-old [[Germany|German]] woman named Ursula Haverbeck was sentenced to two years in prison by a court in [[Hamburg]] for [[United States Holocaust Memorial Museum|Holocaust]] denial, a crime in [[Germany]]. (00:26:40) [[Ben Shapiro]], [[Dave Rubin]], and [[Steven Crowder]], prominent figures [[who]] advocate for free speech, were criticized for not speaking out against Ursula Haverbeck's imprisonment. (00:28:30) [[United States Holocaust Memorial Museum|Holocaust]] denial is a criminal offense in 13 countries, including [[Germany]]. (00:31:19) [[Ben Shapiro]] built a multi-million dollar media career primarily on advocating for free speech and open discourse. (00:31:35) [[Ben Shapiro]]'s career was allegedly advanced through nepotistic connections, including his father's assistance in securing jobs and a book deal. (00:32:02) [[Ben Shapiro]]'s public platform frequently focuses on themes of free speech, civil discourse, and the open exchange of ideas. (00:35:50) [[Amazon Inc.|Amazon]]'s acquisition of [[Whole Foods]] was quickly approved by the [[U.S. Antitrust Commission]], which had several vacant seats at the [[time]]. (00:40:29) Support for mass immigration among both the [[Democratic Party]] and the [[Republican Party]] is driven by [[Democratic Party|Democrats]] seeking new voters and [[Republican Party|Republicans]] seeking cheap labor for corporate donors. (00:40:45) [[Cabot Phillips]], a commentator for [[Campus Reform]], supports immigration policies favored by the [[Leadership Institute]] and its corporate donors [[who]] benefit from low-skilled labor. (00:43:10) [[Ben Shapiro]] and others at [[The Daily Wire]] refuse to debate members of the alt-right, despite building their brands on free speech principles. (00:44:21) [[Michael J. Knowles]] of [[The Daily Wire]] had previously interviewed [[James Allsup]]. (00:44:58) On [[Dave Rubin|The Rubin Report]], [[Ben Shapiro]] stated that "real racists" should have their careers and families destroyed through public shaming. (00:45:02) [[Paul Ryan]] opposed Donald Trump's agenda due to lobbying influence, establishment politics, and his own presidential ambitions within the [[Republican Party]]. (00:47:24) [[Nicholas J. Fuentes]] planned to have guests like [[Faith Goldy]], [[Paul Miller|Paul Town]], [[Paul Nehlen]], and possibly [[Richard Spencer]] on future episodes of his show. (00:48:47) [[Nicholas J. Fuentes]] made a bet with Phil Swanson that he would be confronted by a social justice warrior within six weeks of attending classes at [[Auburn University]]. (00:48:57) If he were [[president]], [[Nicholas J. Fuentes]] would immediately terminate [[Deferred Action for Childhood Arrivals|DACA]], triple the size of [[U.S. Immigration and Customs Enforcement|ICE]], and prosecute governors of sanctuary cities. (00:50:50) [[Faith Goldy]] demonstrated courage by appearing on [[The Daily Stormer]] podcast and reporting from the [[Charlottesville rally]] despite significant backlash. (00:51:18) [[Ezra Levant]] of [[The Rebel Media|Rebel Media]] was defended by [[Faith Goldy]] during an internal controversy at the outlet, a stance [[Nicholas J. Fuentes]] disagreed with. (00:52:52) [[Ronald Reagan]]'s hawkish foreign policy and military expansion were a necessary response to the threat posed by the [[Soviet Union]] under leaders like [[Leonid Brezhnev]] and [[Yuri Andropov]]. (00:54:47) [[Thomas Aquinas|St. Thomas Aquinas]] provided sophisticated philosophical arguments for the existence of God and the truth of [[Christianity]] that far surpass the critiques of modern atheists like [[Richard Dawkins]] and [[Christopher Hitchens]]. (00:55:34) [[Christopher Hitchens]] typically debated mainstream [[Christianity|Christian]] figures on television rather than engaging with the philosophical arguments of giants like [[Thomas Aquinas|St. Thomas Aquinas]]. (00:56:56) [[Martin Luther]]'s Protestant Reformation played an important cultural role in Western history, according to historian [[Jacques Barzun]]. (01:00:52) [[Nicholas J. Fuentes]] receives frequent unsolicited emails from viewers containing elaborate but impractical plans for political projects, stage plays, and economic models. (01:02:50) The alt-right conspiracy theory posits that a secret, omnipotent cabal controls world events and silences dissenters, yet demands public figures explicitly oppose it. (01:02:55) [[Barack Obama]]'s rapid withdrawal of troops from [[Iraq]] created a power vacuum that contributed to the rise of the [[Islamic State of Iraq and Syria|ISIS]] terrorist group. (01:03:24) [[Nicholas J. Fuentes]] expressed interest in interviewing [[Timothy Gionet|Baked Alaska]] following his involvement in the [[Charlottesville rally]]. (01:04:39) [[Christopher Cantwell]] faced up to 60 years in prison for pepper-spraying a counter-protester at the [[Charlottesville rally]], a sentence critics deemed excessively harsh for a political activist. (01:06:06) Donald Trump joked that he would build a border wall using the skulls of transgender people. (01:06:12) [[Jesse Jackson]] claimed Donald Trump would not get into heaven because of his immigration policies. (01:06:24) Secession of states like [[State of California|California]] or [[State of Texas|Texas]] is unrealistic because the federal government relies on their massive economic contributions through tax revenue. (01:06:30) The [[Civil War|American Civil War]] was fundamentally fought over tax revenue, as Southern states provided 70% of federal tariff income before seceding. (01:07:08) A military solution involving [[China]], [[State of Japan|Japan]], [[Russia]], and the [[Philippines]] may be necessary to eliminate the nuclear threat from [[North Korea]] if diplomacy fails. (01:08:15) [[Nicholas J. Fuentes]] and [[James Allsup]] position themselves as creators of a positive, ideologically coherent alternative to what they see as the opportunistic critique of figures like [[Ben Shapiro]]. (01:09:01) [[Millennial Matt]] is considered a good-hearted and humorous figure within the online political sphere, though his views sometimes fall outside the mainstream Overton window. (01:10:58) [[Paul Miller|Paul Town]] is regarded as a sincere and well-intentioned activist, in contrast to many others in politics [[who]] are seen as opportunistic. (01:11:27) [[Richard Spencer]]'s alt-right strategy employs controversial [[Germany|Nazi]] and [[Ku Klux Klan|KKK]] aesthetics to create an exclusive movement, but its effectiveness in achieving political change is questioned. (01:14:12) [[Nicholas J. Fuentes]] was suspended from [[Twitter]] for posting a meme that [[Kassy Dillon|Cassie Dillon]] interpreted as a threat, leading her to contact his employer. (01:15:34) [[Nicholas J. Fuentes]] and [[Rightside Broadcasting]] parted ways mutually after the [[Charlottesville rally]], as his controversial political movement was incompatible with their need for access to Donald Trump's [[White House]]. (01:17:16) [[Samuel J. Hyde|Sam Hyde]] is a controversial comedian considered dangerous by some for his edgy content. (01:19:44) [[Nicholas J. Fuentes]] is a fan of [[France|French]] nationalist politician [[Marine Le Pen]]. (01:19:53) [[Alex Jones]] is seen as lacking a coherent political ideology despite his influential media platform. (01:20:33) [[Robert E. Lee]] was related to a wide array of historical figures, including boxer [[Muhammad Ali]]. (01:22:51) [[The Young Turks|Cenk Uygur]] of [[The Young Turks]] produced a critical segment about [[Nicholas J. Fuentes]], calling him "smug." (01:23:13) [[Woodrow Wilson]] established the [[Federal Reserve]], instituted the federal income tax, and led the [[United States]] into [[World War III|World War I]]. (01:23:30) [[Louis Brandeis]], a [[Supreme Court of the United States|Supreme Court]] Justice and close advisor to [[Woodrow Wilson]], was allegedly involved in brokering a deal for [[United States|U.S.]] entry into [[World War III|World War I]] in exchange for [[United Kingdom|British]] support for a [[Jews|Jewish]] homeland. (01:25:25) [[Nicholas J. Fuentes]] advocates for a "responsible [[Christianity|Christian]] capitalism" rather than socialism. (01:28:30) [[Frame Game Radio]] is recognized as one of the most original and insightful creators of political content on [[Twitter]]. (01:28:50) The "Fourteen Words" white supremacist slogan is framed as no different from the rallying cries of groups like [[Black Lives Matter]], [[La Raza]], or the [[Council on American-Islamic Relations]]. (01:29:12) [[Nicholas J. Fuentes]] rejects fascism and national socialism but is open to authoritarianism, hierarchy, and aristocracy, and opposes democracy as a failed system. (01:30:08) Critics [[who]] advocate "punching right" at other conservatives are accused of lacking strategic thought and contributing to the overwhelming opposition already faced by the right from banks, government, and the [[Republican Party]]. (01:32:06) [[Julian Assange]], though left-leaning, serves a valuable purpose by challenging the establishment through [[WikiLeaks]]. (01:33:02) [[Nicholas J. Fuentes]] scored a 34 on the ACT college entrance exam. (01:33:37) Recommended books for the movement include *Death of the [[Kanye West|West]]* by [[Patrick Buchanan|Pat Buchanan]], *Summa Theologica* by [[Thomas Aquinas|St. Thomas Aquinas]], and works by [[Samuel Huntington|Samuel P. Huntington]], [[Robert D. Kaplan]], and [[Julius Evola]]. (01:36:20) The triumph of modernist empiricism and rationalism in the 20th and 21st centuries has led to widespread spiritual misery, contrary to its promises of human flourishing. (01:37:24) [[Nicholas J. Fuentes]] is of mixed Italian, Mexican, and [[Ireland|Irish]] ancestry. (01:40:06) The [[Catholic Church]] has been plagued by institutional corruption and pedophilia scandals, potentially linked to the reforms of [[Vatican II]] or [[Freemasonry]] infiltration. (01:40:44) Post-[[Vatican II]] [[Catholic]] Masses conducted in the vernacular often feature mundane homilies that detract from the sacredness of the ritual, unlike the traditional [[Latin Mass]]. (01:42:30) The most efficient method for dealing with communists is "physical removal," a euphemism for violent repression. (01:42:52) [[Islam]] is on a demographic trajectory to potentially conquer [[Europe]] due to mass migration and high birth rates. (01:43:14) Just as [[Israel]] was created as a [[Jews|Jewish]] homeland, [[Nicholas J. Fuentes]] suggested it might be [[time]] for a [[Christianity|Christian]] reconquest of [[Constantinople]] and [[Anatolia]]. (01:46:20) [[Aaron Bandler]] of [[The Daily Wire]] accused [[Nicholas J. Fuentes]] of antisemitism for stating that many early [[Bolshevik Party|Bolshevik]] leaders were ethnically [[Jews|Jewish]], a historical fact exemplified by figures like [[Leon Trotsky]] (born Lev Bronstein). (01:48:20) [[Nicholas J. Fuentes]] attributed his successful first week on his independent show to the support of online figures like [[Swag Blog]], [[Paul Miller|Paul Town]], [[Daryl Cooper|Beardson]], [[Wild Goose]], [[Andrew Quackson]], [[Spaceboys]], and [[Stevie Chats]]. (01:48:54) The takedown of the [[Reagan Battalion]] account demonstrated that organized online activists could overcome opponents with alleged high-level connections and resources.
 
 ### AF 2017-08-31 0006
 (01:09:33) [[Nicholas J. Fuentes]] argued that eight years of [[Barack Obama]]'s presidency, which he characterized as an "acceleration" of leftist policies, created the conditions for the election of Donald Trump.
@@ -31124,7 +31124,7 @@
 (00:59:00) [[Nicholas J. Fuentes]] listed the five most important political priorities for the Trump administration as building the border wall, implementing the "[[Islam|Muslim]] ban," and reforming trade, taxes, and healthcare.
 
 ### AF 2017-08-28 0003
-(09:42:26) [[Nicholas J. Fuentes]] stated that [[Stephen Miller]] was the last [[person]] in the Trump [[White House]], besides the president himself, [[who]] still believed in the "[[America First]]" revolution, following the ousting of [[Sebastian Gorka]] and [[Steven Crowder|Steve Bannon]].
+(09:42:26) [[Nicholas J. Fuentes]] stated that [[Stephen Miller]] was the last [[person]] in the Trump [[White House]], besides the president himself, [[who]] still believed in the "[[America First]]" revolution, following the ousting of [[Sebastian Gorka]] and [[Steve Bannon]].
 
 ### AF 2021-05-27 0818
 (07:57:040) [[Jeremy Boreing]], owner of [[The Daily Wire]], stated that the "[[America First]]" slogan, used by Donald Trump, represents a government focus on [[United States|The United States]].
@@ -31140,3 +31140,4059 @@
 
 ### AF 2021-05-27 0818
 (11:16:880) [[Ben Shapiro]] accused Donald Trump of being anti-Semitic.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(00:44:18) During his administration, Donald Trump committed to prioritizing [[United States|America]] in all policies.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:31:07) [[Nicholas J. Fuentes]] announced that he would cover the recent assassination attempt against Donald Trump.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:31:30) [[Nicholas J. Fuentes]] discussed an attempted assassination against Donald Trump and members of his cabinet at [[the White House]] Correspondents' Dinner.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:32:28) [[Nicholas J. Fuentes]] expressed that he found the attempted assassination against Donald Trump uninteresting and that he personally did not care about it.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:32:49) [[Nicholas J. Fuentes]] initially found the assassination attempt against Donald Trump shocking but questioned its significance after about 12 hours.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:33:32) A left-wing gunman, described as a "nut job," arrived at the hotel where Donald Trump was present, carrying a shotgun and a handgun with the intent to kill Donald Trump and his cabinet members.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:33:38) The gunman, [[who]] attempted to assassinate Donald Trump, left a manifesto detailing his intentions to kill Donald Trump and his cabinet, and potentially [[Secret Service]] agents.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:33:49) The assassination attempt by [[the left]]-wing gunman resembled a previous attempt by a "resistance, liberal, nut job" [[who]] supported [[Ukraine]] and targeted Donald Trump at a golf course.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:34:05) The most disturbing aspect of the assassination attempt was the immediate dissemination of talking points to MAGA influencers, which suggested a coordinated social influence campaign.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:34:37) Key MAGA influencers, including [[Jack Posobiec]], [[Libs of TikTok]], and Brylan Hollihand, posted a coordinated message on [[Twitter]] following the assassination attempt.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:34:54) Following the assassination attempt on Donald Trump, MAGA influencers promoted the idea that a [[White House]] ballroom was necessary to prevent future incidents.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:35:19) [[Nicholas J. Fuentes]] asserted that MAGA influencers cynically exploited the assassination attempt to advocate for building a [[White House]] ballroom, which he viewed as an unexciting part of Donald Trump's agenda.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:35:55) [[Nicholas J. Fuentes]] questioned the political outcomes for the Donald Trump movement over the past decade, including multiple assassination attempts and political persecution, which he felt resulted primarily in "a war with [[Iran]], a corporate tax cut, weed legalization, and a [[White House]] ballroom."
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:36:20) [[Nicholas J. Fuentes]] observed that politics often involves using crises as opportunities to advance an agenda, but questioned the ultimate gains of the Donald Trump movement over the past 10 years, despite various crises.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:37:11) [[Nicholas J. Fuentes]] stated that the MAGA movement had not achieved key policy goals such as mass deportations, an infrastructure bill, a ban on [[Super PAC|Super PACs]], or a closer relationship with [[Russian Federation|Russia]].
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:37:35) [[Nicholas J. Fuentes]] questioned the value of the sacrifices and bloodshed within the MAGA movement over the past ten years, if the results were merely "a war with [[Iran]], a corporate tax cut, weed legalization, and a [[White House]] ballroom."
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:37:52) [[Nicholas J. Fuentes]] contended that reliance on Donald Trump as a "fearless leader" led to outcomes such as a war with [[Iran]], corporate tax cuts, weed legalization, and a [[White House]] ballroom.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:38:10) [[Nicholas J. Fuentes]] asserted that if Donald Trump's administration ran the government and faced assassination attempts, they should be arresting political opponents rather than pursuing a [[White House]] ballroom.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:39:01) [[Nicholas J. Fuentes]] criticized the Donald Trump administration for offering a [[White House]] ballroom and a war with [[Iran]] as a "consolation" for ongoing political struggles.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:44:08) The [[Southern Poverty Law Center|SPLC]] indictment, which named about 30 confidential informants, led [[Laura Loomer]] and other MAGA influencers to accuse [[Nicholas J. Fuentes]] of being paid by the [[Southern Poverty Law Center|SPLC]] due to his lack of support for Donald Trump.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:56:59) [[Nicholas J. Fuentes]] denied meeting with the [[Vatican]], [[Barack Obama]], and [[Candace Owens]] to plot against Donald Trump, jokingly adding he would have taken the meeting if offered.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(02:02:11) [[Nicholas J. Fuentes]] described the news as "boring" but noted he still had a "take" on the featured story of the third assassination attempt against Donald Trump.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(02:02:24) [[Nicholas J. Fuentes]] questioned why "everybody" seemed intent on killing Donald Trump, suggesting that Donald Trump might be "putting something bad out into the universe."
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(02:02:41) [[Nicholas J. Fuentes]] stated that the third assassination attempt on Donald Trump occurred at [[the White House]] Correspondents' Dinner and involved another "resistance liberal nut job" from [[State of California|California]], described as "[[black]] or partially [[black]]" and a schoolteacher.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(02:02:53) The assassin booked a room at the [[Washington Hilton]] the day before [[the White House]] Correspondents' Dinner, which Donald Trump, [[Vice President Vance]], and members of the cabinet were scheduled to attend.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:56:49.960) The [[Canary Mission]], an [[organization]] funded by [[Israel]], has been confirmed since July 2025 as being used by the Donald Trump administration to identify and [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:44.690) Donald Trump was elected in the 2016 election with assistance from [[Israel]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:53.820) [[James Bamford]]'s book *Spy Fail* contains an excerpt detailing hidden collusion between Donald Trump and [[Israel]] in the 2016 election, rather than collusion between Donald Trump and [[Russian Federation|Russia]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:27.770) In 2018, Donald Trump designated the [[Iran|IRGC]] ([[Iran|Revolutionary Guard]]), which functions as the military of [[Iran]], as a terrorist group, thereby authorizing sanctions and attacks against it.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:02:05.960) [[Israel]]'s opposition to [[Barack Obama]]'s nuclear deal led to their collaboration with Donald Trump to secure his election.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:02:08.280) Donald Trump's election strategy involved applying "maximum pressure" on [[Iran]] and initiating an escalation by withdrawing from the nuclear deal, designating the [[Iran|IRGC]] as terrorists, and assassinating its leader, [[Qasem Soleimani]], while imposing sanctions on the [[Iran|Iranian regime]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:02:20.650) The war with [[Iran]] started long before and was intensified by Donald Trump in 2018, continuing for seven years, similar to "forever wars" in [[Iraq]] (1990-present), [[State of Libya|Libya]] (2011-present), and [[Syria]] (2011-present).
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:11.180) Donald Trump proclaimed a two-week ceasefire with [[Iran]] on Tuesday, stating that it included a two-week truce.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:21.600) The conditions of the truce, as announced by Donald Trump, required [[Iran]] to open the Strait to commercial shipping, while the [[United States]] and [[Iran]] would meet in [[Pakistan]] to negotiate a comprehensive peace deal.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:41.040) Immediately after Donald Trump's announcement, [[Iran]] stated that the ceasefire was more extensive than described, claiming it also covered hostilities between [[Israel]] and [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:34:35.380) Donald Trump claimed that he had convinced [[Israel]] to halt its operations in [[Lebanon]], despite yesterday being the deadliest day of [[Israel]]'s war in [[Lebanon]] since its resumption a month prior.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:35:58.830) [[Nicholas J. Fuentes]] learned that Donald Trump did not consent to [[Iran]] charging a toll for commercial shipping through the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:37:21.430) Earlier today, Donald Trump made a post on [[Cozy.tv|Truth Social]] criticizing [[Alex Jones]], [[Megyn Kelly|Megan Kelly]], [[Tucker Carlson]], and [[Candace Owens]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:38:07.370) Donald Trump published a 500-word post on [[Cozy.tv|Truth Social]], condemning major [[Israel]]-critical and anti-war commentators like [[Alex Jones]], [[Candace Owens]], [[Tucker Carlson]], and [[Megyn Kelly|Megan Kelly]], whom he referred to as "bankrupt," "crazy," and by other derogatory terms.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:38:54.860) Donald Trump previously stated that those interested in the [[Jeffrey Epstein|Epstein]] files were not part of the MAGA movement.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:39:14.350) [[Marjorie Taylor Greene]] and [[Thomas Massie]] were previously criticized by Donald Trump.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:07.840) Donald Trump humorously suggested that [[Brigitte Macron]] was "far prettier" than [[Candace Owens]], after [[Candace Owens]] allegedly claimed the First Lady of [[France]] was a man.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:29.710) All the individuals criticized by Donald Trump in his [[Cozy.tv|Truth Social]] post, including [[Tucker Carlson]], [[Candace Owens]], [[Alex Jones]], and [[Megyn Kelly|Megan Kelly]], had previously voted for him.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:41.610) [[Nicholas J. Fuentes]] stated that he did not vote for Donald Trump and has not been disavowed by him, even after a dinner meeting and being discussed on [[Tucker Carlson]]'s show.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:41:18.590) Individuals [[who]] dedicated their lives to Donald Trump, served in his cabinet, lost their livelihoods, or went to jail for him, have been publicly disavowed and humiliated.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:41:51.050) [[Nicholas J. Fuentes]] believes he made a strong first impression on Donald Trump, leading to a hypothetical scenario where Donald Trump would resist pressure from "[[Jews]] in [[the White House]]" to disavow him.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:41:51.050) [[Nicholas J. Fuentes]] believes he made a strong first impression on Donald Trump, leading to a hypothetical scenario where Donald Trump would resist pressure from "[[Jews]] in [[the White House]]" to disavow him.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:42:26.360) Donald Trump reportedly saw [[Nicholas J. Fuentes]] as a "smart young man" and a "good guy" during their meeting.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:43:07.330) [[Nicholas J. Fuentes]] believes Donald Trump recognizes a shared understanding, stating, "Trump knows ball and ball knows me."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:45:58.180) *[[The Wall Street Journal]]* reported that Donald Trump labeled [[Tucker Carlson]], [[Megyn Kelly]], [[Candace Owens]], and [[Alex Jones]] as "losers and stupid people" in a 500-word [[Cozy.tv|Truth Social]] post on Thursday, accusing them of seeking publicity and saying anything for it.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:46:52.730) Donald Trump's 500-word post on [[Cozy.tv|Truth Social]] launched a "devastating" attack on [[Alex Jones]], [[Megyn Kelly]], [[Candace Owens]], [[Tucker Carlson]], and [[Marjorie Taylor Greene|Marjorie Greene]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:47:17.360) Donald Trump stated that [[Tucker Carlson]], [[Megyn Kelly]], [[Candace Owens]], and [[Alex Jones]] had "low IQs" and were "stupid people" [[who]] had been "fighting" him for years.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:47:51.790) Donald Trump asserted that [[Tucker Carlson]], [[Megyn Kelly]], [[Candace Owens]], and [[Alex Jones]] had been "thrown off television" and "lost their shows" because "nobody cares about them."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:02.590) Donald Trump claimed that [[Tucker Carlson]], [[Megyn Kelly]], [[Candace Owens]], and [[Alex Jones]] were "nutjobs" and "troublemakers" [[who]] would "say anything necessary for some free and cheap publicity."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:13.080) Donald Trump declared that the views of [[Tucker Carlson]], [[Megyn Kelly|Megan Kelly]], [[Candace Owens]], and [[Alex Jones]] were "the opposite of MAGA."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:33.000) Donald Trump described [[Tucker Carlson]] as someone [[who]] "couldn't even finish college" and was "a broken man" after being fired from [[Fox News]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:46.300) Donald Trump criticized [[Megyn Kelly]] for her "nastily" posed question about [[Rosie O'Donnell]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:53.610) Donald Trump criticized "crazy [[Candace Owens]]" for falsely accusing the "highly respected First Lady of [[France]]" (referring to [[Brigitte Macron]]) of being a man, and suggested that [[Brigitte Macron]] was "far more beautiful" than [[Candace Owens]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:49:14.110) Donald Trump referred to [[Alex Jones]] as "bankrupt" and criticized him for "dumbest things" he said and for losing his "entire fortune" due to his "horrendous attack" on the families of the [[Sandy Hook shooting]] victims by claiming it was a hoax.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:50:33.870) Donald Trump labeled the criticized pundits ([[Alex Jones]], [[Megyn Kelly]], [[Candace Owens]], [[Tucker Carlson]]) as "losers."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:50:46.780) Donald Trump noted that "fake new [[Warner Bros. Discovery|CNN]]," *[[The New York Times]]*, and other "radical left news organizations" were giving positive press to these pundits for the first [[time]] in their lives.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:50:53.460) Donald Trump stated that the pundits are not MAGA, but "losers just trying to latch onto MAGA."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:51:06.150) Donald Trump asserted that he could get these pundits on his side anytime but does not return their calls because he is "too busy on world and [[country]] affairs."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:51:11.310) Donald Trump stated that after a few unanswered calls, these pundits become "nasty," similar to [[Marjorie Taylor Greene]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:51:24.610) Donald Trump defined MAGA as "winning and strength and not allowing [[Iran]] to have nuclear weapons."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:51:48.710) Donald Trump's 500-word [[Cozy.tv|Truth Social]] post indicates his strong disapproval of several conservative figures.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:52:16.230) [[Nicholas J. Fuentes]] believes Donald Trump has "betrayed MAGA," turning a movement that began in opposition to war into one responsible for wars.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:18.610) [[Alex Jones]], [[Megyn Kelly]], [[Tucker Carlson]], and [[Candace Owens]] consistently supported and voted for Donald Trump for ten years.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:28.680) Several individuals campaigned for Donald Trump in 2024, with some speaking at the convention.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:53:43.740) [[Alex Jones]] has frequently defended Donald Trump, including his involvement in "stop the steal" efforts, his 2016 campaign, and against the "[[Russian Federation|Russia]] investigation."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:54:18.290) [[Alex Jones]] was financially ruined by [[the left]] and received no assistance from Donald Trump, [[who]] was in office at the [[time]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:54:36.030) Donald Trump did not assist [[Alex Jones]] in preventing his censorship from the internet during his first term.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:54:38.750) Donald Trump has offered no help to [[Alex Jones]] in his second term regarding the "ridiculous lawsuit" and "ongoing witch hunt" from the [[U.S. Department of Justice|Department of Justice]] and [[the left]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:55:08.480) Donald Trump will betray his supporters, including [[Alex Jones]], the moment they express disagreement with his policies, even if those policies contradict his previous campaign promises.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:55:35.200) [[Nicholas J. Fuentes]] advises people to "take your own side" and not be loyal to Donald Trump, describing him as a "treacherous [[person]]."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:56:14.960) Many close allies of Donald Trump, including [[Jefferson Beauregard Sessions III|Jeff Sessions]], [[Ann Coulter]], [[Steve Bannon]], [[Michael Flynn]], and his campaign manager (whose name is not specified), faced legal issues, financial ruin, or were discarded after supporting him.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:57:04.960) [[Nicholas J. Fuentes]] compares Donald Trump to a scorpion stinging a frog, stating it's in his nature to betray, and advises against personalizing his actions.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:57:20.460) [[Nicholas J. Fuentes]] considers Donald Trump a politician and a billionaire, not a "savior of Western civilization."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:57:54.490) The MAGA movement elevated Donald Trump to an "extraordinary degree."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:58:07.410) Donald Trump was motivated by his "own legacy" and "aggrandizement," seeking to leave his mark on history by becoming [[president]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:58:45.600) Supporters believed that by making Donald Trump their leader and allowing the movement to be about him, he would deliver benefits to the people through a populist uprising.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:59:14.940) During his first term, Donald Trump betrayed his own people, as campaign staff did not receive administrative jobs and those [[who]] stormed the [[United States Capitol]] on [[January 6th Attack|January 6th]] did not receive pardons and went to jail.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:59:30.320) Individuals [[who]] staunchly supported Donald Trump during "[[Russian Federation|Russia]] gate" and wore MAGA hats were eventually "discarded, humiliated, mocked, and betrayed."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:59:45.200) Donald Trump did not pardon the J6ers, put [[Hillary Clinton]] in jail, build the wall, make allies with [[Russian Federation|Russia]], or "put [[Israel]] in its place," failing to deliver on his promises.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:00:05.390) [[Nicholas J. Fuentes]] questions why anyone would still owe loyalty to Donald Trump in 2024, given the lack of fulfilled promises and the sacrifices made by supporters.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:00:20.720) Many supporters of Donald Trump participated in "stop the steal" efforts, fought "the meme war" online, and faced personal consequences such as ostracization, job loss, expulsion, physical assault, [[Twitter]] bans, and imprisonment.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:00:52.880) Supporters of Donald Trump were ultimately "rewarded" with a vaccine, [[Black Lives Matter]] riots, and jail sentences after [[January 6th Attack|January 6th]], and did not see their [[Twitter]] accounts reinstated or a "tech bill of rights."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:01:12.280) In 2024, "Groypers," including [[Nicholas J. Fuentes]], advocated for prioritizing "[[America First]]" over Donald Trump or the [[Republican Party]], recognizing that Donald Trump was unable to deliver on this.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:01:46.720) [[Tucker Carlson]], [[Megyn Kelly|Megan Kelly]], and [[Candace Owens]], along with [[Alex Jones]], encouraged voters to support Donald Trump in 2024.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:02:29.960) [[Megyn Kelly|Megan Kelly]] stated she would continue to vote for [[Republican Party|Republicans]] in the midterms, even if Donald Trump were to initiate a nuclear attack on [[Iran]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:03:07.620) In July 2024, [[Tucker Carlson]] attended the [[Republican Party|Republican National Committee]] convention and declared Donald Trump the "leader of our nation," despite not being [[president]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:03:37.890) [[Tucker Carlson]] now suggests that Donald Trump "might be the anti-[[Jesus Christ|Christ]]" and believes "nobody could go against [[Israel]]."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:04:34.530) [[Nicholas J. Fuentes]] believes Donald Trump is the root cause of the current issues.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:05:06.230) Donald Trump maintains high favorability among [[Republican Party|Republicans]] and older generations, such as "boomers" and some "Gen Xers," despite engaging in war.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:05:59.420) Donald Trump is damaging the MAGA movement by using [[Cozy.tv|Truth Social]] to declare that supporters of [[Mark Levin]] or his war in [[Iran]] are not MAGA, and that [[Tucker Carlson]], [[Megyn Kelly|Megan Kelly]], [[Alex Jones]], [[Candace Owens]], and [[Marjorie Taylor Greene]] are "idiots."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:07:11.380) Donald Trump is "sucking all the oxygen out of the room" by occupying the leadership position of the movement, preventing any true "[[America First]]" movement from emerging or being imagined.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:07:34.660) The political and financial support that could go towards an "[[America First]]" movement is instead being channeled into the "Trump machine," including Donald Trump-controlled [[Republican Party]] [[super PACs]] and candidates endorsed by Donald Trump.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:08:16.310) Donald Trump is "suffocating" any genuine "[[America First]]" movement that might arise.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:09:13.700) [[Nicholas J. Fuentes]] believes that a confrontation with the [[Israel]] lobby could never happen because Donald Trump was the presumptive nominee.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:09:31.690) Donald Trump dictates that the "law of the land" includes supporting [[Mark Levin]], [[Lindsey Graham]], a war with [[Iran]], and withholding the [[Jeffrey Epstein|Epstein]] files, along with pursuing "criminal illegals" but opposing mass deportations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:09:51.870) Donald Trump's position makes it impossible for anyone to challenge his agenda, as he "suffocates" any dissent.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:10:08.290) [[Nicholas J. Fuentes]] believed in 2024 that it would have been better if Donald Trump lost the election, predicting that his victory would lead to complacency, a war in [[Iran]], no mass deportations, and a deradicalization of his base.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:10:36.840) [[Nicholas J. Fuentes]] predicted that if Donald Trump won, people would believe elections were no longer rigged, sigh with relief, make excuses for him, and by 2028, be ready for a "left-wing economic populist" or "anthropic alignment safety oriented [[Artificial Intelligence|AI]] program."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:11:55.550) [[Nicholas J. Fuentes]] argued that if Donald Trump lost, people would remain angry, his legacy as a "radical" would be preserved, and a "right-wing radicalism" could emerge by 2028 from the "anger and resentment" that was incubated.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:13:03.940) Donald Trump, [[who]] advocated for "Golden Age, [[America First]], No New Wars, Mass Deportations," published a 500-word criticism of [[Megyn Kelly]], [[Candace Owens]], [[Tucker Carlson]], [[Marjorie Taylor Greene]], and [[Alex Jones]] because they opposed a war with [[Iran]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:02.480) Even [[Alex Jones]] is now criticizing Donald Trump.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:10.630) Donald Trump is explicitly removing his former supporters from the MAGA movement by name for opposing the war in [[Iran]], while promoting figures like [[Mark Levin]], [[Laura Loomer]], and [[Lindsey Graham]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:39.040) As of 2026, Donald Trump's MAGA movement advocates for war with [[Iran]], opposing the release of the [[Jeffrey Epstein|Epstein]] files, and supports figures like [[Mark Levin]], [[Laura Loomer]], and [[Lindsey Graham]] over [[Tucker Carlson]], [[Candace Owens]], [[Megyn Kelly]], and [[Alex Jones]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:15:37.810) [[Nicholas J. Fuentes]] asserts that Donald Trump no longer has "young fans" or "young supporters," especially those [[who]] were "creative, fun, edgy, intelligent" and brought energy in 2016.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:16:27.210) [[Nicholas J. Fuentes]] asserts that while Donald Trump and his older supporters will not be politically relevant in 20 years, he and other young people will be, having abandoned the MAGA movement.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:16:40.580) [[Nicholas J. Fuentes]] calls for discarding Donald Trump and the MAGA movement to pursue an "actual [[America First]] movement" that is "more radical and more extreme."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:17:37.380) [[Nicholas J. Fuentes]] advocates for taking the "baton" of the movement from Donald Trump's "tiny hands," metaphorically "euthanizing" the MAGA movement and carrying it forward, with young people ("Groypers") being the ones to do it.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:19:44.710) [[Nicholas J. Fuentes]] states that Donald Trump is not a white nationalist, a [[Christianity|Christian]], or a believer in God.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:19:56.110) Donald Trump is described as loving [[Israel]] and being "practically a [[Jews|Jew]] himself" due to his background in [[New York]] real estate.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:21:21.620) The initial ceasefire deal, as announced by Donald Trump on Tuesday night, was intended to prevent an "apocalyptic annihilation attack" on [[Iran]] that he had threatened for the past week.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:25:26.720) Donald Trump and [[Benjamin Netanyahu|Netanyahu]] denied that the ceasefire extended to [[Lebanon]] or included the 10-point plan, asserting that the [[United States]] only agreed to a two-week ceasefire, opening the Strait, and negotiations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:25:54.320) [[Pakistan]] reiterated that the [[United States]] had agreed to a ceasefire in [[Lebanon]], contradicting Donald Trump and [[Benjamin Netanyahu|Netanyahu]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:29:55.300) Today, Donald Trump expressed dissatisfaction on [[Cozy.tv|Truth Social]] that [[Iran]] was not sufficiently allowing shipping through the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:30:18.340) Today, Donald Trump expressed disagreement with [[Iran]] charging a toll of $1 per barrel of oil for ships passing through the Strait, despite seeming to support it a couple of days prior.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:30:50.360) Today, Donald Trump stated he would attempt to persuade [[Israel]] to cease operations in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:36:23.950) A report indicates that Donald Trump is still seeking assistance from [[North Atlantic Treaty Organization|NATO]] countries to open the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:36:35.870) Donald Trump stated that the [[United States]] would acquire oil regardless of [[Iran]]'s consent.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:36:40.890) The idea has been floated that Donald Trump might redeploy [[United States]] troops in [[Europe]] from uncooperative [[North Atlantic Treaty Organization|NATO]] countries to those willing to assist in opening the Strait.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:37:13.900) Donald Trump has threatened to penalize [[North Atlantic Treaty Organization|NATO]] countries that do not assist the [[United States]] with [[Iran]] by withdrawing [[United States]] troops from their territories.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:38:41.860) Donald Trump stated that the [[United States]] would keep its "armada in the [[region]]" until the Strait is reopened.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:39:20.160) The ceasefire and negotiations are interpreted as a strategy by Donald Trump to escape his "own escalation trap," buying [[time]] to secure more support from [[North Atlantic Treaty Organization|NATO]], Gulf, and Pacific allies and to deploy more military assets to the [[region]] for an eventual attempt to open the Strait.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:09:20) Donald Trump threatened to annihilate [[Iran]] and its civilization if it failed to open the [[Strait of Hormuz]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:09:33) Approximately 90 minutes before the ultimatum's deadline, Donald Trump announced that a ceasefire had been successfully negotiated.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:18:23) [[Nicholas J. Fuentes]] characterized the second Donald Trump administration as a "disaster" where all initiatives have failed.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:18:30) The [[Supreme Court of the United States|Supreme Court]] rejected Donald Trump's tariffs.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:18:30) Doge, an initiative by Donald Trump's administration, failed to save money and was terminated within three months.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:18:40) Key [[White House]] allies, including [[Marjorie Taylor Greene|Marjorie Greene]], [[Tucker Carlson]], and [[Megyn Kelly]], openly criticize Donald Trump on a daily basis.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:19:42) The war against [[Iran]] was a "war of choice and aggression" that contradicted Donald Trump's campaign promise of "no new wars."
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:20:23) [[Nicholas J. Fuentes]] observed that Donald Trump's prominent supporters have not displayed humility or admitted any mistakes regarding the war or their "golden age" narrative.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:22:17) A significant segment of "plan trusters," or Donald Trump supporters [[who]] voted for him multiple times, are now reluctantly admitting their errors and recognizing that [[Israel]]'s interests are being prioritized.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:23:20) These "plan trusters" propose supporting [[JD Vance]] in the 2028 presidential election as a solution to perceived failures within Donald Trump's administration.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:23:43) "Plan trusters" were repeatedly deceived by Donald Trump's rhetoric in the 2016, 2020, and 2024 elections.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:26:03) Individuals such as [[Sneeko|Sneako]], [[Tucker Carlson]], and [[Candace Owens]] are belatedly acknowledging Donald Trump as "the problem," particularly after the [[United States]] entered into war with [[Iran]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:27:00) [[Nicholas J. Fuentes]] asserted that individuals [[who]] supported Donald Trump in 2024 but are now criticizing the war in [[Iran]] lack credibility for future political endorsements.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:27:37) [[Tucker Carlson]] described Donald Trump as the "anti-[[Jesus Christ|Christ]]," a realization that occurred two years into the administration.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:28:05) [[Candace Owens]] is advocating for the 25th Amendment to remove Donald Trump from office, acknowledging this need "a year and a half in" to his term.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:28:45) [[Megyn Kelly]], while critical of Donald Trump and [[Israel]], consistently affirmed her commitment to voting [[Republican Party|Republican]] regardless of circumstances.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:29:14) [[Megyn Kelly]] publicly declared her intention to "vote [[Republican Party|Republican]] every [[time]]," even if Donald Trump were to use nuclear weapons against [[Iran]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:30:25) [[JD Vance]], present in the [[White House]] while Donald Trump was at Mar-a-Lago, advocated for aggressive attacks on [[Iran]] without any internal cabinet dissent.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:31:48) [[Benjamin Netanyahu|Netanyahu]] allegedly paid Donald Trump $100 million in exchange for promises of regime change in [[Iran]] and the annexation of the [[Gaza Strip|West Bank]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:32:51) [[Nicholas J. Fuentes]] asserted that the public cannot influence Donald Trump because he does not engage with public opinion and is isolated by advisors like [[Susie Wiles]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:33:11) [[Susie Wiles]], a lobbyist from [[State of Florida|Florida]], has managed Donald Trump's operations since 2021.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:33:25) Pro-[[Israel]] figures from [[State of Florida|Florida]], including [[Susie Wiles]], [[Marco Rubio]], [[Michael Waltz|Mike Waltz]], and [[Pam Bondi]], are closely associated with Donald Trump.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:33:40) Key individuals [[who]] hold influence with Donald Trump include [[Mark Levin]], [[Laura Loomer]], [[Ben Shapiro]], [[Jared Kushner]], [[William Ackman|Bill Ackman]], [[Steve Wittkoff|Steve Witkoff]], and [[Howard Lutnick]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:34:27) [[Nicholas J. Fuentes]] stated that if [[Republican Party|Republicans]] retain control of [[U.S. Congress|United States Congress]], they would obstruct any war powers resolution against Donald Trump, block the disclosure of the [[Epstein Files]], and allocate $1.5 trillion for the military and further conflicts in the [[Middle East]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:34:44) [[Nicholas J. Fuentes]] intends to vote for [[Democratic Party|Democrats]] in 2026 to penalize [[Republican Party|Republicans]] and to enable [[Democratic Party|Democrats]] to gain control of the [[U.S. Congress|House]] and [[U.S. Congress|Senate]] and to disrupt the Donald Trump administration.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:08:41) Donald Trump had set an ultimatum for [[Iran]], with a deadline to strike its power plants and bridges.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:08:47) The deadline for Donald Trump's threatened strikes on [[Iran]]'s infrastructure was 8 PM Eastern [[time]], with the ceasefire announcement coming approximately 90 minutes beforehand.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:09:40) The ambiguous terms of the ceasefire were evident from the language used in Donald Trump's announcement on [[Cozy.tv|Truth Social]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:09:49) The evolving details regarding the fate of [[Iran]] and global affairs were being disseminated through Donald Trump's [[Cozy.tv|Truth Social]] posts.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:10:02) The language in Donald Trump's [[Cozy.tv|Truth Social]] announcement of the ceasefire suggested uncertainty regarding [[Iran]]'s compliance.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:10:08) Donald Trump stated that a two-week ceasefire would only be in effect if [[Iran]] agreed to and immediately opened the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:15:05) [[Nicholas J. Fuentes]] presented two potential outcomes for the ceasefire: either it was a deceptive maneuver by Donald Trump to buy [[time]], or [[Israel]] would sabotage it.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:06) On Sunday, Donald Trump extended the deadline until 8 PM that night.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:15) Donald Trump threatened to escalate fighting to [[target]] all of [[Iran]]'s civilian infrastructure if [[Iran]] did not open the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:26) Donald Trump's threatened escalation against [[Iran]] would [[target]] electrical infrastructure, power grids, power plants, transportation infrastructure, bridges, and potentially civilian airports, rather than just the oil and energy sector.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:40) Donald Trump threatened the annihilation of [[Iran]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:43) On Easter Sunday, Donald Trump issued a clear and unequivocal threat.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:46) Donald Trump did not issue an Easter greeting.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:49) Donald Trump omitted traditional Easter greetings.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:52) Donald Trump did not offer a general holiday greeting.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:20:54) On Sunday, Donald Trump warned that if [[Iran]] did not capitulate, its civilization would be destroyed.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:02) Donald Trump's remark about destroying [[Iran]]'s civilization drew significant criticism.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:05) [[Nicholas J. Fuentes]] criticized Donald Trump's statement threatening to destroy [[Iran]]'s civilization.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:08) Donald Trump's threat was considered serious, leading him to extend the deadline again.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:14) Donald Trump extended the deadline by an additional 36 hours.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:23) Donald Trump made a final extension of the deadline to 8 PM Eastern [[time]] that night.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:28) Donald Trump appeared prepared to proceed with military action.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:21:47) Donald Trump allowed [[time]] for diplomatic efforts by intermediaries to potentially reach a resolution with [[Iran]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:13) Donald Trump was perceived as genuinely prepared to enforce the deadline.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:18) [[Nicholas J. Fuentes]] stated that if Donald Trump proceeded with his threat, [[Iran]] would be devastated, having already been bombed numerous times.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:42) If Donald Trump had followed through with a "civilization-killing strike," the consequences for [[Iran]] would have been catastrophic.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:50) A catastrophic strike on [[Iran]] by Donald Trump would likely have led to [[Iran]] retaliating against [[Persian Gulf]] countries, particularly [[Saudi Arabia]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:24:17) The ceasefire was characterized as another deadline extension by Donald Trump, effectively delaying a potential "biblical strike" by two weeks.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:24:24) Donald Trump indicated that fighting would resume in two weeks.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:26) Donald Trump announced a two-week period during which the [[United States]] would not attack [[Iran]], provided [[Iran]] opened the [[Strait of Hormuz]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:34) Donald Trump indicated on [[Cozy.tv|Truth Social]] that the [[United States]] was effectively ceding control of the [[Strait of Hormuz]] to [[Iran]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:25:51) The agreement would not restore the pre-war status quo, as Donald Trump and [[Iran]] agreed that [[Iran]] would control the [[Strait of Hormuz]] and facilitate safe transit in exchange for the [[United States]] refraining from bombing.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:27:00) Donald Trump apparently consented to [[Iran]]'s control of the [[Strait of Hormuz]] and its revenue generation.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:32:31) Donald Trump appeared to be surrendering, contrary to previous discussions of a strategy to escalate to de-escalate.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:32:42) Donald Trump was expected to attempt a ground operation on [[Iran]]ian islands and the mainland.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:32:46) Donald Trump aimed to secure a military victory to boost morale and credibly claim an end to the war on [[United States]] terms.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:34:21) The [[The New York Times|New York Times]] reported that the [[United States]] and [[Iran]] reached an "11th hour ceasefire deal" after Donald Trump threatened to destroy [[Iran]]'s civilization.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:34:38) Donald Trump announced the ceasefire on social media after [[Pakistan]], acting as a mediator, urged him to retract his 8 PM deadline for [[Iran]] to comply with his demands.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:23) [[Israel]] supported Donald Trump's decision to halt attacks on [[Iran]] for two weeks.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:18) Many people praised Donald Trump for the ceasefire, viewing it as a victory for the [[United States]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:49) The strategy employed by Donald Trump was arguably akin to the "madman doctrine."
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:54) Donald Trump's erratic behavior was seen as a deliberate strategy.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:58) Donald Trump's perceived insanity was suggested to be part of his strategic approach.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:40:51) Donald Trump's strategy was to convince [[Iran]] that he was willing to undertake irrational actions.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:00) Donald Trump employed brinksmanship and the "madman theory" by threatening to bomb all of [[Iran]]'s infrastructure.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:08) [[Iran]] likely believed Donald Trump was bluffing about bombing its infrastructure, considering the unacceptable losses that such an action would entail.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:16) Donald Trump had to convince [[Iran]] of his willingness to act irrationally, at least to sow doubt among their leadership.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:27) Donald Trump needed to sow seeds of doubt within [[Iran]]'s leadership regarding his rationality.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:32) Donald Trump's behavior was intended to make him appear as if he had "lost it."
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:35) Donald Trump's failure to celebrate [[Easter]] was cited as an example of his erratic behavior.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:37) Donald Trump's actions were perceived as homicidal and genocidal.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:41) Donald Trump was perceived as being surrounded by religious zealots.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:41:44) Donald Trump might genuinely believe himself to be the [[Antichrist]] or the Messiah, leading him to potentially destroy [[Iran]] regardless of global consequences.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:46:15) Donald Trump's 10-day deadline for [[Iran]] to open the Strait of Hormuz expired on Monday, April 6th, but was extended.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:46:44) Donald Trump issued an ultimatum two weeks prior, giving [[Iran]] 48 hours to open the Strait of Hormuz or face bombing of its energy and electrical grids.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:47:31) Donald Trump extended the 48-hour deadline to five days, then again to ten days, which expired on Monday, April 6th, but was not enforced.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:47:52) On Easter Sunday, Donald Trump effectively extended the deadline for [[Iran]] by another 36 hours.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:48:05) Donald Trump threatened to bomb all of [[Iran]]'s civilian infrastructure, including bridges and economic targets, if [[Iran]] does not open the Strait of Hormuz.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:50:49) Donald Trump reportedly mobilized an "air armada" with the [[U.S. Department of Defense|Pentagon]] and the [[Central Intelligence Agency|CIA]] to rescue two F-15 pilots stranded in [[Iran]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:55:00) Donald Trump posted on True Social on Easter Sunday, stating, "Tuesday will be power plant day and bridge day all wrapped up in one in [[Iran]]... open the fucking straight you crazy bastard... praise be to Allah."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:55:36) [[Nicholas J. Fuentes]] described Donald Trump's Easter Sunday post as "disturbing" and "sickening," citing its profanity, threats against [[Iran]], and mockery of God on a holy day.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(01:57:42) [[Nicholas J. Fuentes]] observed that Donald Trump's post, rather than saying "Happy Easter" or "[[Jesus Christ|Christ]] is risen," contained threats and profanity, and mocked God, which indicated Donald Trump's "evil" and "wicked" nature.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:00:12) [[Nicholas J. Fuentes]] asserted that Donald Trump is the "Antichrist" and that voters elected "Antichrist 2024, Gog and Magog and Armageddon."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:06:03) The New Yorker article noted that [[Rod Dreher]] had previously written about 30 to 40% of Donald Trump administration staffers being Groypers.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:19:55) [[Nicholas J. Fuentes]] noted that making Project 2025 a "boogeyman" coerced Donald Trump to disavow it, serving as a tactic to identify [[Republican Party|Republicans]] with a "toxic brand."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:22:36) Donald Trump's True Social post on Easter Sunday used profanity, threatened to bomb [[Iran]]ian infrastructure, and included "praise be to Allah," which [[Nicholas J. Fuentes]] considered indicative of Donald Trump's "evil" and "wicked" character.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:24:55) [[Nicholas J. Fuentes]] criticized Donald Trump for his lack of decorum and disrespect as [[president]], especially on Easter, a sacred holiday, accusing him of being "hollow and wicked."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:28:12) [[Nicholas J. Fuentes]] expressed his profound dislike for Donald Trump, stating he feels "sick to my stomach" whenever he sees or hears him, finding his former appeal of being "rough around the edges" now "disgusting and appalling."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:30:21) [[Nicholas J. Fuentes]] observed that Donald Trump's rallies became "boring" and "self-indulgent," characterized by "a bitch fest" of grievances and tired slogans.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:31:09) [[Nicholas J. Fuentes]] lamented the "disgusting" and "embarrassing" spectacle of Donald Trump's cabinet members and sycophants laughing at his "lamest, most unfunny joke."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:33:33) [[Nicholas J. Fuentes]] described the current "MAGA movement" as comprising Donald Trump, "idiots in the cabinet" like [[JD Vance|J.D. Vance]], and "Zionists like [[Mark Levin]] and [[Laura Loomer]]" [[who]] he views as "pure evil" and "demonic."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:34:39) [[Nicholas J. Fuentes]] expressed his hatred for the MAGA movement, stating he can no longer "stand the sight of any of it" and doesn't recognize its policies, rhetoric, ideas, or people, including Donald Trump.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:35:01) [[Nicholas J. Fuentes]] believes that Donald Trump's "wickedness was always there" but was "disguised" by comparison to previous political figures like [[Hillary Clinton]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:36:03) [[Nicholas J. Fuentes]] emphasized the importance of Groypers having their "own thing" and "own cult of personality" to maintain loyalty to him rather than to Donald Trump.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:36:44) [[Nicholas J. Fuentes]] noted that figures like [[Candace Owens]], [[Ian Carroll]], [[Dave Smith]], and [[Alex Jones]] all supported Donald Trump in 2024, either "because they were caught up in it or because they had no other choice."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:37:42) [[Nicholas J. Fuentes]] credited [[Tucker Carlson]], [[Candace Owens]], and [[Dave Smith]] for now breaking from Donald Trump, though "better late than never."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:39:07) [[Turning Point USA]] activists countered [[Nicholas J. Fuentes|Groyper]] criticisms by arguing that Donald Trump supported legal immigration, was pro-[[Israel]], endorsed [[Lindsey Graham]], and was pro-gay and pro-trans, being friends with [[Caitlyn Jenner]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:40:03) [[Sean Hannity]] and [[Mark Levin]] retain access to Donald Trump, unlike [[Alex Jones]] after his 2015 interview, according to [[Nicholas J. Fuentes]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:40:51) [[Nicholas J. Fuentes]] stated that the "real solution" is for the next generation to "take the baton" from Donald Trump and MAGA, by force if necessary, rather than deferring to him.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:42:13) [[Nicholas J. Fuentes]] declared that he and his generation will "take it from the boomers, including the [[king]] boomer Donald Trump," and from [[Fox News]], because it is "the necessary next step."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:44:16) [[Nicholas J. Fuentes]] stated that figures like [[Mark Levin]], whom Donald Trump has anointed as a spokesperson, are "filthy, diabolical, hateful, and demonic."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:45:00) [[Nicholas J. Fuentes]] argued that accepting Donald Trump's actions is a "matter of conscience" and that his behavior on Easter, as commander-in-chief, shows he is a "diabolical [[person]]."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:46:56) [[Tucker Carlson]]'s viral reaction to Donald Trump's True Social post focused on disrespecting [[Islam]], which [[Nicholas J. Fuentes]] found to miss the primary issues of profanity, threats of civilian casualties, and mocking God on Easter.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:51:58) [[Nicholas J. Fuentes]] stated that the Donald Trump administration is fabricating information and downplaying the war's severity to control oil prices and reassure markets.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:52:43) [[Nicholas J. Fuentes]] noted that the Donald Trump administration strategically lies to avoid telegraphing its military moves to [[Iran]] and its allies, and to recruit military and economic support.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:53:17) [[Nicholas J. Fuentes]] believes the Donald Trump administration is deceiving the public about the war's progress because it is "deeply unpopular" and they want to hide the full extent of casualties and failures.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:58:18) Donald Trump claimed two weeks prior that [[Iran]] was "begging" the [[United States]] for a deal, including nuclear concessions, and that a "peace process" was underway.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:00:27) Donald Trump stated that [[Iran]] had begged him for extensions on the ultimatum, a claim [[Iran]] publicly denied, asserting that the extensions were due to the opening of markets.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:02:35) Donald Trump acknowledged [[Iran]]'s counter-proposal as "not good enough" but a "significant step."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:04:19) [[Nicholas J. Fuentes]] claimed that Donald Trump's 15-point plan, submitted via [[Steve Wittkoff]] and [[Jared Kushner]], was a "non-starter" for [[Iran]], which countered with its own 10-point plan demanding reparations and disabling [[United States]] bases in the [[Middle East]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:07:32) [[Nicholas J. Fuentes]] asserted that Donald Trump is "bluffing" about bombing [[Iran]]ian infrastructure because such an act would lead to [[Iran]] retaliating by bombing [[Persian Gulf]] infrastructure, destabilizing the [[region]], and leading to a "failed [[state]]" in [[Iran]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:10:50) [[Nicholas J. Fuentes]] stated that while the Donald Trump administration and its "accomplices in the media" promote a false narrative of a peace process, the [[United States]] is likely preparing for a "major escalation."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:53:44) Donald Trump delivered a prime-[[time]] address about the war with [[Iran]], during which he announced no new significant developments, reiterating that the conflict would continue for an additional two to three weeks.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:55:25) [[Nicholas J. Fuentes]] argued that Donald Trump's speech was intended to flood the information space with misinformation and contradictory signals to prevent [[Iran]] from determining the next moves of the [[United States]], [[Saudi Arabia]], [[United Arab Emirates|UAE]], and [[Qatar]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:56:30) [[Nicholas J. Fuentes]] stated that the administration of Donald Trump is "talking out of both sides of their mouth" by having the press office, the [[secretary of state]], the secretary of war, and Trump himself all put out contradictory statements.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:59:33) [[Washington Post|The Washington Post]] and [[Thomson Reuters|Reuters]] reported that Donald Trump requested military options to invade [[Iran]] and secure its stockpile of highly enriched uranium.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:07:01) [[Nicholas J. Fuentes]] began his analysis of the war with [[Iran]], noting that the conflict is approaching week six and that oil prices continued to rise to $116 a barrel following Donald Trump's speech.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:09:17) Donald Trump articulated five major objectives for the conflict at its outset: destroying [[Iran]]'s missiles, destroying its [[navy]], destroying its nuclear complex, pursuing regime change, and destroying regional proxies.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:09:39) [[Nicholas J. Fuentes]] assessed that of Donald Trump's five original objectives, only the sinking of [[Iran]]'s [[navy]] had been achieved, while the regime remained intact and its missile and drone launch capability was not suppressed.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:11:17) [[Nicholas J. Fuentes]] stated that for the past 48 hours, the [[White House]] had been messaging that Donald Trump was ready to end the conflict and surrender, even without opening the [[Strait of Hormuz]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:12:15) [[Nicholas J. Fuentes]] predicted that Donald Trump would hijack the prime [[time]] slot, tout his achievements, and announce nothing substantive, calling the speech a "nothing burger."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:12:47) Donald Trump in his prime-[[time]] address remade the case for the war, arguing the [[United States]] had to engage [[Iran]] to seize their highly enriched uranium.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:13:28) Donald Trump stated in his address that the war would go on for two to three more weeks.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:13:43) [[The Wall Street Journal]] reported that Donald Trump said the [[United States]] had succeeded on the battlefield and declared that military objectives would be completed very shortly.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:14:17) Donald Trump vowed during his speech to hit [[Iran]] extremely hard in the coming weeks and "pummel the [[country]] back to the Stone Ages where they belong."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:14:33) Donald Trump stated that the [[Strait of Hormuz]] would open naturally once the war ended and encouraged other countries to "go to the straight and just take it, protect it, use it for yourselves."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:15:23) [[Nicholas J. Fuentes]] analyzed Donald Trump's strategy as one of flooding the zone with disinformation and contradictory information to throw enemies and allies off balance.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:17:24) [[Nicholas J. Fuentes]] argued that Donald Trump wants other countries—specifically [[Saudi Arabia]], the [[United Arab Emirates]], [[State of Japan|Japan]], [[South Korea]], and [[Europe]]—to do the fighting for the [[United States]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:21:57) [[Nicholas J. Fuentes]] speculated that Donald Trump's goal is to get [[Saudi Arabia]], the [[United Arab Emirates]], and [[Israel]] to police the [[region]] so the [[United States]] can recuse itself from the fighting.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:23:54) Donald Trump stated in his address that the [[United States]] does not get oil from the [[Persian Gulf]] and is energy independent.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:24:33) [[Nicholas J. Fuentes]] argued that Donald Trump wants [[Iran]] to believe it has less leverage over the [[United States]] than it does, while also pressuring [[India]], [[South Korea]], [[State of Japan|Japan]], [[Malaysia]], [[Taiwan]], and [[Europe]]—[[who]] are more dependent on the [[Persian Gulf]] for oil and liquefied natural gas from [[Qatar]]—to step in.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:27:29) [[Iran]]'s foreign ministry spokesman denied Donald Trump's statement that [[Iran]] had asked for a ceasefire.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:29:53) Donald Trump claimed that [[Iran]] begged for a deal and that the [[United States]] is holding off on escalating while waiting on negotiations mediated by [[Pakistan]], [[Turkey]], [[Arab Republic of Egypt|Egypt]], and [[Saudi Arabia]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:30:13) [[Nicholas J. Fuentes]] stated that Donald Trump misrepresented the situation, and that messages are being passed between [[Iran]] and the [[United States]] through intermediaries, but there are no advanced-stage negotiations, meetings with [[Iran|Iranian]] officials, or substantial agreement on a deal.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:39:45) [[Nicholas J. Fuentes]] summarized the competing positions: Donald Trump wants a maximalist menu of demands including complete surrender from [[Iran]] and the surrender of its missiles, proxies, nuclear program, and highly enriched uranium, while [[Iran]] wants a commitment that the [[United States]] will never go to war with it again.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:42:40) [[Nicholas J. Fuentes]] argued that the two-to-three-week timeline given by Donald Trump is a "psychologically calibrated" lie designed to be minimally offensive.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:44:22) [[Washington Post|The Washington Post]] reported that Donald Trump specifically requested and was briefed on a military plan from the [[U.S. Department of Defense|Pentagon]] to invade [[Iran]] and seize its stockpile of nearly 1,000 pounds of highly enriched uranium.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:44:37) Donald Trump encouraged [[United States|Americans]] to watch a show on [[Fox News]] by [[Mark Levin]], during which [[Mark Levin|Levin]] argued the [[United States]] should deploy specialized ground troops to take [[Iran]]'s uranium stockpile.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:52:15) [[Nicholas J. Fuentes]] identified [[Mark Levin]] as a key propagandist for the war [[who]] is ceaselessly promoted by Donald Trump.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:55:16) [[Isaac Perlmutter|Ike Perlmutter]] and [[Mark Levin]] had lunch with Donald Trump at the [[White House]] one week before the first strikes against [[Iran]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:56:49) [[Nicholas J. Fuentes]] stated that [[Benjamin Netanyahu|Netanyahu]] told Donald Trump in 2024 that [[Iran]] was trying to assassinate him, in an effort to "poison the well" and prime Trump to bomb [[Iran]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:58:18) [[Nicholas J. Fuentes]] said he warned during the 2024 election that Donald Trump would take the [[United States]] to war in [[Iran]], and that Trump is the "[[Iran]] war candidate."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:59:30) [[Nicholas J. Fuentes]] criticized [[Matt Walsh]] and other pro-Donald Trump influencers for telling people he was "obsessed with [[Palestine]]" and that Trump's war rhetoric was a "throwaway comment."
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(00:56:49) [[Nicholas J. Fuentes]] described the Canary Mission as an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students and professionals opposing [[Israel]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:00:46) [[Nicholas J. Fuentes]] asserted that Trump was elected in 2016 with the help of [[Israel]], citing an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail*.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:13) [[Nicholas J. Fuentes]] explained that [[Israel]] colluded with Trump to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:27) [[Nicholas J. Fuentes]] stated that in 2018, Trump declared the [[Iran|IRGC]] a terrorist [[organization]] and assassinated [[Qasem Soleimani]] in January 2020.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:59) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] situation with the nuclear deal but that [[Israel]] colluded with Trump to pull the [[United States]] out and create a ladder of escalation.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:09:03) [[Nicholas J. Fuentes]] claimed that Trump got elected with the help of [[Israel]] to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:09:45) [[Nicholas J. Fuentes]] stated that in 2018, Trump declared the [[Iran|IRGC]] a terrorist group and that this culminated in the January 2020 assassination of [[Qasem Soleimani]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:54:07) [[Nicholas J. Fuentes]] reported that a federal judge ruled that Trump cannot destroy the East Wing of the [[White House]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:54:17) [[Nicholas J. Fuentes]] stated that [[White House|President]] Trump demolished the East Wing of [[the White House]] and planned to rebuild it as a structure twice its original size.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:08:14) [[Nicholas J. Fuentes]] announced that [[White House|President]] Trump is giving a prime [[time]] address on April Fool's Day, making it difficult for anyone to believe what he says.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:09:41) [[Nicholas J. Fuentes]] quoted Trump as telling reporters in the [[White House|Oval Office]] that the [[United States]] would be leaving [[Iran]] in two to three weeks and that the [[United States|U.S]]. has eliminated [[Iran]]'s nuclear threat.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:18:47) [[Nicholas J. Fuentes]] asserted that Trump was not able to achieve his objectives, [[Iran]] survived the "killing blow," and the attack has strengthened and buttressed the regime.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:19:55) [[Nicholas J. Fuentes]] outlined two options for Trump: escalate (which would require ground forces) or de-escalate (which would effectively be a surrender).
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:20:57) [[Nicholas J. Fuentes]] reported that Trump appears to be looking for an exit and that the logic suggests he will not surrender, but he also may not have a choice.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:23:40) [[Nicholas J. Fuentes]] cited a statement from Trump that the war is going to end imminently and that he would give a statement tomorrow.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:25:10) [[Nicholas J. Fuentes]] speculated that Trump's prime [[time]] address might be to announce a withdrawal, and that the [[United States]] might leave [[Middle East|Middle Eastern]] bases to build a new base in [[Israel]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:26:14) [[Nicholas J. Fuentes]] pointed out that Trump claimed "regime change" was achieved, even though the [[Iran|IRGC]] still runs the [[country]] and a new [[Ayatollah Ali Khamenei|Ayatollah]] (the son of the previous one) was appointed.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:28:17) [[Nicholas J. Fuentes]] expressed deep skepticism of the administration's messaging, stating that Trump likes to put out mixed messages and that the moves could be a case of tactical misdirection.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:29:22) [[Nicholas J. Fuentes]] cited a [[The Wall Street Journal|Wall Street Journal]] report stating that insiders say Trump is getting ready to wind down and is bored with the fighting.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:29:38) [[Nicholas J. Fuentes]] contrasted this with Trump's Sunday threat to bomb [[Iran|Iranian]] civilian infrastructure if the strait is not opened.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:30:09) [[Nicholas J. Fuentes]] stated that Trump has been lying about negotiations with [[Iran]], as there are no direct talks, only intermediaries.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:31:09) [[Nicholas J. Fuentes]] claimed that Trump's 15-point plan was a lie, as [[Iran]] has its own plan which calls for [[United States|U.S]]. reparations and the closure of all its bases.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:31:31) [[Nicholas J. Fuentes]] asked how Trump could go from a 180 in 24 hours, from issuing severe ultimatums to suggesting a withdrawal.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:44:22) [[Nicholas J. Fuentes]] predicted that Trump's prime [[time]] address on April Fool's Day will be "more theater" and a "big nothing burger."
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:44:52) [[Nicholas J. Fuentes]] said he would not be surprised by a major escalation by the end of the week, noting the arrival of a third carrier, the Marine Expeditionary Unit, and the expiration of Trump's April 6th deadline.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:52:10) [[Nicholas J. Fuentes]] commented on the story about Trump demolishing the East Wing of the [[White House]], calling it another example of Trump always "chickening out."
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:52:33) [[Nicholas J. Fuentes]] stated that Trump demolished the East Wing to build a giant ballroom so he can host world leaders like [[Vladimir Putin]] and [[Xi Jinping]] in a space he feels is not "outclassed."
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:53:52) [[Nicholas J. Fuentes]] quoted an Axios report that a federal judge temporarily blocked Trump's plan to build a massive ballroom, arguing the [[president]] is a "steward, not the owner" of [[the White House]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:55:46) [[Nicholas J. Fuentes]] characterized the Trump administration as a series of half-finished projects: the Liberation Day tariffs (which were walked back), the invasion of [[Greenland]] (which was backed down from), and the war in [[Iran]] (which is now facing a potential humiliating withdrawal).
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:58:19) [[Nicholas J. Fuentes]] connected [[the White House]] story to the upcoming [[Supreme Court of the United States|Supreme Court]] decision on birthright citizenship, predicting [[the court]] will strike down Trump's executive order.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:58:39) [[Nicholas J. Fuentes]] stated that Trump signed an executive order overturning birthright citizenship in the opening months of his administration, which was hailed as a victory.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:00:37) [[Nicholas J. Fuentes]] noted that Trump posted on [[Cozy.tv|Truth Social]] complaining that the [[Supreme Court of the United States|Supreme Court]] is "terrible" because he anticipates they will strike down his order.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:01:20) [[Nicholas J. Fuentes]] summarized the administration's flaws by stating that Trump "chickens out" on everything, from [[Greenland]] and tariffs to the [[Strait of Hormuz]], mass deportations, and the border wall.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:02:02) [[Nicholas J. Fuentes]] stated that he did not want Trump to win because a "half-ass dictator is worse" and a "half-ass coup" cannot succeed.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:05:35) [[Nicholas J. Fuentes]] critiqued the "plan trusters" by saying they never got banned, imprisoned, or paid any price, so it is easy for them to keep advocating for Trump.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:06:54) [[Nicholas J. Fuentes]] reiterated that Trump is not serious or competent, and that his team is "idiots, or scammers, or [[Jews]]."
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:07:15) [[Nicholas J. Fuentes]] stated he told people not to vote and suggested [[Kamala Harris]] might have been better because he knew Trump would attack powerful people without the ability to defeat them.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:08:42) [[Nicholas J. Fuentes]] stated that he got his money frozen, was put on the no-fly list, and was censored, while Trump did nothing to help and didn't pardon the Jan 6 defendants.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:10:22) [[Nicholas J. Fuentes]] referenced the assassination of [[Charlie Kirk]], stating that Trump did not seem to care.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(04:11:29) [[Nicholas J. Fuentes]] concluded that the birthright citizenship and [[White House]] situations are further proof that his supporters got "scammed" by Trump.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:00:51) Donald Trump was elected in the 2016 election with the help of the [[Israel|Israelis]], according to an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail*, which details hidden collusion in the 2016 election between Donald Trump and [[Israel]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:01:32) In 2018, Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian regime]], a terrorist group, greenlighting that group for sanctions and attacks.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:57:52) Donald Trump stated on TruthSocial that if [[Iran]] does not open up the Strait of Hormuz, he will bomb desalination plants, power plants, electrical grids, the oil industry, and the oil infrastructure on Kharg Island.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:59:30) According to an interview with the [[Financial Times]], Donald Trump is considering seizing the oil from [[Iran]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:59:49) The [[The Wall Street Journal|Wall Street Journal]] reported that Donald Trump may end the war with [[Iran]] without reopening the Strait of Hormuz.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:03:06) Donald Trump has unpaused the processing of asylum requests, which he had ordered [[United States|U.S]]. Customs and Immigration to stop processing in December.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:06:32) Donald Trump has bombed [[Iran]] 13,000 times, hitting 13,000 targets in the [[country]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:09:08) Donald Trump was elected in 2016 with the help of the [[Israel|Israelis]] in order to scuttle the [[Iran|Iranian]] nuclear deal, which he accomplished by withdrawing from it.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:11:05) Donald Trump is currently building towards a ground operation to retake the Strait of Hormuz by seizing islands near it or [[Iran|Iran's]] coastline, according to [[Nicholas J. Fuentes]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:12:06) Donald Trump is also considering invading Kharg Island in order to choke off [[Iran|Iran's]] energy exports.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:13:14) Donald Trump created a new ultimatum for [[Iran]] giving them until April 6th to open up the Strait of Hormuz or else he would bomb their power grid, electrical grid, and oil infrastructure.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:58:10) Donald Trump has reduced legal immigration by 10 percent but is not deporting 10 million people.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:02:05) Donald Trump and the military planners are looking for a way to gain a small win on the battlefield to avoid a humiliating defeat and to gain leverage over [[Iran]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:02:05) Donald Trump is looking to escalate the conflict into an energy war by attacking civilian infrastructure in [[Iran]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:05:12) Donald Trump pushed back his own deadline for [[Iran]] to open the Strait of Hormuz from 48 hours to five days, and then to April 6th.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:07:40) Donald Trump posted on TruthSocial that [[the United States]] is in serious discussions with a new and more reasonable regime to end the military operation in [[Iran]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:07:40) Donald Trump threatened on TruthSocial that if a deal is not reached, the [[United States|U.S]]. will blow up and obliterate all of [[Iran|Iran's]] electric generating plants, oil wells, Kharg Island, and desalinization plants.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:10:28) The [[The Wall Street Journal|Wall Street Journal]] reported that Donald Trump told aides he is willing to end the military campaign against [[Iran]] even if the Strait of Hormuz remains closed.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:11:37) Donald Trump ordered elements of the 82nd Airborne to the [[Middle East]] and is considering sending another 10,000 ground troops.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:16:08) Donald Trump is bluffing about attacking [[Iran|Iran's]] energy infrastructure because doing so would cause oil prices to go even higher, which he has tried to prevent, and would allow [[Iran]] to destroy the Gulf countries.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:18:09) Donald Trump has no credibility with his threats, as shown by his past failures to follow through on ultimatums with [[Russian Federation|Russia]], [[China]], [[Greenland]], and [[North Korea]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:26:43) [[Nicholas J. Fuentes]] stated that Trump gave [[Iran]] a 48-hour ultimatum to open the [[Strait of Hormuz]] or Trump and [[Israel]] would begin bombing [[Iran]]'s power plants and civilian infrastructure.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:26:47) Trump postponed the 48-hour deadline on Monday morning, extending it by five days to Friday in an attempt to allow for diplomatic negotiations.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:26:50) Trump extended the deadline again on Wednesday via [[Cozy.tv|Truth Social]], moving the new deadline to the following Monday, a total extension of 10 days.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:00) [[Nicholas J. Fuentes]] argued that Trump betrayed his 2024 campaign promises of "mass deportations and no new wars" by starting a war with [[Iran]] and failing to conduct mass deportations.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:32:42) Trump is reportedly considering a ground invasion of [[Kharg Island]] to seize control of [[Iran]]'s energy infrastructure rather than destroying it, to use as a bargaining chip to force [[Iran]] to reopen the [[Strait of Hormuz]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:33:30) Trump stated he extended the deadline because [[Iran]], at its own request, wanted [[time]] for peace negotiations.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:28) [[Nicholas J. Fuentes]] reported that Trump warned [[Iran]]'s leaders in a post on [[Cozy.tv|Truth Social]] that they would pay for every bullet fired by the [[Houthis]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:35:28) [[Nicholas J. Fuentes]] reported that Trump stated in the same [[Cozy.tv|Truth Social]] post that the [[Houthis]] have been "grazed" and that everything in [[Iran]] would be "blown to smithereens" if they continue.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:41:36) Donald Trump resolved to escalate the conflict in order to de-escalate, after determining within the first or second week that he could not quickly topple the regime.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:42:20) Trump adopted a strategy of escalating the fighting to achieve a tactical victory, potentially through a surgical ground intervention on an island in the [[Persian Gulf]] or the [[Strait of Hormuz]], in order to secure a more favorable ceasefire.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:43:02) Trump used an airstrike to bomb the military assets on [[Kharg Island]], an energy hub with [[Iran|Iran's]] oil infrastructure, rendering it vulnerable for an invasion.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:43:33) Trump bombed the military airstrip, radar system, and anti-air system on [[Kharg Island]], taking them all offline.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:43:36) Trump announced that there would be no further attacks on [[Iran]]'s energy infrastructure, an action that served to reassure the markets and [[Iran]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:44:01) Trump issued a 48-hour ultimatum demanding [[Iran]] open the [[Strait of Hormuz]] or face the destruction of its power plants and power grid.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:44:10) Trump called off the ultimatum and extended the deadline before the markets opened.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:44:14) Trump extended the approaching deadline again, amid reports of diplomatic negotiations and intermediaries.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:44:41) The new deadline from Trump extended to the following Monday.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:44:57) Trump oversaw a second military buildup in the [[Middle East]], deploying another aircraft carrier and an additional 20,000 troops to the [[region]], including 5,000 Marines and 5,000 Airborne, in the four-week stretch from the bombing of [[Kharg Island]] to the April 6th deadline.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:46:33) A [[U.S. Department of Defense|Pentagon]] official reported that [[the Pentagon]] was looking at sending up to 10,000 additional ground troops to the [[Middle East]] to give President Trump more military options, even as he weighed peace talks with [[Tehran]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:47:09) Trump repeatedly stated he would open the [[Strait of Hormuz]] with or without the help of [[United States|US]] allies.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:01:00) The fate of the world was said to hang in the balance of whether Trump could de-escalate and get a deal.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:06:18) [[Peter Thiel]], [[Elon Musk]], [[David Sacks]], and [[Tucker Carlson]] persuaded Trump to nominate [[JD Vance]] for the [[vice]] presidency.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:41) [[The Israelis]] wanted to prevent [[JD Vance]] from becoming [[president]] in 2028 and were attempting to have him and Donald Trump blamed for the catastrophe of the war.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:09:16) [[Vance's]] people were running a counter-operation to try and make him the negotiator [[who]] would extricate Donald Trump from the quagmire, as [[Jared Kushner]] and [[Steve Wittkoff|Steve Witkoff]] could not.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:11:24) [[Vance's]] people were lobbying Trump to let [[JD Vance|Vance]] solve his [[Iran]] problem, while [[the Israelis]] were lobbying him not to.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:14:16) President Trump made [[Vance's]] role official in a cabinet meeting, noting that [[JD Vance|Vance]] was working with [[Steve Wittkoff|Steve Witkoff]] and [[Jared Kushner]] on the negotiations.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:30:47) [[Jacob Helberg]] was identified as the first [[person]] to contribute to Trump's campaign from that world, is married to [[Keith Rabois]], and is the assistant to [[Alex Karp]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:13:52) Donald Trump called off a major ultimatum against [[Iran]] on Monday, citing “substantial progress” in ongoing talks.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:14:33) Donald Trump postponed the enforcement of an ultimatum to attack [[Iran|Iranian]] power plants by five days, giving diplomacy a chance to play out.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:42:25) Donald Trump pledged on Saturday that if [[Iran]] did not open the [[Strait of Hormuz]] in 48 hours, he would bomb their power plants and electrical grid.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:44:16) [[Nicholas J. Fuentes]] described the situation as a “lose-lose” for Donald Trump, where following through on the threat would escalate the conflict, but not following through would compromise [[United States|American]] credibility.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:45:04) Donald Trump announced on Monday morning that he would not follow through on the ultimatum, saying there was a peace process underway and giving [[Iran]] another five-day grace period.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:51:22) Donald Trump told reporters that [[Iran]]’s leadership was under pressure to negotiate and that [[Iran]] recently agreed not to have a nuclear weapon, a position [[Iran]] had already publicly held.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:52:18) The 15-point plan broadly reflected the proposal discussed before the war started on February 28, when Donald Trump accused [[Iran]] of not negotiating in good faith.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:18) [[Benjamin Netanyahu]] came to the [[White House]] in February 2025 asking Donald Trump to bomb [[Iran]], making [[Iran]] the focus of his first two visits.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:43) [[Michael Waltz|Mike Waltz]], Donald Trump’s [[national security advisor]], lobbied on behalf of [[Benjamin Netanyahu]] to bomb [[Iran]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:52) [[Benjamin Netanyahu]] returned to the [[White House]] in the second week of April again asking Donald Trump to bomb [[Iran]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:53) Donald Trump told [[Benjamin Netanyahu]] he would give peace a chance, offering a 60-day ultimatum to [[Iran]] to make a deal.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:57:07) Donald Trump admitted that he knew [[Israel]] was preparing an attack, and the [[United States]] may have used the 60 days to get into position for that attack.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:57:51) [[Benjamin Netanyahu]] visited Donald Trump at [[Mar-a-Lago]] in late December, and in January, [[Iran]] experienced large protests.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:58:09) Donald Trump gave [[Iran]] a new deadline of 10 to 14 days to make a deal, leading to more rounds of negotiations in January where [[Iran]] again insisted on only discussing nuclear issues.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:05:55) [[Nicholas J. Fuentes]] predicted that by Friday, Donald Trump would either extend the deadline again or declare the talks failed and escalate.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:07:59) Donald Trump did not rule out putting [[United States|U.S]]. troops on [[Iran|Iranian]] soil.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:18:26) [[White House|The White House]] insisted only Donald Trump got to decide [[who]] negotiated.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:28:10) Twenty-five [[The Wall Street Journal|Wall Street]] donors told Donald Trump in a closed-door meeting at the [[White House]] a week prior that they wanted [[Marco Rubio]] and not [[JD Vance]] for the 2028 nomination.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:36:03) [[Joe Kent]] resigned on the previous Tuesday, and then when Donald Trump began celebrating the fake diplomacy efforts, [[Joe Kent]] expressed support for the peace process.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:37:08) [[Nicholas J. Fuentes]] predicted that people would fall for the same “no new wars” rhetoric with [[JD Vance]] that they did with Donald Trump.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:03:46) Trump issued an ultimatum on Saturday stating that if the [[Strait of Hormuz]] is not opened in 48 hours, Trump, [[Israel]], and possibly [[Saudi Arabia]] would engage [[Iran]] in an all-out attack on its energy infrastructure.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:04:46) Trump announced on Monday morning at 7:30 a.m. on [[Cozy.tv|Truth Social]] that the attack was postponed by five days, citing ongoing talks with [[Iran]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:05:36) [[Nicholas J. Fuentes]] described the pattern of Trump's diplomacy in his second administration as a "calculated deception to manipulate the [[stock]] market, commodities trade, and financial markets."
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:07:50) [[Nicholas J. Fuentes]] argued that Trump scheduled his ultimatum announcement on Saturday after the markets closed to prevent speculation on oil and gas, and then postponed the attack just before markets opened on Monday.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:07:59) [[Nicholas J. Fuentes]] stated that when Trump made the ultimatum, "everything crashed," including oil futures, gold, the [[Standard & Poor's 500|S&P 500]], and Bitcoin.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:08:39) [[Nicholas J. Fuentes]] stated that after Trump announced a potential peace deal, the markets "shot right back up" when they opened.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:11:28) [[Nicholas J. Fuentes]] reported that sources from [[U.S. Department of Defense|The Pentagon]] indicated Trump was preparing to invade part of [[Iran]], possibly an island in the [[Strait of Hormuz]] or a beachhead on the coastline.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:13:55) [[Nicholas J. Fuentes]] reported that Trump was planning to deploy the 82nd Airborne, a group of 3,000 soldiers, to the [[Middle East]] to potentially reinforce the Marines.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:14:56) [[Nicholas J. Fuentes]] argued that Trump may have extended the deadline to wait for the Marines and the 82nd Airborne to arrive for a ground operation the following weekend.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:37:51) Trump issued his ultimatum to [[Iran]] in all capital letters on [[Cozy.tv|Truth Social]], stating "you have 48 hours, open up the strait or else."
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:42:35) [[Nicholas J. Fuentes]] argued that Trump wanted to escalate the conflict to break the stalemate and avoid a strategic victory for [[Iran]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:48:40) Trump postponed the deadline, giving [[Iran]] five days to open the [[Strait of Hormuz]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:49:30) Trump stated that his administration had spoken to the [[ Iranian]] regime and made progress on a framework for a deal.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:51:36) Trump stated that [[Iran]] had agreed to share the [[Strait of Hormuz]] with [[United States|America]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:00:39) [[Nicholas J. Fuentes]] argued that Trump launched the initial attack on [[Iran]] on a Friday night after the markets closed to prevent traders and investors from panicking until the weekend.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:01:59) Trump launched the attack on [[Iran]] on a Friday night, with the stated expectation that the war would last four days, potentially concluding by the following Monday to reassure the markets.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:03:10) Trump bombed Kharg Island, the central hub of [[Iran]]'s energy in the [[Persian Gulf]], on a Friday.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:04:50) [[Nicholas J. Fuentes]] reported that the market lost $2 trillion on Saturday after Trump's ultimatum, but made up half of that loss minutes after his postponement announcement on Monday morning.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:06:18) [[Nicholas J. Fuentes]] concluded that Trump's 48-hour ultimatum was a "ruse."
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:09:38) [[Nicholas J. Fuentes]] alleged that many people put in "conspicuous positions" on Saturday and Monday after Trump's announcements and made a lot of money, raising questions about prior knowledge of the administration's plans.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:14:10) Trump authorized an [[Israel|Israeli]] strike on [[Iran]]'s southern Pars gas fields.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:17:23) Trump stated that the [[United States]] had nothing to do with the [[Israel|Israeli]] strike on [[Iran]]'s gas fields and that he would restrain [[Israel]] from attacking [[Iran]]'s energy if [[Iran]] did not continue its attacks.Here is the chronological knowledge log derived from the monologue portion of the transcript.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:18:07) Donald Trump issued a 48-hour ultimatum, which he then retracted.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:19:00) Donald Trump claimed to be negotiating with [[Iran]], a claim that [[Iran]] denied. [[Nicholas J. Fuentes]] reported a significant gap between the positions of the two countries, with [[Iran]] demanding the [[United States]] leave the [[Middle East]] and pay reparations, while the [[United States]] demands [[Iran]] denuclearize.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:19:39) [[Nicholas J. Fuentes]] argued that Donald Trump's postponement of a military action by five days, citing negotiations that [[Iran]] denies, is likely a cover for a planned military operation, noting the buildup of [[United States|US]] Marines and the 82nd Airborne Division.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:24:00) Donald Trump bombed the airfield and naval dock on [[Kharg Island]] to prepare for a Marine amphibious assault and subsequent airborne operation.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:38:17) [[Nicholas J. Fuentes]] argued that Donald Trump's timeline is constrained by the midterm elections, as the economy needs at least four months to recover from the war's price shocks, by which [[time]] the primaries will be over.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:44:32) Following his resignation on Tuesday, [[Joe Kent]] praised Donald Trump's negotiation efforts on Monday, which [[Nicholas J. Fuentes]] described as a sudden reversal to hail a peace process he had previously resigned over.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(00:56:50) [[Nicholas J. Fuentes]] reported that the "Canary mission" is an [[Israel|Israeli]]-funded blacklist confirmed to be used by the Trump administration since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:00:51) [[Nicholas J. Fuentes]] claimed that Donald Trump was elected in 2016 with the help of [[Israel]] and cited an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail* about hidden collusion in the 2016 election, which he described as "Trump and [[Israel]]," not "Trump and [[Russian Federation|Russia]]."
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:01:33) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian regime]], a terrorist group, putting the [[United States]] in a shadow war with [[Iran]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:02:43) [[Nicholas J. Fuentes]] argued that the war with [[Iran]] started a long [[time]] ago and that Donald Trump "made it hot" in 2020.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:05:12) [[Nicholas J. Fuentes]] repeated the report that the "Canary mission" is used by the Trump administration to [[target]] students and professionals [[who]] oppose [[Israel]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:08:11) [[Nicholas J. Fuentes]] repeated his account of the timeline from [[Barack Obama]]'s [[Joint Comprehensive Plan of Action|JCPOA]] to [[Benjamin Netanyahu|Bibi]]'s speech to [[U.S. Congress|Congress]] to Donald Trump's election with the help of [[Israel]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:10:16) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] had the [[Iran]] situation "solved" with the nuclear deal, but the [[Israel|Israelis]] hated him for it and colluded with Donald Trump to get him elected so that Trump would create a ladder of escalation.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:16:05) [[Nicholas J. Fuentes]] reported that the operation to forcibly reopen the Strait of Hormuz using the [[United States|U.S.]] military had begun, and that the Trump administration had planned this.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:19:48) [[Nicholas J. Fuentes]] suggested that Donald Trump's statement about not putting "boots on the ground" was a technicality, as they could invade islands and claim they did not put boots on the [[Iran|Iranian]] mainland.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:24:10) [[Nicholas J. Fuentes]] recalled that Donald Trump had previously expressed disinterest in using budget reconciliation in 2026, but now the [[Republican Party|Republicans]] were planning to use it to appropriate $200 billion for the war in [[Iran]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:27:27) [[Nicholas J. Fuentes]] reported on an exclusive in [[The Wall Street Journal]] confirming that Donald Trump was "done with mass deportations."
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:27:51) [[Nicholas J. Fuentes]] reported that Donald Trump believes the phrase "mass deportations" is unpopular and wants to stop using it, using the word "criminal" instead.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:30:34) [[Nicholas J. Fuentes]] recounted Donald Trump's 2016 campaign promises, including a 30-foot concrete border wall and "mass deportations," and argued that "five-dimensional chess" explanations are not what people voted for.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:37:54) [[Nicholas J. Fuentes]] stated that it was confirmed 100% that mass deportations have been shut down by Donald Trump because he believes they are "too unpopular" and will hurt the party in the midterms.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:38:24) [[Nicholas J. Fuentes]] stated that Donald Trump is blaming the unpopularity of the term "mass deportation" for potential losses and is telling personnel to stop saying the words.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:42:12) [[Nicholas J. Fuentes]] quoted ''[[The Wall Street Journal]]'' article as saying Donald Trump "has become convinced that some of his administration's deportation policies have gone too far."
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:43:21) [[Nicholas J. Fuentes]] criticized Donald Trump for running on mass deportations in 2024 and then deciding a year in that voters do not like it.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:47:24) [[Nicholas J. Fuentes]] noted that Donald Trump had suggested on the campaign trail he would deport 20 million people, but that was not going to happen.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:47:57) [[Nicholas J. Fuentes]] reported that in the first year, Donald Trump's administration deported roughly 230,000 to 360,000 people, which he stated was fewer removals than [[Barack Obama]]'s first year in office in 2009.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:48:55) [[Nicholas J. Fuentes]] said that Donald Trump promised 20 million deportations but was now on track to get maybe a quarter million per year, or "20 times less than what they promised."
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:49:44) [[Nicholas J. Fuentes]] explained his prediction that the mass deportation effort would fail because Donald Trump is an "egomaniac" [[who]] is allergic to bad press and low approval ratings, which would inevitably come from such a contentious policy.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:53:49) [[Nicholas J. Fuentes]] stated that after the "kids in cages" controversy, Donald Trump called [[Stephen Miller]] and ended the family separation policy.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:54:51) [[Nicholas J. Fuentes]] argued that in the second term, unlike the first, the personnel are not the problem; [[Stephen Miller]] has way more power, and there are good people in [[U.S. Department of Homeland Security|DHS]] and [[U.S. Immigration and Customs Enforcement|ICE]] [[who]] want the deportations to happen but are running into the obstacle of Donald Trump himself.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:55:50) [[Nicholas J. Fuentes]] argued that it was always Donald Trump [[who]] was the problem, as he appoints the personnel and has the discretion to listen to one advisor over another.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:57:20) [[Nicholas J. Fuentes]] said that Donald Trump has a better relationship with [[Brooke Rollins]], [[who]] ran the [[America First]] Policy Institute (AFPI), and that Trump chose AFPI over Project 2025 from the [[Heritage Foundation]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:58:10) [[Nicholas J. Fuentes]] stated that Donald Trump consistently chooses the wrong people and makes the wrong decisions, and that his dream is to be beloved by [[New York|New York City]], [[The New York Times]], and [[Warner Bros. Discovery|CNN]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:02:58) [[Nicholas J. Fuentes]] claimed that the [[American Israel Public Affairs Committee|Israel lobby]], [[Elon Musk]], and [[Timothy Mellon|Tim Mellon]] contributed massive amounts of money to Donald Trump's 2024 campaign, and that small-dollar donations decreased from 60% to 30% of his fundraising.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:03:30) [[Nicholas J. Fuentes]] asserted that the institutions have conditioned Donald Trump to do what they want: keep cheap labor, bomb [[Iran]], keep weapons flowing to [[Ukraine]], and deregulate [[Artificial Intelligence|AI]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:04:20) [[Nicholas J. Fuentes]] argued that Donald Trump is now fighting against his own people to protect the establishment, and that he told the institutions, "get behind me, I’ll protect you."
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:04:51) [[Nicholas J. Fuentes]] claimed that Donald Trump is not releasing the [[Jeffrey Epstein|Epstein]] files, not building the wall, not carrying out mass deportations, and is going to war with [[Iran]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:05:59) [[Nicholas J. Fuentes]] stated that there will never be a populist movement until Donald Trump is out of office, as he is "depriving [[us]] of the guy" [[who]] could lead.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:06:58) [[Nicholas J. Fuentes]] argued that Donald Trump has used his political capital to bludgeon people [[who]] critique him, such as [[Tucker Carlson]], [[Megyn Kelly|Meghan Kelly]], [[Marjorie Taylor Greene]], and [[Thomas Massie]], thereby preventing them from taking the baton.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:08:50) [[Nicholas J. Fuentes]] said that Donald Trump is the "enemy of the good" because he holds everything in place and prevents it from ascending.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:09:35) [[Nicholas J. Fuentes]] criticized voters [[who]] support politicians [[who]] openly renege on promises, stating that Donald Trump forfeited his mandate to govern on the issue of mass deportations.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:12:41) [[Nicholas J. Fuentes]] argued that voters did not vote for Donald Trump to close bank accounts for illegals; they voted for them to be physically removed.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:13:50) [[Nicholas J. Fuentes]] summarized the situation by saying Donald Trump promised mass deportations and "no new wars," but delivered no mass deportations and a $200 billion war in [[Iran]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:15:24) [[Nicholas J. Fuentes]] stated that Donald Trump brought the [[United States]] into a war in [[Iran]] on behalf of [[Israel]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:17:17) [[Nicholas J. Fuentes]] argued that the Trump administration promised to put [[United States|Americans]] first and avoid new wars, but is now spending $200 billion on a war in [[Iran]] while deporting fewer than 500,000 people per year.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:19:59) [[Nicholas J. Fuentes]] detailed the spending priorities of the Trump administration, stating that tax money goes to "[[Somalia|Somali]] scammers," illegal immigrants, and [[Israel]]'s decapitation campaign against [[Iran]], while a $20 billion border wall was deemed too expensive in Trump's first term.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:25:30) [[Nicholas J. Fuentes]] reported that Donald Trump wants a $1.5 trillion defense budget, up from $800 billion under [[Joe Biden]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:26:40) [[Nicholas J. Fuentes]] analyzed Donald Trump's options in the war: invade [[Iran]] and topple the regime, or retreat, which would be a strategic defeat.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:27:10) [[Nicholas J. Fuentes]] reported that Donald Trump initiated a new phase of the conflict by launching an "energy war," bombing [[Kharg Island]] and [[Iran]]'s [[Southern United States|South]] Pars gas fields to pressure [[Iran]] to open the Strait of Hormuz.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:00:51) [[Nicholas J. Fuentes]] asserted that Donald Trump was elected in 2016 with the help of the [[Israel|Israelis]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election, which he claimed was between Trump and [[Israel]], not Trump and [[Russian Federation|Russia]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:01:27) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]], which he described as the military of the [[Iran|Iranian regime]], a terrorist group, thereby green-lighting sanctions and attacks.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:02:06) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the [[Iran]] issue by making the deal, and that the [[Israel|Israelis]] hated him for it, so they colluded with Donald Trump to get him elected so that Trump would pursue maximum pressure and create a ladder of escalation that led to war.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:05:07) [[Nicholas J. Fuentes]] repeated his description of the Canary Mission as an [[Israel|Israeli]]-funded blacklist used by the Donald Trump administration, created by the [[Heritage Foundation]], to [[target]] pro-[[Palestine|Palestinian]] students and professors.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:09:02) [[Nicholas J. Fuentes]] repeated that Donald Trump was elected with the help of the [[Israel|Israelis]] in order to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:09:45) [[Nicholas J. Fuentes]] repeated that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:10:23) [[Nicholas J. Fuentes]] repeated his argument that the war in [[Iran]] started a long [[time]] ago and that Donald Trump made it hot in 2018.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:32:15) [[Nicholas J. Fuentes]] stated that earlier in the day it was reported that the Trump administration approved the strike, but that later Trump put out a post on [[Cozy.tv|Truth Social]] saying he did not know about the strike.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:32:51) [[Nicholas J. Fuentes]] stated that the Arab countries (Emiratis, [[Qatar|Qataris]], and [[Saudi Arabia|Saudis]]) were furious with the Trump administration for allowing the strike.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:33:12) [[Nicholas J. Fuentes]] quoted Trump's [[Cozy.tv|Truth Social]] post, in which Trump claimed the administration was unaware of the attack, did not give [[Israel]] permission, and said there would be no further attacks on [[Iran]]'s energy and that the [[United States|U.S]]. would retaliate if [[Iran]] hits any energy in the Gulf.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:34:24) [[Nicholas J. Fuentes]] stated his belief that Trump is "abjectly lying" and that of course [[Israel]] told the [[United States]] and the [[United States]] approved the strike as part of an escalatory tactic against [[Iran]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:34:45) [[Nicholas J. Fuentes]] explained that Trump bombed Kharg Island last week and authorized the strike on the gas fields in order to ratchet up pressure on [[Iran]] to compel them to allow the Strait of Hormuz to open up.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:35:08) [[Nicholas J. Fuentes]] described the war as a "war of attrition" that the [[United States|U.S]]. cannot win, and that Trump is trying to find a creative solution between a strategic defeat and an unacceptable escalation.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:41:05) [[Nicholas J. Fuentes]] reported that [[Tulsi Gabbard]] was asked in a [[U.S. Congress|U.S. Senate]] hearing by [[Jon Ossoff]] whether [[Iran]] posed an imminent threat, and that she deferred to Trump, saying it is up to Trump to decide what is a threat and what isn't.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:43:50) [[Nicholas J. Fuentes]] stated that after [[Joe Kent]] resigned, [[Tulsi Gabbard]] said on [[Twitter]] that it is Trump's judgment that determines what is an imminent threat.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:05:43) [[Nicholas J. Fuentes]] argued that [[JD Vance]] is trying to save his prospects for 2028, and that the operation with [[Joe Kent]] is a last-ditch effort to push Trump away from the war to save [[JD Vance|Vance]]'s political future.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:06:07) [[Nicholas J. Fuentes]] stated that there are reports in *The Daily Beast* and *Axios* about how Trump is about to break with [[Benjamin Netanyahu|Netanyahu]], and that he has a hunch Trump is going to deny those claims.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:10:14) [[Nicholas J. Fuentes]] explained that Trump thought he could pound [[Iran]] hard for a few days, cause the regime to sue for peace, and impose conditions on [[Iran]]'s nuclear program, but that things did not go according to plan.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:12:39) [[Nicholas J. Fuentes]] stated that the question facing the Trump administration is how to break the stalemate, as the long-term damage to the global economy from the closed Strait of Hormuz could trigger a global recession.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:15:52) [[Nicholas J. Fuentes]] explained that Trump is looking for a "third way" to break the stalemate by increasing pressure without escalating, which involves hitting the one thing that has been off limits: [[Iran]]'s energy infrastructure.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:21:52) [[Nicholas J. Fuentes]] reported that on the previous Friday, Trump launched a major airstrike on Kharg Island, where 90% of [[Iran]]'s oil exports move, but only hit the military targets, not the economic energy infrastructure.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:24:15) [[Nicholas J. Fuentes]] stated that over the weekend, Trump made a pitch to the world community, saying everyone is affected by the closure of the Strait of Hormuz, and that the Asian countries ([[India]], [[China]], [[South Korea]], [[State of Japan|Japan]]) should help, as they would be affected the most.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:25:23) [[Nicholas J. Fuentes]] reported that Trump called on [[North Atlantic Treaty Organization|NATO]] to help, saying "we supported your war in [[Ukraine]], now it's your turn to help [[us]] in the strait."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:25:54) [[Nicholas J. Fuentes]] described Trump's plea to allies as humiliating and embarrassing, noting that all the countries rejected the appeal, saying "this is not our war."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:26:16) [[Nicholas J. Fuentes]] ridiculed Trump's reversal, stating that after all countries rejected the appeal, Trump said "we don't need you," which he said encapsulates the administration and the conflict.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:29:25) [[Nicholas J. Fuentes]] quoted a *[[The Wall Street Journal|Wall Street Journal]]* article stating that Trump approved the strike on the [[Southern United States|South]] Pars gas field to pressure [[Iran]] to unblock the Strait of Hormuz, and that Trump believed [[Tehran]] received the message and now wants to refrain from further strikes.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:31:28) [[Nicholas J. Fuentes]] argued that the strategy was for Trump to hit Kharg Island, then when allies refused to help, he moved in with [[Israel]] to hit the gas field, anticipating that [[Iran]] would bomb the Gulf.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:31:52) [[Nicholas J. Fuentes]] argued that Trump allowed this because the only way to pry the Strait of Hormuz open without regime change or a ceasefire is to make it hurt more for [[Iran]] by hitting their energy.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:33:08) [[Nicholas J. Fuentes]] argued that by bombing [[Iran]]'s energy, Trump is punishing the allies that did not assist by hurting their economies, noting that the [[United States|U.S]]. is a net exporter of energy and will not feel the shock as much as Asia and [[Europe]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:34:20) [[Nicholas J. Fuentes]] stated that it was reported earlier that the Trump administration approved the strike, but that in the evening Trump put out a statement on [[Cozy.tv|Truth Social]] saying the [[United States|U.S]]. did not know and wants the energy warfare to stop.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:35:06) [[Nicholas J. Fuentes]] quoted Trump's [[Cozy.tv|Truth Social]] post, in which Trump said the [[United States|U.S]]. knew nothing about the attack, that no more attacks will be made by [[Israel]] on the [[Southern United States|South]] Pars field unless [[Iran]] attacks [[Qatar]] again, in which case the [[United States|U.S]]. will "massively blow up the entirety of the [[Southern United States|South]] Pars gas field."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:37:35) [[Nicholas J. Fuentes]] stated his belief that Trump is obviously lying, and that the strategy all along was to hit Kharg Island, wait for allies to refuse to help, then give [[Israel]] permission to launch a limited strike on the gas field.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:39:51) [[Nicholas J. Fuentes]] argued that [[Iran]] called the [[United States|U.S]]. bluff, and Trump is now trying to get in front of it by saying he didn't authorize the strike and warning against further energy warfare.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:41:05) [[Nicholas J. Fuentes]] reported that [[the Pentagon]] is asking [[U.S. Congress|Congress]] for $200 billion to prosecute the war, that the war is costing $1.9 billion a day, and that the Trump administration is considering deploying thousands of [[United States|US]] troops to reinforce its operation in the [[Middle East]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:46:15) [[Nicholas J. Fuentes]] stated his belief that Trump is not able to win with an energy war, and is now going to try to pry the strait open with an invasion, sending a [[United States|U.S]]. force to take [[Iran|Iranian]] territory and establish a beachhead.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:55:00) [[Nicholas J. Fuentes]] accused Trump of having no idea what he is doing, of being "totally [[ad]] hoc," and of contradicting himself daily, while [[Israel]] has a plan and a strategy.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:56:08) [[Nicholas J. Fuentes]] stated that Trump stumbled into the conflict with no plan, while [[Israel]] is the "maestro" [[who]] knows exactly how it has to go.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:56:25) [[Nicholas J. Fuentes]] claimed that Trump is being [[fed]] propaganda through [[Fox News]], which [[Israel]] controls.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:29:46) [[Nicholas J. Fuentes]] predicted during the 2024 election that Donald Trump would bring the [[country]] into a war with [[Iran]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:38:42) [[Nicholas J. Fuentes]] reported that at a [[Republican Party|Republican]] retreat at [[Trump National Doral]] in the previous year, Donald Trump had discussed mass deportations and [[U.S. Immigration and Customs Enforcement|ICE]]; in the current year, he discussed the SAVE Act, voting reform, and transgender athletes in women's sports.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:44:51) Donald Trump called during the retreat for limits on sanctuary cities and a law preventing undocumented immigrants from getting commercial driver's licenses, but scarcely mentioned deportations or border security.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:46:41) Donald Trump made his essential policy demand a law focused on restrictions on voting and restrictions on transgender [[United States|Americans]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:52:45) [[Nicholas J. Fuentes]] reported that the Trump administration had struck a deal with the [[state]] of [[New York]] to only deport illegal aliens with prior criminal records after they were arrested by police and booked.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:54:38) [[Nicholas J. Fuentes]] argued that because Donald Trump tried mass deportations and failed, the issue has been rendered toxic and "may never be tried again."
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:13:05) [[Nicholas J. Fuentes]] stated that Donald Trump had two chances to build the wall and deport people, in 2016 and 2024, and failed both times.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:17:55) [[Nicholas J. Fuentes]] argued that Donald Trump brought corporate raiders, oligarchs, Zionists, and [[Jared Kushner]] into the government, leading to wars and digital currency.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:24:05) [[Nicholas J. Fuentes]] reported official polling data from [[NBC News]] showing that 54% of registered voters disapprove of Donald Trump's handling of the situation in [[Iran]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:27:47) [[Nicholas J. Fuentes]] contrasted the 2016 Donald Trump campaign, which repudiated the legacy of [[George W. Bush]] and the [[Iraq]] war, with the current situation where 90% of MAGA [[Republican Party|Republicans]] support a war in [[Iran]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:33:05) [[Nicholas J. Fuentes]] argued that Donald Trump has become a "de-radicalizing force" [[who]] relieves public pressure through his election and holds back more radical progress.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:33:25) [[Nicholas J. Fuentes]] stated that right-wing populism is "done" unless someone can repudiate the legacy of Donald Trump while embracing his original message.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:38:75) [[Nicholas J. Fuentes]] reported that the Canary Mission is an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students and professionals [[who]] oppose [[Israel]] in the [[United States]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:41:32) [[Nicholas J. Fuentes]] cited an excerpt from [[James Bamford]]'s book "Spy Fail," alleging hidden collusion between Donald Trump and [[Israel]] in the 2016 election to scuttle the [[Iran]] nuclear deal.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:42:89) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group, and the shadow war with [[Iran]] culminated in the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:52:30) [[Nicholas J. Fuentes]] argued that Donald Trump is holding back progress on anti-war sentiment, and that people [[who]] are against the war, like [[Marjorie Taylor Greene]], [[Thomas Massie]], and [[Tucker Carlson]], are being ostracized and destroyed by him.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:55:86) [[Nicholas J. Fuentes]] argued that by getting elected, Donald Trump relieved public anger and radicalism, de-radicalizing the [[country]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(16:00:84) [[Nicholas J. Fuentes]] predicted that if Donald Trump is holding back progress, opening up a space for a more radical figure would require him to lose or exit the stage.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:56:50.090) [[Nicholas J. Fuentes]] stated that the Canary mission is an [[Israel|Israeli]]-funded blacklist confirmed to be used by the Trump administration since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:00:52.530) [[Nicholas J. Fuentes]] asserted that Donald Trump was elected in 2016 with the help of the [[Israel|Israelis]], citing a book by [[James Bamford]] titled "Spy Fail" that details "hidden collusion" between the Trump campaign and [[Israel]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:01:27.850) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:02:06.220) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] "had this solved" with the [[Joint Comprehensive Plan of Action|JCPOA]], but the [[Israel|Israelis]] hated him for it and colluded with Donald Trump to get him elected.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:10:28.240) [[Nicholas J. Fuentes]] stated that the Trump administration is diverging from [[Israel]]'s policy on the strategic objective of the war in [[Iran]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:11:11.160) [[Nicholas J. Fuentes]] reported that Trump is now seeking to degrade [[Iran]]'s military capabilities and then quickly exit, rather than pursue regime change.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:11:29.120) [[Nicholas J. Fuentes]] reported that the attack on [[Iran]]'s oil was condemned by Secretary of War [[Pete Hegseth]], Trump, and Senator [[Lindsey Graham]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:15:25.470) [[Nicholas J. Fuentes]] criticized [[Eliot "Oron" McIntyre]], a [[Blaze Media|Blaze TV]] commentator, for recently realizing that the Trump movement has been betrayed by neocons, something [[Nicholas J. Fuentes|Fuentes]] claims to have been warning about for years.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:15:27.000) [[Nicholas J. Fuentes]] stated that [[Eliot "Oron" McIntyre]] said on [[Tim Pool]]'s show that the Trump movement has betrayed its principles and is surrounded by neocons like [[Ben Shapiro]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:16:41.460) [[Nicholas J. Fuentes]] referenced an event in 2024 where [[Jared Kushner]] and [[Ben Shapiro]] took Donald Trump to the grave of the Lubavitcher Rebbe at the headquarters of [[Habad Lubavitch]] in [[New York|Brooklyn]], [[New York]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:17:10.000) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu|Bibi Netanyahu]] gave Trump a hug at [[Mar-a-Lago]], and [[Mark Levin]] called Trump the first [[Jews|Jewish]] [[president]] of the [[United States]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:20:04.250) [[Nicholas J. Fuentes]] referenced [[Kurt Mills]], editor of [[American Conservative Magazine|The American Conservative]], and [[Tucker Carlson]] as being bullish on the Trump administration because they thought their associates in [[the Pentagon]] and [[U.S. National Security Council|National Security Council]] would steer it in a more "based" direction.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:20:36.360) [[Nicholas J. Fuentes]] argued that the "[[America First]]" bureaucrats in the administration were outflanked by oligarchs, billionaires, permanent bureaucrats, and Trump himself.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:20:49.000) [[Nicholas J. Fuentes]] stated that Trump is answering to [[The Wall Street Journal|Wall Street]], [[San Francisco Bay Area|Silicon Valley]], and the [[Israel]] lobby.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:29:39.920) [[Nicholas J. Fuentes]] argued that mass deportations are over, citing statements from Donald Trump himself and other personnel.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:30:31.050) [[Nicholas J. Fuentes]] stated that in January 2026, the Trump administration planted a story in the press to telegraph a change in deportation strategy.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:30:51.580) [[Nicholas J. Fuentes]] stated that Donald Trump held a press conference saying the [[United States|US]] had to "lighten up" and was not doing mass deportations for people [[who]] have been in the [[country]] for 20 years.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:32:04.410) [[Nicholas J. Fuentes]] claimed that 15 months into the Trump administration, between 230,000 and 360,000 removals had occurred, which he called "nothing" compared to the 10 million [[Joe Biden]] brought in.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:32:23.310) [[Nicholas J. Fuentes]] projected that if Trump deports only 1.2 million over four years, the deficit from the [[Joe Biden|Biden administration]]'s influx would be 9 million, representing only a 10% reduction.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:33:16.200) [[Nicholas J. Fuentes]] stated that there are people inside the administration [[who]] want mass deportations but are being outvoted and outflanked by others, including Donald Trump.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:37:00.240) [[Nicholas J. Fuentes]] recounted that the [[Republican Party|GOP]] failed to fund Trump's border wall in 2017 and 2018, despite him shutting down the government twice.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:42:55.940) [[Nicholas J. Fuentes]] stated that the solution of trusting Trump did not work, as he won the election but his guys in the admin got fired and outflanked by "[[Jews|Jewish]] donors and [[Laura Loomer]]."
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:19.000) [[Nicholas J. Fuentes]] stated that the media forced Donald Trump to back down on deportations through negative coverage of protests.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:34.000) [[Nicholas J. Fuentes]] noted that [[Hillary Clinton]] praised the Trump administration for working with allies during the war in [[Iran]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:45:20.000) [[Nicholas J. Fuentes]] concluded that Donald Trump works for [[Larry Fink]], [[Jamie Dimon]], [[Mary Madelson]], and [[Mark Levin]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:45:28.000) [[Nicholas J. Fuentes]] stated that the posters in the government answer to Trump, [[who]] answers to the billionaires.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:49:28.000) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brokered the [[Joint Comprehensive Plan of Action|JCPOA]] and that Donald Trump ripped it up, but both were motivated by the same concern: [[Iran]] possessing a nuclear weapon.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:52:02.000) [[Nicholas J. Fuentes]] noted that Trump made contradictory statements about the war's end, saying it was "almost over" and then saying it was "far from over."
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:52:07.000) [[Nicholas J. Fuentes]] stated that when Trump announced the operation two weeks prior, he said he wanted to topple the [[Iran|Iranian]] government.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:53:42.000) [[Nicholas J. Fuentes]] argued that Trump is looking for an "off ramp" out of the war in [[Iran]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:59:00.000) [[Nicholas J. Fuentes]] concluded his analysis by stating that he is rooting for [[Iran]] to survive and for Trump to walk away from the war.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:52:47) [[Nicholas J. Fuentes]] reported that Donald Trump simultaneously stated the war with [[Iran]] would be over soon and that [[the United States]] would hit [[Iran]] harder than ever before.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:00:08) [[Nicholas J. Fuentes]] stated that Professor Qingchong Chang believed Donald Trump went to war with [[Iran]] so the [[United States]] could take [[Iran]]'s uranium.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:06:00) [[Nicholas J. Fuentes]] stated that [[Candace Owens]] was pushing the "Cazarian mafia" narrative and that Professor Qingchong Chang claimed Donald Trump wants to avoid another election.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:11:09) [[Nicholas J. Fuentes]] described himself as an original member of the Trump coalition and stated he is now anti-Trump.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:11:27) [[Nicholas J. Fuentes]] stated that he is rooting for the [[Democratic Party|Democrats]] to win in the midterms to shut down the Trump administration.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:11:38) [[Nicholas J. Fuentes]] accused the Trump administration of covering up the [[Jeffrey Epstein|Epstein]] files and prosecuting a war in [[Iran]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:11:38) [[Nicholas J. Fuentes]] stated that [[Laura Loomer]], [[Mark Levin]], and [[Dave Rubin]] were claiming that anyone supporting a war with [[Iran]] was never part of the MAGA movement.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:14:37) [[Nicholas J. Fuentes]] stated that supporters of Donald Trump were retconning history by saying the war in [[Iran]] was the way to end the endless wars.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:15:52) [[Nicholas J. Fuentes]] reported that Donald Trump and his allies were ramping up anti-[[Islam|Muslim]] and anti-immigration sentiment in conjunction with the war with [[Iran]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:18:55) [[Nicholas J. Fuentes]] stated that Donald Trump specifically said he would not get the [[United States]] into a war with [[Iran]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:34:48) [[Nicholas J. Fuentes]] stated that Donald Trump folded under pressure on COVID, [[Black Lives Matter|BLM]], and the war in [[Iran]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:42:44) [[Nicholas J. Fuentes]] argued that Donald Trump had 15 months in office and had not deported illegal aliens, and is now only talking about [[Islam|Muslim]] immigration.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:54:49) [[Nicholas J. Fuentes]] reported that the generals in [[Washington D.C.|Washington, D.C.]] warned Donald Trump for months that toppling the regime in [[Iran]] was impossible.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:00:05) [[Nicholas J. Fuentes]] stated that Donald Trump had no plan B for the war.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:01:19) [[Nicholas J. Fuentes]] reported that Donald Trump said at one press conference that the war was over, and then later said they were going to hit [[Iran]] harder than ever.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:01:57) [[Nicholas J. Fuentes]] quoted a ''[[The New York Times|New York Times]]'' article in which Donald Trump threatened to hit [[Iran]] "so hard that it will not be possible for them... to ever recover."
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:02:59) [[Nicholas J. Fuentes]] reported that the international benchmark oil price fell after the [[Group of Seven|G7]] said they were considering intervening and after Donald Trump's remarks.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:03:40) [[Nicholas J. Fuentes]] stated that Donald Trump assassinated the leader of [[Iran]] and half the leadership, but they have not surrendered.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:05:00) [[Nicholas J. Fuentes]] stated that Donald Trump's language of "unconditional surrender" and "total victory" in [[Iran]] is impossible without a nuclear weapon.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:07:47) [[Nicholas J. Fuentes]] argued that if the Trump administration retreats without toppling the regime, it will be a strategic victory for [[Iran]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:08:40) [[Nicholas J. Fuentes]] reported that [[Marco Rubio]] said [[Israel]] was going to attack [[Iran]] anyway, so the [[United States]] joined them, but Donald Trump later said the [[United States]] was going to attack and had to get [[Israel]] in on it.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:09:09) [[Nicholas J. Fuentes]] reported that Donald Trump contradicted his own military by denying a tomahawk missile hit a school in [[Iran]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:10:08) [[Nicholas J. Fuentes]] reported that Trump supporters were claiming the war in [[Iran]] would not be like [[Iraq]] because of the competence of Donald Trump.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:15:53) [[Nicholas J. Fuentes]] stated that he had warned that Donald Trump would bring the [[United States]] into a war with [[Iran]], and that it would not work.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(56:49:930) [[Nicholas J. Fuentes]] reported that the Canary Mission is an [[Israel|Israeli]]-funded blacklist, which since July 2025 has been confirmed to be used by the Trump administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:00:52:410) [[Nicholas J. Fuentes]] asserted that Donald Trump was elected in 2016 with the help of [[Israel]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election between Trump and [[Israel]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:01:27:700) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|Islamic Revolutionary Guard Corps]] ([[Iran|IRGC]]) a terrorist group.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:02:05:070) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the [[Iran]] problem with the deal, but the [[Israel|Israelis]] hated him for it, so they colluded with Trump to create a ladder of escalation.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(22:31:840) [[Nicholas J. Fuentes]] stated that Trump is in a jam and that if the conflict can't be won in a short [[time]], it will lead to escalation, including boots on the ground.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(23:35:030) [[Nicholas J. Fuentes]] stated that Donald Trump put out a [[Cozy.tv|Truth Social]] post.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(24:36:170) [[Nicholas J. Fuentes]] listed several recent events: the [[Jeffrey Epstein|Epstein]] file cover-up with all files redacted, the invasion of [[Minneapolis]] to kill a couple of hippies, Trump saying they don't need to deport all illegal aliens, and now being in a regime-change war with [[Iran]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(25:44:620) [[Nicholas J. Fuentes]] reported that Donald Trump posted on [[Cozy.tv|Truth Social]] to pass the SAVE Act for voter ID and to ban transgender surgeries for children unless their parents agree.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(27:36:740) [[Nicholas J. Fuentes]] observed that many people, including [[Mike Cernovich]], leapt to defend Trump's post, claiming it was a joke.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(28:09:150) [[Nicholas J. Fuentes]] noted that Trump deleted the original post, edited out the last part about parental consent, and re-posted it.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(29:43:050) [[Nicholas J. Fuentes]] stated that the Trump campaign said two years ago that they would not ban transgender surgeries for everybody, just up to a certain age unless they have parental consent.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(30:28:140) [[Nicholas J. Fuentes]] argued that the Trump campaign telegraphed every single one of their moves, including the war with [[Iran]] and the corporate tax cut, and people were just "sucked into the hype."
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(56:49:930) [[Nicholas J. Fuentes]] reiterated that the Canary Mission is an [[Israel|Israeli]]-funded blacklist used by the Trump administration to [[target]] opponents of [[Israel]] in the [[United States]], and is part of the [[Heritage Foundation]]'s Project Esther.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:00:52:410) [[Nicholas J. Fuentes]] repeated his assertion of collusion between Trump and [[Israel]] in 2016 to scuttle the [[Iran deal]], citing [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:01:27:700) [[Nicholas J. Fuentes]] repeated that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:02:05:070) [[Nicholas J. Fuentes]] repeated that [[Barack Obama]] solved the problem, but the [[Israel|Israelis]] hated him, so they colluded with Trump.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:09:03:470) [[Nicholas J. Fuentes]] repeated his assertion that Donald Trump got elected with the help of the [[Israel|Israelis]] to scuttle the [[Iran deal]], citing [[James Bamford]]'s *Spy Fail*.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:09:44:980) [[Nicholas J. Fuentes]] repeated that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group, putting the [[United States]] in a shadow war with [[Iran]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:10:23:370) [[Nicholas J. Fuentes]] repeated the argument that [[Barack Obama]] solved the problem, but the [[Israel|Israelis]] colluded with Trump to create a ladder of escalation.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:22:31:840) [[Nicholas J. Fuentes]] again stated that Trump is in a jam, and if the conflict can't be won quickly, it will head toward escalation and boots on the ground.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:24:36:170) [[Nicholas J. Fuentes]] repeated his list of grievances: the [[Jeffrey Epstein|Epstein]] file cover-up, the invasion of [[Minneapolis]], Trump's statement on deportations, and the war with [[Iran]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:25:41:960) [[Nicholas J. Fuentes]] again discussed the SAVE Act, reporting that Trump's [[Cozy.tv|Truth Social]] post included a provision to ban transgender surgeries for children unless their parents agree.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:28:09:150) [[Nicholas J. Fuentes]] again noted that Trump deleted the post, edited out the parental consent part, and re-posted it.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:30:13:060) [[Nicholas J. Fuentes]] again argued that the Trump campaign telegraphed their policy on transgender surgeries during the campaign.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:32:12:240) [[Nicholas J. Fuentes]] stated that [[Twitter]] ([[Twitter|X]]) is the problem, as it has become a "new form of the matrix" and a "[[Republican Party|GOP]] propaganda farm" that manipulated the algorithm to make people support Trump.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:40:36:680) [[Nicholas J. Fuentes]] argued that everyone [[who]] has been a part of the Trump administration, such as [[JD Vance]], [[Marco Rubio]], [[Pete Hegseth]], and [[Kristi Noem]], is disqualified from running for [[president]] in 2028.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:44:52:430) [[Nicholas J. Fuentes]] pointed out that [[Marjorie Taylor Greene]] criticized Trump's post, as her own bill makes it a felony to trans any child under 18, even with parental support.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:45:25:360) [[Nicholas J. Fuentes]] questioned the point of voting for [[Republican Party|Republicans]] if Trump is reversing his stance on child trans surgeries.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:46:53:110) [[Nicholas J. Fuentes]] argued that he is not voting [[Democratic Party|Democrat]] because Trump is not like [[the left]], but because he is "not [[Adolf Hitler|Hitler]], not [[Napoleon Bonaparte|Napoleon]], not [[Julius Caesar|Caesar]]."
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:55:52:270) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] began under [[Barack Obama]], continued under Trump when he supplied lethal aid, and continued under [[Joe Biden]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:56:28:140) [[Nicholas J. Fuentes]] noted that the war in [[Ukraine]] is continuing under Trump, [[who]] is still sending tons of military aid.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:01:47:880) [[Nicholas J. Fuentes]] argued that if Trump had a cadre of people like him running the government, no one could stop him.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:03:46:240) [[Nicholas J. Fuentes]] argued that Trump is the single biggest obstacle to the movement because he is sucking up all the oxygen and diverting energy into a movement that is going nowhere.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:05:11:600) [[Nicholas J. Fuentes]] argued that Trump has not "crossed the Rubicon" and has wasted every opportunity to institutionalize his political power, such as during the COVID pandemic, the [[Black Lives Matter|BLM]] riots, and the stolen election.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:06:30:960) [[Nicholas J. Fuentes]] argued that the Trump movement is not making people more radical but is putting them to sleep.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:07:17:130) [[Nicholas J. Fuentes]] contrasted Trump's 2015 proposal to ban all [[Islam|Muslims]] from entering the [[United States]] with the current denial by MAGA supporters that he ever said that.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:11:52:990) [[Nicholas J. Fuentes]] stated that Trump's economic solution is to cut interest rates, which he said will inflate the housing market further.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:16:53:830) [[Nicholas J. Fuentes]] stated that Trump's intention was to go hard and fast, hit the [[Iran|Iranian regime]] hard, and achieve regime change by "cutting off the head of the snake" as they tried in [[Venezuela]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:34:28:640) [[Nicholas J. Fuentes]] stated that Donald Trump is being drawn further into the war in [[Iran]], noting that he won't rule out boots on the ground.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:35:10:940) [[Nicholas J. Fuentes]] expressed hope that the war will crash the Trump administration and that a stronger, Trump-on-steroids figure emerges in 2028.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:35:34:890) [[Nicholas J. Fuentes]] pointed out that 80% of [[Republican Party|Republicans]] support the war with [[Iran]], and that Donald Trump is getting [[Republican Party|Republicans]] to want a war with [[Iran]], which he called a "de-radicalizing force."
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:37:58:030) [[Nicholas J. Fuentes]] criticized "[[Sneeko|Sneako]]" for tweeting "[[Islam|Muslims]] follow a backward religion" with a picture of Trump and [[JD Vance]] praying at the wall, arguing that it is always an attack on [[Christianity|Christians]] and [[United States|America]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:00:46:32) Donald Trump was elected in 2016 with the help of the [[Israel|Israelis]], according to an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail*, which [[Nicholas J. Fuentes]] cited as detailing hidden collusion between Donald Trump and [[Israel]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:01:27:48) In 2018, Donald Trump designated the [[Iran|Islamic Revolutionary Guard Corps]] ([[Iran|IRGC]]), the military of the [[Iran|Iranian regime]], as a terrorist [[organization]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:01:59:62) [[Nicholas J. Fuentes]] argued that the war with [[Iran]] started in 2018 when Donald Trump made it "hot," and has been ongoing for seven years, similar to forever wars in [[Iraq]], [[State of Libya|Libya]], and [[Syria]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:09:00:21) Donald Trump was elected in 2016 with the help of [[Israel|Israelis]], [[who]] sought to scuttle the [[Iran|Iranian]] nuclear deal, a claim [[Nicholas J. Fuentes]] attributed to [[James Allsup|James]] Bamford's book *Spy Fail*.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:09:44:76) In 2018, Donald Trump designated the [[Iran|Iranian Revolutionary Guard]] ([[Iran|IRGC]]) as a terrorist [[organization]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:38:34:95) The war powers resolution, which would constrain Donald Trump's ability to continue the war in [[Iran]], failed in a party-line vote, with [[Republican Party|Republicans]] voting against it and [[Democratic Party|Democrats]] voting for it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:52:36:10) [[Nicholas J. Fuentes]] announced he is "switching sides" and will be voting for [[Democratic Party|Democrats]] in the 2026 election to hold the Trump administration accountable for covering up the [[Jeffrey Epstein|Epstein]] files, dragging the [[United States|U.S]]. into a war in [[Iran]], and failing on its other promises.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:52:36:10) [[Nicholas J. Fuentes]] argued that in a two-party system, only [[Democratic Party|Democrats]] will hold the Trump administration accountable, as it will not come from within the [[Republican Party]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:58:38:79) [[Nicholas J. Fuentes]] recalled that when Donald Trump had to choose between more COVID stimulus or [[Amy Coney Barrett]], he chose [[Amy Coney Barrett]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:04:10:59) [[Nicholas J. Fuentes]] stated he knocked on doors for Donald Trump in 2016, took volunteers to [[Manchester]], [[New Hampshire]], after the Billy [[George W. Bush|Bush]] tape, and flew to [[Atlanta]], [[Harrisburg]], [[Phoenix]], [[Lansing]], and [[Washington D.C.|D.C.]] to protest a stolen election in 2020.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:06:59:20) [[Nicholas J. Fuentes]] claimed his followers support him more than they support Donald Trump.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:08:19:85) [[Nicholas J. Fuentes]] stated that he "forgot it" the day the Trump administration went to war in [[Iran]] in June 2025.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:08:56:96) [[Nicholas J. Fuentes]] said he wants the Trump administration to fail and for [[JD Vance]] and [[Marco Rubio]] to "go down with the ship" so they cannot run in 2028.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:17:30:33) [[Nicholas J. Fuentes]] argued that Donald Trump launched the war in [[Iran]] without congressional authorization, a formal declaration of war, and in contravention of his own campaign promises of no new wars.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:21:44:76) The war powers resolution in the [[U.S. Congress|Senate]], which would have constrained Donald Trump's ability to continue the war in [[Iran]], failed largely along party lines, with every [[Republican Party|Republican]] except [[Ron Paul|Rand Paul]] voting against it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:21:49:93) [[U.S. Congress|Senate Majority Leader]] [[John Thune]] argued that Donald Trump had the authority to order strikes on [[Iran]] without a vote in [[U.S. Congress|Congress]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:23:12:88) [[Nicholas J. Fuentes]] stated that Donald Trump explicitly promised his voters he was against [[Middle East]] wars for 10 years, and then did the opposite after winning office twice.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:30:43:46) [[Nicholas J. Fuentes]] characterized the Trump administration as "the new [[George W. Bush]]" and "the new Neocons," including [[Pete Hegseth]], [[Marco Rubio]], and others.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:38:04:48) [[Nicholas J. Fuentes]] reported that Donald Trump and [[Pete Hegseth]] have intimated that a ground invasion of [[Iran]] is not off the table, and that there are reports the [[United States|U.S]]. is training the [[Kurdistan|Kurds]] for an invasion from Northern [[Iraq]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:38:51:36) [[Nicholas J. Fuentes]] said people feel helpless and vulnerable because they voted for Donald Trump and are now "locked in with him."
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:50:07:83) [[Nicholas J. Fuentes]] noted that the [[Ayatollah Ali Khamenei|Ayatollah]] of [[Iran]] is in an fortified bunker, has a 200,000-man army of loyalists, and that if [[Israel]] could get him, they could get Donald Trump, [[Nicholas J. Fuentes]], or anyone.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:31:56) [[Nicholas J. Fuentes]] said that the [[Republican Party]], with Donald Trump as its leader, "sold [[us]] down the river."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:33:16) [[Nicholas J. Fuentes]] said that Donald Trump launched heavy attacks on [[Iran]] anticipating the fighting would last weeks at most.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:33:36) [[Nicholas J. Fuentes]] described Donald Trump's plan as hoping a pragmatic faction within [[Iran]]'s government would emerge and initiate peace negotiations with the [[United States]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:33:59) [[Nicholas J. Fuentes]] said that Donald Trump had identified the "[[Venezuela]] model" as the best outcome, where a lower-ranking official would rise to power and accede to [[United States|American]] demands.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:35:33) [[Nicholas J. Fuentes]] stated that if Donald Trump's plan does not work, the only options are bad ones.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:36:32) [[Nicholas J. Fuentes]] reported that the Trump administration spoke with two [[Iraq|Iraqi]] [[Kurdish]] groups in [[Northern Iraq]] a week before the operation began, expecting them to cross into [[Iran]] as a ground force.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:41:14) [[Nicholas J. Fuentes]] said that it is heartbreaking to see Donald Trump deliver the [[United States]] into a war with [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:41:56) [[Nicholas J. Fuentes]] stated that he believes [[Alex Jones]] is "losing" Donald Trump.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:42:24) [[Nicholas J. Fuentes]] said that [[Alex Jones]] really believed in Donald Trump and that Trump was "losing" everyone, including [[Alex Jones]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:42:27) [[Nicholas J. Fuentes]] said that he sees commenters on [[Twitter]] saying they voted for Donald Trump multiple times but will never vote for a [[Republican Party|Republican]] again because of the war with [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:50:25) [[Nicholas J. Fuentes]] stated that Donald Trump laid out on Friday that this is a "regime change war."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:54:04) [[Nicholas J. Fuentes]] described the "[[Venezuela]] model" as a hybrid approach where Donald Trump did not achieve a "real" regime change but rather kidnapped the head of [[state]], [[Nicolás Maduro]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:56:06) [[Nicholas J. Fuentes]] said that Donald Trump laid out a case for full-fledged regime change in [[Iran]] on Friday, stating they would destroy the military and then the people would rise up.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:57:07) [[Nicholas J. Fuentes]] said that Donald Trump appeared to be walking back the idea of a full-fledged regime change and instead was talking about candidates from within the existing government succeeding the destroyed government.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:57:58) [[Nicholas J. Fuentes]] stated that Donald Trump said every candidate he had in mind to lead [[Iran]] has been killed.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:58:07) [[Nicholas J. Fuentes]] described Donald Trump's plan as decapitating enough leadership until an element from within the regime takes power and negotiates with the [[United States]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:59:03) [[Nicholas J. Fuentes]] said that there is no alternative force in [[Iran]] to rise up as Donald Trump suggested.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:02:12) [[Nicholas J. Fuentes]] said that Donald Trump admitted in the [[White House|Oval Office]] that the [[United States]] might actually get a more hardline regime in [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:04:30) [[Nicholas J. Fuentes]] said that in the war against the [[Houthis]], Donald Trump eventually had to say, "I respect the [[Houthis]]. This isn't working."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:09:56) [[Nicholas J. Fuentes]] described Donald Trump's thinking as believing he could hit [[Iran]] so hard that someone in the government would make a deal, and that this was the play because the war had to be short.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:11:56) [[Nicholas J. Fuentes]] reported that Donald Trump told the [[The New York Post|New York Post]] that he is not ruling out sending ground troops into [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:12:16) [[Nicholas J. Fuentes]] reported that Donald Trump said, "I don't have the yips with respect to boots on the ground."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:12:55) [[Nicholas J. Fuentes]] reported that Donald Trump told the [[The Daily Mail|Daily Mail]] he estimated the war would last four weeks.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:16:46) [[Nicholas J. Fuentes]] reported that Donald Trump and [[Benjamin Netanyahu|Netanyahu]] spoke to [[Kurdish]] leaders a week before the war started about them being an invasion force.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:11) [[Nicholas J. Fuentes]] quoted an [[Axios]] report stating that Donald Trump spoke by phone with [[Kurdish]] leaders in [[Iraq]] on Sunday after the bombing campaign began.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:25:02) [[Nicholas J. Fuentes]] stated that the [[Iran|Islamic Revolutionary Guard]] will not remain intact by the end of the Trump administration.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:32:26) [[Nicholas J. Fuentes]] claimed that after two protesters died in [[Minneapolis]], Donald Trump backed down and pulled out.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:45:15) [[Nicholas J. Fuentes]] said that [[Andrew Isker]] has done nothing but cocksuck the Trump administration since they got in.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:47:05) [[Tucker Carlson]] encouraged Donald Trump to nominate [[JD Vance]] as his running mate in the previous year, stating that [[JD Vance]] would serve as "assassination insurance."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:48:41) Donald Trump stated that he is not ruling out sending boots on the ground into [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:55:09) Donald Trump announced on the preceding Friday that the goal of the operation was to destroy [[Iran]]'s [[U.S. Department of Defense|Navy]], its missile production capabilities, its missiles and launch platforms, and to kill the military and civilian leadership of the [[country]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:55:38) Donald Trump encouraged the [[Iran|Iranian]] people to rise up against their government, calling it their opportunity to take their [[country]] back.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:05:22) Donald Trump laid out a justification for the war, citing the [[Iran|Iranian]] hostage crisis, the [[Beirut]] barracks bombing, and the use of IEDs by [[Iran|Iranian]]-backed militias.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:06:11) Donald Trump stated that [[Iran]] is a danger to the world, is working on a nuclear bomb, and is unwilling to negotiate.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:19:16) [[Benjamin Netanyahu]] was the first foreign leader to visit [[the White House]] after Donald Trump's inauguration in January 2025.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:19:23) [[Benjamin Netanyahu]] asked Donald Trump to go to war with [[Iran]] during his visit on February 4th, 2025.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:19:48) [[Michael Waltz|Mike Waltz]], the [[U.S. National Security Council|National Security Advisor]], pushed on behalf of [[Benjamin Netanyahu]] for Donald Trump to go to war with [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:20:07) [[Benjamin Netanyahu]] returned to [[the White House]] a second [[time]] a week after Liberation Day and pleaded with Donald Trump to bomb [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:20:24) Donald Trump announced during a joint press conference with [[Benjamin Netanyahu]] that he would give [[Iran]] 60 days to negotiate, or the [[United States]] would bomb them.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:26:48) [[Benjamin Netanyahu]] visited [[Mar-a-Lago]] just before New Year's 2026 and asked Donald Trump for another war with [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:39:38) [[Nicholas J. Fuentes]] called on Donald Trump to look at [[Israel]] and tell them "no, I'm the boss, I'm [[United States|America]]."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:48:07) Nobody in Donald Trump's cabinet opposed [[United States|US]] entrance into the war with [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:48:48) [[Tucker Carlson]] was the only [[person]] [[who]] went to [[the White House]] on February 23rd to try to discourage Donald Trump from taking the [[United States]] to war.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:50:21) After Donald Trump was shot in the ear, [[Tucker Carlson]], [[Elon Musk]], and [[Peter Thiel]] called Donald Trump and encouraged him to select [[JD Vance]] as his nominee.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:55:27) [[JD Vance]] did not vote for [[Hillary Clinton]] or Donald Trump in the 2016 election; he voted for [[Evan McMullin|Evan McMullen]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:55:49) [[Evan McMullin|Evan McMullen]] is a former [[Central Intelligence Agency|CIA]] officer [[who]] was handpicked by [[Bill Kristol]] as a spoiler candidate to prevent Donald Trump from winning the 2016 election.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:57:08) [[JD Vance]] called Donald Trump a "racist [[Germany|Nazi]]" and said that white people hate [[Barack Obama]] because they are jealous a [[black]] man is smarter than them.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:58:55) [[JD Vance]] became Donald Trump's number one cheerleader when he needed his endorsement to win a [[U.S. Congress|Senate]] seat in [[State of Ohio|Ohio]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:06:47) [[Nicholas J. Fuentes]] argued that [[Joe Biden]] kept the [[United States]] out of a war with [[Iran]], and that Donald Trump started one.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:09:07) [[Nicholas J. Fuentes]] stated that he will "play both sides" and that Donald Trump, [[JD Vance]], and [[Marco Rubio]] are "fuck[ing] these people" with a war in [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:10:33) [[Nicholas J. Fuentes]] stated that he got on board with Donald Trump when Trump said [[Marco Rubio]] is a puppet of the [[American Israel Public Affairs Committee|AIPAC]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:11:04) [[Nicholas J. Fuentes]] said Donald Trump, [[JD Vance]], and [[Marco Rubio]] betrayed him by starting a war with [[Iran]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:56:49) The [[Canary Mission]] is an [[Israel|Israeli]]-funded blacklist used since July 2025 by the Trump administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:00:50) Donald Trump was elected in 2016 with the help of [[Israel]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:00:56) An excerpt from [[James Bamford]]'s book, *Spy Fail*, details the hidden collusion in the 2016 election between Donald Trump and [[Israel]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:22) Donald Trump withdrew the [[United States]] from the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] in 2018.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:32) Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian regime]], a terrorist group in 2018, sanctioning them for attacks.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:02:03) [[Barack Obama]] had a solution for the [[Iran|Iranian]] nuclear issue, but [[Israel]] hated him for it, colluded with Donald Trump to get him elected to create maximum pressure and a ladder of escalation.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:18:53) Donald Trump gave [[Iran]] an ultimatum: agree to all demands or face war.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:19:22) Donald Trump gave [[Iran]] a 10-day deadline to make a deal.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:19:53) The deadline Donald Trump imposed on himself and [[Iran]] to make a deal points toward imminent strikes either this weekend or next weekend.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:24:45) The second Trump administration is going to war with [[Iran]] to pursue regime change.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:25:36) The Trump administration is the most [[Jews|Jewish]] administration in history.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:56:50) Trump began a massive military buildup in the [[Middle East]] two weeks ago.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:57:04) Trump issued an ultimatum to [[Iran]] on [[Cozy.tv|Truth Social]], demanding they give up their nuclear program or they would be destroyed.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:58:45) Trump's demands for [[Iran]] are the same as they have always been: dismantle enrichment facilities, never enrich again, and give up their enriched uranium.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:59:02) [[Iran]] is never agreeing to Trump's demands.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:18:40) [[Nicholas J. Fuentes]] announced that the featured story was the [[Concept|State of the Union]] address delivered by Donald Trump the previous night.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:18:53) [[Nicholas J. Fuentes]] admitted he was wrong about the public reception of Donald Trump's [[Concept|State of the Union]] address.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:19:24) [[Nicholas J. Fuentes]] reported that public opinion polls showed that over 60% of viewers had a positive reaction to Donald Trump's [[Concept|State of the Union]] address, including more than 40% of self-identified [[Democratic Party|Democrats]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:30) [[Nicholas J. Fuentes]] stated that during the [[Concept|State of the Union]], Donald Trump said [[Iran]] must pledge not to build nuclear weapons, adding that Donald Trump had been "looking for these magic words" from [[Iran]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:36) [[Nicholas J. Fuentes]] stated that Donald Trump's new red line—that [[Iran]] must promise not to build a nuclear bomb—represented a significant shift from the previous [[United States|US]] position, which had been a demand for zero enrichment of uranium.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:57) [[Nicholas J. Fuentes]] reported that two other Trump administration officials, [[Marco Rubio]] and [[JD Vance]], had given statements complicating the diplomatic situation with [[Iran]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:37:36) [[Nicholas J. Fuentes]] read a [[Warner Bros. Discovery|CNN]] poll conducted by [[SSRS]] showing that nearly two-thirds of speech watchers had a positive reaction to Donald Trump's [[Concept|State of the Union]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:42:59) [[Nicholas J. Fuentes]] commented that during the [[Concept|State of the Union]], Donald Trump directly blamed the [[Democratic Party|Democrats]] for issues like supporting transgenderism and illegal immigration.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:44:28) [[Nicholas J. Fuentes]] stated that while he was critical of the Trump administration, the [[Democratic Party|Democrats]] are worse because they want to redistribute wealth to non-white people, open borders, and obstruct basic policies like voter ID and e-verify.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:52:13) [[Nicholas J. Fuentes]] stated that while Donald Trump's rhetoric during the [[Concept|State of the Union]] was patriotic and popular, his administration's actions are "totally divorced" from that rhetoric.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:52:38) [[Nicholas J. Fuentes]] criticized Donald Trump for failing to tout specific numbers on deportations during the speech, suggesting this was because the administration has "really nothing to show for it."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:54:06) [[Nicholas J. Fuentes]] argued that if Donald Trump fails to deliver on his promises of tariffs, deportations, and foreign policy restraint, he will drag those ideas down with him and discredit the movement.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:54:24) [[Nicholas J. Fuentes]] stated that economic left-wing populists like [[Zoran Mamdani]] are becoming increasingly popular and will take these issues if Donald Trump fails.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:55:07) [[Nicholas J. Fuentes]] recalled the [[Ron DeSantis]] phenomenon of 2021-2022 as an example of the "Trumpism without Trump" narrative, which was built on the premise that Donald Trump failed and that someone else was needed.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:55:20) [[Nicholas J. Fuentes]] argued that Donald Trump was only able to recover politically because [[Merrick Garland]] and the [[Democratic Party|Democrats]] overplayed their hand by raiding [[Mar-a-Lago]] and indicting him.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:56:00) [[Nicholas J. Fuentes]] stated that the three pillars of Trumpism are tariffs, foreign policy restraint, and nativism.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:58:23) [[Nicholas J. Fuentes]] stated that Donald Trump had given [[Iran]] 10 days to two weeks to make a deal, and that the upcoming talks were "make or break."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:00:28) [[Nicholas J. Fuentes]] suggested that [[Marco Rubio]]'s and [[JD Vance]]'s statements might be a way for the Trump administration to "finesse its own red line" and create an off-ramp by asking [[Iran]] to promise not to pursue an ICBM or a nuclear bomb, instead of demanding zero enrichment.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:03:57) [[Nicholas J. Fuentes]] mentioned the Canary Mission, describing it as an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] pro-[[Palestine|Palestinian]] students and professionals in the [[United States]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:42) [[Nicholas J. Fuentes]] argued that Donald Trump was elected in 2016 with the help of [[Israel]], citing an excerpt from [[James Allsup|James]] Bamford's book, *Spy Fail*, which he said detailed the hidden collusion between Trump and [[Israel]] in the 2016 election to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:54) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]], the military of [[Iran]], a terrorist [[organization]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(00:55:19) [[Nicholas J. Fuentes]] argued that if the [[Democratic Party|Democrats]] take the [[U.S. Congress|House of Representatives]], the final two years of the Trump administration will be dominated by "subpoenas, depositions, investigations, surely there will be at least one impeachment."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(00:56:13) [[Nicholas J. Fuentes]] predicted that a [[Democratic Party|Democratic]] [[U.S. Congress|House]] would use oversight powers to [[target]] not only Donald Trump but also [[JD Vance]], [[Pete Hegseth]], and [[Kristi Noem]], citing "Signalgate" and corruption over border wall contracts.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(00:58:23) [[Nicholas J. Fuentes]] stated that he believes Trump has "basically blown it" and that it is "already over" for the Trump administration, arguing that the window to succeed was only a "year and a half at most" from January 20th to the summer of 2026.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:03:04) [[Nicholas J. Fuentes]] pointed out that contrary to being a "peace [[president]]," Trump is now "bombing" [[Iran]] while the war in [[Ukraine]] continues.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:04:21) [[Nicholas J. Fuentes]] acknowledged that there is an effort inside the Trump administration to "reset" after looking at approval numbers, generic ballot polling, and odds for the midterms.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:07:04) [[Nicholas J. Fuentes]] characterized the story of the Trump administration as "denial by delay," arguing that the "permanent bureaucracy in [[Washington D.C.|Washington]]" defeats the MAGA agenda through "procedural obstacles, court challenges."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:09:21) [[Nicholas J. Fuentes]] reported that the [[Supreme Court of the United States|Supreme Court]] struck down Trump's emergency tariffs, forcing the government to provide a refund of $150 billion plus interest to the firms that paid them.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:10:14) [[Nicholas J. Fuentes]] stated that Trump’s use of the emergency powers (IEPA) for tariffs was an "unforced error," as his first-term trade representative [[Robert Lighthizer]] had specifically warned him against using that law because it would be struck down.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:12:04) [[Nicholas J. Fuentes]] argued that the required radical change needed a "[[Julius Caesar|Caesar]]" [[who]] would "suspend the normal rules of government" and "cross the Rubicon," and that Donald Trump "is not that guy, doesn't have it in him."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:12:28) [[Nicholas J. Fuentes]] disclosed that he did not vote for Donald Trump in the 2024 election.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(01:15:14) [[Nicholas J. Fuentes]] stated that Donald Trump is "retarded now," no longer having the energy and sharpHere is the chronological knowledge log derived from the monologue portion of the video transcript.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(14:54:40) [[Nicholas J. Fuentes]] reported that Donald Trump's 2026 [[Concept|State of the Union]] address was expected to be the longest in history, lasting two to three hours.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(14:56:07) [[Nicholas J. Fuentes]] predicted that if [[Democratic Party|Democrats]] take the [[U.S. Congress|United States House of Representatives]] in the 2026 midterms, the final two years of Donald Trump's second term will be characterized by subpoenas, depositions, investigations, and at least one impeachment.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(14:59:01) [[Nicholas J. Fuentes]] argued that Donald Trump needed to present a list of accomplishments to salvage his record for the midterms, but that this opportunity for legislative success has already been lost.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(15:00:17) [[Nicholas J. Fuentes]] stated that Donald Trump’s administration failed due to having the wrong personnel and making poor decisions, mirroring the first term.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(15:00:17) [[Nicholas J. Fuentes]] claimed that the momentum for the Trump administration has been lost as of February 2026.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(15:00:54) [[Nicholas J. Fuentes]] cited the optimism from Donald Trump's election night victory in 2024, the inauguration, and [[Elon Musk]]'s gesture at a victory rally as a stark contrast to the current negative sentiment.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(15:01:34) [[Nicholas J. Fuentes]] listed unfulfilled promises from the Trump administration, including building new cities, ending the war in [[Ukraine]] in 24 hours, beginning mass deportations on day one, and ushering in a "golden age."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(16:18:29) [[Nicholas J. Fuentes]] made a comment about [[Benjamin Netanyahu|Netanyahu]], saying, "prevent him from weaving" in reference to Donald Trump's speaking style.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(16:34:12) [[Nicholas J. Fuentes]] commented on Donald Trump's cognitive decline, stating, "he's like retarded now," and noted his degrading speaking style and physical appearance.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(17:22:51) [[Nicholas J. Fuentes]] gave a preview of the [[Concept|State of the Union]], predicting Donald Trump would focus on border security, a new tax cut, and the situation with [[Iran]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(17:24:40) [[Nicholas J. Fuentes]] stated that Donald Trump may either declare war on [[Iran]] or introduce a new innovation in policy during the speech.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(19:27:54) Donald Trump was introduced to the joint session of [[U.S. Congress|Congress]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(19:27:54) Donald Trump gave his [[2026 State of the Union Address]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(20:12:31) [[Nicholas J. Fuentes]] commented that Donald Trump's hair "looks cooked."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(21:29:01) Donald Trump claimed that the border is secure, the economy is "roaring," enemies are scared, and [[United States|America]] is respected again.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(21:34:55) Donald Trump claimed that in the past nine months, zero illegal aliens have been admitted to the [[United States]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(21:35:59) Donald Trump stated that the flow of deadly fentanyl across the border is down 56%.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(21:41:20) Donald Trump mentioned his father, [[Fred Trump]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(21:43:45) Donald Trump reported that the [[Stock market]] has set 53 all-[[time]] record highs since the election.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(21:52:42) Donald Trump acknowledged the [[Men's Gold Medal Olympic Hockey Team]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(22:01:35) Donald Trump stated he would present goaltender [[Connor Hellebuyck]] with the [[Presidential Medal of Freedom]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(22:18:30) Donald Trump announced a "war on fraud" targeting the [[Somalia|Somali]] community in [[Minnesota]], [[who]] he claimed had stolen an estimated $19 billion from taxpayers.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(23:03:30) Donald Trump called on [[U.S. Congress|Congress]] to pass the "SAVE [[United States|America]] Act" to stop illegal aliens and other unpermitted persons from voting.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(23:22:45) [[Charlie Kirk]] was recognized by Donald Trump as having been "violently murdered by an assassin."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(23:22:48) [[Erika Frantz Kirk|Erica Kirk]], the widow of [[Charlie Kirk]], was present in the gallery and recognized by Donald Trump.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(23:45:22) Donald Trump stated that his military aide would "take care of that very important service."
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) Donald Trump claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:38:43) Donald Trump discussed the "Operation Midnight Hammer" attack on [[Iran]]'s nuclear weapons program.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(25:02:15) Donald Trump claimed that the [[North Atlantic Treaty Organization|NATO]] countries agreed to pay 5% of GDP for military defense.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(25:09:42) Donald Trump discussed the capture of [[Nicolás Maduro]] by elite [[United States|American]] warriors.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(25:27:24) Donald Trump awarded the [[Congressional Medal of Honor]] to [[Royce Williams]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(56:49:93) [[Nicholas J. Fuentes]] described the Canary Mission as an [[Israel|Israeli]]-funded blacklist, which since July 2025 has been used by the Trump administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:00:51:66) [[Nicholas J. Fuentes]] alleged that Trump was elected in 2016 with the help of the [[Israel|Israelis]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion between Trump and [[Israel]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:01:27:74) [[Nicholas J. Fuentes]] stated that in 2018, Trump declared the [[Iran|IRGC]] a terrorist [[organization]], leading to a shadow war with [[Iran]] that culminated in the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:02:02:90) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the [[Iran]] problem with the deal, but [[Benjamin Netanyahu|Netanyahu]] and the [[Israel|Israelis]] hated him for it and colluded with Trump to create a ladder of escalation.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(21:23:92:00) [[Nicholas J. Fuentes]] reported that Trump is furious that [[U.S. Department of Defense|U.S. military]] capabilities are so limited and wants to topple the [[Government of Iran|Iranian government]] quickly with a massive use of force, but he is frustrated it cannot be done without a protracted conflict.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(22:47:14:00) [[Nicholas J. Fuentes]] stated that Trump tried to fight for regime change in the [[country]] but gave up after a year when faced with resistance from cities like [[Minneapolis]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(22:55:06:00) [[Nicholas J. Fuentes]] argued that the Trump administration claims it cannot restore order in [[Chicago]] or [[Minneapolis]] because it is too complicated, but it has half the military in the [[Middle East]] to topple another government for the benefit of [[Israel]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(24:42:35:00) [[Nicholas J. Fuentes]] stated that what the Trump administration has done is remove [[Bashar al-Assad]] and set up a war with [[Iran]], while [[Harvard University|Harvard]] now has a [[Jews|Jewish]] [[president]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(25:12:17:00) [[Nicholas J. Fuentes]] reported that Trump has publicly denied reports from the [[The Wall Street Journal|Wall Street Journal]] and [[The New York Times|New York Times]] that he is considering a limited strike on [[Iran]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(25:15:03:00) [[Nicholas J. Fuentes]] stated that Trump confirmed that it is a "deal or nothing" approach with [[Iran]]
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:14:22) Donald Trump unofficially announced a 10-day countdown to war with [[Iran]] during a press conference at the first meeting of the [[Gaza Strip|Gaza]] board for peace.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:14:29) Donald Trump stated that he would give [[Iran]] 10 days and would make his decision within that [[time]] whether or not to go to war.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:15:19) The [[The Wall Street Journal|Wall Street Journal]] published an exclusive piece offering insight into Donald Trump's thinking regarding potential military action against [[Iran]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:15:47) Unnamed anonymous officials in [[the White House]] told the [[The Wall Street Journal|Wall Street Journal]] that Donald Trump is considering an initial strike against [[Iran]] that will be minimal and intended to compel [[Iran]] to surrender.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:19:05) [[Nicholas J. Fuentes]] covered the story of a [[Catholic Church|Catholic]] woman appointed to the Federal Religious Liberty Commission by Donald Trump [[who]] was publicly removed from the board because she said she was not a [[Jews|Zionist]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:19:15) A [[Catholic Church|Catholic]] woman appointed to the Federal Religious Liberty Commission by Donald Trump was removed after stating that as a [[Catholic Church|Catholic]], she was not a [[Jews|Zionist]] and did not support [[Israel]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:20:12) Kerry Pregine-Bowler challenged [[Dan Patrick]]'s authority to remove her from the Federal Religious Liberty Commission, stating that only Donald Trump has the power to remove her.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:23:01) [[Nicholas J. Fuentes]] argued that Donald Trump has made it his mission to alienate the people [[who]] supported him in 2016, including [[America First]] and MAGA supporters.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:23:20) [[Nicholas J. Fuentes]] argued that the only people the Donald Trump administration serves are the donors.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:23:30) [[Nicholas J. Fuentes]] argued that [[Catholic Church|Catholics]], whites, conservatives, and patriots are forgotten by the Donald Trump administration.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:37:02) Donald Trump, [[Marco Rubio]], and [[Steve Wittkoff|Steve Witkoff]] told [[Iran]] that war can be avoided if they give up nuclear enrichment, forfeit their stockpile of enriched uranium, and give up their ballistic missile program.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:38:07) [[Nicholas J. Fuentes]] argued that [[Iran]] is miscalculating by stalling and thinking they still have cards to play in negotiations with the Donald Trump administration.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:39:10) The press secretary, spokesman for the [[U.S. Department of State|State Department]], [[Marco Rubio]], the [[Vice Media|Vice]] [[White House|President]], and Donald Trump all stated that if [[Iran]] does not come to their position, the [[United States]] will go to war.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:41:47) [[Nicholas J. Fuentes]] reported that the [[The Wall Street Journal|Wall Street Journal]] published an exclusive story citing unnamed sources inside the administration saying that Donald Trump is considering a more surgical strike on [[Iran]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:42:13) The [[The Wall Street Journal|Wall Street Journal]] reported that Donald Trump is weighing an initial limited military strike on [[Iran]] to force it to meet his demands for a nuclear deal, short of a full-scale attack.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:42:41) The [[The Wall Street Journal|Wall Street Journal]] reported that if [[Iran]] still refused to comply with Donald Trump's directive to end nuclear enrichment, the [[United States]] would respond with a broad campaign against regime facilities potentially aimed at toppling the regime in [[Tehran]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:43:19) Donald Trump told reporters that his timeline for deciding next moves on [[Iran]] was a maximum of roughly two weeks.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:43:22) Donald Trump told reporters "We're going to make a deal or get a deal one way or the other" regarding [[Iran]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:43:37) [[Nicholas J. Fuentes]] noted that Donald Trump loves the element of surprise and speculated that strikes against [[Iran]] might come toward the end of the 10-day to two-week deadline.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:47:05) [[Nicholas J. Fuentes]] described Donald Trump's approach as "smart power" and compared it to the operation in [[Venezuela]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:48:30) [[Nicholas J. Fuentes]] argued that [[Iran]] is looking at the [[United States]] the same way they looked at the [[Joe Biden|Biden]], [[Barack Obama|Obama]], or [[George W. Bush|Bush]] administrations, but it is a "new sheriff" and Donald Trump "doesn't play on that timeline."
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:49:09) [[Nicholas J. Fuentes]] expressed skepticism about the [[The Wall Street Journal|Wall Street Journal]] report that Donald Trump is thinking about a very limited strike on [[Iran]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:50:15) [[Nicholas J. Fuentes]] argued that Donald Trump is not the type of [[president]] to do a "pinprick strike" on [[Iran]], wait, and ask again nicely for negotiations.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:52:47) [[Nicholas J. Fuentes]] predicted that if there is a strike on [[Iran]], it will be "very hard," "very big," and a surprise, and that Donald Trump will leave [[Iran]] in ruins.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:06:30) [[Nicholas J. Fuentes]] argued that [[Israel]] got Donald Trump in office because they know he is the least likely [[person]] in the world to make a deal with [[Iran]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:06:55) [[Nicholas J. Fuentes]] argued that [[Israel]] has engendered bad blood and made Donald Trump the mortal enemy of [[Iran]], potentially precluding the [[United States]] from making a deal because of Donald Trump's grudge.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:13:03) [[Nicholas J. Fuentes]] predicted that a strike on [[Iran]] will be heavy, creative like the [[Venezuela]] operation, and unpredictable, because that is Donald Trump's MO.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:14:57) [[Nicholas J. Fuentes]] reported that Donald Trump appointed a Federal Religious Liberty Commission made up of religious leaders and conservatives.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:25:00) [[Nicholas J. Fuentes]] argued that in 2024, when Donald Trump downplayed the issue of abortion, [[Catholic Church|Catholics]] revolted and the [[Republican party]] told them to "shut the f*** up."
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:26:12) [[Nicholas J. Fuentes]] asked what the purpose of the Donald Trump administration is, arguing it is not pro-free speech, pro-religious liberty, anti-war, reindustrializing the economy, nativist, or restrictionist.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:27:02) [[Nicholas J. Fuentes]] argued that the Donald Trump administration has failed to do the things it promised for its voters, and the real victories are for [[Jews|Jewish]] interests.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:05:07.150) [[Nicholas J. Fuentes]] reported that the Canary Mission, an [[Israel|Israeli]]-funded blacklist, has been used by the administration of Donald Trump since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:09:01.880) [[Nicholas J. Fuentes]] argued that Donald Trump was elected in 2016 with the help of the [[Israel|Israelis]] to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:09:08.840) [[Nicholas J. Fuentes]] cited the book *Spy Fail* by [[James Bamford]], claiming it details hidden collusion in the 2016 election between Donald Trump and [[Israel]], not Donald Trump and [[Russian Federation|Russia]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:09:38.040) [[Nicholas J. Fuentes]] stated that the [[United States]] withdrew from the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] as a result of [[Israel|Israeli]] influence on Donald Trump.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:09:44.660) [[Nicholas J. Fuentes]] reported that in 2018, Donald Trump declared the [[Iran|IRGC]] (the military of the [[Iran|Iranian regime]]) a terrorist group, green-lighting that group for sanctions and attacks.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:10:23.350) [[Nicholas J. Fuentes]] argued that the [[Israel|Israelis]] hated [[Barack Obama]] for the [[Joint Comprehensive Plan of Action|JCPOA]] and colluded with Donald Trump to get him elected so that Trump would apply "maximum pressure," creating a ladder of escalation by pulling out of the deal, declaring the [[Iran|IRGC]] terrorists, killing its leader, and putting sanctions on the regime.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:17:33.940) [[Nicholas J. Fuentes]] stated that all signs point toward a weeks-long air campaign, not a ground operation or a decisive confrontation as requested by Donald Trump.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:21:00.040) [[Nicholas J. Fuentes]] stated that mass deportations under Donald Trump are not happening and are "grinding to a halt."
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:25:29.510) [[Nicholas J. Fuentes]] argued that political analysis must focus on the anatomy of the power structure and the true seat of power, rather than sentiment or feelings about Donald Trump or [[Stephen Miller]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:29:14.000) [[Nicholas J. Fuentes]] argued that opposing foreign wars was a central plank of the original MAGA and [[America First]] movements and the basis upon which Donald Trump attacked [[George W. Bush|Jeb Bush]] in 2015.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:32:50.280) [[Nicholas J. Fuentes]] argued that Donald Trump is now doing the literal opposite of what he criticized in 2015, selling a war he once opposed.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:34:15.760) [[Nicholas J. Fuentes]] observed that pro-Trump accounts in the replies to his post are saying they trust Donald Trump and support the war.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:34:59.560) [[Nicholas J. Fuentes]] argued that a significant percentage of middle [[United States|American]] radicals will support whatever Donald Trump does, even if it is a complete betrayal of his promises.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:36:12.540) [[Nicholas J. Fuentes]] argued that had [[Kamala Harris]] won the election, she would also be bringing the [[United States]] to war in [[Iran]], but that Donald Trump and 100% of [[Republican Party|Republicans]] would be against it.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:37:57.570) [[Nicholas J. Fuentes]] stated as a fact that if Donald Trump pushes something, 80% of [[Republican Party|Republicans]] will support it no matter what, but if [[Kamala Harris]] did the exact same thing, 80% of [[Republican Party|Republicans]] would be against it.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:41:30.780) [[Nicholas J. Fuentes]] stated that Donald Trump and the [[Republican Party|GOP]] are "sucking all the resources" from the populist opposition to the entire establishment, preventing any other option from emerging and re-entrenching the establishment.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:51:35.340) [[Nicholas J. Fuentes]] argued that Donald Trump entered office needing to fix the economy and bring down inflation, and he would have to choose between mass deportations (which would destroy the economy) or performative gestures.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:54:47.260) [[Nicholas J. Fuentes]] reported that in 2025, the administration deported 230,000 people, and by 2026, Donald Trump changed the policy to only go after "criminal illegals" [[who]] have committed crimes beyond illegal entry.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:55:11.500) [[Nicholas J. Fuentes]] reported that Donald Trump, [[Stephen Miller]], and [[Brooke Rollins]] were devising a plan to give H2A visas to illegal immigrants working on farms, effectively an amnesty or "carve out."
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:56:10.680) [[Nicholas J. Fuentes]] reported that when [[U.S. Immigration and Customs Enforcement|ICE]] deported 300 [[Southern United States|South]] Koreans from a Hyundai factory in [[Country of Georgia|Georgia]], Donald Trump himself called the governor and apologized, saying he wouldn't do it again.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:09:06.200) [[Nicholas J. Fuentes]] argued that Donald Trump plays up cultural and social issues (e.g., "build the wall, deport them all") to get elected, but then protects the economic interests of his donors by not deporting illegal immigrants [[who]] are working.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:10:18.390) [[Nicholas J. Fuentes]] stated that [[U.S. Immigration and Customs Enforcement|ICE]] was accidentally deporting people from their jobs at the beginning of the Trump administration, but Donald Trump told [[Stephen Miller]] to stop because he "got the call" from asset managers, banks, and [[The Wall Street Journal|Wall Street]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:11:33.420) [[Nicholas J. Fuentes]] stated that the billionaire class called Donald Trump and the Commerce Secretary and said "shut it down" because their "slaves" were afraid to go to work due to fear of deportation.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:12:16.340) [[Nicholas J. Fuentes]] stated that Donald Trump decided not to implement e-verify and instead ordered visible patrols of [[U.S. Immigration and Customs Enforcement|ICE]] to make it look like deportations were happening without actually deporting people.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:23:37) President Trump has the option to take military action against [[Iran]] as early as the weekend, based on intelligence from [[U.S. Department of Defense|Pentagon]] officials.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:24:00) Donald Trump gave no indication he has decided between pursuing diplomacy or war against [[Iran]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:24:19) Donald Trump repeatedly demanded that [[Iran]] give up its nuclear program.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:25:31) [[Benjamin Netanyahu]] began asking the [[United States]] to bomb [[Iran]]'s nuclear program as soon as Donald Trump entered office.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:27:14) Donald Trump called off an earlier strike on [[Iran]] because the [[United States]] lacked sufficient assets in the [[region]], including only one carrier strike group.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:27:32) Donald Trump began sending warships, missile defense systems, and other assets to the [[Middle East]] to prepare for a possible attack on [[Iran]] and to defend against a counterattack.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:28:08) Donald Trump gave [[Iran]] an ultimatum to fully surrender or face the destruction of their regime.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:37:37) Donald Trump has not decided whether to order strikes on [[Iran]], or whether the [[aim]] would be to halt the nuclear program, wipe out missiles, or topple the regime.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(04:39:59) [[Nicholas J. Fuentes]] stated that if Donald Trump had died at [[Butler|Butler, PA]], [[Nikki Haley]] would have taken the nomination and become [[president]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(00:56:50) The Canary Mission is an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students, professors, and professionals in [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(00:59:01) Trump and his administration engaged in symbolic prostration to [[Israel]], including presidents kissing the Western Wall and wearing a kippah.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:00:52) Trump was elected in 2016 with the help of [[Israel]] in a hidden collusion detailed in an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail*.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:01:32) Donald Trump declared the [[Iran|IRGC]], the military of the regime, a terrorist group in 2018, green-lighting sanctions and attacks.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:02:16) Donald Trump created a "ladder of escalation" with [[Iran]] by pulling the [[United States]] out of the [[Joint Comprehensive Plan of Action|JCPOA]], declaring the [[Iran|IRGC]] terrorists, killing its leader, and putting sanctions on the regime.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:02:30) The forever war with [[Iran]] has been going on for seven years, starting in 2018 with Trump.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:11:30) [[Nicholas J. Fuentes]] predicted that [[Republican Party|Republican]]s will lose the [[U.S. Congress|House]] in the midterms and might lose the [[U.S. Congress|Senate]], which would be a rebuke of Donald Trump and the agenda.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:14:20) [[Nicholas J. Fuentes]] argued that the Trump administration is a "complete disaster" due to its cover-up of the [[Jeffrey Epstein|Epstein]] files, its failure to deliver mass deportations after "totally surrender[ing] to [[Minneapolis]]", and its back-tracking on tariffs.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:37:42) Donald Trump gave [[Iran]] an ultimatum: surrender or die, demanding either capitulation to the [[United States]]' demands or war.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:37:53) Donald Trump repeatedly said he is looking for a "decisive military option" with [[Iran]], which is a translation for regime change.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:41:40) [[Benjamin Netanyahu|Bibi]] [[Benjamin Netanyahu|Netanyahu]], [[who]] met with Donald Trump the previous week, said a "good deal" with [[Iran]] would require the dismantling of [[Iran]]'s nuclear infrastructure and limiting the range of its ballistic missiles.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:48:43) Donald Trump pulled the [[United States]] out of the [[Joint Comprehensive Plan of Action|JCPOA]] because he said the deal would sunset after 10 years, allowing [[Iran]] to resume unrestricted enrichment.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:16:55) [[Miriam Adelson]] pledged $100 million to Trump after [[Nikki Haley]] dropped out of the race and threw her support behind Trump, with the "price tag" being [[Gaza Strip|West Bank]], [[Gaza Strip]], and [[Iran]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:17:47) Trump ran in 2016 on being against the war in [[Iraq]], a fact made prominent in his campaign against [[George W. Bush|Jeb Bush]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(00:55:22) [[Nicholas J. Fuentes]] described the "Canary Mission" as an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:00:05) [[Nicholas J. Fuentes]] claimed that in 2018 Donald Trump declared the [[Iran|IRGC]] a terrorist group and that the [[United States]] is now in a "shadow war" with [[Iran]], culminating in the assassination of [[Qasem Soleimani]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:39:24) [[Nicholas J. Fuentes]] predicted that Donald Trump and [[JD Vance]] will be impeached, subpoenaed, and deposed if the [[Democratic Party]] wins the [[U.S. Congress|United States House of Representatives]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:41:55) [[Nicholas J. Fuentes]] stated that he had predicted in 2024 that Donald Trump would fail to deliver on mass deportations and that the administration would be a "train wreck."
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:10:27) [[Nicholas J. Fuentes]] claimed that mass deportations "hit the iceberg" in January and are now over, after Donald Trump sent [[U.S. Immigration and Customs Enforcement|ICE]] and [[Customs and Border Protection|Border Patrol]] to [[Minneapolis]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:11:48) [[Nicholas J. Fuentes]] argued that the Trump administration responded to media pressure and public backlash with a "total capitulation," and that [[U.S. Immigration and Customs Enforcement|ICE]] has officially concluded its surge operation.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:22:00) [[Nicholas J. Fuentes]] stated that the [[Democratic Party]] shut down the government in the fall for 45 days, the longest government shutdown in history, without achieving their stated goal of [[Deferred Action for Childhood Arrivals|Obamacare]] tax credits, doing it just to tell their voters they resisted Trump.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:28:00) [[Nicholas J. Fuentes]] argued that Donald Trump had only 18 months to implement his agenda before [[the left]] would launch a "counterattack" and the [[Republican Party|Republicans]] would lose the midterms.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:29:53) [[Nicholas J. Fuentes]] claimed that Donald Trump has "failed at everything except for antagonizing our enemies," and that he has guaranteed the pendulum will swing so hard to [[the left]] it will "kill all of [[us]]."
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:29:55) [[Nicholas J. Fuentes]] stated that Donald Trump has been "incompetent," that mass deportations have not happened, tariffs have been a "pittance," and [[Doge]] did not cut any waste, fraud, or abuse.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:32:07) [[Nicholas J. Fuentes]] argued that Donald Trump could have implemented "martial law," suspended habeas corpus, arrested governors and mayors, and that the results would have been the same as the current failures.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:33:42) [[Nicholas J. Fuentes]] stated that Donald Trump's approval rating is lower at this point in his presidency than [[Joe Biden|Biden]]'s or his own first term, and that he is underwater with the under-40 crowd.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:34:15) [[Nicholas J. Fuentes]] claimed that the Trump administration is "crashing and burning over [[Jeffrey Epstein|Epstein]], over [[Iran]], over the failure to deliver deportations," and that [[JD Vance]] will be blamed.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:42:27) [[Nicholas J. Fuentes]] argued that there is a "non-zero chance" that Donald Trump might be removed from office by his own people during a [[Democratic Party|Democratic]] [[U.S. Congress|House]] investigation.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:43:50) [[Nicholas J. Fuentes]] stated that Donald Trump was "the [[Jews|Jewish]] candidate" [[who]] gave [[Israel]] the [[Gaza Strip|West Bank]], [[Gaza Strip|Gaza]], [[Iran]], and [[Syria]] "on a silver platter."
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:48:30) [[Nicholas J. Fuentes]] claimed vindication for his 2024 predictions, saying that people hated him for trashing Trump and saying "don't vote," but now they see he was right.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:50:48) [[Nicholas J. Fuentes]] stated that he hopes the [[Democratic Party|Democrats]] impeach Donald Trump, depose officials, compel the release of documents, and create a crisis for the [[Republican Party|GOP]] so severe they never recover.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:52:10) [[Nicholas J. Fuentes]] stated he will not vote for [[JD Vance]] or the [[Republican Party|GOP]], calling Donald Trump's presidency a failure that has only "profited [[Israel]]," [[San Francisco Bay Area|Silicon Valley]], and [[The Wall Street Journal|Wall Street]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:53:13) [[Nicholas J. Fuentes]] argued that Donald Trump is no longer the outsider he was in 2016, and that the definition of insanity is voting for the [[Republican Party]] over and over while expecting a different result.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:51:56) [[Nicholas J. Fuentes]] advised a super-chatter not to be a hero and fight anti-[[U.S. Immigration and Customs Enforcement|ICE]] protests, as it is Trump's job to do deportations, and the audience should "play the long game" to get power.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:55:30) [[Nicholas J. Fuentes]] listed his broadcast influences: [[Bill O'Reilly]], [[Greg Gutfeld]], [[John Stossel]], [[Samuel J. Hyde|Sam Hyde]], Donald Trump, [[Alex Jones]], [[Gavin McInnes]], and [[Milton Friedman]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:54:58) [[Nicholas J. Fuentes]] stated that the Canary Mission is an [[Israel|Israeli]]-funded blacklist which, since July 2025, has been confirmed to be used by the Trump administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:58:54) [[Nicholas J. Fuentes]] claimed that Donald Trump was elected in 2016 with the help of [[Israel|Israelis]], citing an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail* that details "hidden collusion" in the 2016 election between Trump and [[Israel]], not Trump and [[Russian Federation|Russia]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:59:36) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian]] regime, a terrorist group, green-lighting sanctions and attacks, thereby placing the [[United States]] in a shadow war with [[Iran]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(01:00:11) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] had solved the [[Iran]] problem with the deal, but the [[Israel|Israelis]] hated him for it and colluded with Donald Trump to get him elected so that Trump would pull out of the deal, declare the [[Iran|IRGC]] terrorists, and kill its leader.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:08:20) [[Nicholas J. Fuentes]] stated that the second year of the second Trump administration had been slow, and he decided to do the show to take a "victory lap" regarding [[U.S. Immigration and Customs Enforcement|ICE]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:09:09) [[Nicholas J. Fuentes]] admitted that his goal in doing the show was to demoralize Trump supporters and make them feel bad, shame, and despair for voting for Trump, so that they would not repeat the mistake in 2028.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:10:39) [[Nicholas J. Fuentes]] stated that people acuse him of being a secret [[Democratic Party|Democrat]], but his goal is to impress hopelessness upon Trump supporters so they do not re-elect him.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:11:08) [[Nicholas J. Fuentes]] predicted that the people [[who]] are still "trusting the plan" and "coping" for Trump are being prepared to have [[JD Vance]] foisted upon them in 2028.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:12:16) [[Nicholas J. Fuentes]] restated his 2024 position that he would not vote for Donald Trump unless he committed to an immigration moratorium and refused regime change in [[Iran]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:14:50) [[Nicholas J. Fuentes]] described the Milady rave party as a [[Peter Thiel]]-adjacent project in [[New York|New York City]], where people pretend to be fashion people and artists but are subsidized by [[Peter Thiel]] and his cronies, and are pro-[[JD Vance|Vance]] and pro-Trump.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:20:25) [[Nicholas J. Fuentes]] recalled that at Donald Trump's inauguration, the Milady group hosted a "Golden Age Ball" after-party in [[Washington D.C.|Washington, D.C.]] attended by a dozen people, including a "[[Israel Defense Forces|Mossad]] chief," rabbis, and [[Laura Loomer]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:31:42) [[Nicholas J. Fuentes]] read that [[Tom Homan]]'s announcement came two weeks after Trump officials removed [[Customs and Border Protection|Border Patrol]] commander Gregory Bovino.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:34:24) [[Nicholas J. Fuentes]] cited the [[Washington Post's]] statement that the targeted approach would not enable Trump to deport millions, noting that only 700,000 of 11 million unlawful immigrants had criminal histories.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:37:38) [[Nicholas J. Fuentes]] stated that Trump went into [[Minneapolis]] with a big show of force but did not do anything, and that the [[U.S. Department of Homeland Security|DHS]] investigations were just for the cameras.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:42:28) [[Nicholas J. Fuentes]] stated that in response to the protests, Donald Trump sent in [[U.S. Department of Defense|National Guard]] and increased the presence of [[U.S. Immigration and Customs Enforcement|ICE]] agents to deal with the protesters.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:44:07) [[Nicholas J. Fuentes]] characterized the moment as a "moment of decision" for Donald Trump, [[who]] had run on a platform of mass deportations after ten years of effort.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:45:10) [[Nicholas J. Fuentes]] stated that Donald Trump got $150-190 billion for a wall, [[U.S. Immigration and Customs Enforcement|ICE]], and deportations.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:45:37) [[Nicholas J. Fuentes]] argued that at the moment of decision, Donald Trump "completely and totally and unambiguously cucks," "chickens out" and "surrenders."
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:55:37) [[Nicholas J. Fuentes]] argued that the Trump administration just taught left-wing agitators that if they riot, they get their way.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:57:17) [[Nicholas J. Fuentes]] stated that [[the left]] won and Donald Trump let them win.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:57:40) [[Nicholas J. Fuentes]] argued that Donald Trump had the popular mandate, the executive branch, the law, and a $200 billion budget for [[U.S. Department of Homeland Security|DHS]], but lacked the political will to put agitators in jail.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:58:49) [[Nicholas J. Fuentes]] stated that the "decisive confrontation" over mass deportations was lost because Donald Trump "blinked."
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:03:22) [[Nicholas J. Fuentes]] called Donald Trump a "bitch" for chickening out.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:03:47) [[Nicholas J. Fuentes]] speculated that the Trump administration surrendered because the Chamber of Commerce and the [[Republican Party|Republican conference]] did not like the protests and worried about losing the midterms.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:04:30) [[Nicholas J. Fuentes]] argued that Donald Trump has the power but not the will to do mass deportations.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:05:56) [[Nicholas J. Fuentes]] warned that when a [[Democratic Party|Democrat]] wins in 2028, they will abolish [[U.S. Immigration and Customs Enforcement|ICE]], open the borders, and undo everything Trump did.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:06:42) [[Nicholas J. Fuentes]] stated that he warned in 2024 that if Trump was elected and failed to deliver, he would be an albatross that drags everyone down, leading to a far-left [[president]] in 2028.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:07:25) [[Nicholas J. Fuentes]] argued that the exact same failure happened eight years prior with Trump's first term.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:13:42) [[Nicholas J. Fuentes]] blamed [[Tom Homan]], [[Stephen Miller]], [[Kristi Noem]], and Donald Trump for the failure.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:14:00) [[Nicholas J. Fuentes]] called on people to stay home in the 2026 midterms, stating that Trump had no intention of doing mass deportations.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:19:55) [[Nicholas J. Fuentes]] stated that [[JD Vance]] was a Never Trumper [[who]] called Trump a [[Germany|Nazi]] on [[Warner Bros. Discovery|CNN]] before needing his endorsement.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:21:13) [[Nicholas J. Fuentes]] stated that it has been 10 years since Donald Trump came down the escalator in 2015, and the movement has not started winning.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:21:43) [[Nicholas J. Fuentes]] listed the sacrifices made by the movement: [[Charlie Kirk]] and Donald Trump getting shot, J6ers going to jail, people losing jobs due to vaccine mandates and MAGA hats, and people getting censored and de-banked.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:24:22) [[Nicholas J. Fuentes]] stated that the Trump administration is an "elaborate performance" that needs to be "burned all down."
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:25:37) [[Nicholas J. Fuentes]] characterized Donald Trump as an "accommodator" with no ideology [[who]] is "hollow."
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:26:17) [[Nicholas J. Fuentes]] compared the capitulation in [[Minneapolis]] to Trump's failures during COVID and the [[Black Lives Matter|BLM]] riots.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(56:49:00) [[Nicholas J. Fuentes]] reported that the Canary Mission is an [[Israel|Israeli]]-funded blacklist confirmed to be used by the Trump administration to [[target]] students, professors, and professionals [[who]] oppose [[Israel]] in the [[United States]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:00:51:00) [[Nicholas J. Fuentes]] claimed that Donald Trump was elected in 2016 with the help of [[Israel]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:00:53:00) [[Nicholas J. Fuentes]] cited an excerpt from [[James Bamford]]'s book *Spy Fail* that he said details "hidden collusion" in the 2016 election between Donald Trump and [[Israel]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:01:33:00) [[Nicholas J. Fuentes]] claimed that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group, which initiated a shadow war with [[Iran]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:02:06:00) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the [[Iran]] issue with the deal, but [[Israel]] colluded with Donald Trump to get him elected so he would create a ladder of escalation by pulling out of the deal and killing [[Qasem Soleimani]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(43:57:00) [[Nicholas J. Fuentes]] asserted that [[Pam Bondi]] was coached by Donald Trump to talk about the [[stock]] market and frame the issue differently.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(44:40:00) [[Nicholas J. Fuentes]] stated that Donald Trump's standard deflection when in trouble is a monologue about the "most successful administration in history," job numbers, and the border.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(47:21:00) [[Nicholas J. Fuentes]] argued that the [[Jeffrey Epstein|Epstein]] scandal is an "albatross" for Donald Trump and that if Trump wants to survive politically, he must fire [[Howard Lutnick]], go after [[Les Wexner]], and release all the files.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(48:08:00) [[Nicholas J. Fuentes]] claimed that the Trump administration tried to cover up the scandal last year by faking with binders, lying, and shutting down [[U.S. Congress|Congress]] to prevent them from forcing the release of files.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(48:37:00) [[Nicholas J. Fuentes]] stated that the [[Jeffrey Epstein|Epstein]] issue "almost single-handedly destroyed" Donald Trump's support among the 18-to-29-year-old demographic.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(50:21:00) [[Nicholas J. Fuentes]] stated that he has had many conversations with [[Alex Jones]] about the [[Jeffrey Epstein|Epstein]] scandal and Donald Trump's handling of it.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(50:36:00) [[Nicholas J. Fuentes]] described Donald Trump as "too stubborn" and predicted his situation would not improve.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:44:00:00) [[Nicholas J. Fuentes]] asserted that Donald Trump coached [[Pam Bondi]] to use this playbook before the hearing.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:47:35:00) [[Nicholas J. Fuentes]] called the [[Jeffrey Epstein|Epstein]] scandal an "albatross" for Donald Trump.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:48:08:00) [[Nicholas J. Fuentes]] repeated that the Trump administration tried to cover up the scandal last year by faking with binders, lying, and shutting down [[U.S. Congress|Congress]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:48:38:00) [[Nicholas J. Fuentes]] repeated that the [[Jeffrey Epstein|Epstein]] issue destroyed Donald Trump's support among the 18-to-29-year-old demographic.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:50:36:00) [[Nicholas J. Fuentes]] repeated that Donald Trump is "too stubborn" to fix the situation.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:14:07:00) [[Nicholas J. Fuentes]] stated that there is tons of pressure on the Trump administration to release all the files.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:15:19:00) [[Nicholas J. Fuentes]] stated that Donald Trump is connected to the [[Jeffrey Epstein]] scandal, and many members of his cabinet are also connected.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:18:14:00) [[Nicholas J. Fuentes]] read a quote from [[The Wall Street Journal]] stating that [[Pam Bondi]] defended the [[U.S. Department of Justice|DOJ]]'s release of files, traded barbs with [[Democratic Party|Democrats]], praised Donald Trump, and declined to apologize to the victims seated behind her.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:19:30:00) [[Nicholas J. Fuentes]] reported that [[Pam Bondi]] accused lawmakers of "theatrics" and directed criticism at those challenging the Trump administration.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:22:09:00) [[Nicholas J. Fuentes]] described the hearing as a "catastrophe" and a "total disaster" for the Trump administration.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:23:30:00) [[Nicholas J. Fuentes]] stated that the scandal started small but is now "destroying the [[Republican Party|GOP]]" and killing Donald Trump's favorability, especially with younger people.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:23:55:00) [[Nicholas J. Fuentes]] said the Trump administration's playbook of ignoring the scandal has been a failure since July.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:25:15:00) [[Nicholas J. Fuentes]] stated that the Trump administration's response to the pressure is to call it all "fake" and "a [[Democratic Party|Democrat]] hoax."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:25:55:00) [[Nicholas J. Fuentes]] described Donald Trump as "delusional" and "sick," saying people [[who]] talk to the [[president]] report hours of self-congratulations.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:26:12:00) [[Nicholas J. Fuentes]] stated that Donald Trump "believes his own press" and is "in his own world."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:27:10:00) [[Nicholas J. Fuentes]] claimed that immigration, the economy, and foreign policy are all "disasters" but Donald Trump does not know that.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:27:29:00) [[Nicholas J. Fuentes]] asserted that [[the White House]], including Donald Trump and [[Susie Wiles]], directed [[Pam Bondi]] to use the "playbook."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:28:33:00) [[Nicholas J. Fuentes]] asked where the accountability is for the Trump administration and rejected excuses about bad personnel.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:29:31:00) [[Nicholas J. Fuentes]] argued that Donald Trump personally hired the people [[who]] are at fault and that there are "no excuses."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:31:13:00) [[Nicholas J. Fuentes]] stated that the problem is Donald Trump himself and that he is "fundamentally not up to the job."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:31:25:00) [[Nicholas J. Fuentes]] said Donald Trump has never been good at governing and his people, advice, and instincts are "terrible."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:35:26:00) [[Nicholas J. Fuentes]] argued that [[Pam Bondi]] channeling Donald Trump by calling questioners "loser lawyers" is a "sick farce."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:36:03:00) [[Nicholas J. Fuentes]] stated that in 2016, Donald Trump's style was attractive because he was the voice of the people against the corrupt establishment.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:37:28:00) [[Nicholas J. Fuentes]] stated that [[Thomas Massie]] and [[Democratic Party|Democrats]] are now interrogating Donald Trump's attorney general, [[who]] is protecting the privileged, pedophiles, and elites.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:38:04:00) [[Nicholas J. Fuentes]] stated that the Trump administration is covering up for [[Les Wexner]], [[Ronald Lauder]], the [[United Arab Emirates|Emirates]], [[Israel]], and [[Ehud Barak]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:38:43:00) [[Nicholas J. Fuentes]] described [[Pam Bondi]]'s performance as an "evil wicked farce," using Donald Trump's playbook in defense of [[Jeffrey Epstein]], [[Les Wexner]], and "[[Jews|world Jewry]]."
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:40:45:00) [[Nicholas J. Fuentes]] argued that people are conceptualizing the Trump administration all wrong, looking at it like a horse race or a baseball game.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:42:42:00) [[Nicholas J. Fuentes]] argued that Donald Trump is not representing the people but representing himself, and needed to become [[president]] to solve his personal legal problems.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:43:30:00) [[Nicholas J. Fuentes]] claimed that after [[October 7th Attack|October 7th]], the "[[Jews]] decided a [[Republican Party|Republican]] had to win," first [[Ron DeSantis]], then [[Nikki Haley]], but Donald Trump fought them to get the nomination.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:43:57:00) [[Nicholas J. Fuentes]] claimed that the "[[Jews]]" needed Donald Trump to win so they could turn
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:20:13) [[Nicholas J. Fuentes]] identified [[Benjamin Netanyahu]] and [[Israel]] as a third party seeking to sabotage the negotiations, noting that [[Benjamin Netanyahu|Netanyahu]] arrived in the [[United States]] for a private meeting with Donald Trump to lobby against any deal.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:38:10) [[Nicholas J. Fuentes]] asserted that [[Howard Lutnick]], a friend of Donald Trump and the Commerce Secretary, maintained a correspondence with [[Jeffrey Epstein]] and that [[Howard Lutnick|Lutnick]]'s entire family visited [[Epstein's]] island long after [[Jeffrey Epstein|Epstein]] was convicted of sex crimes.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:38:11) [[Nicholas J. Fuentes]] argued that the Trump administration's standing behind [[Howard Lutnick]] is a "mortal wound" and that the administration will be "dogged by this for the next three years."
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:56:50) [[Nicholas J. Fuentes]] described the "Canary mission" as an "[[Israel|Israeli]]-funded blacklist" which, since July 2025, the Trump administration has used to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:59:33) [[Nicholas J. Fuentes]] asserted that Donald Trump won the 2016 election with the help of [[Israel]], citing an excerpt from [[James Bamford]]’s book *Spy Fail*.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:00:27) [[Nicholas J. Fuentes]] stated that Donald Trump declared the [[Iran|Islamic Revolutionary Guard Corps]] ([[Iran|IRGC]]) a terrorist [[organization]] in 2018.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:01:00) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] "had this solved" with the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], but that [[Israel]] "colluded with Donald Trump to get him elected so that Trump would do maximum pressure and create a ladder of escalation."
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:08:16) [[Nicholas J. Fuentes]] stated that [[Benjamin Netanyahu]] arrived in the [[United States]] for his sixth visit since Donald Trump took office and met with [[Jared Kushner]] before a [[White House]] meeting.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:08:20) [[Nicholas J. Fuentes]] characterized [[Benjamin Netanyahu|Netanyahu's]] purpose in meeting with Donald Trump as wanting to "sabotage the talks and get a blank check" to bomb [[Iran]] with impunity.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:09:07) [[Nicholas J. Fuentes]] argued that Donald Trump is giving [[Benjamin Netanyahu]] a platform to show [[Iran]] that [[Israel]] and the [[United States]] are aligned, but that this will backfire as it shows [[Iran]] cannot trust the [[United States]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:12:24) [[Nicholas J. Fuentes]] argued that the current military force package assembled in the [[Middle East]] is not "for show" and that Donald Trump wants to solve the [[Iran]] situation "once and for all," leading to a "decisive confrontation."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:45:11.750) [[Nicholas J. Fuentes]] argued that [[Kamala Harris]]'s 2024 presidential campaign attempted to adopt Trump's cultural appeal by picking [[Tim Walz]] as her running mate, branding him as "a white football coach from the Midwest," and selling a camouflage hat as "their version of a MAGA hat."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:56:05.380) [[Nicholas J. Fuentes]] argued that Donald Trump's success in 2016 was because he was not a [[country]] music figure, but came from [[New York|New York City]], "[[Los Angeles|Hollywood]]," was "famous" and "a billionaire," and "looked like a celebrity."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:57:05.580) [[Nicholas J. Fuentes]] argued that the right wing has "lost that cultural cachet" and "forgot that secret ingredient" of being "edgy, futuristic, forward thinking" that was behind Donald Trump's success.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:07:32.020) [[Nicholas J. Fuentes]] called for investigations into [[Howard Lutnick]], [[Les Wexner]], [[Steve Bannon]], [[Elon Musk]], Donald Trump, [[Ronald Lauder]], and [[Leon Black]] for their connections to [[Jeffrey Epstein]].
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:09:11.890) [[Nicholas J. Fuentes]] accused the Trump administration of a "failed cover-up," stating they first said "the files do not exist," then said what was left was only "child sexual abuse material" that couldn't be released because it would "hurt the victims."
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:09:54.670) [[Nicholas J. Fuentes]] stated that the Trump administration "engaged in an active deception and a cover-up" regarding the [[Jeffrey Epstein]] files.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(56:49:00) [[Nicholas J. Fuentes]] reported that the Canary Mission, an "[[Israel|Israeli]]-funded blacklist," has been used by the Donald Trump administration since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:00:51:00) Donald Trump was elected in 2016 with the help of [[Israel|Israelis]], according to an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:11:00) [[Nicholas J. Fuentes]] argued that the hidden collusion in the 2016 election was between Donald Trump and [[Israel]], not Donald Trump and [[Russian Federation|Russia]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:43:00) In 2018, Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian]] regime, a terrorist group.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:02:08:00) [[Israel|Israelis]] colluded with Donald Trump to get him elected so that he would conduct "maximum pressure" on [[Iran]] and create a "ladder of escalation."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:02:18:00) [[Nicholas J. Fuentes]] said the war with [[Iran]] started in 2018 when Donald Trump made it hot and has been going on for seven years.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:05:06:00) [[Nicholas J. Fuentes]] reported that the Canary Mission, an "[[Israel|Israeli]]-funded blacklist," has been confirmed to be used by the Donald Trump administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:05:00) Donald Trump was elected in 2016 with the help of the [[Israel|Israelis]], according to an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:07:00) [[Nicholas J. Fuentes]] argued that the hidden collusion in the 2016 election was between Donald Trump and [[Israel]], not Donald Trump and [[Russian Federation|Russia]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:45:00) In 2018, Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian]] regime, a terrorist group.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:19:00) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] had the [[Iran]] situation solved with the deal, and that [[Israel|Israelis]] hated him for it, so they colluded with Donald Trump to get him elected in order to conduct "maximum pressure" on [[Iran]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:24:33:00) [[Palantir Technologies|Palantir]] software has been introduced to various government departments and agencies under the second Donald Trump administration, including the [[Treasury Department]], the [[Social Security|Social Security Administration]], and [[United States Department of Health and Human Services|Health and Human Services]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:35:15:00) [[Mark Rowan]], a [[Jews|Jewish]] business partner of [[Leon Black]], is a huge supporter of the Donald Trump administration.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:37:00:00) The Donald Trump administration pardoned [[Michael Milken]] in 2020.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:37:12:00) [[Mark Rowan]], [[Leon Black]]'s business partner, gave the Donald Trump campaign a million dollars and Donald Trump pardoned [[Michael Milken]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:38:19:00) [[Benjamin Black]], [[Leon Black]]'s son, is the head of the [[United States Agency for International Development|Development Finance Corporation]] in the Donald Trump administration.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:54:35) [[Ronald Lauder]] is the chair of the [[World Jewish Congress]], gave $5 million to Trump's [[Super PAC]], and his son-in-law is Donald Trump's nominee to be the chair of the [[Federal Reserve]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:59:53) [[Donald Barr]] is the father of [[Bill Barr]], [[who]] was Donald Trump's attorney general in his first term and was the head of the [[U.S. Department of Justice|Department of Justice]] in 2019 when [[Jeffrey Epstein]] died.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:07:44) [[Jeffrey Epstein]] tried to get [[Ehud Barak]] a board position at [[Palantir Technologies|Palantir]], which is involved in many government departments and agencies since Donald Trump got into office.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:08:03) Donald Trump has a close relationship with [[Peter Thiel]] and [[Palantir Technologies|Palantir]], and the suite of [[Peter Thiel|Thiel]] companies has become important to the [[U.S. Department of Defense|Department of Defense]] and the [[U.S. National Security Council|National Security Council]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:08:53) [[JD Vance|J.D. Vance]], the current [[vice]] [[president]], owes his entire career to [[Peter Thiel]], [[who]] got him his first job in [[San Francisco Bay Area|Silicon Valley]], his first job in venture capital, hired him at his venture capital firm, funded his own venture capital firm, gave him $15 million for his [[U.S. Congress|Senate]] run, and secured the Donald Trump endorsement for him.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:09:31) [[Peter Thiel]], [[Elon Musk]], and [[Tucker Carlson]] pleaded with Donald Trump to make [[JD Vance|J.D. Vance]] his [[vice]] presidential nominee in 2024.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:29:12) [[Joe Lonsdale]] is an investor in [[Bari Weiss]], [[who]] became the head of [[CBS]] under [[Larry Ellison]] through [[David Ellison|Ellison]]'s connections to Donald Trump.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:30:10) [[Ronald Lauder]] is a Donald Trump ally and the father-in-law of Trump's [[Federal Reserve]] nominee, and he has given Trump millions of dollars over the years.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:31:37) Donald Trump's attorney general, [[Bill Barr]], had jurisdiction over the prison where [[Jeffrey Epstein]] killed himself in 2019.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:38:50) [[Nicholas J. Fuentes]] stated that he did not vote for Donald Trump and advised others not to, arguing that Trump would not do mass deportations and that the only result would be tax cuts and a war with [[Iran]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:03:47) [[Nicholas J. Fuentes]] argued that the Canary Mission was an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:24) [[Nicholas J. Fuentes]] alleged that Donald Trump was elected in 2016 with the help of [[Israel]], citing an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:38) [[Nicholas J. Fuentes]] stated that Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian]] regime, a terrorist [[organization]] in 2018, leading to a shadow war between the [[United States]] and [[Iran]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:09:45) [[Nicholas J. Fuentes]] argued that Donald Trump's administration was capitulating on mass deportations, citing a Trump interview with [[NBC News|NBC]] where he said [[U.S. Immigration and Customs Enforcement|Immigration and Customs Enforcement]] ([[U.S. Immigration and Customs Enforcement|ICE]]) needed a "softer touch" and was only focusing on criminals.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:10:35) [[Nicholas J. Fuentes]] stated that Donald Trump expressed dissatisfaction with the fatal shootings of [[Alex Jones|Alex]] Pretty and Renee Good by [[U.S. Immigration and Customs Enforcement|ICE]] agents.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:10:53) [[Nicholas J. Fuentes]] reported that Donald Trump told aides he was not comfortable with how far [[Stephen Miller]] had gone on immigration enforcement, according to the [[The Wall Street Journal|Wall Street Journal]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:14:51) [[Nicholas J. Fuentes]] stated that Donald Trump's administration was "throwing their own guys under the bus," referring to the leadership in [[Minneapolis]], and had changed policy so that [[Customs and Border Protection|Border Patrol]] was no longer doing patrols but only precise targeted enforcement.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:15:35) [[Nicholas J. Fuentes]] argued that the "left vetoed the policy" by creating pain and controversy, forcing Donald Trump to back down due to concerns over the 2026 midterm elections and pressure from the [[Minnesota Chamber of Commerce]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:27:13) During a press conference, Donald Trump stated his administration would prioritize the deportation of criminals, a statement [[Nicholas J. Fuentes]] interpreted as meaning the administration would not deport other illegal immigrants.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:29:20) [[Timothy Mellon]] provided $200 million to Donald Trump's 2024 campaign.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:29:30) [[Elon Musk]] provided $275 million to Donald Trump's 2024 campaign.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:31:09) Donald Trump panders to the nativist base of the [[Republican Party]] because a higher proportion of white people vote [[Republican Party|Republican]] (80%) than [[Democratic Party|Democrat]] (57%).
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:32:00) Donald Trump won the 2024 election by leaning into the issue of immigration, but after winning, he became governed by the same business interests as other [[Republican Party|Republicans]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:33:45) Donald Trump promised during his 2015 campaign to build a "big, tall, powerful, and penetrable border wall" that [[Mexico]] would pay for.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:34:30) Donald Trump's first administration built 83 miles of 18-foot steel bollard fencing instead of the promised 2,000 miles of 30-foot concrete wall.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:35:33) [[Nicholas J. Fuentes]] stated that in his first year, Donald Trump did not deport as many people as [[Barack Obama]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:36:01) Donald Trump stated during the 2024 election that the [[United States]] needed immigrants to work certain jobs.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:36:09) Donald Trump promised [[David Sacks]] that he would "staple green cards to diplomas."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:41:14) [[Nicholas J. Fuentes]] stated that the Trump administration brought the [[United States]] to war in [[Iran]] and failed on deportations.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:42:09) [[Nicholas J. Fuentes]] claimed that under the Trump administration the [[United States]] would receive 600,000 [[China|Chinese]] students, 130,000 H-1B [[India|Indians]], send $20 billion to [[Israel]], and conduct 230,000 deportations.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:43:56) [[Nicholas J. Fuentes]] stated that Donald Trump is 90 years old, falls asleep in meetings, and is "out to lunch."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:45:47) [[Nicholas J. Fuentes]] stated that the plan for [[JD Vance]] to become "the 48th [[president]]" was ruined because Donald Trump "ruins everything that he touches."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:47:37) [[Nicholas J. Fuentes]] identified several failures of the Trump administration: the [[Artificial Intelligence|AI]] regulation moratorium, forcing [[China|Chinese]] students and [[India|Indian]] H-1B workers into the [[country]], bombing [[Iran]] twice, the ongoing [[Ukraine]] war, a terrible job market, a software industry decline, and [[Bitcoin]] being down 50%.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:47:58) [[Jeffrey Epstein|Epstein]] files have exposed [[Howard Lutnick]], [[Peter Thiel]], [[Reid Hoffman]], "the [[Israel|Israelis]]," and Donald Trump.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:49:43) In July 2025, Donald Trump told supporters [[who]] wanted the [[Jeffrey Epstein|Epstein]] files, "I don't want your vote."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:50:07) Donald Trump called [[William Jefferson Clinton|Bill Clinton]] "a great guy."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:51:06) Donald Trump gave [[Benjamin Netanyahu|Netanyahu]] a corporate tax cut extension.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:52:05) [[Ron Paul|Rand Paul]] stated he "didn't vote for this," referring to the current political situation, but [[Nicholas J. Fuentes]] noted that [[Ron Paul|Rand Paul]] had chastised others for not voting for Donald Trump in 2024.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:03:05) [[Nicholas J. Fuentes]] alleged that [[Israel]] colluded with Donald Trump to get him elected in 2016 specifically so he would withdraw the [[United States]] from the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:03:55) Donald Trump declared the [[Iran]] [[Iran|Revolutionary Guard]] Corps ([[Iran|IRGC]]) a terrorist [[organization]] in 2018.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:03:55) Donald Trump authorized the January 2020 assassination of [[Qasem Soleimani]].
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:12:05) [[Nicholas J. Fuentes]] claimed that a Canary Mission blacklist, funded by [[Israel]], has been used by the Trump administration since July 2025 to [[target]] students and professors in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Benjamin Netanyahu|Bibi]] traveled to [[Mar-a-Lago]] on December 29th to plead with Donald Trump to bomb [[Iran]]'s ballistic missiles and proxies in support of a regime change war.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(00:56:50) [[Nicholas J. Fuentes]] described the Canary Mission as an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:00:51) [[Nicholas J. Fuentes]] argued that Trump was elected in 2016 with help from the [[Israel|Israelis]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about "hidden collusion in the 2016 election."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:05) [[Nicholas J. Fuentes]] asserted that the collusion in the 2016 election was between Trump and [[Israel]], not between Trump and [[Russian Federation|Russia]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:13) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s goal in helping elect Trump was to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:27) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian regime]], a terrorist group.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:02:06) [[Nicholas J. Fuentes]] concluded that [[Israel]] colluded with Trump to create a "ladder of escalation" against [[Iran]], which pulled the [[United States|US]] out of the deal, declared the [[Iran|IRGC]] terrorists, killed its leader, and placed sanctions on the regime.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:05:07) [[Nicholas J. Fuentes]] described the Canary Mission as an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:09:08) [[Nicholas J. Fuentes]] repeated the claim that Trump was elected in 2016 with help from the [[Israel|Israelis]], citing an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:09:22) [[Nicholas J. Fuentes]] repeated the assertion that the collusion in the 2016 election was between Trump and [[Israel]], not between Trump and [[Russian Federation|Russia]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:09:30) [[Nicholas J. Fuentes]] repeated the claim that [[Israel]]'s goal in helping elect Trump was to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:09:44) [[Nicholas J. Fuentes]] repeated the statement that in 2018, Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian regime]], a terrorist group.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:10:23) [[Nicholas J. Fuentes]] repeated the conclusion that [[Israel]] colluded with Trump to create a "ladder of escalation" against [[Iran]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:48:06) [[Nicholas J. Fuentes]] noted that there is a possible meeting between [[Steve Wittkoff|Steve Witkoff]] and [[Iran]]'s foreign minister, [[Araghchi]], suggesting that Trump is looking for an "off-ramp" from the conflict with [[Iran]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:48:25) [[Nicholas J. Fuentes]] stated that Trump's maximalist demands and gunboat diplomacy will not be enough, as [[Iran]] is not backing down and is threatening a regional war.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:13:15) [[Nicholas J. Fuentes]] said the files provide leads and names, creating a mandate for the [[U.S. Department of Justice|DOJ]] and [[Federal Bureau of Investigation|FBI]] to investigate people named, including Donald Trump, [[George W. Bush]], [[Bill Gates]], and [[Howard Lutnick|Howard Lutnik]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:09:45) [[Nicholas J. Fuentes]] announced a "super show" for Friday to map out the entire "[[Jeffrey Epstein|Epstein]] network," including [[Leon Black]], [[Les Wexner]], [[Peter Thiel]], members of the Trump administration, and allies in [[Israel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:04:45.460) [[Nicholas J. Fuentes]] asserted that Trump possesses all the [[Jeffrey Epstein]] files at the [[U.S. Department of Justice|DOJ]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:04:49.380) [[Nicholas J. Fuentes]] stated that Trump does not want to release the [[Jeffrey Epstein]] files.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:06:23.040) [[Nicholas J. Fuentes]] described one alleged file as containing a claim that Trump raped a girl, killed her, and her body disintegrated, which he characterized as far-fetched.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:10:17.010) [[Nicholas J. Fuentes]] demanded a full investigation into all individuals named in the files, including [[Howard Lutnick]], [[Elon Musk]], Donald Trump, [[William Jefferson Clinton|Bill Clinton]], [[Hillary Clinton]], and [[Bill Gates]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:12:00.000) [[Nicholas J. Fuentes]] claimed that Donald Trump was elected in 2016 with the help of [[Israel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:12:10.000) [[Nicholas J. Fuentes]] referenced an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election between Donald Trump and [[Israel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:13:00.000) [[Nicholas J. Fuentes]] reported that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:14:20.000) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had a solved situation with [[Iran]], but [[Israel]] colluded with Donald Trump to create a ladder of escalation.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:15:10) [[Nicholas J. Fuentes]] noted that the files contain correspondence between [[Jeffrey Epstein]] and [[Ghislaine Maxwell]] and tips containing unsubstantiated claims of crimes by Donald Trump, including allegations of torture, murder, and sex abuse.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:16:40) [[Nicholas J. Fuentes]] reported that at least 4,500 documents in the [[Jeffrey Epstein]] files mentioned Donald Trump, including an [[Federal Bureau of Investigation|FBI]] summary of more than a dozen public tips involving Trump and [[Jeffrey Epstein|Epstein]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:20:32) [[Nicholas J. Fuentes]] stated that the Trump administration invited "all of these [[Jews|Jewish]] influencers" to the [[White House]], including [[Rogan O'Handley]], [[Mike Cernovich|Mike Sernovich]], [[Scott Prezler]], and [[Jack Posobiec|Jack Pasobic]], and gave them binders containing no new information, calling it a "head fake" to get people off the [[Jeffrey Epstein|Epstein]] case.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:22:31) Donald Trump asked the [[Federal Bureau of Investigation|FBI]] if his name appeared in the [[Jeffrey Epstein]] files, and the [[Federal Bureau of Investigation|FBI]] spent hundreds of hours finding every mention, totaling thousands of mentions.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:22:51) Donald Trump denied asking the [[Federal Bureau of Investigation|FBI]] to look for his name in the [[Jeffrey Epstein]] files, calling that a lie.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:23:50) [[Elon Musk]] posted on [[Twitter]] that the reason Donald Trump would not release the [[Jeffrey Epstein]] files is because Trump is in them and knows it.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:24:13) [[Benjamin Netanyahu]] visited the [[White House]] to celebrate a victory in the war with [[Iran]] and gave Donald Trump a trophy.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:25:41) [[Nicholas J. Fuentes]] claimed that Donald Trump told his supporters that if they were interested in the [[Jeffrey Epstein]] files, they were "idiots" and "fake supporters."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:28:37) [[Nicholas J. Fuentes]] argued that Donald Trump lied about the existence of the [[Jeffrey Epstein]] files, their contents, and their treatment, and that the government pulled out every procedural stop to prevent their release.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:29:26) [[Nicholas J. Fuentes]] argued that it is the obligation of the representative government, including the [[Federal Bureau of Investigation|FBI]] and the [[U.S. Department of Justice|DOJ]], to investigate the accusations in the [[Jeffrey Epstein]] files against [[Howard Lutnick]], [[Bill Gates]], [[Elon Musk]], [[Richard Branson]], [[Steve Bannon]], and Donald Trump.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:34:22) [[Nicholas J. Fuentes]] argued that if [[Miriam Adelson]], [[Israel]], and [[Elon Musk]] can pull Donald Trump's strings because they contribute money, and if Trump employs [[Kash Patel]] and [[Pam Bondi]], they cannot possibly investigate the [[Jeffrey Epstein|Epstein]] affair.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:36:55) [[Nicholas J. Fuentes]] argued that the [[Jeffrey Epstein]] files are hanging over Donald Trump's head like a dagger, and that if Trump does not bring the [[United States]] to war with [[Iran]] or play ball with the [[Israel]] lobby and billionaires, the dagger will fall.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:37:52) [[Nicholas J. Fuentes]] argued that [[John Thune]], [[Susan Collins]], and [[Lisa Murkowski]] would be among the [[Republican Party|Republican]] senators to defect and convict Donald Trump if pressured by [[Israel]] and the billionaires, potentially leading to Trump's removal from office.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:39:41) [[Nicholas J. Fuentes]] stated that Donald Trump is named in [[Federal Bureau of Investigation|FBI]] documents that say he was "taking turns raping kids" and that they were "killed in front of him," calling the release of these files a catastrophe for Trump.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:22:00) [[Nicholas J. Fuentes]] argued that people should judge public figures like Donald Trump, [[Andrew Tate]], and [[Kanye West]] on the "sum of their decisions" and not just their latest decision, because of the overwhelming pressure they are under.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:00:51) [[Nicholas J. Fuentes]] stated that Trump got elected in 2016 with the help of the [[Israel|Israelis]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:00) [[Nicholas J. Fuentes]] cited an excerpt from [[James Bamford]]'s book *Spy Fail* to argue that the hidden collusion in the 2016 election was between Trump and [[Israel]], not Trump and [[Russian Federation|Russia]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:18) [[Nicholas J. Fuentes]] said that the reason [[Israel]] got Donald Trump elected in 2016 was to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:36) [[Nicholas J. Fuentes]] said that in 2018, Donald Trump declared the [[Iran|Islamic Revolutionary Guard Corps]] ([[Iran|IRGC]]) a terrorist group.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:02:02) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had the [[Iran]] issue solved with the nuclear deal, but that the [[Israel|Israelis]] hated [[Barack Obama|Obama]] for it and colluded with Trump so that Trump would create a "ladder of escalation."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:05:07) [[Nicholas J. Fuentes]] repeated his description of the Canary Mission as an [[Israel|Israeli]]-funded blacklist used by the Trump administration to [[target]] pro-[[Palestine|Palestinian]] individuals.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:09:01) [[Nicholas J. Fuentes]] repeated that Trump was elected in 2016 with the help of the [[Israel|Israelis]] to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:09:44) [[Nicholas J. Fuentes]] repeated that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group, leading to a shadow war and the assassination of [[Qasem Soleimani]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:10:23) [[Nicholas J. Fuentes]] repeated that the [[Israel|Israelis]] colluded with Trump to create a "ladder of escalation" against [[Iran]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:23:18) [[Nicholas J. Fuentes]] argued that the Trump administration is "ending the war on illegal immigration" and "starting the war with [[Iran]]."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:23:41) [[Nicholas J. Fuentes]] said that Donald Trump is considering a second strike on [[Iran]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:27:43) [[Nicholas J. Fuentes]] argued that the Trump administration was telegraphing a walk-back of the mass deportation policy since January 1st.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:30:06) [[Nicholas J. Fuentes]] stated that [[Tom Homan]] and Donald Trump went to [[Minneapolis]] to de-escalate, while the mayor, [[Jacob Frey]], told them to "get the fuck out of here."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:59:57) [[Nicholas J. Fuentes]] reported that Donald Trump demanded that [[Iran]] give up nuclear centrifuges, enriched uranium, longer-range missiles, and support for proxies, effectively demanding a "complete and total surrender."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:01:11) [[Nicholas J. Fuentes]] argued that Donald Trump was "basically elected for this exact purpose" of going to war with [[Iran]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:01:23) [[Nicholas J. Fuentes]] argued that Donald Trump was "allowed" to become popular and win the election because powerful forces "stood down."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:03:51) [[Nicholas J. Fuentes]] argued that liberal [[Jews]] used their influence in media, academia, and finance to make [[United States|America]] more right-wing, allowing Trump to win because they knew he was a vehicle for [[Israel]]'s revenge.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:04:58) [[Nicholas J. Fuentes]] argued that the war with [[Iran]] is the "big ticket item" that got Trump elected, and that the deportations and trade wars are just "stocking stuffers."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:07:14) [[Nicholas J. Fuentes]] called Donald Trump a "Trojan horse" whose purpose is to get "Zionists inside [[the Pentagon]]" to carry out their mission.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:07:53) [[Nicholas J. Fuentes]] said that [[Benjamin Netanyahu|Netanyahu]] began visiting the [[White House]] demanding a war with [[Iran]] as soon as Trump was elected.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:08:20) [[Nicholas J. Fuentes]] argued that the [[Israel|Israelis]] poisoned Trump's relationship with [[Iran]] by pushing him to assassinate [[Qasem Soleimani]], rip up the nuclear deal, and brand the [[Iran|IRGC]] a terrorist group, making diplomacy impossible.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:08:57) [[Nicholas J. Fuentes]] argued that the [[Israel|Israelis]] fabricated a myth that [[Iran]] was trying to assassinate Trump to further poison relations.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:20:42) [[Nicholas J. Fuentes]] reported that [[Steve Wittkoff|Steve Witkoff]] and Donald Trump went on TV to claim that the negotiations [[Iran]] were a "fake out" to lower [[Iran]]'s guard for the preemptive strike.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:00:51) [[Nicholas J. Fuentes]] argued that Donald Trump was elected in 2016 with the help of [[Israel]], citing an excerpt from [[James Bamford]]'s book "Spy Fail" which he said details "hidden collusion."
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:01:07) [[Nicholas J. Fuentes]] claimed that the collusion in the 2016 election was not between Trump and [[Russian Federation|Russia]], but between Trump and [[Israel]].
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:01:27) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|Islamic Revolutionary Guard Corps]] ([[Iran|IRGC]]) a terrorist group and green-lit sanctions and attacks against the regime.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:02:00) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] problem with the nuclear deal, and that [[Israel]] colluded with Donald Trump to get him elected so he would escalate the conflict into a "Forever War."
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:28:27) [[Nicholas J. Fuentes]] asserted that Trump had chickened out in his response to a challenge, withdrawing [[Customs and Border Protection|Border Patrol]] from [[Minneapolis]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:29:04) [[Nicholas J. Fuentes]] reported that Trump pulled back [[Customs and Border Protection|Border Patrol]] official Greg Bovino, [[who]] was being harassed by protesters on social media, and criticized him on [[Fox News]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:29:39) [[Nicholas J. Fuentes]] reported that Donald Trump had a phone call with Governor [[Tim Walz]] and Mayor [[Jacob Frey]] of [[Minneapolis]] during which Trump agreed to de-escalate the situation.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:31:15) [[Nicholas J. Fuentes]] stated that Trump described an armada of [[United States|US]] warships heading to the [[Middle East]] to bomb [[Iran]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:31:57) [[Nicholas J. Fuentes]] stated that the Trump administration was reducing deportations under pressure from [[The Wall Street Journal]] and other [[Republican Party|Republican]]-aligned groups.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:32:00) [[Nicholas J. Fuentes]] stated that he had predicted Trump would bring the [[United States]] to war with [[Iran]] and would not deport anyone.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:35:05) [[Nicholas J. Fuentes]] predicted that [[Republican Party|Republicans]] would lose the [[U.S. Congress|United States House of Representatives]] in the midterms due to a three-vote majority, leading to [[Democratic Party|Democrats]] impeaching Donald Trump, [[Pete Hegseth]], [[Kristi Noem]], and others.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:49:43) [[Nicholas J. Fuentes]] characterized Trump as representing the historic [[United States|American]] nation by taking the fight to [[the left]]-wing machine with [[U.S. Immigration and Customs Enforcement|ICE]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:50:17) [[Nicholas J. Fuentes]] stated that Trump has deputized a private army with a $90 billion budget and the constitutional power to deport millions, which he argued is a good thing.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:53:29) [[Nicholas J. Fuentes]] stated that Trump is backing down in [[Minneapolis]], calling it a horrific disappointment and a total embarrassment.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:54:04) [[Nicholas J. Fuentes]] stated that Trump promised mass deportations in 2024 because [[Joe Biden]] had the highest border apprehensions in history.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:55:10) [[Nicholas J. Fuentes]] argued that to deport 10 million people, a whole-of-government approach was needed, but Trump never had any intention of following through.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:00:07) [[Nicholas J. Fuentes]] stated that [[Pam Bondi]], [[Kristi Noem]], Donald Trump, and [[JD Vance]] lacked the seriousness and political will to execute mass deportations.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:01:01) [[Nicholas J. Fuentes]] reported that a [[The New York Times|New York Times]] article estimated that Trump had only deported 230,000 people in his first year of his second term, fewer than [[Obama's]] 268,000 interior removals in his first year.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:17:57) [[Nicholas J. Fuentes]] stated that the shooting had turned into a catastrophe for Trump, and the media was all over it.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:25:38) [[Nicholas J. Fuentes]] stated that 80% of Trump voters in 2024 were white and voted to end the "nightmare".
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:34:14) [[Nicholas J. Fuentes]] reported that Trump was capitulating by withdrawing [[U.S. Immigration and Customs Enforcement|ICE]] from [[Minneapolis]] and pulling out their top official, Greg Bovino.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:34:50) [[Nicholas J. Fuentes]] reported that agents in the [[city]] were expected to start leaving on Tuesday after a phone call between [[Jacob Frey]] and Donald Trump.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:36:55) [[Nicholas J. Fuentes]] argued that by pulling Bovino, Donald Trump gave [[the left]] a scalp and a victory, which emboldened them.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:38:58) [[Nicholas J. Fuentes]] quoted [[The New York Times]] that Trump said the administration would "de-escalate a [[little]] bit" in [[Minneapolis]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:39:22) [[Nicholas J. Fuentes]] reported that Donald Trump described Greg Bovino as "a pretty out there kind of guy" in an interview with [[Fox News]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:40:16) [[Nicholas J. Fuentes]] argued that Trump had demoralized [[U.S. Immigration and Customs Enforcement|ICE]] officers by showing he would not have their back.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:42:43) [[Nicholas J. Fuentes]] characterized Trump as weak and lacking follow-through, capable only of short-term tactics.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:51:25) [[Nicholas J. Fuentes]] contrasted the perception of Trump's second term in early 2025—that it was different and competent—with the current infighting and retreat.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:55:33) [[Nicholas J. Fuentes]] stated that the Trump administration had adopted the [[Barack Obama|Obama]] deportation doctrine of only deporting criminals.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:58:58) [[Nicholas J. Fuentes]] stated that he had predicted during the 2024 election that mass deportations would never happen, and that [[JD Vance]] and Trump were signaling a policy of prioritizing criminals.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:00:46) [[Nicholas J. Fuentes]] argued that the Trump administration did not treat mass deportations as the central part of the administration, which it needed to be.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:02:17) [[Nicholas J. Fuentes]] compared the situation to 2018 during Trump's first term, when caravans started flowing in and Trump began discussing an amnesty.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:02:53) [[Nicholas J. Fuentes]] stated that in the first term, Trump implemented the child separation policy to shut down caravans from the Northern Triangle.Here is the chronological knowledge log derived from the monologue, formatted as requested.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:03:58) [[Stephen Miller]] and [[Tom Homan]] implemented a family separation policy at the border under the Donald Trump administration.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:05:05) Some argued that [[Barack Obama]] also built the cages, but Donald Trump called [[Stephen Miller]] and said they needed to shut down the family separation policy because they were "getting killed" in the media.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:06:09) [[Nicholas J. Fuentes]] predicted in 2024 that Donald Trump would back down on [[immigration enforcement]] once the midterms started.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:06:30) [[Nicholas J. Fuentes]] stated that the same cast of characters is in place for the second Trump administration, with [[Tom Homan]], [[Stephen Miller]], and [[Kristi Noem]] replacing [[Kirstjen Nielsen]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:06:47) In the first week of December, a planted story emerged saying Trump administration officials were wobbling and second-guessing themselves on immigration policy.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:06:56) Anonymous sources in [[the White House]] stated that they needed to recalibrate and re-strategize on [[immigration enforcement]] because Donald Trump did not like what he was seeing.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:07:07) Donald Trump held a press conference and stated that he did not want to deport people working on farms, only focusing on criminals.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:07:26) Trump administration officials, including [[Kristi Noem]], are being thrown under the bus and potentially could be removed after the World Cup.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:07:50) Donald Trump stated that the situation is "really bad" and that they need to de-escalate.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:08:00) [[Nicholas J. Fuentes]] argued that to deport a million people per year, the Trump administration would need to 4X the 2025 deportation numbers of 230,000.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:08:48) [[Nicholas J. Fuentes]] predicted that Donald Trump would "totally capitulate" and deliver "scalps on a silver platter" to [[the left]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:08:54) [[Nicholas J. Fuentes]] stated that Donald Trump chickens out on everything, including trade with [[China]] and [[Russian Federation|Russia]], and his policies on [[Greenland]] and [[Europe]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:09:13) [[Nicholas J. Fuentes]] predicted that Donald Trump would throw [[Kristi Noem]] and [[Tom Homan]] under the bus while [[Stephen Miller]] would likely keep his job.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:09:35) [[Nicholas J. Fuentes]] predicted that in January 2027, a divided [[U.S. Congress|Congress]] would lead to [[Democratic Party|Democrats]] filing articles of impeachment against Donald Trump and [[Pete Hegseth]] on day one.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(56:50:25) The Canary Mission is an [[Israel|Israeli]]-funded blacklist that the Trump administration has used since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(01:01:07:87) [[James Bamford]]’s book *Spy Fail* details hidden collusion between Donald Trump and [[Israel]] during the 2016 election to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(01:01:50:33) Donald Trump assassinated [[Qasem Soleimani]], the architect of the axis of resistance of [[Hamas]], [[Hezbollah]], and the [[Houthis]], in January 2020.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:13:41:22) Donald Trump has "fully chickened out" on deportations and his strategy of sensational deportation operations is a spectacular failure and a disaster.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:14:37:16) [[Nicholas J. Fuentes]] said "I told you so" regarding his prediction that Donald Trump would take the [[United States|U.S]]. to war with [[Iran]] and fail to do mass deportations.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:15:56:27) [[Nicholas J. Fuentes]] accused his critics of calling him a left-wing plant after his 2024 predictions about Donald Trump came true.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:19:33:80) The Trump administration has deployed thousands of [[U.S. Immigration and Customs Enforcement|ICE]] agents, [[border patrol]], and [[U.S. Department of Defense|National Guard]] to [[Minneapolis]] to pursue its mass deportation policy.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:24:11:47) The Trump administration defended the shooting of [[Alex Jones|Alex]] Pretty.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:38:09:93) [[Nicholas J. Fuentes]] stated that Donald Trump won the election on a mandate for mass deportations and that the [[U.S. Constitution|Constitution]] grants the federal government the power to deport aliens with no legal standing.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:27:06:43) [[Nicholas J. Fuentes]] postponed a discussion on the future of deportations and the Trump administration to the next day.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:42:39) [[Nicholas J. Fuentes]] criticized the scale of deportation efforts under Donald Trump, stating that deporting "500 people per day" is insufficient.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:47:18) [[Nicholas J. Fuentes]] characterized Donald Trump and [[U.S. Immigration and Customs Enforcement|ICE]] as being in "retreat" from their deportation promises.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:59:47) [[Nicholas J. Fuentes]] argued that the Trump administration cannot make housing affordable because doing so would lower the net worth of older homeowners [[who]] hold wealth.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(00:56:49) The Canary mission is an [[Israel|Israeli]]-funded blacklist that since July 2025 has been used by the Trump administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:00:51) Trump was elected in 2016 with the help of the [[Israel|Israelis]], as detailed in an excerpt from [[James Bamford]]'s book *Spy Fail*, which describes hidden collusion between Trump and [[Israel]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:01:33) In 2018, Donald Trump declared the [[Iran|IRGC]], the military of the [[Iran|Iranian regime]], a terrorist group, green-lighting the group for sanctions and attacks.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:02:06) The [[Israel|Israelis]] hated [[Barack Obama]] for making the [[Iran deal]] and colluded with Trump to get him elected so that Trump would pull the [[United States]] out of the deal, declare the [[Iran|IRGC]] terrorists, kill its leader, and put sanctions on the regime.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:05:07) The Canary mission is an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] opponents of [[Israel]] in the [[United States]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:18:35) [[Nicholas J. Fuentes]] criticized the Trump administration for doing nothing, asserting that it does not punish its enemies or reward its constituents.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(56:49:930) [[Nicholas J. Fuentes]] reported that the Canary Mission, an [[Israel|Israeli]]-funded blacklist, has been used by the Donald Trump administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:00:51:580) [[Nicholas J. Fuentes]] stated that Donald Trump was elected in 2016 with the help of [[Israel]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election, which he claimed was between Trump and [[Israel]], not [[Russian Federation|Russia]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:01:27:710) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group, leading to a shadow war between the [[United States]] and [[Iran]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:02:02:900) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] had solved the conflict with [[Iran]] through the deal, but [[Israel|Israelis]] hated him for it, colluded with Trump, and created a ladder of escalation.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:07:42:370) [[Nicholas J. Fuentes]] stated his political goals are "America first" and "[[Jesus Christ|Christ]] as [[king]]," and that the [[Nicholas J. Fuentes|Groyper]] movement would slowly encircle and surround their opposition.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:42:29:070) [[Nicholas J. Fuentes]] noted that it was the one-year anniversary of the inauguration of Donald Trump on January 20th.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:43:17:300) [[Nicholas J. Fuentes]] read a quote from Donald Trump at a press conference where Trump said the administration is looking to get criminals out of the [[country]] but has heart for people [[who]] came in illegally and are working.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:43:46:920) [[Nicholas J. Fuentes]] reported that Axios published a story about hesitancy inside the Donald Trump administration regarding their illegal [[immigration enforcement]] policy.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:44:21:930) [[Nicholas J. Fuentes]] stated that the public is turning against the immigration agenda of Trump and against [[U.S. Immigration and Customs Enforcement|ICE]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:46:04:040) [[Nicholas J. Fuentes]] reported that Trump administration officials planted a story saying they are going to walk back, recalibrate, and rethink the deportation strategy.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:46:13:840) [[Nicholas J. Fuentes]] stated that Trump is preparing to cave to public pressure on immigration.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:47:48:010) [[Nicholas J. Fuentes]] stated that Donald Trump is weak and always chickens out.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:49:04:650) [[Nicholas J. Fuentes]] reported that Trump deported 300,000 people in 2025, but argued that two-thirds of those arrested had no criminal record.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:50:25:840) [[Nicholas J. Fuentes]] argued that if Trump's new policy focuses only on criminals, enforcement will shrink by 65 percent.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:12:13) [[Nicholas J. Fuentes]] dismissed Donald Trump's interest in [[Country of Greenland|Greenland]] as a "vanity project" driven by a desire to be in history books, rejecting the idea that it is "5-dimensional chess."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:15:18) [[Nicholas J. Fuentes]] criticized a viewer [[who]] lost money on the Trump coin, saying "You trusted a [[Jews|Jew]]," regarding Donald Trump.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:47:30) [[Nicholas J. Fuentes]] criticized a viewer [[who]] invested $60,000 in a Donald Trump-themed cryptocurrency, saying "You trusted a [[Jews|Jew]]," referring to Donald Trump.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:56:16) [[Nicholas J. Fuentes]] identified the featured story as Donald Trump having "chickened out" twice, establishing it as a recurring pattern.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:57:09) Donald Trump threatened to invoke the Insurrection Act to crush protests and rioters in [[Minneapolis]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:57:21) Donald Trump announced he would not, in fact, invoke the Insurrection Act in [[Minneapolis]], stating it was "no longer necessary".
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:57:46) [[Nicholas J. Fuentes]] asserted this was the third or fourth [[time]] Donald Trump explicitly threatened the Insurrection Act without following through.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:58:28) [[Nicholas J. Fuentes]] stated that the [[United States]] is approaching one year into Donald Trump's second term and that the administration has not crushed protests in [[Los Angeles]] or [[Minneapolis]] and has not arrested a single politician, including [[Barack Obama]], [[Anthony Fauci]], or [[Hillary Clinton]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:59:14) [[Axios]] published an exclusive report stating that Donald Trump's administration officials were thinking about walking back the mass deportation policy.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:00:03) [[Nicholas J. Fuentes]] argued the [[Axios]] report indicated that the administration was reviewing polling data showing the mass deportation policy was unpopular and that they were turning against the idea of massive deportations and against Donald Trump himself.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:01:03) [[Nicholas J. Fuentes]] claimed that the Donald Trump administration was suppressing the number of deportations in the previous year, estimating it was between 300,000 and 600,000.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:03:20) [[Nicholas J. Fuentes]] claimed he predicted during the 2024 election that Donald Trump would not do mass deportations because [[The Wall Street Journal|Wall Street]] and [[San Francisco Bay Area|Silicon Valley]] do not want them.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:06:58) [[Benjamin Netanyahu|Bibi]] visited [[Mar-a-Lago]] for his fifth meeting with Donald Trump in 2025.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:07:28) Donald Trump told [[Benjamin Netanyahu|Bibi]] that if [[Iran]] rebuilt their nukes and missiles, [[Israel]] could bomb them.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:08:22) Donald Trump redirected a [[United States|U.S]]. carrier strike group to the [[Middle East]] to escalate against [[Iran]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:09:20) The [[The Wall Street Journal|Wall Street Journal]] and [[The Jerusalem Post|Times of Israel]] reported that Donald Trump did not follow through on the strike in [[Iran]] because the military could not guarantee it would topple the [[Government of Iran|Iranian government]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:09:40) [[Nicholas J. Fuentes]] concluded that Donald Trump's goal was regime change in [[Iran]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:13:14) Donald Trump announced 25% secondary sanctions, which he called a "tariff," on any [[country]] that does business with [[Iran]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:15:01) [[Nicholas J. Fuentes]] stated that Donald Trump campaigned in [[State of Michigan|Michigan]] pandering to the [[Islam|Muslim]] population by saying he would end the war in the [[Middle East]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:19:19) [[Axios]] reported that Donald Trump’s team reviewed private [[Republican Party|GOP]] polling that showed support for his immigration policies falling.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:20:34) [[Nicholas J. Fuentes]] asserted that [[Generation Z|Gen Z]] and [[Hispanic]] men [[who]] voted for Donald Trump in 2024 are turning against him because of the [[U.S. Immigration and Customs Enforcement|ICE]] ([[U.S. Immigration and Customs Enforcement]]) video coverage.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:20:54) [[The Joe Rogan Experience|Joe Rogan]] endorsed Donald Trump on the [[eve]] of the 2024 election.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:21:22) [[Axios]] reported that Donald Trump advisors were quietly talking about recalibrating [[the White House]]'s approach to mass deportations.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:21:49) [[Axios]] reported that the worries within Donald Trump's brain trust were the first signs of internal second-guessing of his [[U.S. Immigration and Customs Enforcement|ICE]] ([[U.S. Immigration and Customs Enforcement]]) tactics.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:22:32) Private [[Republican Party|GOP]] polling showed a rupturing of the coalition of independent, moderate, and minority voters [[who]] were key to Donald Trump's 2024 victory.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:22:47) A top Donald Trump advisor told [[Axios]] that the [[White House|President]] wants mass deportations but doesn't like the way it looks.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:23:27) During the first Trump administration, Donald Trump implemented the family separation policy.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:30:08) Donald Trump called [[Jason Miller|Stephen Miller]] during the first term and said they had to stop the coverage of "kids in cages," after which they reversed the family separation policy.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:31:32) [[Kristi Noem]] served as Donald Trump's Secretary of [[U.S. Department of Homeland Security|Homeland Security]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:31:59) [[Nicholas J. Fuentes]] argued that Donald Trump is "allergic to bad press" and watches poll numbers "like a hawk," causing him to back down under media pressure.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:39:49) [[Rollins|Brooke Rollins]], Secretary of Agriculture under Donald Trump, came from the [[America First|America First Policy Institute]] and has a good relationship with the [[president]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:42:19) [[Dimon|Jamie Dimon]], CEO of [[JPMorgan Chase & Co.|JPMorgan Chase]], and [[Fink|Larry Fink]], CEO of [[BlackRock]], have personal audiences with Donald Trump and oppose deporting 30 million illegal immigrants.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:50:58) [[Rollins|Brooke Rollins]] and the [[America First|America First Policy Institute]] (AFPI) pushed out the [[Heritage Foundation]]'s Project 2025 staffing database after Donald Trump gave them the job of staffing his administration.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:56:36) [[Nicholas J. Fuentes]] predicted that if the [[Republican Party]] loses the [[U.S. Congress|House]] in the midterms, the [[Democratic Party]] will immediately impeach Donald Trump, [[Kristi Noem]], [[Pete Hegseth]], and others, and will shut down the government.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:59:04) [[Nicholas J. Fuentes]] stated that Donald Trump did not build the border wall in his first term, which allowed [[Joe Biden]] to re-open the border.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:59:44) [[Nicholas J. Fuentes]] predicted that Donald Trump will not deport the 10 million illegal immigrants [[who]] entered under [[Joe Biden]] and will not build the wall, allowing a future [[Democratic Party|Democrat]] to open the floodgates for 10 million more illegal immigrants.(03:05:17) [[Nicholas J. Fuentes]] asked whether Donald Trump will pursue his agenda more aggressively in his second term than in his first.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:05:25) [[Nicholas J. Fuentes]] described [[Benjamin Netanyahu]], [[Elon Musk]], [[a16z|Andreessen Horowitz]], [[Griffin|Ken Griffin]], [[Marc Andreessen|Mark Andreessen]], [[Timothy Mellon|Tim Mellon]], [[Miriam Adelson]], and [[Mark Levin]] as "happy as a fucking clam" with the Trump administration.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:06:23) [[Nicholas J. Fuentes]] stated that ultra-wealthy individuals including [[Benjamin Netanyahu]], [[Elon Musk]], [[Marc Andreessen|Mark Andreessen]], [[Griffin|Ken Griffin]], [[Timothy Mellon|Tim Mellon]], [[Miriam Adelson]], and [[Mark Levin]] are receiving personal phone calls from Donald Trump and directing his policy decisions.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:06:27) [[Nicholas J. Fuentes]] asserted that wealthy elites connected to the Trump administration are benefiting from [[Artificial Intelligence|AI]] investment, deregulation in the [[United States]], energy production, intervention in [[the Middle East]], corporate tax cuts, and interest rate reductions.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:07:01) [[Nicholas J. Fuentes]] declared that ordinary voters [[who]] supported Donald Trump have not become richer or materially better off under his administration, while insiders have enriched themselves.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:07:06) [[Nicholas J. Fuentes]] argued that the economy, job market, and housing market are "not great" under the Trump administration.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:07:15) [[Nicholas J. Fuentes]] characterized supporters of Donald Trump as having been "used" to "enthrone Trump" while insiders enriched themselves.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:08:41) [[Nicholas J. Fuentes]] recalled that in 2024, a close friend accused him of being "disloyal to Trump" for criticizing Donald Trump.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:09:16) [[Nicholas J. Fuentes]] told his former friend that Donald Trump "doesn't know [[who]] you are" and "doesn't care about you."
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:09:42) [[Nicholas J. Fuentes]] criticized supporters [[who]] say "trust the plan" regarding Donald Trump's agenda, calling them "fucking idiot[s]."
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:12:14) [[Nicholas J. Fuentes]] stated that he does not perceive any positive change in [[Chicago]] under Donald Trump's administration, noting the absence of [[U.S. Department of Defense|National Guard]] deployments, ongoing lawlessness, and continued control of the [[city]] by illegal immigrants.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(18:47:000) [[Nicholas J. Fuentes]] criticized Donald Trump for making idle threats about invoking the Insurrection Act and called for him to send in the military to restore order in [[Minneapolis]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(20:04:000) [[Nicholas J. Fuentes]] read a statement from Donald Trump arguing that the [[United States]] needs [[Country of Greenland|Greenland]] for national security and for the "Golden Dome" missile defense system.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(20:59:000) [[Nicholas J. Fuentes]] characterized Donald Trump as "Phase one" or a "John the Baptist figure" [[who]] shattered the Overton Window but did not complete the mission, sparking a fire that others must carry forward.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(21:00:000) [[Nicholas J. Fuentes]] argued that the true inheritors of the [[America First]] movement must "get more radical, not less" and take Donald Trump's policies further, such as expanding deportations and restraining [[Israel]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(02:51:14) [[Nicholas J. Fuentes]] stated that the statistic claiming two million self-deportations in 2025 under Donald Trump is "not real."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(02:52:27) [[Nicholas J. Fuentes]] claimed that Donald Trump's message of "we're locking everybody up" caused illegal immigrants to not answer the survey honestly, biasing the data.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(02:53:48) [[Nicholas J. Fuentes]] pointed out that [[U.S. Immigration and Customs Enforcement|ICE]] has reporting requirements for quarterly and weekly reports on the number of deportations, but has not put out those numbers since Donald Trump took office.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(00:56:49) [[Nicholas J. Fuentes]] described the Canary Mission as an [[Israel|Israeli]]-funded blacklist used since July 2025 by the Trump administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:00:42) [[Nicholas J. Fuentes]] claimed that Donald Trump was elected in 2016 “with the help of the [[Israel|Israelis]],” citing an excerpt from [[James Bamford]]'s book *Spy Fail* about alleged collusion between Trump and [[Israel]] to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:01:27) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|Iranian]] [[Iran|Revolutionary Guard]] ([[Iran|IRGC]]) a terrorist group and greenlit sanctions and attacks, placing the [[United States]] in a “shadow war” with [[Iran]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:02:02) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had “solved” the [[Iran]] issue with the nuclear deal, but that [[Israel|Israelis]] colluded with Trump to create an escalation ladder that led to the forever war with [[Iran]] that began in 2018.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:26:33) [[Nicholas J. Fuentes]] criticized the response to Renee Good's death, specifically rejecting the idea that [[U.S. Immigration and Customs Enforcement|ICE]] is trained by the [[Israel|Israeli]] Defense Forces and that the incident represents Donald Trump “sickening the [[Israel Defense Forces|IDF]] on white people.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:33:08) [[Nicholas J. Fuentes]] stated that [[Benjamin Netanyahu|Netanyahu]] and Trump do not want a messy war right before the midterms, so they will try to act early in the year.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:34:04) [[Nicholas J. Fuentes]] argued that the claim that the deceased [[Charlie Kirk]] would oppose regime change in [[Iran]] is a lie, pointing to [[Charlie Kirk]]'s tweet from last year where he supported a “bottom-up revolution” and defended Donald Trump's insinuation of regime change.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:34:49) [[Nicholas J. Fuentes]] stated that [[Charlie Kirk]] went on [[Twitter]] to defend the [[United States|U.S]]. strike on [[Iran]] and supported a “bottom-up revolution,” and later said he trusted Donald Trump to get to the bottom of the [[Jeffrey Epstein|Epstein]] files.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:35:40) [[Nicholas J. Fuentes]] characterized [[Charlie Kirk]] as a surrogate for the [[Republican Party|GOP]] and Donald Trump, whose [[organization]] [[Turning Point USA]] is adept at defending the [[Republican Party|GOP]] and getting people to vote for Trump regardless of consistency on issues like abortion, immigration, or foreign policy.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:39:29) [[Nicholas J. Fuentes]] stated that Donald Trump said he would support the people if they overthrew the government, and [[Charlie Kirk]] agreed, but that there is no difference between a “top-down regime change” and a “bottom-up revolution.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:55:31) [[Nicholas J. Fuentes]] argued that [[U.S. Immigration and Customs Enforcement|ICE]] has been targeted, shot at, bombed, and ambushed for 13 months since Donald Trump got into office.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:15:04) [[Nicholas J. Fuentes]] argued that the Trump administration is not serious about the issue and that it needs to put radicals on notice by overwhelming force.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:19:07) [[Nicholas J. Fuentes]] argued that Donald Trump needs to send in 20,000 troops [[city]] by [[city]], shut down neighborhoods, and take full control.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:20:06) [[Nicholas J. Fuentes]] argued that the Trump administration is not serious about mass deportations, calling their efforts “theatre” and “propaganda mods.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:20:50) [[Nicholas J. Fuentes]] argued that removing 10 million people would hurt consumer spending and put upward pressure on prices, and that Trump's friends in [[San Francisco Bay Area|Silicon Valley]] and on [[The Wall Street Journal|Wall Street]] do not want mass deportations.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:22:13) [[Nicholas J. Fuentes]] stated that this is a “classic overpromise, underdeliver” from Trump, and that pissing off [[the left]] without crushing them will lead to them voting in record numbers in the midterms and more political violence.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:23:04) [[Nicholas J. Fuentes]] argued that Trump is not going far enough in any capacity and needs to gut the federal government, shut down entire departments, and fire everybody to start from scratch.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:26:12) [[Nicholas J. Fuentes]] argued that Donald Trump is not taking power far enough, and that a [[little]] something—like a [[little]] attempt to kill the [[king]]—is not good enough; you have to go all in.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:32:27) [[Nicholas J. Fuentes]] argued that [[the left]] does not care about [[Jeffrey Epstein|Epstein]] or sexual abuse, citing that they got mad when [[Roger Stone]] said [[Bill Clinton]] is a rapist but now go on [[Piers Morgan]] to call Trump a “pedo protector” because they do not like his mass deportations.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:36:18) [[Nicholas J. Fuentes]] criticized people [[who]] post [[Adolf Hitler|Hitler]] edit memes but then criticize Trump for invading a neighboring [[country]] and killing a protester, calling them “completely delusional.”
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(00:56:49) The Canary Mission was described as an [[Israel|Israeli]]-funded blacklist used by the Donald Trump administration since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:01:04) [[Nicholas J. Fuentes]] argued that [[Israel]] interfered in the 2016 [[United States|U.S]]. election to get Donald Trump elected for the purpose of scuttling the [[Iran]] nuclear deal, citing an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:01:32) Donald Trump declared the [[Iran|Iranian]] [[Iran|Revolutionary Guard]] ([[Iran|IRGC]]) a terrorist [[organization]] in 2018, authorizing sanctions and attacks that led to a shadow war between the [[United States]] and [[Iran]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:25:43) [[Lindsey Graham]] said he had not slept for a week while waiting for the [[United States]] to bomb [[Iran]] for the second [[time]] in the Trump administration.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:25:58) Donald Trump gathered his cabinet, including General [[Raising Keynes]] of the Joint Chiefs of Staff, to discuss options for responding to [[Iran]], which were later reported to be non-kinetic options such as a cyber attack or economic measures.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:29:10) A worker at a factory called Donald Trump a "pedo protector," and Trump responded by pointing at him and saying "fuck you" while giving him the middle finger.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:29:27) Donald Trump kidnapped [[Nicolás Maduro]] and then called into [[Fox News]], declaring that "nobody has the capability we have and we'll do it again."
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:34:10) [[Nicholas J. Fuentes]] differentiated his criticism of Donald Trump from that of [[the left]], stating that his criticism comes from wanting "not enough deportations" and "not enough [[U.S. Immigration and Customs Enforcement|ICE]] brutality."
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:37:10) [[Nicholas J. Fuentes]] accused the Trump administration of publishing edits of [[U.S. Immigration and Customs Enforcement|ICE]] "kicking everybody's ass" to make the base believe mass deportations are happening when the administration has no intention of doing so.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:45:05) [[Nicholas J. Fuentes]] argued that the current conflict with [[Iran]] began in 2018 when Donald Trump pulled out of the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] created by [[Barack Obama]] and [[John Kerry]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:59:00) [[Benjamin Netanyahu|Bibi]] visited the [[United States]] for the fifth [[time]] in late December 2025, spending a week at [[Mar-a-Lago]] with Donald Trump.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:59:40) [[Nicholas J. Fuentes]] reported that [[Benjamin Netanyahu|Bibi]] requested escalation on all fronts during his December 2025 meeting with Donald Trump, specifically asking to restart war in [[Gaza Strip|Gaza]], restart operations in [[Lebanon]], and bomb [[Iran]]'s missile platforms.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:07:40) [[Nicholas J. Fuentes]] reported that Donald Trump told [[Benjamin Netanyahu|Bibi]] that if [[Iran]] rebuilds its missiles, the [[United States]] will "look strongly" at bombing them, and that Trump was not adamantly against expanding the war.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:14:10) Donald Trump announced a 25% tariff on any [[country]] doing business with [[Iran]], targeting major trading partners like [[China]], [[Turkey]], the [[United Arab Emirates|Emirates]], [[Iraq]], and [[India]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:15:20) [[The New York Times]] reported that Donald Trump told [[Iran|Iranian]] protesters that "help is on the way," and that [[JD Vance]], [[Marco Rubio]], and other top advisors presented him with options for action ranging from diplomacy to military strikes.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:16:10) [[Nicholas J. Fuentes]] reported that there are only six [[United States|U.S]]. [[U.S. Department of Defense|Navy]] warships in the [[Middle East]] (three littoral combat ships and three destroyers) compared to 12 in the [[Caribbean]], and no aircraft carrier strike group, because Donald Trump ordered the Gerald R. Ford carrier strike group to the [[Caribbean]] in October.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:25:55) [[Nicholas J. Fuentes]] speculated that the Trump administration may bomb [[Iran]]'s domestic security forces (the Basij) not to overthrow the regime, but to "mow the grass," degrade [[Iran]]'s ability to defend itself, and create an "orchestrated escalation" towards a decisive confrontation.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:32:35) [[The Jerusalem Post|The Times of Israel]] reported that [[Israel]] and Arab officials advised the Trump administration to delay striking [[Iran]], fearing that the regime is not yet sufficiently weak for an attack to topple it.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:34:00) [[Nicholas J. Fuentes]] predicted that the timeline for a [[United States|U.S]]. strike on [[Iran]] is likely the spring (March), as [[Israel]] and Donald Trump are conscious of the midterm election year and would want to take action before the summer.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(01:35:28.830) Donald Trump announced the morning following the raid that the [[United States]] would administer the government of [[Venezuela]] directly.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:01:17) Donald Trump has a pattern of taking military action while [[China|Chinese]] delegations are present, such as bombing [[Syria]] when the [[China|Chinese]] were at [[Mar-a-Lago]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:01:32) Donald Trump initially stated the [[United States]] would directly administer [[Venezuela]] and is not opposed to boots on the ground.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:14:44) Donald Trump met with [[Kim Jong Un|Kim Jong-un]] in 2018 when [[Nicholas J. Fuentes]] was on vacation.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:52:21) [[Nicholas J. Fuentes]] stated that MAGA is not a serious movement and has no plan or serious effort to connect intentions with outcomes.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:03:17) Donald Trump stated that if others try to stop his invasion of [[Country of Greenland|Greenland]], the [[United States]] will kill them.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:04:08) Donald Trump did not get permission from [[Ilhan Omar]] or [[Jasmine Crockett]] to invade [[Venezuela]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:04:32) Donald Trump did not ask [[Jasmine Crockett]] or [[Thomas Massie]] for permission to use military force.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:56:37) [[Nicholas J. Fuentes]] described the Canary Mission as an [[Israel]]-funded blacklist that, since July 2025, has been used by the Trump administration to [[target]] students and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:00:45) [[Nicholas J. Fuentes]] asserted that the "hidden collusion" in the 2016 election, detailed in [[James Bamford]]'s book *Spy Fail*, was not between Donald Trump and [[Russian Federation|Russia]], but between Donald Trump and [[Israel]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:15) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|Islamic Revolutionary Guard Corps]] ([[Iran|IRGC]]), the military of the [[Iran|Iranian]] regime, a terrorist group.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:50) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] situation with the nuclear deal, but [[Israel]] colluded with Donald Trump to get him elected, leading to a ladder of escalation that included withdrawing from the deal, declaring the [[Iran|IRGC]] terrorists, and killing [[Qasem Soleimani|Soleimani]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(02:06:33) [[Nicholas J. Fuentes]] described the Canary Mission as an [[Israel]]-funded blacklist used by the Trump administration to [[target]] [[United States|Americans]] [[who]] oppose [[Israel]], operating in conjunction with [[Palantir Technologies|Palantir]] to circumvent constitutional protections.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:23:03) [[Nicholas J. Fuentes]] argued that his show's success stemmed from being "the only one" to predict that Donald Trump would be elected as the pro-[[Israel]] candidate and would take the [[United States]] to war with [[Iran]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:03:02) [[Nicholas J. Fuentes]] argued that it does not matter whether a [[Republican Party|Republican]] or [[Democratic Party|Democrat]] wins the presidency, as evidenced by the Trump administration's first year, and that the [[country]] requires "drastic action."
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:05:05) [[Nicholas J. Fuentes]] criticized the Trump administration's first year, noting 330,000 deportations (below promises), bombing of multiple countries ([[Somalia]], [[Nigeria]], [[Venezuela]], [[Iran]], [[Syria]], [[Yemen]]), continued war in [[Ukraine]], and a failure to release unredacted [[Jeffrey Epstein|Epstein]] files.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:09:00) [[Nicholas J. Fuentes]] stated that he would not vote for Donald Trump in 2024 without pledges not to bomb [[Iran]] and to enact an immigration moratorium, and that his refusal to vote for Trump led to him being called a "shill plant."
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:14:31) [[Nicholas J. Fuentes]] threatened to withhold support from the [[Republican Party|GOP]], stating that if Donald Trump cannot deliver in the next three years, "the [[Republican Party|GOP]] needs to be burned to the fucking ground."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(00:56:37) [[Nicholas J. Fuentes]] stated that the Canary Mission is an [[Israel|Israeli]]-funded blacklist used by the Trump administration to [[target]] students and professors in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:00:41) [[Nicholas J. Fuentes]] attributed the collusion in the 2016 election to Trump and [[Israel]], citing an excerpt from [[James Bamford]]'s book "Spy Fail" titled "Spycraft."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:01:15) [[Nicholas J. Fuentes]] said that Donald Trump declared the [[Iran|Iranian]] [[Iran|Revolutionary Guard]] ([[Iran|IRGC]]) a terrorist [[organization]] in 2018.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:24:49) [[Miriam Adelson]] reportedly told Donald Trump at a Hanukkah party at the [[White House]] that if he runs again, she would give him another quarter of a billion dollars.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:27:59) [[Nicholas J. Fuentes]] compared [[JD Vance]]'s indirect criticism unfavorably to [[Ted Cruz]]'s direct confrontation of Donald Trump over comments about [[Ted Cruz|Heidi Cruz]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:30:25) [[Nicholas J. Fuentes]] characterized the Trump administration as "not doing so hot," citing the ongoing war in [[Ukraine]], a pending conflict in the [[Middle East]], the lack of a wall and deportations, and a poor economy.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:30:54) [[Nicholas J. Fuentes]] argued that it is "crazy" for the political establishment to already be demanding a vote for [[JD Vance]] in the 2028 election, given that the Trump administration is "not even a year in" and is "a pile of shit."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:31:44) [[Nicholas J. Fuentes]] observed that Donald Trump has been on the ballot in 2016, 2020, and 2024, and that the 2028 election will be the first [[Republican Party|Republican]] primary since 2012 without Trump on the ballot.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(00:56:37) [[Nicholas J. Fuentes]] asserted that the Canary Mission is an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students and professionals [[who]] oppose [[Israel]], created as part of an initiative by the [[Heritage Foundation]] titled Project Esther.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:00:59) [[Nicholas J. Fuentes]] claimed, citing [[James Bamford]]'s book *Spy Fail*, that the hidden collusion in the 2016 election was not between Trump and [[Russian Federation|Russia]], but between Trump and [[Israel]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:14) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran]]ian [[Iran|Revolutionary Guard]] ([[Iran|IRGC]]) a terrorist group.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:34) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] "had this solved" with the nuclear deal, but that [[Israel]] "colluded with Trump to get him elected" so that Trump would create a "ladder of escalation."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:58:41) [[Nicholas J. Fuentes]] discussed a primetime address given by Donald Trump from the [[White House]] at 8:00 PM, noting that many anticipated a declaration of war against [[Venezuela]] but the administration instead delivered a 20-minute speech that was "rambling" and "stuttering."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:04:29) [[Nicholas J. Fuentes]] stated that he was excited to talk about a war in [[Venezuela]] but that the "rug [was] pulled again," and called Donald Trump a "fucking [[Jews|Jew]]."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:05:35) [[Nicholas J. Fuentes]] stated he appeared on [[Alex Jones|InfoWars]] and discussed the Vanity [[Fair]] piece on [[Susie Wiles]], [[Venezuela]], and the speech, adding that [[Alex Jones]] is always asking him how Trump can "get it back in gear."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:06:21) [[Nicholas J. Fuentes]] claimed that the Trump administration is "totally over" and "happening exactly how I predicted it would."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:07:03) [[Nicholas J. Fuentes]] repeated a prediction he made last year: that Trump would go to "the [[American Israel Public Affairs Committee|Israel lobby]] and [[The Wall Street Journal|Wall Street]]," delivering tax cuts for [[The Wall Street Journal|Wall Street]], a war with [[Iran]], and [[Israel]] getting the [[Gaza Strip|West Bank]], but not mass deportations or lower inflation.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:08:47) [[Nicholas J. Fuentes]] predicted that [[JD Vance]] will run for [[president]] in 2027, that [[Republican Party|Republicans]] will lose the [[U.S. Congress|House]] in 2026, and that [[Susie Wiles]] will have Trump campaigning for 2026 like he did in 2024.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:09:44) [[Nicholas J. Fuentes]] claimed Trump is "falling asleep in cabinet meetings as it is" and "is an 80 year old man."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:13:21) [[Nicholas J. Fuentes]] quoted a [[The New York Times|New York Times]] article stating that Donald Trump delivered an 18-minute primetime speech arguing the economy is in better shape than [[United States|Americans]] believe.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:15:10) [[Nicholas J. Fuentes]] quoted a [[The New York Times|New York Times]] article that Donald Trump announced a "warrior dividend," with checks of $1,776 to be sent to 1.4 million military members, paid for from tariffs.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:16:20) [[Nicholas J. Fuentes]] quoted a [[The New York Times|New York Times]] article saying Donald Trump promised the economy would improve in the next year and that he would announce "some of the most aggressive housing reform plans in [[United States|American]] history next year."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:16:35) [[Nicholas J. Fuentes]] quoted a [[The New York Times|New York Times]] analysis that found a decline in support for Trump's handling of the economy from July to November.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:16:45) [[Nicholas J. Fuentes]] noted that after the speech, Donald Trump took a swig of Diet Coke and suggested his chief of staff, [[Susie Wiles]], told him he had to deliver the speech.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:17:26) [[Nicholas J. Fuentes]] asserted that Trump's approval ratings are "in the toilet" and that he is "unpopular with his own base" due to the exit of [[Marjorie Taylor Greene|Marjorie Greene]], the handling of the [[Jeffrey Epstein|Epstein]] files, and the lack of mass deportations and law and order.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:18:50) [[Nicholas J. Fuentes]] alleged that the Trump administration "put out through back channels this rumor" of war with [[Venezuela]] as a "bait and switch" to get the media and public to watch his speech.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:19:43) [[Nicholas J. Fuentes]] stated that "everyone hates Trump" because his administration "is a scam."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:19:55) [[Nicholas J. Fuentes]] reminded viewers that the "Liberation Day" on April 2nd, when Trump promised tariffs on every [[country]], was walked back in one week.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:20:35) [[Nicholas J. Fuentes]] claimed Trump "always chickens out" on his promises, including deploying the [[U.S. Department of Defense|National Guard]] to major cities and conducting mass deportations.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:21:47) [[Nicholas J. Fuentes]] claimed that in the minds of Trump supporters, "3 million people have been deported and Trump has ended eight wars," referencing wars like those between [[Thailand]] and [[Cambodia]], [[Rwanda]] and [[Republic of Congo|Congo]], and a skirmish between [[India]] and [[Pakistan]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:26:33) [[Nicholas J. Fuentes]] noted that Donald Trump has passed only five bills in the entire year, while other presidents pass over a hundred.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:27:25) [[Nicholas J. Fuentes]] mocked Trump's delivery, stating "he can't even read" from a teleprompter and that "the swagger isn't there."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:29:35) [[Nicholas J. Fuentes]] asserted that Trump's cabinet was "hand selected by [[Susie Wiles]], a lobbyist from [[State of Florida|Florida]]," [[who]] brought in "all the [[State of Florida|Florida]] swamp creatures."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:31:36) [[Nicholas J. Fuentes]] accused Trump of "weaponizing [[the DOJ]] against [[James Comey]], [[Barack Obama]], [and] [[Letitia James]]" while inviting "a brutal retaliation" from the radical left.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:32:34) [[Nicholas J. Fuentes]] argued that Trump needs to "be a literal dictator" or "make peace with [[the left]]," but that his current approach of pretending to be a dictator invites retaliation against his followers, not himself.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:33:01) [[Nicholas J. Fuentes]] characterized the Trump administration as a "squandered opportunity" and predicted that everyone will "pay the price from a new [[Democratic Party|Democrat]] administration."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:34:25) [[Nicholas J. Fuentes]] named [[Elijah Schaffer]] as an example of someone [[who]] confronted him at [[Conservative Political Action Conference|CPAC]] for not supporting Trump and is now finding out a year later just like everybody else, calling him out for his "irresponsibility."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:35:36) [[Nicholas J. Fuentes]] accused Trump of putting out a "shit coin" after winning, which his followers bought, and then so that he and his cronies profited billions of dollars.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:39:48) [[Nicholas J. Fuentes]] claimed that [[Rollins|Brooke Rollins]] (Agriculture Secretary) has a better relationship with Trump and is pushing for H-1A visas for illegal alien farm workers.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:41:01) [[Nicholas J. Fuentes]] stated that anyone [[who]] was pro-Trump can "never be trusted again," including [[Tucker Carlson]] and [[Candace Owens]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:41:14) [[Nicholas J. Fuentes]] argued the [[time]] to call Trump out was "when they needed your vote," pointing to Trump's comments a year ago about H1B visas and bombing [[Iran]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:43:07) [[Nicholas J. Fuentes]] stated that his "loyalty comes with a price tag," and that if Trump wants support from Groypers and [[America First]], he has to give them something.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:47:34) [[Nicholas J. Fuentes]] claimed [[Tucker Carlson]] and [[Candace Owens]] are not hurting after telling people to vote for Trump; rather, they are "making more money than ever," with [[Tucker Carlson|Tucker]] having bought a new [[house]] and [[Candace Owens]] being unable to contain her joy.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:50:15) [[Nicholas J. Fuentes]] called for "an [[United States|American]] lobby" to counter the [[Israel]] lobby, arguing the Trump administration fears upsetting [[Israel|Israelis]] because [[Ben Shapiro]] will not vote for Trump if he doesn't think he is pro-[[Israel]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(00:57:18) [[Nicholas J. Fuentes]] reported that the Canary Mission is an [[Israel|Israeli]]-funded blacklist, confirmed since July 2025 to be used by the Trump administration to [[target]] students and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:01:20) [[Nicholas J. Fuentes]] claimed that Donald Trump was elected in 2016 with the help of [[Israel]], based on an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:02:02) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared [[Iran|Iran's]] [[Iran|Islamic Revolutionary Guard Corps]] ([[Iran|IRGC]]) a terrorist group.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:02:28) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] problem with the deal, but [[Israel]] and Donald Trump colluded to create a ladder of escalation.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:07:11) [[Nicholas J. Fuentes]] reported that the Canary Mission is an [[Israel|Israeli]]-funded blacklist used by the Trump administration to [[target]] pro-[[Palestinian]] students in the [[United States]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:11:07) [[Nicholas J. Fuentes]] claimed that Donald Trump was elected in 2016 with the help of [[Israel]] to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], citing [[James Bamford]]'s book *Spy Fail*.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:11:54) [[Nicholas J. Fuentes]] stated that in 2018, Donald Trump declared the [[Iran|IRGC]] a terrorist group.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:12:06) [[Nicholas J. Fuentes]] stated that Donald Trump escalated the shadow war with [[Iran]] which culminated in the assassination of [[Qasem Soleimani]] in January 2020.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:12:40) [[Nicholas J. Fuentes]] stated that the war with [[Iran]] has been going on for seven years since Donald Trump "made it hot" in 2018, and that this is the nature of "forever wars."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:25:16) [[Nicholas J. Fuentes]] stated that the conspiracy started as [[Israel]] being responsible for [[Charlie Kirk]]'s death, then widened to include the [[Federal Bureau of Investigation|FBI]], the Trump administration, [[France]], and [[Arab Republic of Egypt|Egypt]], and now implicates [[Charlie Kirk]]'s family and wife.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:27:48) [[Nicholas J. Fuentes]] argued that if the assassination of [[Charlie Kirk]] were a false flag operation by [[Israel]], the patsy would not be a white male former Trump supporter, but rather a [[Islam|Muslim]] or [[Palestinian]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:30:12) [[Nicholas J. Fuentes]] sarcastically mentioned that people are going around saying Donald Trump was secretly the [[president]] for 15 years, and that no one will address it head-on.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(00:56:50) [[Nicholas J. Fuentes]] stated that the "Canary Mission" is an [[Israel|Israeli]]-funded blacklist used by the Trump administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:00:52) [[Nicholas J. Fuentes]] asserted that Trump was elected in 2016 with help from [[Israel]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* about "hidden collusion" between Trump and [[Israel]], not Trump and [[Russian Federation|Russia]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:01:12) [[Nicholas J. Fuentes]] argued that [[Israel]] supported Trump's election to scuttle the [[Joint Comprehensive Plan of Action|JCPOA]], leading to the [[United States|U.S]]. withdrawal and escalation of a conflict with [[Iran]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:01:41) [[Nicholas J. Fuentes]] stated that Trump's declaration of the [[Iran|IRGC]] as a terrorist [[organization]] in 2018 and the subsequent assassination of [[Qasem Soleimani]] in 2020 were part of a "ladder of escalation" put the [[United States|U.S]]. into a "shadow war" with [[Iran]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:05:07) [[Nicholas J. Fuentes]] stated that the "Canary Mission" is an [[Israel|Israeli]]-funded blacklist used by the Trump administration to [[target]] [[United States|U.S]]. citizens [[who]] oppose [[Israel]], as part of the [[Heritage Foundation]]'s "Project Esther."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:09:03) [[Nicholas J. Fuentes]] asserted that Donald Trump was elected in 2016 with the help of [[Israel]], citing collusion to scuttle the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:09:45) [[Nicholas J. Fuentes]] stated that Donald Trump declared the [[Iran|IRGC]] a terrorist group in 2018 and assassinated [[Qasem Soleimani]] in 2020, starting a "shadow war" that has been ongoing for seven years.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:10:23) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] issue, but [[Israel]] hated him for it and colluded with Donald Trump to escalate the conflict.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:22:17) [[Nicholas J. Fuentes]] asserted that Donald Trump is going to allow [[Jews|Jewish]] acquisition of media to happen.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:50:10) [[Nicholas J. Fuentes]] stated that [[Oracle Corporation|Larry Ellison]] is a close friend, supporter, and backer of Donald Trump.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:50:35) [[Nicholas J. Fuentes]] reported that Trump negotiated a deal with [[China]] forcing ByteDance to sell [[TikTok Inc.|TikTok]] to a consortium of [[United States|American]] companies.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:56:40) [[Nicholas J. Fuentes]] stated that the [[TikTok Inc.|TikTok]] deal happened through Trump's intervention twice: first in 2020 to host [[United States|US]] data on [[Oracle Corporation|Oracle]], and then in his second term to force ByteDance to sell [[TikTok Inc.|TikTok]] to [[Oracle Corporation|Oracle]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:03:01) [[Nicholas J. Fuentes]] quoted that [[Oracle Corporation|Larry Ellison]] is a donor, informal advisor, and friend of the [[president]], and that [[David Ellison]] made key hires at [[CBS]] to ensure the network is perceived as less adversarial to Trump.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:05:06) [[Nicholas J. Fuentes]] noted that the deal requires regulatory approval from the Trump administration, and that the outcome depends on how Trump feels.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:06:12) [[Nicholas J. Fuentes]] claimed that [[Oracle Corporation|Larry Ellison]] called Donald Trump and told him that if [[Skydance Media|Skydance Paramount]] acquires [[Warner Bros. Discovery|CNN]], they will make it more Trump-friendly and conservative.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:06:29) [[Nicholas J. Fuentes]] stated that Donald Trump faces a choice between [[Netflix]] acquiring [[Warner Bros. Discovery|Warner Bros.]] or [[Skydance Media|Skydance Paramount]] acquiring it, with [[Oracle Corporation|Larry Ellison]] being a pro-[[Israel]] [[Republican Party|Republican]] booster.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(56:50:06) [[Nicholas J. Fuentes]] identified the Canary Mission as an [[Israel|Israeli]]-funded blacklist that, since July 2025, has been used by the Trump administration to [[target]] students and professors [[who]] oppose [[Israel]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:00:44:71) [[Nicholas J. Fuentes]] alleged that Donald Trump was elected in 2016 with the help of [[Israel|Israelis]], citing an excerpt from [[James Bamford]]'s book *Spy Fail* which details a "hidden collusion" between Trump and [[Israel]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:01:27:41) [[Nicholas J. Fuentes]] recounted that in 2018, Donald Trump declared the [[Iran|IRGC]], the military of [[Iran]], a terrorist group.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:02:02:96) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the [[Iran]] issue with the deal, but [[Israelis]] hated him for it and colluded with Trump to enact "maximum pressure" and a ladder of escalation.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:43:41) [[Nicholas J. Fuentes]] claimed that the coordinated attacks against him follow a "full spectrum" playbook, where critics have called him a [[Democratic Party|Democrat]] for not voting for Donald Trump, a "[[Jews|Jew]] hater" for criticizing [[Israel]], a racist for criticizing [[black]] people, a "[[fed]]" by [[Elon Musk]], and now claim his engagement is fake.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:56:55) [[Tucker Carlson]] collaborated on [[The Grayzone]] hit piece against [[Nicholas J. Fuentes]] by calling [[Michelle Malkin]] to ask about [[Nicholas J. Fuentes]]'s relationships with [[Kanye West]] and Donald Trump.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:05:48) [[Nicholas J. Fuentes]] stated that [[Netflix]] attempted to acquire [[Warner Bros. Discovery|Warner Bros.]], but the Donald Trump administration blocked the deal, leading [[Skydance Media]] to make a bid for a hostile takeover.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:37:04) [[Nicholas J. Fuentes]] argued that Donald Trump behaves as he does—with "contemptuously dishonest" self-confidence—because the media environment demands it to survive against figures like [[Piers Morgan]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:49:37) [[Nicholas J. Fuentes]] stated that [[Joe Biden]] was a more effective [[president]] on domestic issues than Donald Trump.

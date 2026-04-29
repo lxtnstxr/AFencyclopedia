@@ -70,3 +70,6 @@
 
 ### AF 2017-10-05 0025
 (01:34:18) [[Stephen Paddock]] worked as a letter carrier, an IRS agent, and an auditor for the [[U.S. Defense Department]] audit agency over the course of his career.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:36:22) [[Nicholas J. Fuentes]] discouraged viewers from refusing to pay their taxes, warning that the IRS will prosecute them and that those encouraging it will not pay their legal bills.

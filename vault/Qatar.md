@@ -164,7 +164,7 @@
 (05:27:67) The Gulf Cooperation Council states, including [[Bahrain]], the [[United Arab Emirates]], [[Kuwait]], Qatar, [[Yemen]], and [[Oman]], joined [[Saudi Arabia]] in demanding the removal of content deemed to violate Islamic values from [[Netflix]].
 
 ### AF 2022-03-31 0970
-(01:13:28) [[Nicholas J. Fuentes]] stated that the [[United States]] faces influence operations not only from [[China]], [[Russia]], and [[Iran]], but also from [[North Atlantic Treaty Organization|NATO]], the [[Europe|European Union]], [[Israel]], [[Saudi Arabia]], the [[United Arab Emirates]], Qatar, and [[India]].
+(01:13:28) [[Nicholas J. Fuentes]] stated that the [[United States]] faces influence operations not only from [[China]], [[Russia]], and [[Iran]], but also from [[North Atlantic Treaty Organization|NATO]], the [[European Union]], [[Israel]], [[Saudi Arabia]], the [[United Arab Emirates]], Qatar, and [[India]].
 
 ### AF 2022-03-10 0955
 (03:56:58) [[Nicholas J. Fuentes]] claimed the [[AFPAC]] was funded primarily by a "zoomer crypto millionaire," in contrast to [[Conservative Political Action Conference|CPAC]] which he said was funded by [[Google]], [[George Soros]]-linked groups, and foreign nations like [[Israel]] and Qatar.
@@ -206,7 +206,7 @@
 (19:42:86) A proxy war between [[Saudi Arabia]] and [[Iran]] was taking place in [[Lebanon]], [[Yemen]], and Gulf states like [[Bahrain]], Qatar, the [[United Arab Emirates|Emirates]], and [[Kuwait]].
 
 ### AF 2018-09-25 0247
-(03:46:00) [[Nicholas J. Fuentes]] argued that [[Iran]]'s support for groups like [[Hamas]], [[Hezbollah]], and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Gaza Strip|Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like Qatar and the [[United Arab Emirates]].
+(03:46:00) [[Nicholas J. Fuentes]] argued that [[Iran]]'s support for groups like [[Hamas]], [[Hezbollah]], and [[Palestinian Islamic Jihad]] constituted funding for an asymmetrical uprising in [[Palestine]], distinct from the [[Sunni]] terrorism funded by Gulf states like Qatar and the [[United Arab Emirates]].
 
 ### AF 2018-05-09 0161
 (00:49:48) [[Nicholas J. Fuentes]] pointed out that allies like [[Saudi Arabia]], the [[United Arab Emirates|UAE]], and Qatar have given tacit support to [[Islamic State of Iraq and Syria|ISIS]], and [[Israel]] conducts aggressive espionage on [[United States|U.S.]] soil, yet face no calls for regime change.
@@ -251,7 +251,7 @@
 (01:00:48) [[Nicholas J. Fuentes]] analyzed rising tensions between [[Saudi Arabia]] and [[Iran]], tracing the conflict to a [[Saudi Arabia|Saudi]]-led boycott of Qatar in July, the forced resignation of [[Lebanon]]'s Prime Minister [[Saad Hariri]], and a missile strike by [[Houthis|Houthi]] rebels, viewing it as a regional cold war orchestrated by [[Saudi Arabia|Saudi Crown Prince]] [[Mohammed bin Salman]].
 
 ### AF 2017-11-10 0051
-(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], [[Hamas]] and [[Palestinian Islamic Jihad]] in [[Gaza Strip|Palestine]], and the [[state]] of Qatar.
+(24:09:80) [[Iran]]'s allies and supported groups in the [[Middle East]] included the [[Houthis|Houthi]] rebels in [[Yemen]], [[Hezbollah]] in [[Lebanon]], [[Hamas]] and [[Palestinian Islamic Jihad]] in [[Palestine]], and the [[state]] of Qatar.
 
 ### AF 2017-11-09 0050
 (12:52:00) In July, [[Saudi Arabia]] led a boycott of Qatar after Qatari news media reported the Emir praising [[Iran]] as a great Islamic power and calling [[Hamas]] a good ally.
@@ -267,3 +267,96 @@
 
 ### AF 2017-10-11 0029
 (00:37:23) [[Nicholas J. Fuentes]] reiterated that [[Israel]] was useless as a forward base in the 1991 Gulf War because Arab partners would not cooperate with [[Israel|Israeli]] troops, and questioned why bases in Qatar, [[Arab Republic of Egypt|Egypt]], or [[Turkey]] were insufficient.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:15:37) [[Saudi Arabia]], Qatar, [[Kuwait]], the [[United Arab Emirates]], and [[Bahrain]] desired a decisive confrontation and the ultimate end of the [[Iran]]ian regime.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:15:44) The Gulf countries, including [[Saudi Arabia]], Qatar, [[Kuwait]], the [[United Arab Emirates]], and [[Bahrain]], did not feel secure due to the ongoing conflict.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:23:27) [[Iran]] was expected to deliver a crushing blow to [[Persian Gulf]] countries such as [[Saudi Arabia]], the [[United Arab Emirates]], Qatar, and [[Bahrain]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(02:55:25) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s speech was intended to flood the information space with misinformation and contradictory signals to prevent [[Iran]] from determining the next moves of the [[United States]], [[Saudi Arabia]], [[United Arab Emirates|UAE]], and Qatar.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:24:33) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] wants [[Iran]] to believe it has less leverage over the [[United States]] than it does, while also pressuring [[India]], [[South Korea]], [[State of Japan|Japan]], [[Malaysia]], [[Taiwan]], and [[Europe]]—[[who]] are more dependent on the [[Persian Gulf]] for oil and liquefied natural gas from Qatar—to step in.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:18:36) [[Nicholas J. Fuentes]] stated that [[Iran]] has also taken control of 20% of the world's LNG market, which is pumped out of Qatar through the [[Strait of Hormuz]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:33:22) [[Iran]] threatened to attack the energy infrastructure, desalination plants, hotels, and airports of [[Saudi Arabia]], Qatar, the [[United Arab Emirates]], [[Kuwait]], and [[Bahrain]] if the [[United States]] targets [[Iran]]'s power plants.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:52:23) [[Iran]] had destroyed at least 13 [[United States|US]] bases across [[Kuwait]], [[Saudi Arabia]], [[Iraq]], and Qatar, rendering them inoperable.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:09:56) Qatar produces 20% of the world’s [[Liquefied Natural Gas|LNG]], and [[Europe]] knew that an escalation into an energy war would cause severe energy shortages.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:17:14) [[Steve Wittkoff|Steve Witkoff]] had a personal relationship with the foreign minister of [[Iran]] and had business interests in Qatar, which does business with [[Iran]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:33:36) [[Iran]]'s Foreign Minister stated that if the [[United States]] bombs their energy, they will bomb [[Saudi Arabia]], Qatar, and the [[United Arab Emirates]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:35:29) [[Nicholas J. Fuentes]] stated that if desalination plants in Qatar and the [[United Arab Emirates]] go offline, they would have a supply of drinking water for only about a month.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:16:44) [[Iran]] carried out an attack against Qatar's [[Liquefied Natural Gas|LNG]] plant, which supplies 20% of the world's [[liquefied natural gas]], and [[Saudi Aramco]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:32:38) [[Nicholas J. Fuentes]] reported that [[Iran]] retaliated by bombing natural gas fields in Qatar, the [[United Arab Emirates]], and oil infrastructure in [[Saudi Arabia]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:28:01) [[Nicholas J. Fuentes]] reported that [[Israel]] launched a major strike on the [[Southern United States|South]] Pars gas field and [[Iran]] retaliated by bombing Qatar's gas, the Emirati's gas, and [[Saudi Arabia|Saudi]] oil.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:30:34) [[Nicholas J. Fuentes]] noted that Qatar condemned the attack as a dangerous escalation, and that Arab governments were furious about [[Israel]]'s attack and the [[United States|U.S]]. failure to head it off.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:35:06) [[Nicholas J. Fuentes]] quoted [[Donald Trump|Trump]]'s [[Cozy.tv|Truth Social]] post, in which [[Donald Trump|Trump]] said the [[United States|U.S]]. knew nothing about the attack, that no more attacks will be made by [[Israel]] on the [[Southern United States|South]] Pars field unless [[Iran]] attacks Qatar again, in which case the [[United States|U.S]]. will "massively blow up the entirety of the [[Southern United States|South]] Pars gas field."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:38:45) [[Nicholas J. Fuentes]] stated that [[Iran]] retaliated quickly and hit Qatar's [[Liquefied Natural Gas|LNG]], which is how [[Europe]] has replaced [[Russian Federation|Russian]] natural gas, making the situation a global supply shock.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:51:26) [[Nicholas J. Fuentes]] reported that [[Iran]]'s missiles were hitting [[Bahrain]], Qatar, and the [[United Arab Emirates|Emirates]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:06:42) [[Nicholas J. Fuentes]] said that [[Iran]] is launching missiles against [[Israel]], [[Jim Jordan|Jordan]], [[Northern Iraq]], [[Riyadh]], [[Bahrain]], the [[United Arab Emirates|Emirates]], Qatar, [[Oman]], and ships in the [[Persian Gulf]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:07:45:97) [[Nicholas J. Fuentes]] reported that [[Huckabee]]'s comments drew condemnation from almost all countries in the [[Middle East]], including [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], Qatar, the Arab League, and the [[Organization]] of the Islamic Conference.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:56:11) [[Nicholas J. Fuentes]] argued that regime change in [[Iran]] is not in the best interest of the [[United Arab Emirates]], Qatar, or [[Saudi Arabia]] because there are significant [[Shiite]] populations inside those countries.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:28:32) The [[United States]] opened indirect talks with [[Iran]] only after an intense lobbying effort from [[Turkey]], Qatar, [[Pakistan]], the [[United Arab Emirates]], [[Oman]], [[Saudi Arabia]], and [[Arab Republic of Egypt|Egypt]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:21:53) [[Nicholas J. Fuentes]] identified [[Turkey]], [[Arab Republic of Egypt|Egypt]], Qatar, [[Saudi Arabia]], [[Pakistan]], the [[United Arab Emirates]], and [[Oman]] as countries lobbying the [[United States]] to make a deal with [[Iran]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:10:27) [[Nicholas J. Fuentes]] cited a past incident in September where [[Israel]] bombed Qatar, and the [[United States]] was "furious" and gave Qatar a security guarantee, after which the "[[Islam|Muslim]] countries came together" to force [[Benjamin Netanyahu]] to apologize.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:15) [[Nicholas J. Fuentes]] stated that a multilateral framework proposal for negotiations with [[Iran]] was put together by seven [[Islam|Muslim]]-majority countries, including [[Arab Republic of Egypt|Egypt]], [[Turkey]], the [[United Arab Emirates|UAE]], Qatar, [[Saudi Arabia]], [[Pakistan]], and [[Oman]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:56:14.700) [[Nicholas J. Fuentes]] expressed suspicion about people hanging out in [[Saudi Arabia]], buying real estate in Qatar, and living in [[Serbia]] and [[Russian Federation|Russia]] while getting money from the [[U.S. Department of State|State Department]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:36:27:80) [[Nicholas J. Fuentes]] criticized [[Tucker Carlson]] for traveling to Qatar, [[Russian Federation|Russia]], and [[Serbia]] instead of staying in [[United States|America]].
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:18:06) [[Turkey]], [[Saudi Arabia]], Qatar, and [[Israel]] lobbied [[Washington D.C.]] against the strike on [[Iran]], saying they were not ready and would not allow the use of their airspace.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:30:26) [[Nicholas J. Fuentes]] stated that it looked very likely that the [[United States]] was going to intervene militarily in [[Iran]], reporting that [[Iran]] had closed its airspace and that the [[United States]] was evacuating its base in Qatar.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:00:00) [[Nicholas J. Fuentes]] criticized [[Tucker Carlson]] for buying a [[house]] in Qatar and saying he can travel anywhere because he's an [[United States|American]].

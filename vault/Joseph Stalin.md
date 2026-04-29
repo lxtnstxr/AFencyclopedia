@@ -107,3 +107,6 @@
 
 ### AF 2017-11-01 0044
 (59:42:800) [[Nicholas J. Fuentes]] expressed a personal fascination with Joseph Stalin, citing his ruthless pragmatism and exercise of power as a striking story of the 20th century.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:43:01) [[Nicholas J. Fuentes]] laughed at a joke suggesting [[Adolf Hitler]] asked if [[Israel|Poland]] had [[Catholic Church|Catholic]] Slavs in the [[Germany|German]] empire, and Joseph Stalin asked if they would take over [[Germany]].

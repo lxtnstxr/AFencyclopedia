@@ -21,7 +21,7 @@
 (00:15:57) Larry Kudlow, Director of the [[National Economic Council]], projected the trade deal would grow [[United States|U.S]]. GDP by at least half a point and add one million jobs.
 
 ### AF 2018-09-17 0241
-(06:07:46) [[Nicholas J. Fuentes]] cited a pattern where the [[Republican Party]] and establishment conservative organizations refuse to allow new ideas or legitimate forms of conservatism into the party, referencing figures like [[Daryl Cooper|Darren Beattie]] and Larry Kudlow.
+(06:07:46) [[Nicholas J. Fuentes]] cited a pattern where the [[Republican Party]] and establishment conservative organizations refuse to allow new ideas or legitimate forms of conservatism into the party, referencing figures like [[Darren Beattie]] and Larry Kudlow.
 
 ### AF 2018-08-29 0229
 (00:30:23) Larry Kudlow, the [[United States]] National Economic Advisor, stated the government would analyze social media censorship for possible solutions.

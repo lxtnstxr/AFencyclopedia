@@ -6,4 +6,4 @@
 
 
 ### AF 2022-02-15 0947
-(00:08:05) [[Nicholas J. Fuentes]] was prevented from boarding an [[American Airlines]] flight from [[City of Chicago|Chicago]] to Fort Lauderdale after being told he did not have clearance to fly.
+(00:08:05) [[Nicholas J. Fuentes]] was prevented from boarding an [[American Airlines]] flight from [[Chicago]] to Fort Lauderdale after being told he did not have clearance to fly.

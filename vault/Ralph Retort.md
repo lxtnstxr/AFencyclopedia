@@ -12,7 +12,7 @@
 (01:45:30) [[Nicholas J. Fuentes]] declined to have a conversation with [[James Allsup]] on the Ralph Retort, stating their differences were settled years ago and the results of their separate paths speak for themselves.
 
 ### AF 2019-04-09 0363
-(04:47:80) A separate clip from Ralph Retort featured [[Destiny|Destiny]] expressing a desire for violence against [[Nicholas J. Fuentes]] and people like him.
+(04:47:80) A separate clip from Ralph Retort featured [[Destiny]] expressing a desire for violence against [[Nicholas J. Fuentes]] and people like him.
 
 ### AF 2019-02-22 0337
 (01:20:25:20) [[Nicholas J. Fuentes]] called [[Coach Red Pill]] "a faggot" in response to a question about drama between him and Ralph.

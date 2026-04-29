@@ -10,3 +10,9 @@
 
 ### AF 2020-05-04 0597
 (02:33:18) [[Nicholas J. Fuentes]] joked that his long reddish beard and hair made him look like Obi-Wan Kenobi from *Star Wars: Episode III*.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:48:08) [[Nicholas J. Fuentes]] compared his dynamic with [[Sneeko]] to a [[Star Wars]] dynamic, casting himself as Obi-Wan Kenobi and [[Sneeko]] as [[Anakin Skywalker]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:51:30) [[Nicholas J. Fuentes]] compared his group to [[Star Wars]] characters, identifying himself as Obi-Wan, [[Clavicular]] as [[Anakin Skywalker|Anakin]], [[Sneeko]] as [[Jar Jar Binks]], [[Myron Gaines|Myron]] as [[Mace Windu]], and [[Andrew Tate]] as [[Yoda]].

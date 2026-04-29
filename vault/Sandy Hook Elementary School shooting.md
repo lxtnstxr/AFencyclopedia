@@ -12,7 +12,7 @@
 (01:08:45:54) [[Nicholas J. Fuentes]] listed examples of figures who were told "if only" they hadn't said something controversial—[[Kanye West|Ye]] on [[Jewish]] media, [[Donald Trump]] on "shithole countries," [[Alex Jones]] on Sandy Hook—to argue that compromise doesn't prevent cancellation.
 
 ### AF 2019-10-02 0471
-(00:52:52) [[Nicholas J. Fuentes]] accused [[Mark Zuckerberg]], [[Google]], and [[Twitter|Jack Dorsey]] of cooperating with government and media interests to ban users [[who]] asked questions about events like the [[City of Las Vegas|Las Vegas]] shooting, Sandy Hook, and [[Jeffrey Epstein]].
+(00:52:52) [[Nicholas J. Fuentes]] accused [[Mark Zuckerberg]], [[Google]], and [[Twitter|Jack Dorsey]] of cooperating with government and media interests to ban users [[who]] asked questions about events like the [[Las Vegas]] shooting, Sandy Hook, and [[Jeffrey Epstein]].
 
 ### AF 2017-10-02 0022
 (20:01:38) [[Nicholas J. Fuentes]] cited [[Adam Lanza]], the perpetrator of the Sandy Hook Elementary School shooting, as an example of a shooter [[who]] was excluded, not looked after by his mother or community, and bullied.

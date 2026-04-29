@@ -28,3 +28,63 @@
 
 ### AF 2017-11-10 0051
 (31:11:34) The Persian Gulf [[region]] is a primary global source of petroleum and natural gas, making it a strategically contentious area.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:22:50) A catastrophic strike on [[Iran]] by [[Donald Trump]] would likely have led to [[Iran]] retaliating against Persian Gulf countries, particularly [[Saudi Arabia]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:23:27) [[Iran]] was expected to deliver a crushing blow to Persian Gulf countries such as [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and [[Bahrain]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:38:58) The [[United States]] would be forced to seek peace to secure oil, gas, and other resources from the Persian Gulf.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:07:32) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]] is "bluffing" about bombing [[Iran]]ian infrastructure because such an act would lead to [[Iran]] retaliating by bombing Persian Gulf infrastructure, destabilizing the [[region]], and leading to a "failed [[state]]" in [[Iran]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:23:54) [[Donald Trump]] stated in his address that the [[United States]] does not get oil from the Persian Gulf and is energy independent.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:24:33) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] wants [[Iran]] to believe it has less leverage over the [[United States]] than it does, while also pressuring [[India]], [[South Korea]], [[State of Japan|Japan]], [[Malaysia]], [[Taiwan]], and [[Europe]]—[[who]] are more dependent on the Persian Gulf for oil and liquefied natural gas from [[Qatar]]—to step in.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:27:37) The [[United States]] is considering an amphibious landing on one of [[Iran]]'s islands in the Persian Gulf or the [[Strait of Hormuz]], with [[Kharg Island]] being a potential [[target]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:42:20) [[Donald Trump|Trump]] adopted a strategy of escalating the fighting to achieve a tactical victory, potentially through a surgical ground intervention on an island in the Persian Gulf or the [[Strait of Hormuz]], in order to secure a more favorable ceasefire.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:46:12) 5,000 Marines arrived in the Persian Gulf to join the force buildup.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:29:22) [[Nicholas J. Fuentes|Fuentes]] speculated that [[Israel]] wants to control the [[Red Sea]], Persian Gulf, [[Bosporus Strait]], [[Aegean Sea]], [[Mediterranean Sea|Eastern Mediterranean]], and the [[Caspian Sea]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:43:05) [[Iran]] pledged that if the [[United States]] bombed their power plants, [[Iran]] would retaliate against energy resources in the Persian Gulf and other civilian infrastructure like desalination plants.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:08:52) The administration was considering a seizure of [[Kharg Island]], an [[Iran|Iranian]] island in the Persian Gulf from which [[Iran]] exports about 90% of its oil.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:11:10) [[Nicholas J. Fuentes]] reported that a force of 2,200 marines on amphibious assault vessels was headed to the Persian Gulf.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:03:10) [[Donald Trump|Trump]] bombed Kharg Island, the central hub of [[Iran]]'s energy in the Persian Gulf, on a Friday.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:20:40) 4,000 to 5,000 [[US Marines]] on amphibious assault vehicles were deployed from the [[Pacific Ocean|Pacific]] to the Persian Gulf, arriving by Friday.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:23:75) [[Iran]] closed the [[Strait of Hormuz]], effectively shutting down energy trade from the Persian Gulf.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(14:25:23) [[Iran]] launched ballistic missiles that struck two tankers in the Persian Gulf and hit oil infrastructure in [[Bahrain]] and [[Iraq]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:48.000) [[Nicholas J. Fuentes]] argued that the same people [[who]] want cheap immigrant labor also want a war with [[Iran]] to control the Persian Gulf.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:48:36) [[Nicholas J. Fuentes]] said that [[Iran]] was retaliating with ballistic missiles against [[United States|US]] bases in the Persian Gulf, [[Erbil]], [[Jim Jordan|Jordan]], and against military and government targets in [[Israel]], as well as civilian targets in the Gulf countries.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:06:42) [[Nicholas J. Fuentes]] said that [[Iran]] is launching missiles against [[Israel]], [[Jim Jordan|Jordan]], [[Northern Iraq]], [[Riyadh]], [[Bahrain]], the [[United Arab Emirates|Emirates]], [[Qatar]], [[Oman]], and ships in the Persian Gulf.

@@ -30,3 +30,6 @@
 
 ### AF 2023-02-16 1123
 (00:19:08) [[Nicholas J. Fuentes]] stated that Sidney Blumenthal was a [[Jewish]] [[Democratic Party|Democrat]] operative who worked for [[Bill Clinton]] and [[Hillary Clinton]] and was involved in the birtherism conspiracy and the Steele dossier.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:57:20) [[Max Blumenthal]] attacked [[David Irving]] for the [[Southern Poverty Law Center]] ([[Southern Poverty Law Center|SPLC]]), and his father Sidney Blumenthal was an intelligence mercenary for [[Bill Clinton]] and [[Hillary Clinton]].

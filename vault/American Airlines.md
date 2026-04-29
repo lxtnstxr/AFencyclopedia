@@ -12,10 +12,10 @@
 (01:25:16) American Airlines launched a partnership with flight schools in [[Arizona]], [[State of Florida|Florida]], and [[State of Texas|Texas]] offering training, financing, and mentoring with a focus on diversity, while [[Alaska Airlines]] and its regional partner [[Horizon Air]] unveiled a similar program in March.
 
 ### AF 2022-02-15 0947
-(00:08:05) [[Nicholas J. Fuentes]] was prevented from boarding an American Airlines flight from [[City of Chicago|Chicago]] to [[Fort Lauderdale]] after being told he did not have clearance to fly.
+(00:08:05) [[Nicholas J. Fuentes]] was prevented from boarding an American Airlines flight from [[Chicago]] to [[Fort Lauderdale]] after being told he did not have clearance to fly.
 
 ### AF 2022-02-15 0947
-(00:09:43) After being denied boarding by American Airlines, [[Nicholas J. Fuentes]] was also prevented from boarding a [[United Airlines]] flight from [[City of Chicago|Chicago]] to [[Palm Beach, Florida]].
+(00:09:43) After being denied boarding by American Airlines, [[Nicholas J. Fuentes]] was also prevented from boarding a [[United Airlines]] flight from [[Chicago]] to [[Palm Beach, Florida]].
 
 ### AF 2021-11-02 0905
 (00:06:05) [[Nicholas J. Fuentes]] announced the show would also cover American Airlines, which canceled over 300 flights that weekend.
@@ -39,7 +39,7 @@
 (01:21:13) American Airlines flight 1284 was turned around and a family was removed because a two-year-old asthmatic child, Waylon Pandarvis, could not wear a mask during an asthma attack.
 
 ### AF 2021-04-27 0800
-(00:09:13) After being prevented from boarding flights on American Airlines and [[United Airlines]] at [[City of Chicago|Chicago]] O'Hare International Airport, [[Nicholas J. Fuentes]] publicly claimed he had been placed on a federal no-fly list.
+(00:09:13) After being prevented from boarding flights on American Airlines and [[United Airlines]] at [[Chicago]] O'Hare International Airport, [[Nicholas J. Fuentes]] publicly claimed he had been placed on a federal no-fly list.
 
 ### AF 2021-04-27 0800
 (00:18:27) After being prevented from flying on three different airlines (American Airlines, [[United Airlines]], and [[Southwest Airlines]]) at two different airports (O'Hare and Midway) to two different destinations ([[State of Florida|Florida]] and [[Arizona]]), [[Nicholas J. Fuentes]] concluded he was on a federal [[Transportation Security Administration|TSA]]-enforced no-fly list.

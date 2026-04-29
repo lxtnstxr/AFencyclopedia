@@ -9,7 +9,7 @@
 (01:18:45) [[Nicholas J. Fuentes]] identified the source of online harassment as followers of [[Patrick Little]] or Jason Kessler, reacting to his criticism of them.
 
 ### AF 2018-08-20 0222
-(01:23:31) [[Nicholas J. Fuentes]] displayed content from *Badland Blues*, a dwarf erotica novel written by Jason Kessler, the organizer of the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally, to mock his online critics.
+(01:23:31) [[Nicholas J. Fuentes]] displayed content from *Badland Blues*, a dwarf erotica novel written by Jason Kessler, the organizer of the [[Charlottesville]] "Unite the Right" rally, to mock his online critics.
 
 ### AF 2018-08-20 0222
 (01:26:42) [[Nicholas J. Fuentes]] contrasted serious activists like [[Douglas Mackey|Ricky Vaughn]] with figures like Jason Kessler, [[Christopher Cantwell]], and [[Patrick Little]], whom he described as low-IQ losers or controlled opposition.

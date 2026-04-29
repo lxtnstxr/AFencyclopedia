@@ -54,7 +54,7 @@
 (01:45:53) [[Nicholas J. Fuentes]] stated he does not support the Hong Kong protests and is ambivalent about the situation, seeing downsides to both [[China|Chinese]] authoritarianism and [[United States|American]]-style democracy.
 
 ### AF 2021-05-26 0817
-(23:17:780) [[City of Beijing|Beijing]]'s animosity towards [[Taiwan]] and rebels in Hong Kong mirrors [[Washington D.C.|Washington, D.C.]]'s animosity towards [[Nicholas J. Fuentes]].
+(23:17:780) [[Beijing]]'s animosity towards [[Taiwan]] and rebels in Hong Kong mirrors [[Washington D.C.|Washington, D.C.]]'s animosity towards [[Nicholas J. Fuentes]].
 
 ### AF 2021-05-26 0817
 (23:41:300) [[Washington D.C.|Washington, D.C.]] supports [[Taiwan]], Hong Kong rebels, [[Alexei Navalny]], and the government in [[Kyiv|Kiev]], similar to how [[Russia]] offered hospitality to [[Edward Snowden]].

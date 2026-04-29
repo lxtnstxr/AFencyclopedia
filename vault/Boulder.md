@@ -2,9 +2,9 @@
 #city
 
 ### AF 2021-04-08 0788
-(00:02:01) [[Joe Biden]] held a press conference to announce new gun control measures via executive order, framed as a response to recent mass shootings in [[Atlanta]], Boulder, and [[City of Orlando|Orange County]].
+(00:02:01) [[Joe Biden]] held a press conference to announce new gun control measures via executive order, framed as a response to recent mass shootings in [[Atlanta]], Boulder, and [[Orange County]].
 
-(00:02:22) The mass shootings cited as pretext for [[Joe Biden]]'s executive actions took place in [[Atlanta]], Boulder, and [[City of Orlando|Orange County]].
+(00:02:22) The mass shootings cited as pretext for [[Joe Biden]]'s executive actions took place in [[Atlanta]], Boulder, and [[Orange County]].
 (00:22:27) [[Nicholas J. Fuentes]] stated that the gun control measures proposed by [[Joe Biden]], including ghost gun regulations and closing the "boyfriend loophole," would not have prevented the mass shootings in [[Atlanta]] or Boulder.
 (00:23:41) The mass shooting in Boulder was perpetrated by a [[Syria|Syrian]] [[Islam|Muslim]] immigrant who legally purchased a firearm.
 

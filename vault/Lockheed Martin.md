@@ -33,4 +33,4 @@
 (02:00:38) [[Christopher Rufo]] of the [[Manhattan Institute]] exposed a Lockheed Martin training program that forced white executives to confess to being racist and privileged.
 
 ### AF 2021-04-29 0802
-(00:43:40) [[Nicholas J. Fuentes]] argued that [[Joe Biden]] is not "[[City of Beijing|Beijing]] [[Joe Biden|Biden]]" but is instead [[Donald Trump|the president]] of the "[[United States|American]] regime," representing the interests of the national security apparatus, intelligence community, defense contractors like Lockheed Martin and [[Raytheon]], and multilateral alliances like [[North Atlantic Treaty Organization|NATO]].
+(00:43:40) [[Nicholas J. Fuentes]] argued that [[Joe Biden]] is not "[[Beijing]] [[Joe Biden|Biden]]" but is instead [[the president]] of the "[[United States|American]] regime," representing the interests of the national security apparatus, intelligence community, defense contractors like Lockheed Martin and [[Raytheon]], and multilateral alliances like [[North Atlantic Treaty Organization|NATO]].

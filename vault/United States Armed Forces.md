@@ -28,3 +28,6 @@
 
 ### AF 2018-12-11 0293
 (00:14:40) [[Nicholas J. Fuentes]] quoted [[Donald Trump]]'s tweet threatening to use the military to build the wall if [[Congress]] did not provide funding.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:23:05) A former US commander stated that combat engineers from the [[Marines]] could rapidly repair airfields on [[Kharg Island]], allowing the [[Air Force]] to fly in supplies and troops from the [[82nd Airborne Division]].

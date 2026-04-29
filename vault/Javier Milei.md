@@ -34,13 +34,13 @@
 (01:30:36) [[Tucker Carlson]] brought his show to [[Twitter|X]] after being fired by [[Fox News]] and interviewed Javier Milei for a billion views before the Argentine election.
 
 ### AF 2024-08-12 1372
-(01:03:26) [[Donald Trump]] praised Javier Milei, [[Donald Trump|the president]] of [[Argentina]], for running on a "Make Argentina Great Again" platform, cutting government spending, reducing regulations, and bringing down hyperinflation.
+(01:03:26) [[Donald Trump]] praised Javier Milei, [[the president]] of [[Argentina]], for running on a "Make Argentina Great Again" platform, cutting government spending, reducing regulations, and bringing down hyperinflation.
 
 ### AF 2024-08-05 1367
 (01:10:10) [[Nicholas J. Fuentes]] argued that Zionists have infiltrated the global right wing, citing pro-[[Israel]] shifts by figures like [[Giorgia Meloni]] in [[Italian Republic|Italy]], Javier Milei in [[Argentina]], and [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]].
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], Javier Milei of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], Javier Milei of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 ### AF 2024-06-25 1345
 (37:26:29) [[Geert Wilders]] is [[Jewish]] and is involved with [[Israel]] and [[Benjamin Netanyahu|Bibi]]'s Zionist network, which is connected to right-wing populist movements like those of [[Donald Trump]], Javier Milei, and [[Viktor Orbán]].

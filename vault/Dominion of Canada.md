@@ -60,7 +60,7 @@
 (00:33:48) [[Justin Trudeau]] of Canada avoided using the word "ceasefire," reflecting a Western political distinction where "humanitarian pause" was used to avoid signaling weakness or allowing [[Hamas]] to regroup while still addressing humanitarian concerns.
 
 ### AF 2023-08-01 1196
-(01:03:30) [[Nicholas J. Fuentes]] claimed that if [[Jews]] have their way, civilization in [[Europe]] will also end, leaving only [[China]] and [[Russia]] as civilized states in a future where the [[United Kingdom]], [[Government of France|France]], [[United States|America]], Canada, and [[Australia]] become minority-white failed states.
+(01:03:30) [[Nicholas J. Fuentes]] claimed that if [[Jews]] have their way, civilization in [[Europe]] will also end, leaving only [[China]] and [[Russia]] as civilized states in a future where the [[United Kingdom]], [[France]], [[United States|America]], Canada, and [[Australia]] become minority-white failed states.
 
 ### AF 2023-07-22 1190
 (35:20:34) The [[United Kingdom]], Canada, and [[Spain]] criticized the [[United States]]' decision to send cluster munitions to [[Ukraine]]. (35:26:00)
@@ -72,10 +72,10 @@
 (37:34:00) [[Nicholas J. Fuentes]] observed that diplomatic and economic support for [[United States|America]] is now largely confined to [[Western Europe]], Canada, [[Australia]], [[State of Japan|Japan]], and [[South Korea]].
 
 ### AF 2023-03-02 1126
-(00:43:46) Canada and the [[Europe|European Union]] have banned [[TikTok Inc.|TikTok]] on government-issued phones.
+(00:43:46) Canada and the [[European Union]] have banned [[TikTok Inc.|TikTok]] on government-issued phones.
 
 ### AF 2023-03-02 1126
-(48:42:14) The [[Joe Biden|White House]] gave federal agencies 30 days to remove [[TikTok Inc.|TikTok]] from government devices, a policy already enacted by over 30 [[United States|U.S]]. states, Canada, and the [[Europe|European Union]].
+(48:42:14) The [[Joe Biden|White House]] gave federal agencies 30 days to remove [[TikTok Inc.|TikTok]] from government devices, a policy already enacted by over 30 [[United States|U.S]]. states, Canada, and the [[European Union]].
 
 ### AF 2023-02-28 1124
 (00:42:25) [[Nicholas J. Fuentes]] argued that people of [[Europe|European]] descent are being "systematically deliberately replaced" by non-white people in [[Europe]], the [[United States]], Canada, and [[Australia]], a process he called a "mathematical fact."
@@ -171,7 +171,7 @@
 (01:21:03:04) The alternative system being created by [[Russia]], [[China]], and [[Iran]] could provide a refuge for [[United States|American]] dissidents facing persecution from their own government, similar to Canadian truckers or [[January 6th Attack|January 6th]] defendants.
 
 ### AF 2022-03-01 0952
-(00:07:44) Along with 27 members of the [[Europe|European Union]], including [[Government of France|France]], [[Germany]], and [[Italian Republic|Italy]], and countries like the [[United Kingdom]], Canada, [[State of Japan|Japan]], [[South Korea]], [[Australia]], [[New Zealand]], and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
+(00:07:44) Along with 27 members of the [[European Union]], including [[France]], [[Germany]], and [[Italian Republic|Italy]], and countries like the [[United Kingdom]], Canada, [[State of Japan|Japan]], [[South Korea]], [[Australia]], [[New Zealand]], and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
 
 ### AF 2022-02-17 0950
 (00:01:26) The Trudeau government invoked the Emergencies Act for the first [[time]] in Canada's history to address the Freedom Convoy protest, which it perceived as an existential threat.
@@ -207,7 +207,7 @@
 (01:01:40) [[Nicholas J. Fuentes]] argued that the Government of Canada's ability to freeze [[Freedom Convoy]] donations on platforms like [[GoFundMe Inc.|GoFundMe]] and [[GiveSendGo Inc.|GiveSendGo]] demonstrated the need for decentralized, untraceable cryptocurrency to fund political movements.
 
 ### AF 2022-02-12 0946
-(00:00:30) The [[United States]] [[U.S. Department of Homeland Security|Department of Homeland Security]] issued an order to the government of Canada to crush the ongoing trucker protest in [[City of Ottawa|Ottawa]].
+(00:00:30) The [[United States]] [[U.S. Department of Homeland Security|Department of Homeland Security]] issued an order to the government of Canada to crush the ongoing trucker protest in [[Ottawa]].
 
 ### AF 2022-02-12 0946
 (00:01:01) Truckers protesting [[COVID-19]] restrictions closed three critical ports of entry between the [[United States]] and Canada.
@@ -234,7 +234,7 @@
 (00:29:52) The Canadian government mandated that all truckers moving between the [[United States]] and Canada be vaccinated to re-enter the [[country]].
 
 ### AF 2022-02-03 0941
-(00:35:60) The trucker protest in [[City of Ottawa|Ottawa]] also shut down a key border crossing between the [[United States]] and Canada in [[Alberta]], disrupting trade.
+(00:35:60) The trucker protest in [[Ottawa]] also shut down a key border crossing between the [[United States]] and Canada in [[Alberta]], disrupting trade.
 
 ### AF 2022-02-03 0941
 (28:58:06) Canadian Prime Minister [[Justin Trudeau]]'s government implemented a regulation requiring truckers crossing the [[United States]]-Canada border to be vaccinated to re-enter Canada.
@@ -246,7 +246,7 @@
 (00:00:49) [[Nicholas J. Fuentes]] described a massive trucker strike and protest in Canada underway over a government mandate requiring all truckers crossing the [[United States]]-Canada border to be vaccinated to re-enter Canada.
 
 ### AF 2022-02-04 0940
-(00:28:57) [[Nicholas J. Fuentes]] explained that the Canadian government passed a regulation requiring truckers crossing the [[United States]]-Canada border to be vaccinated to re-enter Canada, leading to a massive protest where truckers drove to [[City of Ottawa|Ottawa]].
+(00:28:57) [[Nicholas J. Fuentes]] explained that the Canadian government passed a regulation requiring truckers crossing the [[United States]]-Canada border to be vaccinated to re-enter Canada, leading to a massive protest where truckers drove to [[Ottawa]].
 
 ### AF 2022-02-04 0940
 (00:31:14) [[Nicholas J. Fuentes]] read that media reported a breakthrough in the blockade of a [[United States|U.S.]]-Canada border crossing in southern [[Alberta]], with protesters agreeing to open one lane of traffic in each direction.
@@ -384,7 +384,7 @@
 (13:24:48) [[Nicholas J. Fuentes]] argued that nationalized healthcare leads to rationed care and decreased quality, citing problems in Canada and the [[United Kingdom]] as examples of the system's failures at scale.
 
 ### AF 2019-01-23 0316
-(00:21:59) [[Donald Trump]] formally recognized [[Venezuela|Venezuelan]] opposition leader Juan Guaidó as the rightful interim president of [[Venezuela]], a move also supported by [[Paraguay]], [[Brazil]], [[Chile]], [[Peru]], [[Ecuador]], [[Columbia|Colombia]], [[Argentina]], [[Costa Rica]], [[Guatemala]], and Canada.
+(00:21:59) [[Donald Trump]] formally recognized [[Venezuela|Venezuelan]] opposition leader Juan Guaidó as the rightful interim president of [[Venezuela]], a move also supported by [[Paraguay]], [[Brazil]], [[Chile]], [[Peru]], [[Ecuador]], [[Colombia]], [[Argentina]], [[Costa Rica]], [[Guatemala]], and Canada.
 
 ### AF 2019-01-11 0311
 (01:19:37:00) [[Nicholas J. Fuentes]] stated he had heard of a plan for Canada to reach a population of 100 million by 2040.
@@ -465,22 +465,22 @@
 (00:36:39) [[Faith Goldy]] stated that Canada was the first nation to implement a federal policy of multiculturalism, which she described as cultural Marxism promoting moral and ethnic relativism.
 
 ### AF 2018-06-08 0181
-(01:25:08) [[Donald Trump|Trump]] advocated for [[Russia]]'s inclusion in the [[Group of Seven|G7]] summit, which was being held in Canada amid trade disputes with the [[United States]] and the [[Europe|European Union]].
+(01:25:08) [[Donald Trump|Trump]] advocated for [[Russia]]'s inclusion in the [[Group of Seven|G7]] summit, which was being held in Canada amid trade disputes with the [[United States]] and the [[European Union]].
 
 ### AF 2018-06-05 0178
-(00:45:09) The [[Donald Trump|Trump]] administration renegotiated the [[North American Free Trade Agreement]] and initiated a trade war involving tariffs on the [[Europe|European Union]], [[China]], Canada, and [[Mexico]].
+(00:45:09) The [[Donald Trump|Trump]] administration renegotiated the [[North American Free Trade Agreement]] and initiated a trade war involving tariffs on the [[European Union]], [[China]], Canada, and [[Mexico]].
 
 ### AF 2018-05-31 0175
-(00:03:51) [[Wilbur Ross]], the [[United States]] Commerce Secretary, announced the expiration of tariff exemptions for [[Mexico]], Canada, and the [[Europe|European Union]], imposing 25% tariffs on steel and 10% on aluminum starting at midnight.
+(00:03:51) [[Wilbur Ross]], the [[United States]] Commerce Secretary, announced the expiration of tariff exemptions for [[Mexico]], Canada, and the [[European Union]], imposing 25% tariffs on steel and 10% on aluminum starting at midnight.
 
 ### AF 2018-05-31 0175
-(00:10:39) [[Wilbur Ross]] announced from [[Paris]] that [[Mexico]], Canada, and the [[Europe|European Union]] would lose their tariff exemptions, leading to retaliatory measures and complaints to the [[World Trade Organization]].
+(00:10:39) [[Wilbur Ross]] announced from [[Paris]] that [[Mexico]], Canada, and the [[European Union]] would lose their tariff exemptions, leading to retaliatory measures and complaints to the [[World Trade Organization]].
 
 ### AF 2018-05-31 0175
 (00:11:33) [[Nicholas J. Fuentes]] noted that the [[United States]]'s largest steel and aluminum imports come from [[Germany]] and Canada, not [[Asia]].
 
 ### AF 2018-05-31 0175
-(00:13:13) [[Nicholas J. Fuentes]] cited [[United States]] trade deficits of $18 billion with Canada, $71 billion with [[Mexico]], and $92 billion with the [[Europe|European Union]] as evidence these allies drain the [[United States|American]] economy.
+(00:13:13) [[Nicholas J. Fuentes]] cited [[United States]] trade deficits of $18 billion with Canada, $71 billion with [[Mexico]], and $92 billion with the [[European Union]] as evidence these allies drain the [[United States|American]] economy.
 
 ### AF 2018-05-31 0175
 (00:15:21) [[Nicholas J. Fuentes]] argued that countries like [[Germany]], [[France]], Canada, and [[Mexico]] protect their own industries with trade barriers while demanding unfettered access to [[United States|U.S.]] markets.
@@ -492,7 +492,7 @@
 (00:38:24) [[Israel]] announced a deal with the [[United Nations]] to resettle 16,250 migrants in Western countries like [[Italian Republic|Italy]], Canada, and [[Germany]], while settling a similar number in [[Southern United States|South]] [[Rishon LeZion|Tel Aviv]].
 
 ### AF 2018-03-22 0130
-(17:53:00) Earlier tariffs on steel and aluminum primarily affected Canada and the [[Europe|European Union]], both of which later received waivers.
+(17:53:00) Earlier tariffs on steel and aluminum primarily affected Canada and the [[European Union]], both of which later received waivers.
 
 ### AF 2018-02-15 0109
 (07:20:54) [[Nicholas J. Fuentes]] argued that individuals in Canada and the [[United Kingdom]] face arrest for posting about [[Federal Bureau of Investigation|FBI]] crime statistics or [[Islam|Muslim]] rape gangs, while threats of school shootings are not acted upon with the same urgency.
@@ -523,3 +523,24 @@
 
 ### AF 2017-10-26 0040
 (00:41:46) [[Nicholas J. Fuentes]] recounted that a friend in Canada was arrested for hate speech after stating that [[Islam]] is a religion of war, and that [[Peter Sweden]]'s parents in the [[United Kingdom]] were questioned by a police hate speech unit over his online comments.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:45:15) [[Nicholas J. Fuentes]] declared that Canada, [[Australia]], and [[Europe|Western Europe]] are "finished" demographically.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(17:56:000) [[Nicholas J. Fuentes]] expressed enthusiasm for increasing the size of the [[United States]], including territories like [[Country of Greenland|Greenland]], Canada, and [[Mexico]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(04:04:05) [[Nicholas J. Fuentes]] argued that the difference between [[United States|Americans]] and Canadians is that [[United States|Americans]] revolted, while Canadians submitted to the [[king]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:01:00) The operation in [[Venezuela]] applied pressure to Canada and [[Cuba]] and put [[China]] on notice.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:24:56) [[Nicholas J. Fuentes]] opined that the [[United States]] should make an effort to become an empire by connecting to [[Europe|Western Europe]] with hypersonic jets and to Canada with high speed rail.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:07:30) [[Nicholas J. Fuentes]] stated that the [[United States]] owns [[Venezuela]] and all of its oil, [[Country of Greenland|Greenland]], the [[Panama Canal]], [[Cuba]], and Canada.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:46:55) [[Nicholas J. Fuentes]] claimed that Canada doubled its population in 20 years through immigrants from [[India]].

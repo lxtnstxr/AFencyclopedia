@@ -13,7 +13,7 @@
 (31:48:42) Prior to the 2020 election, companies including [[Twitter]], [[Facebook]], [[Reddit]], Discord, [[Wikipedia]], [[Microsoft Corporation|Microsoft]], [[LinkedIn]], and [[Verizon Media]] held monthly meetings with the [[Federal Bureau of Investigation|FBI]] and the Cybersecurity and Infrastructure Security Agency (CISA) to coordinate on handling election-related misinformation.
 
 ### AF 2022-05-17 0995
-(00:44:26) [[Nicholas J. Fuentes]] raised the possibility that law enforcement was aware of the [[City of Buffalo|Buffalo]] shooter's plans on Discord and may have permitted the attack for political reasons.
+(00:44:26) [[Nicholas J. Fuentes]] raised the possibility that law enforcement was aware of the [[Buffalo]] shooter's plans on Discord and may have permitted the attack for political reasons.
 
 ### AF 2022-05-17 0995
 (01:06:16) [[Nicholas J. Fuentes]] stated that the "Great Replacement Theory" has already been banned from [[Twitter]], [[Facebook]], [[Google]], [[Google|YouTube]], [[TikTok Inc.|TikTok]], [[Reddit]], Discord, [[Peter Thiel|PayPal]], and [[Stripe]].

@@ -6,7 +6,7 @@
 
 
 ### AF 2021-01-08 0742
-(02:05:00) [[Nicholas J. Fuentes]] cited the prior deplatforming of [[Andrew Anglin]]'s [[Daily Stormer]] by [[Cloudflare]] after the [[City of Charlottesville|Charlottesville rally]] and the targeting of 8chan after the Christchurch shooting as precedents for the current crackdown.
+(02:05:00) [[Nicholas J. Fuentes]] cited the prior deplatforming of [[Andrew Anglin]]'s [[Daily Stormer]] by [[Cloudflare]] after the [[Charlottesville rally]] and the targeting of 8chan after the Christchurch shooting as precedents for the current crackdown.
 
 ### AF 2020-12-09 0731
 (02:11:00) [[Nicholas J. Fuentes]] claimed the censorship began with figures like [[Chuck Johnson]], [[Pax Dickinson]], [[Person|Milo Yiannopoulos]], and [[Andrew Anglin]], and platforms like 8chan and [[Daily Stormer]], before snowballing to mainstream figures.

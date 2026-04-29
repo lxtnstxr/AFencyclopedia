@@ -2,7 +2,7 @@
 #Unknown
 
 ### AF 2022-03-01 0952
-(00:30:21) [[Joe Biden]] proposed letting [[Health and Human Services|Medicare]] negotiate prescription drug prices, as it already does for VA drugs.
+(00:30:21) [[Joe Biden]] proposed letting [[Medicare]] negotiate prescription drug prices, as it already does for VA drugs.
 
 (00:57:06) The third piece of the unity agenda was supporting veterans, whom [[Joe Biden]] called the backbone and spine of the [[country]], by providing job training, housing, and debt-free VA care.
 (01:00:01) The VA was pioneering new ways of linking toxic exposures to disease, and [[Joe Biden]] announced the expansion of eligibility for benefits to veterans suffering from nine respiratory cancers.

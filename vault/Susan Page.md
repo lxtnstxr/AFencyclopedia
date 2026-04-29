@@ -2,7 +2,7 @@
 #person
 
 ### AF 2020-10-07 0697
-(00:04:46) The 2020 [[vice]] presidential debate between [[Mike Pence]] and [[Kamala Harris]] was held in [[City of Miami|Miami]] and moderated by Susan Page of [[Russia Today|USA Today]].
+(00:04:46) The 2020 [[vice]] presidential debate between [[Mike Pence]] and [[Kamala Harris]] was held in [[Miami]] and moderated by Susan Page of [[Russia Today|USA Today]].
 
 (00:18:25) Susan Page asked [[Mike Pence]] if he had an agreement with [[Donald Trump]] regarding safeguards for presidential disability, given [[Donald Trump]]'s age and recent COVID-19 hospitalization.
 (00:23:32) Susan Page questioned both candidates about the transparency of presidential health information, citing [[Donald Trump]]'s doctors giving misleading answers about his COVID-19 condition.

@@ -56,3 +56,6 @@
 
 ### AF 2018-01-05 0080
 (09:03:74) James Comey worked as an executive at [[Bridgewater]] and received a multi-million dollar payout before becoming Director of the [[Federal Bureau of Investigation|FBI]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:31:36) [[Nicholas J. Fuentes]] accused [[Donald Trump|Trump]] of "weaponizing [[the DOJ]] against James Comey, [[Barack Obama]], [and] [[Letitia James]]" while inviting "a brutal retaliation" from the radical left.

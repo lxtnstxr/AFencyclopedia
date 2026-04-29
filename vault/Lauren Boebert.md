@@ -32,7 +32,7 @@
 (00:25:30) [[Nicholas J. Fuentes]] sarcastically described a future "Sketch pride month" in [[San Francisco Bay Area|San Francisco]] featuring [[Oliver Anthony]], [[Sydney Sweeney]], [[Rob Smith]], and Lady Maga.
 
 ### AF 2024-05-16 1330
-(10:56:31) [[Nicholas J. Fuentes]] responded to a superchat about Lauren Chen marrying an Arab by suggesting it might explain her sympathy for [[Gaza Strip|Palestine]].
+(10:56:31) [[Nicholas J. Fuentes]] responded to a superchat about Lauren Chen marrying an Arab by suggesting it might explain her sympathy for [[Palestine]].
 
 ### AF 2024-04-11 1317
 (01:27:69) Lauren Chen supported the [[OnlyFans]] creator.
@@ -41,7 +41,7 @@
 (03:23:720) During a [[Twitter]] space with Lauren Chen, [[Nicholas J. Fuentes]] argued that [[Jewish]] power is the central reality behind issues like anti-Semitism hate speech laws and foreign aid to [[Israel]], [[Arab Republic of Egypt|Egypt]], and [[Jim Jordan|Jordan]].
 
 ### AF 2024-03-26 1308
-(05:23:660) [[Nicholas J. Fuentes]] participated in a [[Twitter]] Space about the controversy with Lauren Chen, [[Sovereign Bra]], [[Chase]], [[Adam Kinzinger|Adam King]], [[Andrew Klavan|Andrew Meyer]], [[Karlyn Borysenko]], [[Laura Loomer]], and [[Donald Trump|Chief Trumpster]].
+(05:23:660) [[Nicholas J. Fuentes]] participated in a [[Twitter]] Space about the controversy with Lauren Chen, [[Sovereign Bra]], [[Chase]], [[Adam Kinzinger|Adam King]], [[Andrew Klavan|Andrew Meyer]], [[Karlyn Borysenko]], [[Laura Loomer]], and [[Chief Trumpster]].
 
 ### AF 2024-03-26 1308
 (01:21:36:450) [[Nicholas J. Fuentes]] told Lauren Chen that the perception of him as a [[Jews|Jew]]-hater was created by a concerted, calculated effort to destroy his reputation so people wouldn't listen to his questions about [[Israel]].
@@ -179,7 +179,7 @@
 (13:25:26) Lauren Simonson had a friend edit her 23andMe results to hide her [[Jewish]] [[heritage]] and had two gay producers pass her information to the [[United Kingdom|British]] equivalent of the [[Southern Poverty Law Center|SPLC]], [[Hope Not Hate]].
 
 ### AF 2022-04-28 0986
-(00:53:25) [[Mike Johnson|Kevin McCarthy]] and his allies also discussed several other representatives who made offensive or dangerous comments, including Lauren Boebert and [[Barry Moore]].
+(00:53:25) [[Kevin McCarthy]] and his allies also discussed several other representatives who made offensive or dangerous comments, including Lauren Boebert and [[Barry Moore]].
 
 ### AF 2021-11-29 0915
 (44:44:84) Lauren Boebert tweeted that [[Twitter|Jack Dorsey]] was a disaster and expressed hope that the new [[Twitter]] CEO would not ban conservatives.
@@ -188,10 +188,10 @@
 (45:01:90) [[Beardson]] quote-tweeted Lauren Boebert's statement with sarcasm, comparing the hope for a less censorious [[Twitter]] to money falling from the sky.
 
 ### AF 2021-05-17 0812
-(18:26:52) [[Nicholas J. Fuentes]] stated that Lauren Chen, a host at [[Blaze Media|Blaze TV]], replied to a question on [[Twitter]] by saying she did not support [[Gaza Strip|Palestine]] but was not sure that meant she automatically supported [[Israel]]. (19:43:74) (20:56:18)
+(18:26:52) [[Nicholas J. Fuentes]] stated that Lauren Chen, a host at [[Blaze Media|Blaze TV]], replied to a question on [[Twitter]] by saying she did not support [[Palestine]] but was not sure that meant she automatically supported [[Israel]]. (19:43:74) (20:56:18)
 
 ### AF 2021-05-17 0812
-(22:37:44) [[Dave Rubin]] replied to Lauren Chen's tweet, stating, "There's no [[country]] called [[Gaza Strip|Palestine]], nor has ever been," and claimed [[Palestinians]] had been offered a state many times and always refused. (22:52:40)
+(22:37:44) [[Dave Rubin]] replied to Lauren Chen's tweet, stating, "There's no [[country]] called [[Palestine]], nor has ever been," and claimed [[Palestinians]] had been offered a state many times and always refused. (22:52:40)
 
 ### AF 2021-05-17 0812
 (32:16:04) In a [[Twitter]] exchange, [[Dave Rubin]] argued to Lauren Chen that [[United States|U.S]]. aid to [[Israel]] is military aid that must be spent in the [[United States]], thus subsidizing the [[United States|American]] economy, and said he would be for cutting aid "across the board" without singling anyone out. (32:24:50)

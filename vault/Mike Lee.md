@@ -27,7 +27,7 @@
 (00:28:12) [[Nicholas J. Fuentes]] found it "bizarre" that [[Donald Trump]] contracted COVID-19 just four weeks before the election, shortly after [[Senate Judiciary Committee]] members [[Thom Tillis]] and Mike Lee also tested positive following the [[Amy Coney Barrett]] nomination event.
 
 ### AF 2020-01-14 0524
-(00:43:50) [[Bernie Sanders]] highlighted his legislative effort with Mike Lee to pass a War Powers resolution declaring the [[Saudi Arabia]]-led war in [[Yemen]] unconstitutional, a measure which passed both chambers but was vetoed by [[Donald Trump|the president]].
+(00:43:50) [[Bernie Sanders]] highlighted his legislative effort with Mike Lee to pass a War Powers resolution declaring the [[Saudi Arabia]]-led war in [[Yemen]] unconstitutional, a measure which passed both chambers but was vetoed by [[the president]].
 
 ### AF 2019-11-19 0502
 (02:16:45) [[Nicholas J. Fuentes]] advised Groypers to get involved in caucuses and primaries to counter boomer delegates [[who]] put candidates like [[Dan Crenshaw]] and Mike Lee on the ballot.

@@ -21,7 +21,7 @@
 (00:23:40) Acting [[U.S. Department of Homeland Security|DHS]] Secretary Kevin McAleenan announced a proposal to detain undocumented immigrant families together indefinitely, replacing a 20-day limit agreement.
 
 ### AF 2019-08-08 0436
-(00:32:44) [[Nicholas J. Fuentes]] argued that personnel within the [[Donald Trump|Trump]] administration, such as Kevin McAleenan and his subordinates, were thwarting [[Donald Trump|the president's]] immigration agenda and needed to be replaced for any meaningful progress.
+(00:32:44) [[Nicholas J. Fuentes]] argued that personnel within the [[Donald Trump|Trump]] administration, such as Kevin McAleenan and his subordinates, were thwarting [[the president's]] immigration agenda and needed to be replaced for any meaningful progress.
 
 ### AF 2019-07-26 0428
 (00:41:10) Kevin McAleenan, the Acting Secretary of the [[U.S. Department of Homeland Security|Department of Homeland Security]], reportedly wanted to travel to the [[United States|U.S.]]-[[Mexico]] border in June to celebrate World Refugee Day.

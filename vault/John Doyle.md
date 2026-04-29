@@ -14,7 +14,7 @@
 (01:18:20) [[Nicholas J. Fuentes]] described John Doyle as a fatherless loser who gained access to women through his YouTube channel but resented being in [[Nicholas J. Fuentes|Fuentes]]'s shadow, making him susceptible to grooming by [[Jewish]] circles.
 
 ### AF 2024-10-03 1399
-(01:34:16) [[Nicholas J. Fuentes]] commented on John Doyle's debate where he said "Zionist occupied government isn't real," calling it the face of deradicalization to justify [[Sheldon Adelson|Miriam Adelson]] giving a hundred million dollars, and noted [[Darren Beattie|Darryn Beattie]] wouldn't say "the [[Jews]] created porn."
+(01:34:16) [[Nicholas J. Fuentes]] commented on John Doyle's debate where he said "Zionist occupied government isn't real," calling it the face of deradicalization to justify [[Miriam Adelson]] giving a hundred million dollars, and noted [[Darren Beattie|Darryn Beattie]] wouldn't say "the [[Jews]] created porn."
 
 ### AF 2021-05-20 0814
 (02:24:52) [[Nicholas J. Fuentes]] mentioned meeting John Doyle briefly at a "Stop the Steal" rally in [[State of Michigan|Michigan]], but said they did not have a private conversation.
@@ -29,7 +29,7 @@
 (00:21:52) A [[civil war]] occurred within the [[Republican Party]] between gay conservatives like [[Rick Grenell|Rick Grinnell]], [[Scott Presler]], and [[Brandon Straka]] and [[Christianity|Christians]] like [[Bryson Gray]], [[Lauren Witzke]], and John Doyle.
 
 ### AF 2021-02-10 0759
-(28:54:52) [[Nicholas J. Fuentes]] held a solo rally with John Doyle in [[City of Lansing|Lansing]], [[State of Michigan|Michigan]], as part of Stop the Steal, which he believed could have been a tipping point for state legislatures to appoint their own electors for [[Donald Trump]] if not for external pressure.
+(28:54:52) [[Nicholas J. Fuentes]] held a solo rally with John Doyle in [[Lansing]], [[State of Michigan|Michigan]], as part of Stop the Steal, which he believed could have been a tipping point for state legislatures to appoint their own electors for [[Donald Trump]] if not for external pressure.
 
 ### AF 2020-12-01 0726
 (01:07:18) [[Nicholas J. Fuentes]] was joined by figures including John Doyle, [[Steve Frantz]], and [[Vince James]] at various "Stop the Steal" rallies.

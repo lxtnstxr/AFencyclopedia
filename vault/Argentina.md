@@ -32,7 +32,7 @@
 (01:25:00) [[Central Intelligence Agency|CIA]] Director [[William Burns]], [[Southcom]] Commander [[Laura Richardson]], and [[U.S. Department of State|Secretary of State]] [[Antony Blinken]] all visited Argentina this year.
 
 ### AF 2024-08-12 1372
-(01:03:26) [[Donald Trump]] praised [[Javier Milei]], [[Donald Trump|the president]] of Argentina, for running on a "Make Argentina Great Again" platform, cutting government spending, reducing regulations, and bringing down hyperinflation.
+(01:03:26) [[Donald Trump]] praised [[Javier Milei]], [[the president]] of Argentina, for running on a "Make Argentina Great Again" platform, cutting government spending, reducing regulations, and bringing down hyperinflation.
 
 ### AF 2024-08-12 1372
 (01:04:28) [[Elon Musk]] cited Argentina and [[Venezuela]] as examples of how bad government policy can ruin prosperous countries, warning the [[United States]] not to take its prosperity for granted.
@@ -44,10 +44,10 @@
 (00:54:15) [[Nicolás Maduro]]'s government expelled diplomats from Argentina, [[Chile]], [[Costa Rica]], [[Peru]], [[Panama]], the [[Dominican Republic]], and [[Uruguay]] following their denunciation of the election results.
 
 ### AF 2024-07-10 1352
-(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the [[United Kingdom]], [[Government of France|France]], [[Hungary]], the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], [[Brazil]], Argentina, and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
+(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the [[United Kingdom]], [[France]], [[Hungary]], the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], [[Brazil]], Argentina, and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of Argentina, [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of Argentina, [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 ### AF 2024-05-21 1332
 (00:41:21) [[Nicholas J. Fuentes]] described a transnational network of [[Jews]] operating in countries including Argentina, [[Hungary]], the [[United Kingdom]], [[Spain]], [[Brazil]], and [[Russia]], working to benefit [[Israel]] and international [[Jews|Jewry]] at the expense of their host nations.
@@ -134,7 +134,10 @@
 (02:08:53) [[Nicholas J. Fuentes]] blamed a female delegate from Argentina for a negotiation failure at the [[Harvard University|Harvard]] [[United Nations|Model UN]], stating she was a terrible negotiator "because she's a woman."
 
 ### AF 2019-01-23 0316
-(00:21:59) [[Donald Trump]] formally recognized [[Venezuela|Venezuelan]] opposition leader Juan Guaidó as the rightful interim president of [[Venezuela]], a move also supported by [[Paraguay]], [[Brazil]], [[Chile]], [[Peru]], [[Ecuador]], [[Columbia|Colombia]], Argentina, [[Costa Rica]], [[Guatemala]], and [[Dominion of Canada|Canada]].
+(00:21:59) [[Donald Trump]] formally recognized [[Venezuela|Venezuelan]] opposition leader Juan Guaidó as the rightful interim president of [[Venezuela]], a move also supported by [[Paraguay]], [[Brazil]], [[Chile]], [[Peru]], [[Ecuador]], [[Colombia]], Argentina, [[Costa Rica]], [[Guatemala]], and [[Dominion of Canada|Canada]].
 
 ### AF 2017-09-29 0021
 (00:31:05) The guest noted that Argentina and [[Brazil]] once had nuclear programs.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:51:14) [[China]] enrolled the majority of Latin [[United States|American]] countries in the Belt and Road Initiative and began building deep water ports in [[Jamaica]], [[Mexico]], [[Cuba]], [[Venezuela]], [[Peru]], [[Ecuador]], and Argentina.

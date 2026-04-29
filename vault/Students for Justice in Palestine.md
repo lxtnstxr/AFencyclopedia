@@ -13,4 +13,4 @@
 (00:38:17) [[Brandeis University]] banned its local Students for Justice in Palestine chapter from campus activities.
 
 ### AF 2023-10-27 1241
-(00:25:30) [[Nicholas J. Fuentes]] asserted that pro-[[Gaza Strip|Palestine]] activism on [[United States|American]] campuses, led by groups like Students for Justice in Palestine, constitutes the primary institutional opposition to the [[American Israel Public Affairs Committee|AIPAC]] lobby in the [[United States]].
+(00:25:30) [[Nicholas J. Fuentes]] asserted that pro-[[Palestine]] activism on [[United States|American]] campuses, led by groups like Students for Justice in Palestine, constitutes the primary institutional opposition to the [[American Israel Public Affairs Committee|AIPAC]] lobby in the [[United States]].

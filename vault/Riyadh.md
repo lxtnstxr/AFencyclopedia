@@ -10,3 +10,6 @@
 
 ### AF 2018-12-13 0295
 (00:12:23) [[Nicholas J. Fuentes]] noted that [[Donald Trump]] signed a massive arms deal with [[Saudi Arabia]] during a 2017 visit to Riyadh.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:06:42) [[Nicholas J. Fuentes]] said that [[Iran]] is launching missiles against [[Israel]], [[Jim Jordan|Jordan]], [[Northern Iraq]], Riyadh, [[Bahrain]], the [[United Arab Emirates|Emirates]], [[Qatar]], [[Oman]], and ships in the [[Persian Gulf]].

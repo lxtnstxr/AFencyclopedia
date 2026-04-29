@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2022-06-14 1012
-(00:08:33) [[Nicholas J. Fuentes]] reported having a stream earlier that day with [[Destiny|Destiny]], during which they discussed Jewish power and achieved a mutual respect, despite controversy within their respective communities.
+(00:08:33) [[Nicholas J. Fuentes]] reported having a stream earlier that day with [[Destiny]], during which they discussed Jewish power and achieved a mutual respect, despite controversy within their respective communities.
 
 
 ### AF 2018-05-31 0175

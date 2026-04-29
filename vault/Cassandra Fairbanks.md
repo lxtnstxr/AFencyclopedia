@@ -33,7 +33,7 @@
 (40:00:34) [[Nicholas J. Fuentes]] stated that debating figures like [[Destiny]] was "horrible for everybody" and that left-wing people generally do not want to debate the right wing, citing ignored invitations to figures like [[Mike Cernovich]], Cassandra Fairbanks, and [[Wilt Chamberlain|Will Chamberlain]].
 
 ### AF 2018-11-14 0282
-(00:35:40) [[Jim Hoft]] of [[The Gateway Pundit]] regularly featured Cassandra Fairbanks on his live streams and in his publication, and [[Steven Crowder|Steve Bannon]] granted an interview to [[Mike Cernovich]].
+(00:35:40) [[Jim Hoft]] of [[The Gateway Pundit]] regularly featured Cassandra Fairbanks on his live streams and in his publication, and [[Steve Bannon]] granted an interview to [[Mike Cernovich]].
 
 ### AF 2017-10-20 0036
 (00:35:58) [[Laura Loomer]] claimed that [[Wilt Chamberlain|Will Chamberlain]] removed her from the [[Donald Trump|MAGA]] Meetups Halloween party group chat because Cassandra Fairbanks, Chamberlain's ex-girlfriend, was jealous of her.

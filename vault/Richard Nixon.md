@@ -67,3 +67,9 @@
 
 ### AF 2017-09-22 0016
 (02:01:42) [[Nicholas J. Fuentes]] expressed love for Richard Nixon, calling him brilliant ahead of his [[time]] in foreign policy and one of the last great statesmen.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:36:52) The strategy was compared to Richard Nixon's "madman theory."
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:37:05) The madman theory was a strategy developed by [[Henry Kissinger]] and Richard Nixon in the 1970s.

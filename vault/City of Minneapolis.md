@@ -6,13 +6,13 @@
 
 
 ### AF 2024-02-01 1287
-(00:19:31) [[Ilhan Omar]]'s explicit advocacy for [[Somalia]] was contrasted with the broader issue of immigrants forming segregated communities in cities like Minneapolis, [[Los Angeles]], [[City of Chicago|Chicago]], and [[New York|New York City]], which hinders assimilation into [[United States|American]] society.
+(00:19:31) [[Ilhan Omar]]'s explicit advocacy for [[Somalia]] was contrasted with the broader issue of immigrants forming segregated communities in cities like Minneapolis, [[Los Angeles]], [[Chicago]], and [[New York|New York City]], which hinders assimilation into [[United States|American]] society.
 
 ### AF 2023-09-07 1212
 (00:31:29) [[Nicholas J. Fuentes]] claimed the [[U.S. Department of Justice|United States Department of Justice]] showed no interest in investigating or prosecuting individuals involved in [[Black Lives Matter]] riots that caused property destruction in cities like Minneapolis.
 
 ### AF 2022-10-20 1082
-(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[City of Chicago|Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[City of Miami|Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[City of Philadelphia|Philadelphia]], and Minneapolis—was plagued by homelessness, disease, drugs, crime, and gangs.
+(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[Philadelphia]], and Minneapolis—was plagued by homelessness, disease, drugs, crime, and gangs.
 
 ### AF 2021-11-03 0906
 (00:08:30) Residents of Minneapolis voted down a referendum to abolish the [[city]]'s police department and replace it with a public safety department that would send mental health professionals to respond to non-violent crimes.
@@ -21,7 +21,7 @@
 (00:10:50) The push to abolish the police in Minneapolis followed the death of [[George Floyd]] and the subsequent [[Black Lives Matter]] protests and riots in the summer of 2020.
 
 ### AF 2021-08-03 0853
-(01:46:20) [[Charlie Kirk]] cited [[Kim Foxx]] in [[City of Chicago|Chicago]] as an example of officials implying that communities of color need accommodations in sentencing, and pointed to bail reform laws in places like Minneapolis, [[City of Portland|Portland]], and [[City of Seattle|Seattle]] as disasters.
+(01:46:20) [[Charlie Kirk]] cited [[Kim Foxx]] in [[Chicago]] as an example of officials implying that communities of color need accommodations in sentencing, and pointed to bail reform laws in places like Minneapolis, [[Portland]], and [[Seattle]] as disasters.
 
 ### AF 2021-06-03 0822
 (00:01:04) The [[city]] of Minneapolis erected a memorial at the intersection where [[George Floyd]] died, featuring a large [[black]] power fist sculpture and garden, which has been guarded by a quasi-paramilitary group.
@@ -33,13 +33,13 @@
 (00:52:57) Minneapolis [[city]] spokeswoman [[Sarah McKenzie]] stated that barricades at [[George Floyd]] Square were removed to reconnect the intersection for traffic, but that iconic artifacts like the fist sculpture would remain as part of a planned community-led effort to create a permanent memorial.
 
 ### AF 2021-06-03 0822
-(00:54:03) The Minneapolis [[City]] Council unanimously voted in September to change the name of the intersection of [[City of Chicago|Chicago]] Avenue and 38th Street to "George Floyd Square."
+(00:54:03) The Minneapolis [[City]] Council unanimously voted in September to change the name of the intersection of [[Chicago]] Avenue and 38th Street to "George Floyd Square."
 
 ### AF 2021-06-03 0822
 (00:54:14) Minneapolis [[City]] Council Vice President [[Andrea Jenkins]] stated it was [[time]] to rebuild the community around [[George Floyd]] Square to create a memorial worthy of [[Floyd]]'s life, calling for a center for racial healing and social justice.
 
 ### AF 2021-05-24 0815
-(00:19:12) [[Nicholas J. Fuentes]] anticipated potential unrest and violence in [[City of Chicago|Chicago]] and Minneapolis around the first anniversary of [[George Floyd]]'s death in late May 2021.
+(00:19:12) [[Nicholas J. Fuentes]] anticipated potential unrest and violence in [[Chicago]] and Minneapolis around the first anniversary of [[George Floyd]]'s death in late May 2021.
 
 ### AF 2021-05-04 0805
 (00:01:05) [[Nicholas J. Fuentes]] argued that [[Derek Chauvin]] did not receive a fair trial, citing intervention by the [[Joe Biden|President of the United States]], a large settlement to the [[Floyd family]] from the [[city]] of Minneapolis, and the presence of biased jurors.
@@ -81,10 +81,10 @@
 (00:04:57) The [[city]] of Minneapolis awarded a $27 million settlement to the family of [[George Floyd]], the largest such settlement in the [[city]]'s history, following a civil suit related to his death.
 
 ### AF 2021-02-04 0755
-(00:41:50) [[Nicholas J. Fuentes]] contrasted the prosecution of [[Kyle Rittenhouse]] and [[United States Capitol|Capitol]] rioters with the lack of serious charges against [[Antifa]] and [[Black Lives Matter]] rioters in cities like Minneapolis, [[City of Kenosha|Kenosha]], [[City of Philadelphia|Philadelphia]], [[Washington D.C.|Washington, D.C.]], [[Atlanta]], [[Los Angeles]], and [[City of Chicago|Chicago]] throughout 2020.
+(00:41:50) [[Nicholas J. Fuentes]] contrasted the prosecution of [[Kyle Rittenhouse]] and [[United States Capitol|Capitol]] rioters with the lack of serious charges against [[Antifa]] and [[Black Lives Matter]] rioters in cities like Minneapolis, [[Kenosha]], [[Philadelphia]], [[Washington D.C.|Washington, D.C.]], [[Atlanta]], [[Los Angeles]], and [[Chicago]] throughout 2020.
 
 ### AF 2020-10-06 0696
-(01:24:20) [[Nicholas J. Fuentes]] contended that political violence in 2020, such as in [[City of Portland|Portland]], [[City of Seattle|Seattle]], [[City of Kenosha|Kenosha]], and Minneapolis, was largely attributable to left-wing groups, not QAnon adherents.
+(01:24:20) [[Nicholas J. Fuentes]] contended that political violence in 2020, such as in [[Portland]], [[Seattle]], [[Kenosha]], and Minneapolis, was largely attributable to left-wing groups, not QAnon adherents.
 
 ### AF 2020-09-16 0682
 (00:27:700) A new report from Minneapolis found that traffic stops in the [[city]] had decreased by 80% since the death of [[George Floyd]].
@@ -114,31 +114,31 @@
 (47:23:760) Even with the drastic reduction in stops after [[George Floyd]]'s death, 47% of recorded traffic stops in Minneapolis were of people identified as [[Black]], 7% as [[East African]] ([[Somalia|Somalis]]), and only 24% as [[White]].
 
 ### AF 2020-09-09 0677
-(03:36:50) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] should allow riots in cities like Minneapolis and [[City of Kenosha|Kenosha]] to continue through the election to improve his chances in swing states like [[Wisconsin]] and [[Minnesota]].
+(03:36:50) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] should allow riots in cities like Minneapolis and [[Kenosha]] to continue through the election to improve his chances in swing states like [[Wisconsin]] and [[Minnesota]].
 
 ### AF 2020-08-26 0669
-(30:57:72) [[Nicholas J. Fuentes]] argued it was "tone deaf" for the [[Republican Party|RNC]] to talk about socialism while cities like Minneapolis and [[City of Kenosha|Kenosha]] were "on fire."
+(30:57:72) [[Nicholas J. Fuentes]] argued it was "tone deaf" for the [[Republican Party|RNC]] to talk about socialism while cities like Minneapolis and [[Kenosha]] were "on fire."
 
 ### AF 2020-08-26 0669
-(01:19:00:95) [[Mike Pence]] stated that the violence must stop in cities like Minneapolis, [[City of Portland|Portland]], and [[City of Kenosha|Kenosha]], and vowed to have law and order for every [[United States|American]] of every race and creed.
+(01:19:00:95) [[Mike Pence]] stated that the violence must stop in cities like Minneapolis, [[Portland]], and [[Kenosha]], and vowed to have law and order for every [[United States|American]] of every race and creed.
 
 ### AF 2020-08-10 0658
 (41:38:81) [[Nicholas J. Fuentes]] recalled that during the [[George Floyd]] protests in Minneapolis, some on [[the left]] claimed the riots were instigated by white nationalists, while some on the right claimed they were instigated by white [[Antifa]].
 
 ### AF 2020-08-10 0658
-(44:09:63) [[Nicholas J. Fuentes]] contrasted the Minneapolis looting, which used [[George Floyd]] as a pretext, with the [[City of Chicago|Chicago]] looting, which he said occurred with little pretext following a dubious report about a shooting in [[Englewood]].
+(44:09:63) [[Nicholas J. Fuentes]] contrasted the Minneapolis looting, which used [[George Floyd]] as a pretext, with the [[Chicago]] looting, which he said occurred with little pretext following a dubious report about a shooting in [[Englewood]].
 
 ### AF 2020-08-10 0658
-(49:57:69) [[Nicholas J. Fuentes]] argued that unlike the Minneapolis riots, the [[City of Chicago|Chicago]] looters traveled from the predominantly [[black]] [[south]] side to loot the affluent, predominantly white Gold Coast neighborhood, contradicting narratives that [[black]] communities only destroy their own neighborhoods.
+(49:57:69) [[Nicholas J. Fuentes]] argued that unlike the Minneapolis riots, the [[Chicago]] looters traveled from the predominantly [[black]] [[south]] side to loot the affluent, predominantly white Gold Coast neighborhood, contradicting narratives that [[black]] communities only destroy their own neighborhoods.
 
 ### AF 2020-08-10 0658
-(52:51:67) [[Nicholas J. Fuentes]] identified [[black]] criminality as the central problem in the looting across [[City of Chicago|Chicago]], Minneapolis, and other cities, criticizing conservatives for refusing to discuss race and demographics.
+(52:51:67) [[Nicholas J. Fuentes]] identified [[black]] criminality as the central problem in the looting across [[Chicago]], Minneapolis, and other cities, criticizing conservatives for refusing to discuss race and demographics.
 
 ### AF 2020-08-05 0655
 (00:18:25) The Minneapolis Police Department, overwhelmed by a crime wave, advised residents in an email to be prepared to give up their cell phones and wallets if asked by a criminal.
 
 ### AF 2020-06-08 0616
-(22:06:45) [[Nicholas J. Fuentes]] reported that the [[George Floyd]] protests had escalated from initial unrest in Minneapolis and [[City of St. Paul|St. Paul]] to violent riots, looting, and property destruction in virtually every major [[city]] in the [[United States]], including [[City of Chicago|Chicago]], [[New York|New York City]], and [[Los Angeles]].
+(22:06:45) [[Nicholas J. Fuentes]] reported that the [[George Floyd]] protests had escalated from initial unrest in Minneapolis and [[St. Paul]] to violent riots, looting, and property destruction in virtually every major [[city]] in the [[United States]], including [[Chicago]], [[New York|New York City]], and [[Los Angeles]].
 
 ### AF 2020-06-08 0616
 (25:37:77) The initial incident involving [[George Floyd]] began when he attempted to use a counterfeit $20 bill to buy cigarettes at a Minneapolis market, and the cashier called the police after spotting the fake bill.
@@ -168,7 +168,7 @@
 (00:54:57) The Minneapolis Fire Department reported 30 fire events, 22 looted buildings, 56 buildings with property damage, and 6 buildings completely demolished during the May 28 riots.
 
 ### AF 2020-05-28 0615
-(00:55:22) In neighboring [[City of St. Paul|St. Paul]], 5 buildings were looted and 12 reported property damage in the 24 hours following the Minneapolis riots.
+(00:55:22) In neighboring [[St. Paul]], 5 buildings were looted and 12 reported property damage in the 24 hours following the Minneapolis riots.
 
 ### AF 2020-05-28 0615
 (00:55:40) [[Jacob Frey]], the Mayor of Minneapolis, stated that the protests stemmed from built-up anger and sadness in the [[black]] community rooted in 400 years of history, referencing slavery.
@@ -195,7 +195,7 @@
 (01:25:25) [[Nicholas J. Fuentes]] criticized mainstream conservatives for pivoting to [[the left]] or remaining silent in response to the Minneapolis riots, refusing to honestly discuss the causes of the violence.
 
 ### AF 2020-05-28 0615
-(01:26:29) [[Nicholas J. Fuentes]] argued that the [[U.S. Department of Defense|National Guard]] should have been activated immediately to quell the riots in Minneapolis and should be a permanent presence in high-crime areas like [[City of Chicago|Chicago]].
+(01:26:29) [[Nicholas J. Fuentes]] argued that the [[U.S. Department of Defense|National Guard]] should have been activated immediately to quell the riots in Minneapolis and should be a permanent presence in high-crime areas like [[Chicago]].
 
 ### AF 2020-05-28 0615
 (01:27:27) [[Nicholas J. Fuentes]] claimed that rioters in Minneapolis targeted and destroyed their own community because they perceived it as "white" or "[[United States|America]]," and therefore not truly theirs.
@@ -216,7 +216,7 @@
 (01:09:30) [[Nicholas J. Fuentes]] described videos showing people looting a [[Target Corporation|Target]] store and a liquor store in Minneapolis during the protests.
 
 ### AF 2020-05-27 0614
-(01:34:30) [[Nicholas J. Fuentes]] argued that appeasing criminals through investigations and concessions would not work, and that law-breaking, like looting [[Target Corporation|Target]], must be punished to restore order.(01:40:08) [[Nicholas J. Fuentes]] argued that observable disparities in outcomes between regions like Minneapolis, [[City|Detroit]], [[City of Chicago|Chicago]], [[Europe]], and [[African continent|Africa]] stem from fundamental genetic inequalities, not solely cultural differences.
+(01:34:30) [[Nicholas J. Fuentes]] argued that appeasing criminals through investigations and concessions would not work, and that law-breaking, like looting [[Target Corporation|Target]], must be punished to restore order.(01:40:08) [[Nicholas J. Fuentes]] argued that observable disparities in outcomes between regions like Minneapolis, [[City|Detroit]], [[Chicago]], [[Europe]], and [[African continent|Africa]] stem from fundamental genetic inequalities, not solely cultural differences.
 
 ### AF 2019-09-20 0466
 (00:34:00) [[Nicholas J. Fuentes]] linked a spike in violent crime in Minneapolis to migrants from [[Somalia]], arguing that people bring the violent tendencies of their home countries with them when they immigrate.
@@ -246,7 +246,7 @@
 (15:53:40) In 1950, Minneapolis was 98% white, with a population largely of Scandinavian and [[Germany|German]] descent, a demographic that historically correlated with low crime rates in the [[region]].
 
 ### AF 2019-09-19 0465
-(17:23:62) Minneapolis saw its violent crime rate rise to levels on par with [[City of Chicago|Chicago]], a change [[Nicholas J. Fuentes]] attributed to demographic shifts rather than solely political leadership.
+(17:23:62) Minneapolis saw its violent crime rate rise to levels on par with [[Chicago]], a change [[Nicholas J. Fuentes]] attributed to demographic shifts rather than solely political leadership.
 
 ### AF 2019-09-19 0465
 (18:55:80) Violent crime in Minneapolis's Cedar-Riverside neighborhood, nicknamed "Little Mogadishu," increased by more than 50% in 2018, which authorities attributed to [[Somalia|Somali]] gang activity.

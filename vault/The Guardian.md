@@ -63,13 +63,13 @@
 (00:37:20) [[Nicholas J. Fuentes]] cited a report from The Guardian stating [[Donald Trump|Trump]]'s farewell address touched on themes like [[United States|American]] greatness and the forgotten man, tried to cement his legacy, and did not mention [[Joe Biden|Biden]] by name.
 
 ### AF 2018-01-03 0078
-(00:44:220) [[Michael Wolff]]'s book *Fire and Fury* contained an excerpt, acquired by The Guardian, quoting [[Steven Crowder|Steve Bannon]] on contacts during the presidential transition.
+(00:44:220) [[Michael Wolff]]'s book *Fire and Fury* contained an excerpt, acquired by The Guardian, quoting [[Steve Bannon]] on contacts during the presidential transition.
 
 ### AF 2018-01-03 0078
-(02:10:240) An excerpt from [[Michael Wolff]]'s book published by The Guardian quoted [[Steven Crowder|Steve Bannon]] describing contact between [[Michael Flynn]] and [[Russia]] as "unpatriotic and treasonous."
+(02:10:240) An excerpt from [[Michael Wolff]]'s book published by The Guardian quoted [[Steve Bannon]] describing contact between [[Michael Flynn]] and [[Russia]] as "unpatriotic and treasonous."
 
 ### AF 2018-01-03 0078
-(03:15:740) [[Breitbart News|Breitbart]], the media outlet formerly run by [[Steven Crowder|Steve Bannon]], published The Guardian article containing the controversial quotes without editorial denial or comment from [[Bannon]] himself.
+(03:15:740) [[Breitbart News|Breitbart]], the media outlet formerly run by [[Steve Bannon]], published The Guardian article containing the controversial quotes without editorial denial or comment from [[Bannon]] himself.
 
 ### AF 2017-08-29 0004
 (00:09:50) The Guardian published an article by [[Kwame Apaya]] titled "There is no such thing as western civilization," which argued that Western civilization is not a coherent historical continuum from [[Greece]] and [[Rome]] to the present.

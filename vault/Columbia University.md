@@ -2,7 +2,7 @@
 #organization
 
 ### AF 2025-09-18 1567
-(00:14:09) Last year, right-wing and conservative media reframed pro-[[Gaza Strip|Palestine]] protests at [[UCLA]], Columbia University, and [[Harvard University]] as generic patriotic conservative rallies against an anti-[[American]] [[left]]-wing rally to galvanize the public.
+(00:14:09) Last year, right-wing and conservative media reframed pro-[[Palestine]] protests at [[UCLA]], Columbia University, and [[Harvard University]] as generic patriotic conservative rallies against an anti-[[American]] [[left]]-wing rally to galvanize the public.
 ### AF 2025-09-30 1574
 (01:05:01:85) [[Bari Weiss]] studied under [[Youram Hazony|Yoram Hazony]] in [[Israel]] after leading pro-[[Israel]] activism at Columbia University with the [[The David Project|David Project]].
 ### AF 2025-11-19 1601

@@ -23,7 +23,7 @@
 (01:22:09) [[Nicholas J. Fuentes]] concluded that the fundamental problem is an opaque system where a tiny, interconnected elite from [[Washington D.C.]], [[New York]] finance, and Ivy League schools, often with foreign allegiances, holds power, making [[United States|America]] an afterthought.
 
 ### AF 2024-08-02 1366
-(14:49:82) Following the [[October 7th Attack]], [[Jewish]] billionaires [[Ronald Lauder]] and [[William Ackman]] led a campaign against Ivy League universities, including [[Harvard University]], [[University of Pennsylvania]], [[Massachusetts Institute of Technology|MIT]], and [[Columbia]], over pro-[[Gaza Strip|Palestine]] demonstrations.
+(14:49:82) Following the [[October 7th Attack]], [[Jewish]] billionaires [[Ronald Lauder]] and [[William Ackman]] led a campaign against Ivy League universities, including [[Harvard University]], [[University of Pennsylvania]], [[Massachusetts Institute of Technology|MIT]], and [[Columbia]], over pro-[[Palestine]] demonstrations.
 
 ### AF 2024-08-02 1366
 (17:00:56) The three non-[[Jewish]] presidents of Ivy League universities—[[Columbia]], [[Harvard University]], and [[University of Pennsylvania]]—were the primary targets of the campaign led by pro-[[Israel]] [[Jewish]] billionaires.
@@ -51,3 +51,12 @@
 
 ### AF 2018-08-07 0216
 (01:32:05) [[Lucian Wintrich]] announced he was developing new conservative media projects with investors and would be speaking at an unnamed Ivy League university in the fall.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(01:07:09) [[Nicholas J. Fuentes]] instructed Groypers to conceal their political views to avoid being listed, emphasizing the importance of securing positions in Ivy League institutions and government offices.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(01:05:47) [[Nicholas J. Fuentes]] advised "Groypers" to hide and conceal their views, to get into the Ivy Leagues and into offices, while bleeding for [[United States|America]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:07:16) [[Nicholas J. Fuentes]] encouraged followers to get into the Ivy League and government offices by saying what is necessary and holding their beliefs "close to the chest."

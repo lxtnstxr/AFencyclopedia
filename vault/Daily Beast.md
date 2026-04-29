@@ -6,7 +6,7 @@
 
 
 ### AF 2023-06-23 1179
-(00:08:29) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] had also given exclusive comments to the Daily Beast, a left-wing publication he characterized as being on par with [[Right Wing Watch]] and akin to "[[City of Portland|Portland]], Antifa, leftists."
+(00:08:29) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] had also given exclusive comments to the Daily Beast, a left-wing publication he characterized as being on par with [[Right Wing Watch]] and akin to "[[Portland]], Antifa, leftists."
 
 ### AF 2023-06-23 1179
 (00:09:20) [[Nicholas J. Fuentes]] reported that the Daily Beast had recently published text messages from [[Marjorie Taylor Greene]] to [[Matt Gaetz]] in a favorable way during a feud over a debt ceiling deal, furthering her agenda.
@@ -18,7 +18,7 @@
 (08:14:39) [[Nicholas J. Fuentes]] identified [[Jared Holt]], [[Christopher Mathias]], and [[Will Sommers]] from the Daily Beast as part of the cadre of journalists covering the far-right online beat.
 
 ### AF 2022-03-08 0953
-(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the Daily Beast, [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
+(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the Daily Beast, [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], [[Ronna McDaniel]], and [[Mitt Romney]].
 
 ### AF 2022-01-20 0939
 (00:05:37) [[Nicholas J. Fuentes]] criticized a group of journalists from publications like [[Salon]], [[The Huffington Post|Huffington Post]], Daily Beast, and [[Right Wing Watch]] for writing what he described as hit pieces against him.

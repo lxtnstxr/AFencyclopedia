@@ -12,4 +12,4 @@
 (01:47:48) [[Nicholas J. Fuentes]] commented on statistical evidence presented by [[Michigan Zoomers]] proving that Kansas Zoomer could not have made a claimed trip to McDonald's, arguing that Kansas Zoomer should be banned for spreading misinformation.
 
 ### AF 2020-12-01 0726
-(02:04:21) [[Nicholas J. Fuentes]] commented on the disputed claim by Kansas Zoomer about a McDonald's trip, stating that driving 120 mph to cover 40 miles in 20 minutes was pushing it, but shared that he drove 100 mph while fatigued to and from [[City of Lansing|Lansing]], requiring [[Jaden McNeil]] to keep him awake.
+(02:04:21) [[Nicholas J. Fuentes]] commented on the disputed claim by Kansas Zoomer about a McDonald's trip, stating that driving 120 mph to cover 40 miles in 20 minutes was pushing it, but shared that he drove 100 mph while fatigued to and from [[Lansing]], requiring [[Jaden McNeil]] to keep him awake.

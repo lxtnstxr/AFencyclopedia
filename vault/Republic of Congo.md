@@ -36,3 +36,9 @@
 
 ### AF 2019-04-19 0370
 (04:29:55) [[Slavoj Žižek]] pointed to global issues in places like the Congo and [[Yemen]] as examples of capitalism outsourcing misery and creating a dystopian world order.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], [[Azerbaijan]], Congo, [[Rwanda]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:21:47) [[Nicholas J. Fuentes]] claimed that in the minds of [[Donald Trump|Trump]] supporters, "3 million people have been deported and [[Donald Trump|Trump]] has ended eight wars," referencing wars like those between [[Thailand]] and [[Cambodia]], [[Rwanda]] and Congo, and a skirmish between [[India]] and [[Pakistan]].

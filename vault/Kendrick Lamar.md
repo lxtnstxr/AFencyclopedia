@@ -20,3 +20,6 @@
 
 ### AF 2018-01-19 0090
 (21:26:89) A caller named "Bandrew" asked [[Nicholas J. Fuentes]], [[who]] identifies as [[Catholic]] and traditionalist, if he was aware of the [[Christianity|Christian]] hip hop (CHH) movement, citing artists like [[Lecrae]] [[who]] have worked with [[Chance the Rapper]] and Kendrick Lamar.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:49:35.390) [[Nicholas J. Fuentes]] argued that the Kendrick Lamar Super Bowl halftime show was "more woke" and "anti-[[United States|American]]" because it included [[Samuel L. Jackson]] as [[Uncle Sam]] and was about racism.

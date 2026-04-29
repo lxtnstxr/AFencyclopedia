@@ -30,7 +30,7 @@
 (00:42:27) Charles Kushner and his son, [[Jared Kushner]], are [[New York]] financiers and real estate developers.
 
 ### AF 2025-08-26 1557
-(00:42:43) Charles Kushner sent a letter to [[Emmanuel Macron]], the [[France|French]] President, on behalf of the [[United States]], accusing [[France]] of insufficient action against anti-Semitism and condemning [[France]]'s recognition of [[Gaza Strip|Palestine]].
+(00:42:43) Charles Kushner sent a letter to [[Emmanuel Macron]], the [[France|French]] President, on behalf of the [[United States]], accusing [[France]] of insufficient action against anti-Semitism and condemning [[France]]'s recognition of [[Palestine]].
 
 ### AF 2025-08-26 1557
 (00:42:59) [[Gideon Saar]], a minister in the [[Israel|Israeli government]], echoed Charles Kushner's sentiments.
@@ -51,7 +51,7 @@
 (00:44:43) [[Gideon Saar]], the Foreign Minister of [[Israel]], criticized [[France]]'s decision to summon Charles Kushner, calling it "the height of hypocrisy."
 
 ### AF 2025-08-26 1557
-(00:45:29) In a letter to [[Emmanuel Macron]] released to the news media, Charles Kushner alleged that gestures like recognizing [[Gaza Strip|Palestine]] embolden extremists, fuel violence, and endanger [[Jewish]] life in [[France]].
+(00:45:29) In a letter to [[Emmanuel Macron]] released to the news media, Charles Kushner alleged that gestures like recognizing [[Palestine]] embolden extremists, fuel violence, and endanger [[Jewish]] life in [[France]].
 
 ### AF 2025-08-26 1557
 (00:45:29) Charles Kushner stated that [[Donald Trump]] and he share [[Jewish]] children and grandchildren, and that all [[Americans]] know how [[Donald Trump|Trump]] feels about anti-Semitism.

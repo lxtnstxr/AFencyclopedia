@@ -15,7 +15,7 @@
 (00:12:48) [[Nicholas J. Fuentes]] described [[Cozy.tv]] as a community hub featuring content from [[Jesse Lee Peterson]], [[Alex Jones]], Beardson Beardley, [[Steve Franzen]], and [[Paul Town]], among others.
 
 ### AF 2022-03-08 0953
-(00:23:44) [[Nicholas J. Fuentes]] attended [[Kanye West]]'s "Donda 2" listening event in [[City of Miami|Miami]] with [[Hiding Magyar]] and Beardson Beardley, describing it as the soundtrack for [[AFPAC|AFPAC 3]].
+(00:23:44) [[Nicholas J. Fuentes]] attended [[Kanye West]]'s "Donda 2" listening event in [[Miami]] with [[Hiding Magyar]] and Beardson Beardley, describing it as the soundtrack for [[AFPAC|AFPAC 3]].
 
 ### AF 2022-03-08 0953
 (00:47:04) [[Nicholas J. Fuentes]] listed attendees at [[AFPAC|AFPAC 3]], including his parents, [[Michelle Malkin]], [[Joe Arpaio]], [[Jared Taylor]], [[Gavin McInnes|Gavin McInnis]], [[Milo Yiannopoulos]], [[Marjorie Taylor Greene]], [[Jesse Lee Peterson]], [[Laura Loomer]], [[Lauren Witzke]], [[Peter Brimelow]], [[Steve King]], Beardson Beardley, [[Dalton Clodfelter]], and [[Kai Schwemmer]].
@@ -87,7 +87,7 @@
 (02:13:01) As [[Louis Theroux]] began to say "you're involved in a movement," Beardson Beardley interrupted with "hey Louis, go fuck yourself. I have nothing else to say to you. Eat shit. Bye bye."
 
 ### AF 2022-02-15 0947
-(02:13:56) [[Nicholas J. Fuentes]] stated that [[Louis Theroux]] and the [[BBC]] flew to [[City of Chicago|Chicago]], drove to [[State of Kentucky|Kentucky]] for a four or five hour drive, and were kicked out by Beardson Beardley after ten minutes, and made [[Beardson]] the enemy of the show out of vindictiveness.
+(02:13:56) [[Nicholas J. Fuentes]] stated that [[Louis Theroux]] and the [[BBC]] flew to [[Chicago]], drove to [[State of Kentucky|Kentucky]] for a four or five hour drive, and were kicked out by Beardson Beardley after ten minutes, and made [[Beardson]] the enemy of the show out of vindictiveness.
 
 ### AF 2022-02-15 0947
 (02:14:11) [[Nicholas J. Fuentes]] claimed that [[Louis Theroux]] doxed Beardson Beardley by using his real name in the documentary, which he never goes by, as a petty retaliation for being kicked out.

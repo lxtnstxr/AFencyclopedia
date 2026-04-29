@@ -15,7 +15,7 @@
 (36:01:83) [[Nicholas J. Fuentes]] referenced a book by [[David Sacks|David Siedorski]] published for the American Jewish Committee detailing how [[Jewish]] advocacy for universal civil rights and the founding of the [[National Association for the Advancement of Colored People|NAACP]] in [[United States|America]] was initially motivated by self-interest in protecting themselves from a white majority.
 
 ### AF 2023-12-13 1262
-(08:16:20) The [[University of Pennsylvania]] replaced its ousted president with [[Donald Trump|the president]] of the American Jewish Federations of North America.
+(08:16:20) The [[University of Pennsylvania]] replaced its ousted president with [[the president]] of the American Jewish Federations of North America.
 
 ### AF 2023-01-09 1104
 (00:33:21) [[Nicholas J. Fuentes]] argued that conservatives are afraid to criticize [[Israel]] or associate with figures like him because Jewish organizations control the right-wing media apparatus and blacklist dissenters from jobs in the [[Republican Party]] and conservative media.
@@ -49,3 +49,6 @@
 
 ### AF 2018-05-07 0159
 (01:24:02:20) [[Nicholas J. Fuentes]] dismissed Sedevacantist theories that [[Vatican II]] was a false council run by the American Jewish Committee, arguing it defeats the purpose of [[Catholic Church|Catholicism]] to reject papal authority.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:14:12:61) [[Nicholas J. Fuentes]] argued that [[Jews|Jewish]] groups like the [[Anti-Defamation League|ADL]] and the American Jewish Committee advocated for mass migration in 1965 to avoid being a marginalized minority in a white [[Christianity|Christian]] [[country]].

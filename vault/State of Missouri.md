@@ -31,31 +31,31 @@
 (54:10:49) [[Nicholas J. Fuentes]] explained that "trigger laws" in states like [[United States|South Dakota]], [[Wisconsin]], Missouri, [[State of Kentucky|Kentucky]], [[Kansas|Arkansas]], [[State of Louisiana|Louisiana]], [[Oklahoma]], [[State of Texas|Texas]], [[Alabama]], and [[West Virginia]] automatically banned abortion upon Roe's overturning.
 
 ### AF 2022-05-31 1004
-(00:32:12) [[Nicholas J. Fuentes]] posited that without firearms, situations like the [[Black Lives Matter|BLM]] riots would have been worse, using the example of the [[McCloskeys]] in [[City of St. Louis|St. Louis]], Missouri, who defended their home with guns.
+(00:32:12) [[Nicholas J. Fuentes]] posited that without firearms, situations like the [[Black Lives Matter|BLM]] riots would have been worse, using the example of the [[McCloskeys]] in [[St. Louis]], Missouri, who defended their home with guns.
 
 ### AF 2021-11-22 0913
-(01:34:96) [[Nicholas J. Fuentes]] cited the case of [[McCloskey]] and his wife in [[City of St. Louis|St. Louis]], Missouri, who were charged after brandishing firearms at a [[Black Lives Matter]] mob that broke onto their private property, as evidence that such conflicts are racially motivated.
+(01:34:96) [[Nicholas J. Fuentes]] cited the case of [[McCloskey]] and his wife in [[St. Louis]], Missouri, who were charged after brandishing firearms at a [[Black Lives Matter]] mob that broke onto their private property, as evidence that such conflicts are racially motivated.
 
 ### AF 2021-11-23 0911
-(00:34:58) [[Nicholas J. Fuentes]] referenced the case of [[McCloskey]] and [[McCloskey]], a couple in [[City of St. Louis|St. Louis]], Missouri who were charged after brandishing firearms at a [[Black Lives Matter]] crowd that trespassed on their private street.
+(00:34:58) [[Nicholas J. Fuentes]] referenced the case of [[McCloskey]] and [[McCloskey]], a couple in [[St. Louis]], Missouri who were charged after brandishing firearms at a [[Black Lives Matter]] crowd that trespassed on their private street.
 
 ### AF 2021-09-25 0884
 (42:04:00) [[Mark McCloskey]] brandished an AR-15 when [[Black Lives Matter]] protesters stormed his private road in Missouri.
 
 ### AF 2021-06-17 0831
-(00:36:50) [[Mark McCloskey]] and [[Patricia McCloskey]] faced a mob of [[Black Lives Matter]] protesters who broke down an iron gate and ignored a no-trespassing sign on their private street in [[City of St. Louis|St. Louis]], Missouri.
+(00:36:50) [[Mark McCloskey]] and [[Patricia McCloskey]] faced a mob of [[Black Lives Matter]] protesters who broke down an iron gate and ignored a no-trespassing sign on their private street in [[St. Louis]], Missouri.
 
 ### AF 2020-08-24 0668
 (01:26:32) [[Mark]] and [[Patricia McCloskey]] claimed the "Marxist liberal activist" [[who]] led the protest outside their home later won the [[Democratic Party|Democratic]] nomination for a [[United States|U.S]]. [[House]] seat in Missouri's first district.
 
 ### AF 2020-08-05 0655
-(00:02:11) [[Cori Bush]], a [[Black Lives Matter]] protester from the 2014 [[City of St. Louis|Ferguson]] demonstrations following the killing of [[Michael Brown]], won her [[Democratic Party|Democratic]] primary in Missouri.
+(00:02:11) [[Cori Bush]], a [[Black Lives Matter]] protester from the 2014 [[Ferguson]] demonstrations following the killing of [[Michael Brown]], won her [[Democratic Party|Democratic]] primary in Missouri.
 
 ### AF 2020-08-05 0655
 (00:44:45) [[Cori Bush]], a progressive activist, defeated Representative [[William Lacy Clay Jr.]] in a [[Democratic Party|Democratic]] primary in Missouri, which the [[The New York Times|New York Times]] described as part of a string of upsets against the party establishment.
 
 ### AF 2020-08-05 0655
-(00:47:04) [[Cori Bush]] built her campaign around her personal story as a working-class [[black]] woman drawn into public life after the police killing of [[Michael Brown]] in [[City of St. Louis|Ferguson]], Missouri in 2014.
+(00:47:04) [[Cori Bush]] built her campaign around her personal story as a working-class [[black]] woman drawn into public life after the police killing of [[Michael Brown]] in [[Ferguson]], Missouri in 2014.
 
 ### AF 2020-07-14 0640
 (01:22:58) The governor of Missouri signed a bill prohibiting discrimination against [[Israel]], which [[Nicholas J. Fuentes]] cited as an example of populist nationalists pandering to [[Israel]].
@@ -79,7 +79,7 @@
 (02:05:00) [[Nicholas J. Fuentes]] introduced a new bill by Senator [[Josh Hawley]] of Missouri aimed at forcing video-sharing websites like [[Google|YouTube]] to disable recommendation systems for videos featuring children, following a report that the algorithm helped spread such content among predators.
 
 ### AF 2019-05-29 0396
-(00:39:00) [[Nicholas J. Fuentes]] stated that Missouri's only abortion clinic in [[City of St. Louis|St. Louis]] was fighting the [[state]]'s refusal to renew its license, which could make Missouri the first [[state]] in over 45 years without abortion services.
+(00:39:00) [[Nicholas J. Fuentes]] stated that Missouri's only abortion clinic in [[St. Louis]] was fighting the [[state]]'s refusal to renew its license, which could make Missouri the first [[state]] in over 45 years without abortion services.
 
 ### AF 2019-02-14 0332
 (08:21:51) [[Josh Hawley]] replaced [[Democratic Party|Democrat]] [[Claire McCaskill]] as a Senator from Missouri in the 2018 election.
@@ -110,3 +110,9 @@
 
 ### AF 2018-03-26 0131
 (00:29:18) [[Nicholas J. Fuentes]] argued that the "March for Our Lives" rally's focus on banning semi-automatic rifles could harm [[Democratic Party]] electoral chances in swing states like [[Montana]], Missouri, [[State of Ohio|Ohio]], and [[Commonwealth of Pennsylvania|Pennsylvania]] where gun control is unpopular.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:41:45) [[B2 stealth bombers]] flew from Missouri to bomb [[Fordow|Fordo]] and [[Natanz]] with bunker buster bombs.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:05:28) [[Nicholas J. Fuentes]] stated that Renee Good was not from [[Minnesota]] but moved there from [[Colorado Springs]] and then Missouri.

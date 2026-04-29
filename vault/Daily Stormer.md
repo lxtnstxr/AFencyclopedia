@@ -12,7 +12,7 @@
 (00:38:11) [[Nicholas J. Fuentes]] claimed that the Daily Stormer was one of the few outlets where one could hear that white people in [[United States|America]] are in existential danger, a message not found on [[Fox News]], [[Breitbart News|Breitbart]], or other conservative media.
 
 ### AF 2021-01-08 0742
-(02:05:00) [[Nicholas J. Fuentes]] cited the prior deplatforming of [[Andrew Anglin]]'s Daily Stormer by [[Cloudflare]] after the [[City of Charlottesville|Charlottesville rally]] and the targeting of [[8chan]] after the Christchurch shooting as precedents for the current crackdown.
+(02:05:00) [[Nicholas J. Fuentes]] cited the prior deplatforming of [[Andrew Anglin]]'s Daily Stormer by [[Cloudflare]] after the [[Charlottesville rally]] and the targeting of [[8chan]] after the Christchurch shooting as precedents for the current crackdown.
 
 ### AF 2020-12-09 0731
 (02:11:00) [[Nicholas J. Fuentes]] claimed the censorship began with figures like [[Chuck Johnson]], [[Pax Dickinson]], [[Person|Milo Yiannopoulos]], and [[Andrew Anglin]], and platforms like [[8chan]] and Daily Stormer, before snowballing to mainstream figures.
@@ -24,10 +24,10 @@
 (06:23:45) [[Nicholas J. Fuentes]] claimed that platforms like the Daily Stormer were being pushed onto the dark web and that [[Alex Jones|InfoWars]] had been removed from [[Google|YouTube]], [[Facebook]], [[Twitter]], [[Instagram]], [[Pinterest]], [[DLive]], and [[Twitch Inc.|Twitch]].
 
 ### AF 2019-07-01 0418
-(02:32:00) [[Nicholas J. Fuentes]] argued that internet censorship campaigns against figures like [[Andrew Anglin]] of the Daily Stormer began concurrently with [[Antifa]]'s rise after the [[City of Charlottesville|Charlottesville]] rally.
+(02:32:00) [[Nicholas J. Fuentes]] argued that internet censorship campaigns against figures like [[Andrew Anglin]] of the Daily Stormer began concurrently with [[Antifa]]'s rise after the [[Charlottesville]] rally.
 
 ### AF 2018-11-02 0275
-(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[City of Charlottesville|Charlottesville]] censorship campaign began with the removal of the Daily Stormer, [[Milo Yiannopoulos]], [[Chuck Johnson]], and [[Andrew Anglin]], and later included [[Gavin McInnes]].
+(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[Charlottesville]] censorship campaign began with the removal of the Daily Stormer, [[Milo Yiannopoulos]], [[Chuck Johnson]], and [[Andrew Anglin]], and later included [[Gavin McInnes]].
 
 ### AF 2018-10-05 0255
 (00:52:01) [[Nicholas J. Fuentes]] countered that he always speaks out against censorship, citing his comments on the deplatforming of [[Alex Jones]] and the Daily Stormer.

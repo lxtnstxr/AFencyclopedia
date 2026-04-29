@@ -22,3 +22,9 @@
 
 ### AF 2019-07-08 0420
 (01:55:63) [[Michael Bloomberg|Bloomberg]] reported that [[Jeffrey Epstein]]'s source of wealth was unclear, though he ran a money management firm primarily for Victoria's Secret founder Les Wexner.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:42:58) [[JD Vance]] held a fundraiser at Les Wexner's [[house]] in [[State of Ohio|Ohio]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:20:31) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] is covering up the [[Jeffrey Epstein|Epstein]] files to protect [[Peter Thiel]], [[Ronald Lauder]], [[Leon Black]], and Les Wexner, [[who]] are in the files.

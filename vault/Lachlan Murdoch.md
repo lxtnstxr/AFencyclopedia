@@ -2,7 +2,7 @@
 #person
 
 ### AF 2024-06-25 1345
-(48:58:96) [[Fox News]], owned by [[Fox News|News Corp]] which is controlled by Lacklin and [[Rupert Murdoch]], personal friends of [[Benjamin Netanyahu|Bibi]], does not regularly cover the influence of donors like [[Jacob Helberg]], [[David Sacks]], [[William Ackman|Bill Ackman]], the [[American Israel Public Affairs Committee|AIPAC]], or [[Sheldon Adelson|Miriam Adelson]].
+(48:58:96) [[Fox News]], owned by [[Fox News|News Corp]] which is controlled by Lacklin and [[Rupert Murdoch]], personal friends of [[Benjamin Netanyahu|Bibi]], does not regularly cover the influence of donors like [[Jacob Helberg]], [[David Sacks]], [[William Ackman|Bill Ackman]], the [[American Israel Public Affairs Committee|AIPAC]], or [[Miriam Adelson]].
 
 
 ### AF 2024-06-03 1339

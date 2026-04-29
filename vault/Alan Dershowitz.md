@@ -34,3 +34,6 @@
 
 ### AF 2019-07-09 0421
 (01:41:40) [[Jeffrey Epstein]]'s attorneys, Alan Dershowitz and Gerald Lefcourt, claimed in a 2007 letter that [[Jeffrey Epstein|Epstein]] helped conceive the [[Clinton Global Initiative]] during plea negotiations for his earlier sex crime charges.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:00:55) [[Nicholas J. Fuentes]] summarized the [[known]] story of [[Jeffrey Epstein]], starting with his conviction in the late 2000s for sex trafficking, his sweetheart plea deal negotiated by Alan Dershowitz and [[Alex Acosta]], his mysterious death in prison, and the speculation that he was killed for his secrets.

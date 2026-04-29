@@ -10,10 +10,10 @@
 (00:39:04) [[Nicholas J. Fuentes]] asserted that this process is happening more rapidly in [[Australia]], New Zealand, [[Europe|Western Europe]], and [[Dominion of Canada|Canada]], with [[Dominion of Canada|Canada]] representing the "end game."
 
 ### AF 2022-05-17 0995
-(00:19:12) [[Nicholas J. Fuentes]] compared the post-[[City of Buffalo|Buffalo]] censorship push to the aftermath of the [[Christchurch]] mosque shooting in New Zealand.
+(00:19:12) [[Nicholas J. Fuentes]] compared the post-[[Buffalo]] censorship push to the aftermath of the [[Christchurch]] mosque shooting in New Zealand.
 
 ### AF 2022-03-01 0952
-(00:07:44) Along with 27 members of the [[Europe|European Union]], including [[Government of France|France]], [[Germany]], and [[Italian Republic|Italy]], and countries like the [[United Kingdom]], [[Dominion of Canada|Canada]], [[State of Japan|Japan]], [[South Korea]], [[Australia]], New Zealand, and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
+(00:07:44) Along with 27 members of the [[European Union]], including [[France]], [[Germany]], and [[Italian Republic|Italy]], and countries like the [[United Kingdom]], [[Dominion of Canada|Canada]], [[State of Japan|Japan]], [[South Korea]], [[Australia]], New Zealand, and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
 
 ### AF 2022-02-04 0942
 (01:52:20) [[Nicholas J. Fuentes]] rejected a suggestion to abandon the [[United States]] for New Zealand, criticizing New Zealand's female head of government, strict [[COVID-19]] lockdowns, and hate speech laws.

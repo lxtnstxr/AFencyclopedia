@@ -51,7 +51,7 @@
 (00:05:23) Robert Barnes insinuated on his show that [[Nicholas J. Fuentes]] might be a [[Islam|Muslim]] Brotherhood operative or a federal agent, citing his change from a Zionist position and his presence in [[Washington D.C.]] on [[January 6th Attack|January 6th]] without entering the [[United States Capitol]].
 
 ### AF 2021-05-25 0816
-(00:07:36) In a video from May 17th, Robert Barnes argued that support for [[Gaza Strip|Palestine]] is rooted in Arab nationalism, that critics of [[Israel]] are anti-Semitic, and that [[Gaza Strip|Palestine]] is not a real state but a contrived identity.
+(00:07:36) In a video from May 17th, Robert Barnes argued that support for [[Palestine]] is rooted in Arab nationalism, that critics of [[Israel]] are anti-Semitic, and that [[Palestine]] is not a real state but a contrived identity.
 
 ### AF 2021-05-25 0816
 (00:09:45) Robert Barnes argued that Arab identity in the [[Middle East]] is defined in opposition to the state of [[Israel]].

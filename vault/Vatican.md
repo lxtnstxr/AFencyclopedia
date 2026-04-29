@@ -39,7 +39,10 @@
 (00:34:02) The caller Simon noted a coincidence where chunks of plaster fell from [[St. Peter's Basilica]] in the Vatican shortly after the [[Pope Francis|Pope]]'s controversial interview, which [[Nicholas J. Fuentes]] compared to the earthquakes and temple veil tearing at [[Jesus Christ|Christ]]'s crucifixion, referencing a historical story about [[Emperor Justinian]]'s failed attempt to rebuild the [[Jews|Jewish]] temple.
 
 ### AF 2018-02-09 0105
-(01:36:48) [[Nicholas J. Fuentes]] acknowledged corruption in the Vatican but argued the [[Pope Francis|Catholic Church]]'s 2,000-year endurance is testament to its divine protection.
+(01:36:48) [[Nicholas J. Fuentes]] acknowledged corruption in the Vatican but argued the [[Catholic Church]]'s 2,000-year endurance is testament to its divine protection.
 
 ### AF 2018-02-06 0102
 (01:33:10) [[Nicholas J. Fuentes]] commented that it was sad to see the Vatican kowtowing to the [[Chinese Communist Party]], but that such compromises were politics, contrasting it with [[Pope John Paul II]] [[who]] did not bow to the [[Soviet Union]].
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:56:59) [[Nicholas J. Fuentes]] denied meeting with the Vatican, [[Barack Obama]], and [[Candace Owens]] to plot against [[Donald Trump]], jokingly adding he would have taken the meeting if offered.

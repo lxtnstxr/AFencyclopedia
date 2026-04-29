@@ -13,3 +13,9 @@
 
 ### AF 2018-10-17 0263
 (00:37:58) [[Ian Fletcher]] stated that [[United States|U.S]]. tariffs on [[China]] are meaningful and will drive some [[China|Chinese]] manufacturing to other countries like [[Vietnam]], the [[Philippines]], Malaysia, and [[Indonesia]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:24:33) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] wants [[Iran]] to believe it has less leverage over the [[United States]] than it does, while also pressuring [[India]], [[South Korea]], [[State of Japan|Japan]], Malaysia, [[Taiwan]], and [[Europe]]—[[who]] are more dependent on the [[Persian Gulf]] for oil and liquefied natural gas from [[Qatar]]—to step in.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:26:21) The economic pain from the closure of the Strait of Hormuz will be felt first by [[Asia]] ([[India]], [[China]], [[South Korea]], [[Taiwan]], [[State of Japan|Japan]], Malaysia, [[Philippines]]) and then by [[Europe]].

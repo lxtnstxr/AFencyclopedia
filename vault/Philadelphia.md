@@ -2,7 +2,7 @@
 #city
 
 ### AF 2024-08-07 1369
-(04:38:00) [[Nicholas J. Fuentes]] predicted [[Donald Trump]] was headed for defeat in November due to negative polling trends, an incompetent campaign unable to adapt, and anticipated election cheating in cities like [[Milwaukee]], [[Detroit]], [[Atlanta]], [[City of Phoenix|Phoenix]], and Philadelphia.
+(04:38:00) [[Nicholas J. Fuentes]] predicted [[Donald Trump]] was headed for defeat in November due to negative polling trends, an incompetent campaign unable to adapt, and anticipated election cheating in cities like [[Milwaukee]], [[Detroit]], [[Atlanta]], [[Phoenix]], and Philadelphia.
 
 
 ### AF 2023-10-03 1228

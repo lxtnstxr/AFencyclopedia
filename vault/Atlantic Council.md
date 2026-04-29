@@ -24,7 +24,7 @@
 (01:28:16:83) [[Nicholas J. Fuentes]] referenced a really good article by [[Revolver News]] about [[Elon Musk]]'s purchase of [[Twitter]] and planned to cover the history of [[Twitter]], the [[Anti-Defamation League|ADL]]'s platforming, the Atlantic Council, and the 2020 [[Facebook]] boycott.
 
 ### AF 2022-10-06 1073
-(00:50:55) The Atlantic Council's Digital Forensics Lab produced reports alleging [[Russia]] was running a disinformation campaign in [[West Africa]] to turn populations against [[Government of France|France]].
+(00:50:55) The Atlantic Council's Digital Forensics Lab produced reports alleging [[Russia]] was running a disinformation campaign in [[West Africa]] to turn populations against [[France]].
 
 ### AF 2022-10-06 1073
 (00:51:05) [[Jared L. Holt]], an operative formerly with [[Right Wing Watch]] funded by the [[Open Society Foundation]], worked at the Atlantic Council's Digital Forensics Lab, writing reports on [[January 6th Attack|January 6th]] and [[Russian]] influence in [[African continent|Africa]].
@@ -36,7 +36,7 @@
 (01:09:25:79) Government-funded non-governmental organizations (NGOs) and think tanks like the Atlantic Council were contracted by social media companies to help develop content moderation policies.
 
 ### AF 2022-04-05 0972
-(00:58:44) [[Nicholas J. Fuentes]] identified the beneficiaries of the war as the [[National Endowment for Democracy]], the [[United States|U.S.]] [[State Department]], the [[Council on Foreign Relations]], the Atlantic Council, the [[U.S. National Security Council|National Security Council]], the [[U.S. Department of Defense|Pentagon]], [[North Atlantic Treaty Organization|NATO]], and the [[Europe|European Union]].
+(00:58:44) [[Nicholas J. Fuentes]] identified the beneficiaries of the war as the [[National Endowment for Democracy]], the [[United States|U.S.]] [[State Department]], the [[Council on Foreign Relations]], the Atlantic Council, the [[U.S. National Security Council|National Security Council]], the [[U.S. Department of Defense|Pentagon]], [[North Atlantic Treaty Organization|NATO]], and the [[European Union]].
 
 ### AF 2022-03-21 0962
 (01:23:03:87) [[Nicholas J. Fuentes]] stated that the Atlantic Council, [[Brookings Institution]], and [[Council on Foreign Relations]], in concert with corporations like [[Raytheon]] and [[Lockheed Martin]] and the [[U.S. Department of Defense|Pentagon]], set the [[United States]] policy of pushing for [[Ukraine]] to join [[North Atlantic Treaty Organization|NATO]].
@@ -96,13 +96,13 @@
 (00:32:50) [[Nicholas J. Fuentes]] referenced a 50-[[page]] paper from the Atlantic Council that he claimed outlined efforts to push pro-[[North Atlantic Treaty Organization|NATO]], pro-war narratives and conduct information warfare in the media.
 
 ### AF 2021-02-03 0754
-(01:52:860) [[Jared Holt]] of the Atlantic Council, which is funded by [[North Atlantic Treaty Organization|NATO]], the [[Europe|European Union]], the [[U.S. Department of Defense]], [[Bank of America Corporation|Bank of America]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Pfizer]], and [[JPMorgan Chase & Co.|JPMorgan Chase]], works to deplatform right-wing figures by pressuring payment processors and social media companies.
+(01:52:860) [[Jared Holt]] of the Atlantic Council, which is funded by [[North Atlantic Treaty Organization|NATO]], the [[European Union]], the [[U.S. Department of Defense]], [[Bank of America Corporation|Bank of America]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Pfizer]], and [[JPMorgan Chase & Co.|JPMorgan Chase]], works to deplatform right-wing figures by pressuring payment processors and social media companies.
 
 ### AF 2021-01-29 0751
 (04:13:00) [[Nicholas J. Fuentes]] identified [[Jared Holt]], who works for the Atlantic Council, as an example of a "useful idiot" who supports using the weight of government and groups like the [[Southern Poverty Law Center|SPLC]] and [[Anti-Defamation League|ADL]] to punish political enemies without realizing he is also being oppressed by the same system.
 
 ### AF 2021-01-29 0751
-(04:15:00) [[Nicholas J. Fuentes]] stated that the Atlantic Council is funded by the [[U.S. Department of Defense|Department of Defense]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], [[Bank of America Corporation|Bank of America]], [[Pfizer]], [[AIPAC]], the [[Europe|European Union]], [[JPMorgan Chase & Co.|JPMorgan Chase]], [[Israel]], and the [[United Arab Emirates]].
+(04:15:00) [[Nicholas J. Fuentes]] stated that the Atlantic Council is funded by the [[U.S. Department of Defense|Department of Defense]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], [[Bank of America Corporation|Bank of America]], [[Pfizer]], [[AIPAC]], the [[European Union]], [[JPMorgan Chase & Co.|JPMorgan Chase]], [[Israel]], and the [[United Arab Emirates]].
 
 ### AF 2021-01-21 0747
 (00:38:07) [[Nicholas J. Fuentes]] cited [[Jared Holt]] as an example of a leftist who moved from working for the [[George Soros|Soros]]-funded [[Right Wing Watch]] to the Atlantic Council, which he described as an epitome of globalist power.

@@ -18,7 +18,7 @@
 (01:06:29:55) [[Rachel Rollins]], the [[U.S. Attorney]] for Massachusetts, stated she would discuss with the [[U.S. Department of Justice]] whether [[Ron DeSantis]] broke any laws by sending migrants to [[Martha's Vineyard]].
 
 ### AF 2021-10-29 0903
-(00:48:48) [[New York|New York City]], under Mayor [[Bill de Blasio]], implemented a sweeping vaccine mandate for all municipal workers without a testing opt-out, similar to policies in [[San Francisco Bay Area|San Francisco]], [[Los Angeles]], [[City of Chicago|Chicago]], [[Washington D.C.|Washington]], and Massachusetts.
+(00:48:48) [[New York|New York City]], under Mayor [[Bill de Blasio]], implemented a sweeping vaccine mandate for all municipal workers without a testing opt-out, similar to policies in [[San Francisco Bay Area|San Francisco]], [[Los Angeles]], [[Chicago]], [[Washington D.C.|Washington]], and Massachusetts.
 
 ### AF 2021-09-25 0884
 (14:34:00) The Delta variant caused outbreaks in [[Israel]] and [[Barnstable]], Massachusetts, with most sick individuals being fully vaccinated.

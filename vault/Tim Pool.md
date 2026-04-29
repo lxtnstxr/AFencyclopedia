@@ -117,7 +117,7 @@
 (00:17:18) [[Nicholas J. Fuentes]] claimed that figures like Tim Pool, [[Mines]], and [[Alex Jones]] advocate for transgender transition rights and euthanasia.
 
 ### AF 2023-04-18 1148
-(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as Tim Pool, [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, [[Tucker Carlson]] being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Mike Johnson|Kevin McCarthy]], [[Matt Walsh]] making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling [[Blaze Media|The Blaze]] executives he loves [[Israel]].
+(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as Tim Pool, [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, [[Tucker Carlson]] being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Kevin McCarthy]], [[Matt Walsh]] making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling [[Blaze Media|The Blaze]] executives he loves [[Israel]].
 
 ### AF 2023-04-05 1142
 (30:39:55) [[Destiny]] debated Tim Pool on whether [[Donald Trump]] should be prosecuted if guilty, with both concurring that a president should not be above the law, a premise [[Nicholas J. Fuentes]] called "ridiculous."
@@ -334,3 +334,33 @@
 
 ### AF 2019-06-05 0401
 (00:30:50) [[Nicholas J. Fuentes]] noted that commentators across the political spectrum, including [[Ben Shapiro]], [[Dan Bongino]], and Tim Pool, were publicly criticizing [[Google|YouTube]]'s actions.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:15:27.000) [[Nicholas J. Fuentes]] stated that [[Eliot "Oron" McIntyre]] said on Tim Pool's show that the [[Donald Trump|Trump]] movement has betrayed its principles and is surrounded by neocons like [[Ben Shapiro]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:18:04) [[Nicholas J. Fuentes]] appeared on Tim Pool's show on Monday, where he predicted that [[Don Lemon]] would face no repercussions for his actions.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:53:52:350) [[Nicholas J. Fuentes]] stated he was scheduled to appear on Tim Pool's show.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:04:00:240) [[Nicholas J. Fuentes]] stated that he cooked on Tim Pool's show.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:12:33) [[Nicholas J. Fuentes]] stated that Tim Pool assured him he would not be brought on for a "struggle session" and would be treated as a regular panelist on the show.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:13:15) [[Nicholas J. Fuentes]] assessed that a collaboration with Tim Pool would have been a "showstopper" if it had occurred two years prior.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:13:22) [[Nicholas J. Fuentes]] reported that the collaboration stream with Tim Pool reached 65,000 concurrent viewers across platforms.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:13:39) [[Nicholas J. Fuentes]] described Tim Pool and [[Ian Carroll]] as funny, and noted that while [[Phil]] is not his biggest fan, they agreed on many topics.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:29:44) [[Nicholas J. Fuentes]] stated that after he and [[Kanye West]] appeared on Tim Pool, [[Michael Malice]] went on and did a routine about "I'm a [[Jews|Jew]] and I'm on after [[Nicholas J. Fuentes|Nick]] and Kanye."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:15:37) [[Nicholas J. Fuentes]] expressed admiration for Tim Pool but disagreed with Tim Pool's characterization of [[Candace Owens]] as a genius, insisting she is "a fucking idiot."

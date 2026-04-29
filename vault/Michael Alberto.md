@@ -6,7 +6,7 @@
 
 
 ### AF 2022-06-01 1005
-(01:23:14) [[Nicholas J. Fuentes]] announced he would participate in a multi-guest panel stream on Saturday at 11 a.m. Central [[Time]], hosted by Michael Alberto on [[Cozy.tv]], featuring [[Destiny|Destiny]], [[Kai Clips]], [[Turkey Tom]], and [[Augie RFC]].
+(01:23:14) [[Nicholas J. Fuentes]] announced he would participate in a multi-guest panel stream on Saturday at 11 a.m. Central [[Time]], hosted by Michael Alberto on [[Cozy.tv]], featuring [[Destiny]], [[Kai Clips]], [[Turkey Tom]], and [[Augie RFC]].
 
 ### AF 2022-04-26 0984
 (02:43:49) [[Nicholas J. Fuentes]] stated he was giving Michael Alberto the benefit of the doubt for being young and learning, despite viewer criticism.

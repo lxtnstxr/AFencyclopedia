@@ -12,7 +12,7 @@
 (01:42:00) [[Nicholas J. Fuentes]] reconciled with [[Central Intelligence Agency|CWC]] and Owen Benjamin after previous public disagreements.
 
 ### AF 2022-09-22 1065
-(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], [[Jared Holt]], [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[City of Charlottesville|Charlottesville]], being kicked out of school, Owen Benjamin, losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
+(01:42:50) [[Nicholas J. Fuentes]] listed individuals and organizations he claimed had betrayed or attacked him over five years, including [[Cathy Dill]], [[Media Matters]], [[Right Wing Watch]], [[Jared Holt]], [[James O'Keefe]], [[Heal Turn]], [[Richard Spencer]], the alt-right, [[Charlottesville]], being kicked out of school, Owen Benjamin, losing [[Google|YouTube]], [[Peter Thiel|PayPal]], and DLive, a web developer, [[Matt Gaetz|Matt Kipda]], [[Patrick Casey]], and [[Jake Lloyd]].
 
 ### AF 2021-10-29 0903
 (01:56:55) [[Nicholas J. Fuentes]] ruled out any collaboration with Owen Benjamin, citing [[Benjamin Netanyahu|Benjamin]]'s past threats against [[Fuentes]] and his family, and noted [[Benjamin Netanyahu|Benjamin]] has his own platform on [[Unauthorized TV]] with [[Vox Dei]].

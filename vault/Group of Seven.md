@@ -2,15 +2,15 @@
 #Unknown
 
 ### AF 2025-08-26 1557
-(00:39:31) The [[Government of France|French government]] announced its intention to recognize a [[Palestinian]] state in the [[Gaza Strip]] and the [[Gaza Strip|West Bank]], making it the first G7 country to do so.
+(00:39:31) The [[French government]] announced its intention to recognize a [[Palestinian]] state in the [[Gaza Strip]] and the [[Gaza Strip|West Bank]], making it the first G7 country to do so.
 
 (00:40:02) Over 130 sovereign nations already recognize a [[Palestinian]] state, and [[France]] would be the first G7 country, a major Western power, nuclear power, and permanent [[Security Council]] member, to do so.
 
 ### AF 2025-08-04 1544
-(00:06:08) Prominent members of the G7 group of industrialized economies are moving on an accelerated timeline to recognize [[Gaza Strip|Palestine]]'s statehood at the [[United Nations]] General Assembly, anticipating there may be no [[Gaza Strip|Palestine]] [[left]] to recognize by the end of the year.
+(00:06:08) Prominent members of the G7 group of industrialized economies are moving on an accelerated timeline to recognize [[Palestine]]'s statehood at the [[United Nations]] General Assembly, anticipating there may be no [[Palestine]] [[left]] to recognize by the end of the year.
 
 ### AF 2025-07-25 1539
-(01:04:50) [[Emmanuel Macron]] wrote in a statement on [[Twitter]] that [[France]] would recognize the state of [[Gaza Strip|Palestine]] as part of its commitment to peace in the [[Middle East]], becoming the first G7 nation to do so.
+(01:04:50) [[Emmanuel Macron]] wrote in a statement on [[Twitter]] that [[France]] would recognize the state of [[Palestine]] as part of its commitment to peace in the [[Middle East]], becoming the first G7 nation to do so.
 
 ### AF 2024-04-16 1320
 (48:20:51) [[White House National Security Advisor Jake Sullivan|Jake Sullivan]] stated that [[Joe Biden]] is collaborating with international partners, including G7 nations and bipartisan leaders in [[U.S. Congress|Congress]], to formulate a comprehensive response to [[Iran]]'s attack.
@@ -19,10 +19,10 @@
 (00:42:46) [[Dmytro Kuleba]] demanded new devastating G7 sanctions in response to the [[Bucha]] massacre, which he claimed showed [[Russia]] aimed to eliminate as many [[Ukraine|Ukrainians]] as possible.
 
 ### AF 2022-03-24 0965
-(00:38:38) [[Nicholas J. Fuentes]] reported that [[Volodymyr Zelenskyy|Volodymyr Zelensky]] was scheduled to join [[North Atlantic Treaty Organization|NATO]], G7, and [[Europe|European Union]] summits virtually to seek further aid and sanctions.
+(00:38:38) [[Nicholas J. Fuentes]] reported that [[Volodymyr Zelenskyy|Volodymyr Zelensky]] was scheduled to join [[North Atlantic Treaty Organization|NATO]], G7, and [[European Union]] summits virtually to seek further aid and sanctions.
 
 ### AF 2021-09-29 0887
-(32:01:16) [[Nicholas J. Fuentes]] predicted that rich countries and entities like the G7, [[G20]], [[Europe|European Union]], and big banks would use the [[United Nations]] to bully other nations into accepting an international vaccine standard, enforced through trade and investment restrictions.
+(32:01:16) [[Nicholas J. Fuentes]] predicted that rich countries and entities like the G7, [[G20]], [[European Union]], and big banks would use the [[United Nations]] to bully other nations into accepting an international vaccine standard, enforced through trade and investment restrictions.
 
 ### AF 2021-09-30 0886
 (31:32:640) The [[World Economic Forum]], the [[United Nations]], the [[G20]], or the G7 were expected to create a set of international vaccine passport guidelines with compliance incentives for nations.
@@ -37,7 +37,7 @@
 (54:29:960) [[European Commission]] President [[Ursula von der Leyen]] said the G7 leaders had agreed it was their moral duty to help the [[Afghanistan|Afghan]] people and provide as much support as conditions allowed.
 
 ### AF 2022-04-09 0975
-(41:21:03) [[Joe Biden]] attended [[North Atlantic Treaty Organization|NATO]], [[Europe|European Union]], and G7 summits in [[Europe]], where the main topics were war crimes in [[Ukraine]] and the potential use of chemical weapons by [[Vladimir Putin]].
+(41:21:03) [[Joe Biden]] attended [[North Atlantic Treaty Organization|NATO]], [[European Union]], and G7 summits in [[Europe]], where the main topics were war crimes in [[Ukraine]] and the potential use of chemical weapons by [[Vladimir Putin]].
 
 ### AF 2021-02-15 0761
 (03:04:38) [[Nicholas J. Fuentes]] argued that a global coalition including the [[World Economic Forum]], G7, [[United Nations]], and multinational corporations like [[Walmart]], [[Apple Inc.|Apple]], [[Google]], [[Amazon Inc.|Amazon]], and [[Facebook]] is conspiring to implement vaccine mandates and immunity passports irrespective of national governments.
@@ -52,7 +52,10 @@
 (00:02:06) [[Donald Trump]] canceled a scheduled meeting with [[Vladimir Putin]] at the G20 summit following [[Russian]] intervention in [[Ukraine]].
 
 ### AF 2018-06-08 0181
-(01:25:08) [[Donald Trump|Trump]] advocated for [[Russia]]'s inclusion in the G7 summit, which was being held in [[Dominion of Canada|Canada]] amid trade disputes with the [[United States]] and the [[Europe|European Union]].
+(01:25:08) [[Donald Trump|Trump]] advocated for [[Russia]]'s inclusion in the G7 summit, which was being held in [[Dominion of Canada|Canada]] amid trade disputes with the [[United States]] and the [[European Union]].
 
 ### AF 2018-06-08 0181
 (01:25:18) [[Vladimir Putin]] was in [[China]] receiving a friendship medal from [[Xi Jinping]] during the G7 summit.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:02:59) [[Nicholas J. Fuentes]] reported that the international benchmark oil price fell after the G7 said they were considering intervening and after [[Donald Trump]]'s remarks.

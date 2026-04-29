@@ -11,3 +11,6 @@
 
 ### AF 2017-12-05 0064
 (01:57:26) [[Nicholas J. Fuentes]] called Scientology a false, evil, and likely satanic or Masonic religion used to control people, possibly involving the [[Central Intelligence Agency|CIA]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:31:23) [[Nicholas J. Fuentes]] stated that [[John Mappin]] called him out on [[Twitter]], and when [[Nicholas J. Fuentes]] dismissed him as a [[Scientologist]], Mappin invited him to learn more about Scientology.

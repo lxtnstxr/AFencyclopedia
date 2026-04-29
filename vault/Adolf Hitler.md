@@ -106,7 +106,7 @@
 (02:41:12) [[Nicholas J. Fuentes]] agreed with a comment that Adolf Hitler did not go to the gym.
 
 ### AF 2024-07-05 1349
-(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Sheldon Adelson|Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing Adolf Hitler and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
+(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and [[Marco Rubio]] were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing Adolf Hitler and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
 
 ### AF 2024-07-02 1347
 (01:49:08) [[Nicholas J. Fuentes]] noted that [[Candace Owens]] had begun discussing Adolf Hitler but was waiting for her to acknowledge the "Groypers" and the "[[United States|America]] First" movement before fully endorsing her.
@@ -154,7 +154,7 @@
 (52:29:86) [[Kanye West|Ye]] publicly stated he loved Hitler, called out the "[[Jewish]] media," and said there should be no [[Jews]] in power, yet made a successful comeback without apologizing.
 
 ### AF 2023-10-10 1231
-(01:56:01) [[Nicholas J. Fuentes]] expressed love for a wide array of entities and individuals, including [[black]] people, [[Jews|Jewish people]], [[Israel]], [[Iran]], [[Gaza Strip|Palestine]], [[Palestinian]] Islamic Jihad, [[Mexico]], white people, Hitler, [[Charlie Kirk]], and [[Joe Biden]].
+(01:56:01) [[Nicholas J. Fuentes]] expressed love for a wide array of entities and individuals, including [[black]] people, [[Jews|Jewish people]], [[Israel]], [[Iran]], [[Palestine]], [[Palestinian]] Islamic Jihad, [[Mexico]], white people, Hitler, [[Charlie Kirk]], and [[Joe Biden]].
 
 ### AF 2023-09-27 1224
 (03:42:00) [[Nicholas J. Fuentes]] stated that he watches and appreciates "Hitler edits" and Nazi-themed content on platforms like [[TikTok Inc.|TikTok]], rejecting white guilt over historical figures.
@@ -208,7 +208,7 @@
 (01:13:25) [[Nicholas J. Fuentes]] listed [[Kanye West]], [[Mel Gibson]], [[Mahmoud Ahmadinejad]], [[Charles Lindbergh]], [[Henry Ford]], and Adolf Hitler as examples of wealthy or influential figures who have discussed the "[[Jewish]] question."
 
 ### AF 2023-05-23 1164
-(01:12:46) [[Nicholas J. Fuentes]] recounted that during an appearance on [[Pearl Davis|Pearl]]'s show months prior, he explained his censored status by stating he believes the Holocaust is exaggerated, does not hate Hitler, believes in a [[Jewish]] conspiracy, adheres to race realism, and was present at the [[United States Capitol|Capitol]] on [[January 6th Attack|January 6th]] and the [[City of Charlottesville|Charlottesville rally]].
+(01:12:46) [[Nicholas J. Fuentes]] recounted that during an appearance on [[Pearl Davis|Pearl]]'s show months prior, he explained his censored status by stating he believes the Holocaust is exaggerated, does not hate Hitler, believes in a [[Jewish]] conspiracy, adheres to race realism, and was present at the [[United States Capitol|Capitol]] on [[January 6th Attack|January 6th]] and the [[Charlottesville rally]].
 
 ### AF 2023-05-17 1162
 (30:21:65) [[Nicholas J. Fuentes]] referenced [[Marjorie Taylor Greene]]'s appearance at [[AFPAC|AFPAC 3]], an event he hosts, which generated media coverage linking the event to discussions of [[Russia]] and Hitler.
@@ -349,7 +349,7 @@
 (00:15:32) [[Nicholas J. Fuentes]] compared current [[Republican Party|Republican]] rhetoric on foreign policy to that of the [[Obama]] years, citing comparisons of [[Vladimir Putin|Putin]] to Hitler and accusations of appeasement toward [[Iran]].
 
 ### AF 2021-08-07 0849
-(01:21:26) [[Nicholas J. Fuentes]] recounted a story from his grandmother about her Italian immigrant father, a shoemaker in [[City of Chicago|Chicago]], who used a derogatory Italian phrase referencing Hitler when dealing with [[Jewish]] merchants he found untrustworthy.
+(01:21:26) [[Nicholas J. Fuentes]] recounted a story from his grandmother about her Italian immigrant father, a shoemaker in [[Chicago]], who used a derogatory Italian phrase referencing Hitler when dealing with [[Jewish]] merchants he found untrustworthy.
 
 ### AF 2021-08-07 0849
 (02:01:49) [[Nicholas J. Fuentes]] clarified his earlier sarcastic book recommendation, stating he does not fully endorse "Pinheads and Patriots" due to its esoteric content about Hitler and swastika lore, and called [[Bill O'Reilly]] a brilliant [[Ireland|Irish]]-[[United States|American]] philosopher.
@@ -382,10 +382,10 @@
 (04:08:40) [[Mao Zedong]], responsible for an estimated 70 million deaths, is culturally tolerated with merchandise, while Adolf Hitler and Nazi symbolism are universally condemned and illegal to question in many [[Europe|European]] countries.
 
 ### AF 2019-06-03 0399
-(00:17:04) [[Sadiq Khan]] led large protests in [[City of London|London]] against [[Donald Trump|President Trump]]'s [[state]] visit, comparing him to Adolf Hitler and [[Benito Mussolini]].
+(00:17:04) [[Sadiq Khan]] led large protests in [[London]] against [[Donald Trump|President Trump]]'s [[state]] visit, comparing him to Adolf Hitler and [[Benito Mussolini]].
 
 ### AF 2019-02-08 0328
-(01:23:20) [[Nicholas J. Fuentes]] commented on a resurfaced video from December showing [[Candace Owens]], communications director for [[Turning Point USA]], making remarks about Adolf Hitler and nationalism at an event in [[City of London|London]].
+(01:23:20) [[Nicholas J. Fuentes]] commented on a resurfaced video from December showing [[Candace Owens]], communications director for [[Turning Point USA]], making remarks about Adolf Hitler and nationalism at an event in [[London]].
 
 ### AF 2019-02-08 0328
 (01:25:48) [[Nicholas J. Fuentes]] disputed [[Candace Owens]]'s characterization, arguing that Hitler's expansionist projects like the Anschluss with [[Austria]] and taking the Sudetenland were aimed at uniting historically [[Germany|German]] peoples, not global conquest.
@@ -430,7 +430,7 @@
 (00:05:32) [[Nicholas J. Fuentes]] expressed skepticism about the theory that Adolf Hitler survived World War II and fled to [[South Africa|South America]], citing Hitler's poor health and heavy medication at the war's end.
 
 ### AF 2017-10-27 0041
-(00:13:40) [[Nicholas J. Fuentes]] stated that in 1933, international [[Jews|Jewry]] declared a boycott of [[Germany]] after Hitler was appointed Chancellor, and that Zionists later established a working economic relationship with the [[Nazi government]] to facilitate [[Jews|Jewish]] emigration to [[Gaza Strip|Palestine]].
+(00:13:40) [[Nicholas J. Fuentes]] stated that in 1933, international [[Jews|Jewry]] declared a boycott of [[Germany]] after Hitler was appointed Chancellor, and that Zionists later established a working economic relationship with the [[Nazi government]] to facilitate [[Jews|Jewish]] emigration to [[Palestine]].
 
 ### AF 2017-10-06 0026
 (00:38:18) [[Nicholas J. Fuentes]] listed [[Patrick Buchanan|Pat Buchanan]], [[Barry Goldwater]], [[Ronald Reagan]], [[Gerald Ford]], [[Theodore Roosevelt]], [[Benito Mussolini]], and [[Oswald Mosley]] as historical right-wing leaders whose downfalls could provide lessons, while explicitly avoiding mention of Adolf Hitler.
@@ -440,3 +440,60 @@
 
 ### AF 2017-09-15 0011
 (00:41:00) [[Nicholas J. Fuentes]] argued that Hitler and National Socialism represent a characteristically [[Germany|German]] form of ethno-nationalism that cannot be replicated in [[United States|America]], where a traditionalist movement must be based on quintessentially [[United States|American]] symbols and [[heritage]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:07:33) A recent focus group of 20 Gen Z [[Republican Party|Republican]]s, conducted by the [[Manhattan Institute]], included a participant [[who]] expressed support for "national sovereignty" and stated that Adolf Hitler was a nationalist [[who]] wanted to "take [[Germany]] back for [[Germany|Germans]]," and advocated for a similar approach in [[United States|America]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:21:05) [[Nicholas J. Fuentes]] stated that [[Kanye West]] called out [[Israel]], went on [[Alex Jones]]' show, said he loved Hitler, and lost billions, changing the conversation.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:33:10) [[Nicholas J. Fuentes]] defended his statement that [[Jeffrey Epstein]] is "cool," explaining that being an evil mastermind with a private island and jet is objectively cool, just like Hitler's empire was cool.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(02:57:08) [[Nicholas J. Fuentes]] stated that the goal is to "delegitimize the narrative" built around Hitler by taking his symbol and name, pantomiming them, and creating a parody to break the taboo.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:06:28) [[Nicholas J. Fuentes]] explained that the figure of 12 million deaths attributed to Hitler is the total number of genocide casualties, including groups like the "gypsies," not just the 6 million [[Jews|Jewish]] deaths.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:43:01) [[Nicholas J. Fuentes]] laughed at a joke suggesting Adolf Hitler asked if [[Israel|Poland]] had [[Catholic Church|Catholic]] Slavs in the [[Germany|German]] empire, and [[Joseph Stalin]] asked if they would take over [[Germany]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:45:00) [[Nicholas J. Fuentes]] mocked the conspiracy theories, comparing them to a courtroom scene where a witness is called from purgatory, and stated that antisemitism “used to be smart” and was an elite club including [[Charles Lindbergh]], [[Henry Ford]], [[Mel Gibson]], [[Richard Wagner]], and Hitler.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:36:18) [[Nicholas J. Fuentes]] criticized people [[who]] post Hitler edit memes but then criticize [[Donald Trump|Trump]] for invading a neighboring [[country]] and killing a protester, calling them “completely delusional.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:37:06) [[Nicholas J. Fuentes]] stated that these people do not know anything about Hitler, they “got red pilled a year ago” and the extent of their education is doom-scrolling on Instagram and liking Hitler speech edits.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:37:43) [[Nicholas J. Fuentes]] stated that these people have their own fake World War II narrative where Hitler was a “center-left economic populist” [[who]] wanted to “leave everybody alone” and free Slavic people from [[Jews|Jewish]] communism.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:38:32) [[Nicholas J. Fuentes]] argued that Hitler wanted to take over half of [[Europe]] and settle it with racially superior Aryans, and that these people are “bad Hitler enthusiasts” [[who]] do not understand their own lore.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:15:22) [[Nicholas J. Fuentes]] reported that [[Chuck Schumer]], the [[Senate]] Minority Leader, introduced a resolution in the [[United States Senate]] to condemn [[Nicholas J. Fuentes]] for his comments about Adolf Hitler.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:58:53:17) [[Nicholas J. Fuentes]] stated that clips of [[Paul Miller|Gypsy Crusader]] and [[Artificial Intelligence|AI]]-translated Hitler speeches go mega viral on [[TikTok Inc.|TikTok]] and [[Instagram]], showing people are "past that sort of thing."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:59:14:46) [[Piers Morgan]] asked [[Nicholas J. Fuentes]] if he affirms [[the Holocaust]] and if Hitler is cool.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:59:33:96) [[Nicholas J. Fuentes]] stated that he finds Hitler cool because of video edits set to music showing the parades, military, and charisma, comparing it to how [[Darth Vader]] is cool.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:01:17:90) [[Nicholas J. Fuentes]] explained that the appeal of Hitler represents white people "without limits, without restraint," and without the "self-imposed guilt" and shame of modern society.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:04:47:76) [[Nicholas J. Fuentes]] argued that people are drawn to Hitler edits because they represent what it would be like if white people "went hard as fuck" and did not have to pander or apologize.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:17:52:41) [[Nicholas J. Fuentes]] stated that jokes and statements about Hitler being cool are a way of destroying the "secular [[religion]] of liberalism and [[the Holocaust]]."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:52:24) [[Nicholas J. Fuentes]] appeared on a show owned by [[Rupert Murdoch]] with [[Piers Morgan]], [[who]] attempted to attack him on the topics of Adolf Hitler, [[the Holocaust]], and racism.

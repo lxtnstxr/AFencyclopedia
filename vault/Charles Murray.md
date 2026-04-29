@@ -27,10 +27,10 @@
 (01:23:08:99) [[Nicholas J. Fuentes]] referenced Charles Murray's analysis of the meritocratic elite, where high-IQ individuals cluster in cities after college, leading to a lack of social mobility and geographic polarization.
 
 ### AF 2017-09-21 0015
-(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[City of Berkeley|Berkeley]] event that included [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], Charles Murray, [[Heather Mac Donald]], [[Katie Hopkins]], [[Lucian Wintrich]], [[Mike Cernovich]], and [[Jordan Peterson]].
+(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[Berkeley]] event that included [[Steve Bannon]], [[Ann Coulter]], Charles Murray, [[Heather Mac Donald]], [[Katie Hopkins]], [[Lucian Wintrich]], [[Mike Cernovich]], and [[Jordan Peterson]].
 
 ### AF 2017-09-21 0015
-(00:53:31) [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], Charles Murray, [[Heather Mac Donald]], [[James Damore]], and [[Lucian Wintrich]] all dropped out of [[Milo Yiannopoulos]]'s [[City of Berkeley|Berkeley]] free speech event, leaving only four confirmed speakers.
+(00:53:31) [[Steve Bannon]], [[Ann Coulter]], Charles Murray, [[Heather Mac Donald]], [[James Damore]], and [[Lucian Wintrich]] all dropped out of [[Milo Yiannopoulos]]'s [[Berkeley]] free speech event, leaving only four confirmed speakers.
 
 ### AF 2017-09-21 0015
 (02:19:56) [[Nicholas J. Fuentes]] recommended [[Ann Coulter]]'s "Adios, [[United States|America]]," [[Patrick Buchanan|Pat Buchanan]]'s "The Death of the [[Kanye West|West]]," Charles Murray's "The Bell Curve," and the works of [[Sam Francis]], [[Samuel Huntington|Samuel P. Huntington]], [[Robert D. Kaplan]], and [[Friedrich Nietzsche]] as entry-level reading before more difficult authors like [[Julius Evola]].

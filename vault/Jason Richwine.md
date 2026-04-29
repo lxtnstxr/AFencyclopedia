@@ -15,7 +15,7 @@
 (56:34:00) Jason Richwine and [[Sam Huntington]]'s research contradicts [[Charlie Kirk]]'s claim that immigrant voting patterns normalize after two or three generations.
 
 ### AF 2019-11-05 0492
-(01:19:33) [[Nicholas J. Fuentes]] recounted being attacked online as "controlled opposition," citing a tweet where he suggested [[Steven Crowder|Steve Bannon]] should lead a think tank and that Jason Richwine and [[Darren Beattie]] should be hired.
+(01:19:33) [[Nicholas J. Fuentes]] recounted being attacked online as "controlled opposition," citing a tweet where he suggested [[Steve Bannon]] should lead a think tank and that Jason Richwine and [[Darren Beattie]] should be hired.
 
 ### AF 2019-01-04 0306
 (00:49:58) [[Nicholas J. Fuentes]] argued that while IQ may not be the ultimate measure, the disparities it highlights resonate with observable reality and the experiences of people like [[Charles Murray]], Jason Richwine, [[Jared Taylor]], and [[Jordan Peterson]].

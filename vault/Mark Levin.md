@@ -61,7 +61,7 @@
 (40:50:80) [[Nicholas J. Fuentes]] claimed that nobody under 50 knows who Mark Levin is, nobody watches [[Ben Shapiro]] anymore, and people are watching [[Candace Owens]] while his clips go viral with millions of followers.
 ### AF 2025-11-06 1593
 (07:15:95) Mark Levin and [[Ben Shapiro]] led a campaign to cancel [[Tucker Carlson]] following his interview with [[Nicholas J. Fuentes]].
-(21:26:21) [[Nicholas J. Fuentes]] stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Sheldon Adelson|Miriam Adelson]], and Mark Levin used their influence in [[Wall Street]], [[Silicon Valley]], and politics to benefit themselves and [[Israel]] at the expense of [[United States|Americans]].
+(21:26:21) [[Nicholas J. Fuentes]] stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Miriam Adelson]], and Mark Levin used their influence in [[Wall Street]], [[Silicon Valley]], and politics to benefit themselves and [[Israel]] at the expense of [[United States|Americans]].
 ### AF 2025-11-10 1595
 (01:33:40) [[Ben Shapiro]] and Mark Levin advocated for a strategy of "gatekeeping" within political institutions like the [[Heritage Foundation]] and congressional offices to exclude individuals critical of [[Israel]].
 
@@ -219,3 +219,105 @@
 
 ### AF 2017-10-04 0024
 (04:58:53) Mark Levin, a [[Jews|Jewish]] pro-[[Israel]] commentator, questioned why the [[United States]] should become a white minority [[country]], which [[Nicholas J. Fuentes]] cited as an early "red pill" moment for him.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:39:30.960) The only remaining supporters of [[Donald Trump|MAGA]], according to [[Nicholas J. Fuentes]], are individuals like Mark Levin, [[Randy Fine]], and [[Lindsey Graham]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:05:59.420) [[Donald Trump]] is damaging the [[Donald Trump|MAGA]] movement by using [[Cozy.tv|Truth Social]] to declare that supporters of Mark Levin or his war in [[Iran]] are not [[Donald Trump|MAGA]], and that [[Tucker Carlson]], [[Megyn Kelly|Megan Kelly]], [[Alex Jones]], [[Candace Owens]], and [[Marjorie Taylor Greene]] are "idiots."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:07:04.080) A genuine "[[America First]]" [[president]] would not promote figures like Mark Levin and [[Lindsey Graham]], prosecute a war in [[Iran]], or denigrate "[[America First]]" commentators and a former congresswoman.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:09:31.690) [[Donald Trump]] dictates that the "law of the land" includes supporting Mark Levin, [[Lindsey Graham]], a war with [[Iran]], and withholding the [[Jeffrey Epstein|Epstein]] files, along with pursuing "criminal illegals" but opposing mass deportations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:10.630) [[Donald Trump]] is explicitly removing his former supporters from the [[Donald Trump|MAGA]] movement by name for opposing the war in [[Iran]], while promoting figures like Mark Levin, [[Laura Loomer]], and [[Lindsey Graham]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:14:39.040) As of 2026, [[Donald Trump]]'s [[Donald Trump|MAGA]] movement advocates for war with [[Iran]], opposing the release of the [[Jeffrey Epstein|Epstein]] files, and supports figures like Mark Levin, [[Laura Loomer]], and [[Lindsey Graham]] over [[Tucker Carlson]], [[Candace Owens]], [[Megyn Kelly]], and [[Alex Jones]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(01:07:22) [[Nicholas J. Fuentes]] advised Groypers not to allow Mark Levin to include their names on a list.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:33:40) Key individuals [[who]] hold influence with [[Donald Trump]] include Mark Levin, [[Laura Loomer]], [[Ben Shapiro]], [[Jared Kushner]], [[William Ackman|Bill Ackman]], [[Steve Wittkoff|Steve Witkoff]], and [[Howard Lutnick]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:33:33) [[Nicholas J. Fuentes]] described the current "[[Donald Trump|MAGA]] movement" as comprising [[Donald Trump]], "idiots in the cabinet" like [[JD Vance|J.D. Vance]], and "Zionists like Mark Levin and [[Laura Loomer]]" [[who]] he views as "pure evil" and "demonic."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:40:03) [[Sean Hannity]] and Mark Levin retain access to [[Donald Trump]], unlike [[Alex Jones]] after his 2015 interview, according to [[Nicholas J. Fuentes]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:44:16) [[Nicholas J. Fuentes]] stated that figures like Mark Levin, whom [[Donald Trump]] has anointed as a spokesperson, are "filthy, diabolical, hateful, and demonic."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:12:37) Mark Levin and [[Benjamin Netanyahu|Netanyahu]] are reportedly telegraphing that a "major escalation" by the [[United States]] is imminent in the conflict with [[Iran]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:05:46) Mark Levin posted a tweet addressed to [[Nicholas J. Fuentes]] saying "hey, [[little]] Adolf, get out of my [[country]]."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:05:56) [[Nicholas J. Fuentes]] responded to Mark Levin's tweet by posting "I'm not in [[Israel]]."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:06:07) Mark Levin posted the same tweet to [[Nicholas J. Fuentes]]—"get out of my [[country]]"—five additional times.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:44:37) [[Donald Trump]] encouraged [[United States|Americans]] to watch a show on [[Fox News]] by Mark Levin, during which Levin argued the [[United States]] should deploy specialized ground troops to take [[Iran]]'s uranium stockpile.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:52:15) [[Nicholas J. Fuentes]] identified Mark Levin as a key propagandist for the war [[who]] is ceaselessly promoted by [[Donald Trump]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:55:16) [[Isaac Perlmutter|Ike Perlmutter]] and Mark Levin had lunch with [[Donald Trump]] at the [[White House]] one week before the first strikes against [[Iran]].
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:56:03) Mark Levin declared war on [[Tucker Carlson]], [[JD Vance]], and [[Nicholas J. Fuentes]] in November.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:44:00) Mark Levin is, along with [[Matt Walsh]], a chief propagandist promoting the war with [[Iran]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:18:42) Mark Levin, speaking at a [[Republican Jewish Coalition]] summit in [[Las Vegas]], stated that organized [[Jews|Jewry]] would be watching [[who]] associates with [[who]] and make their decisions for 2028.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:19:02) Mark Levin's comments were interpreted as a demand for [[JD Vance]] to fire [[Buckley Carlson]] and disavow [[Tucker Carlson]] and the Gropers, or lose [[Jews|Jewish]] backing.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:23:31) If [[JD Vance]] could end the war, [[Nicholas J. Fuentes]] stated that was a good thing, and noted that if [[Miriam Adelson]], [[Rupert Murdoch]], and Mark Levin were against him, that was also a good thing for [[JD Vance|Vance]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:27:42) Mark Levin said at the [[Republican Jewish Coalition]] in November that if [[JD Vance]] did not disavow [[Tucker Carlson]] and [[Nicholas J. Fuentes]], [[Jews]] would make decisions about 2028.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:35:19) [[Joe Kent]] went on Mark Levin’s show and said, “I never said we should stop supporting [[Israel]]. I just said we should stop going to war.”
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:17:10.000) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu|Bibi Netanyahu]] gave [[Donald Trump|Trump]] a hug at [[Mar-a-Lago]], and Mark Levin called [[Donald Trump|Trump]] the first [[Jews|Jewish]] [[president]] of the [[United States]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:45:20.000) [[Nicholas J. Fuentes]] concluded that [[Donald Trump]] works for [[Larry Fink]], [[Jamie Dimon]], [[Mary Madelson]], and Mark Levin.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:11:38) [[Nicholas J. Fuentes]] stated that [[Laura Loomer]], Mark Levin, and [[Dave Rubin]] were claiming that anyone supporting a war with [[Iran]] was never part of the [[Donald Trump|MAGA]] movement.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:06:39:07) [[Nicholas J. Fuentes]] stated the [[Republican Party]] is the party of [[Miriam Adelson]], [[Ben Shapiro]], Mark Levin, and [[Laura Loomer]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:55:08) [[Nicholas J. Fuentes]] said he gets the same feeling of hatred from Mark Levin and [[Roseanne Barr]] as he does from [[Hasan Piker]] and [[Ilhan Omar]], stating "they all hate [[us]]."
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:05:25) [[Nicholas J. Fuentes]] described [[Benjamin Netanyahu]], [[Elon Musk]], [[a16z|Andreessen Horowitz]], [[Griffin|Ken Griffin]], [[Marc Andreessen|Mark Andreessen]], [[Timothy Mellon|Tim Mellon]], [[Miriam Adelson]], and Mark Levin as "happy as a fucking clam" with the [[Donald Trump|Trump]] administration.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:06:23) [[Nicholas J. Fuentes]] stated that ultra-wealthy individuals including [[Benjamin Netanyahu]], [[Elon Musk]], [[Marc Andreessen|Mark Andreessen]], [[Griffin|Ken Griffin]], [[Timothy Mellon|Tim Mellon]], [[Miriam Adelson]], and Mark Levin are receiving personal phone calls from [[Donald Trump]] and directing his policy decisions.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:41:05) Mark Levin and [[Roseanne Barr]] are hateful people.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:41:31) [[Nicholas J. Fuentes]] described Mark Levin as one of the most hateful [[Nazis]] he has ever heard of.

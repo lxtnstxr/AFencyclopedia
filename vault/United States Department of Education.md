@@ -15,7 +15,7 @@
 (00:02:22) The [[U.S. Department of State]], the United States Department of Education, and the [[U.S. Department of Homeland Security]] have implemented similar rules conditioning federal support on a pledge of allegiance to [[Israel]].
 
 ### AF 2025-08-04 1544
-(01:00:25) The [[Donald Trump|Trump]] administration went to war with six out of eight [[Ivy League]] universities, seizing their federal funding unless they gave settlements to [[Jewish]] faculty, prevented pro-[[Gaza Strip|Palestine]] protests, installed an anti-Semitism monitor, and allowed oversight of [[Middle East]] Studies Departments by the United States Department of Education.
+(01:00:25) The [[Donald Trump|Trump]] administration went to war with six out of eight [[Ivy League]] universities, seizing their federal funding unless they gave settlements to [[Jewish]] faculty, prevented pro-[[Palestine]] protests, installed an anti-Semitism monitor, and allowed oversight of [[Middle East]] Studies Departments by the United States Department of Education.
 
 ### AF 2025-07-28 1540
 (01:09:79) The settlement between [[Colombia]] and the [[White House]] subjects the university's international relations curriculum pertaining to [[Israel]] to oversight by the United States Department of Education and the [[U.S. Department of Justice]].
@@ -80,4 +80,7 @@
 (01:39:08) Under the executive order, the U.S. Department of Education will use Title VI of the Civil Rights Act of 1964 to penalize colleges for discrimination based on national origin, applying this to [[Jews|Jewish]] students as a protected class.
 
 ### AF 2018-09-26 0248
-(00:42:53) The [[Senate]] passed a $853 billion "minibus" spending bill by a 97-3 vote to fund the government through December 7th, allocating full-year funding for the [[U.S. Department of Defense|Department of Defense]], [[Department of Labor]], Department of Education, and [[Health and Human Services|HHS]].
+(00:42:53) The [[Senate]] passed a $853 billion "minibus" spending bill by a 97-3 vote to fund the government through December 7th, allocating full-year funding for the [[U.S. Department of Defense|Department of Defense]], [[Department of Labor]], Department of Education, and [[HHS]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:25:18) The Department of Education wielded grants and loans to get faculty fired and policies changed at universities.

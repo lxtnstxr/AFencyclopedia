@@ -76,3 +76,6 @@
 
 ### AF 2017-12-11 0068
 (00:35:00) A special [[Senate]] election for the seat of former Senator Jeff Sessions in [[Alabama]] was scheduled for the following day, featuring [[Republican Party|Republican]] candidate [[Roy Moore]] against [[Democratic Party|Democrat]] [[Doug Jones]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:56:14.960) Many close allies of [[Donald Trump]], including Jeff Sessions, [[Ann Coulter]], [[Steve Bannon]], [[Michael Flynn]], and his campaign manager (whose name is not specified), faced legal issues, financial ruin, or were discarded after supporting him.

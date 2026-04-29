@@ -24,7 +24,7 @@
 (00:20:46) Police arrested Thomas Rousseau, the founder of [[Patriot Front]] according to the [[Anti-Defamation League|ADL]], along with the other men, and found a smoke grenade, shields, and shin guards in the group's possession.
 
 ### AF 2022-01-10 0932
-(01:41:34) [[Nicholas J. Fuentes]] argued that [[Vanguard America]], as the group [[James Fields]] belonged to, had immense civil and criminal liability after [[City of Charlottesville|Charlottesville]], yet reformed as [[Patriot Front]] with new branding and leadership under Thomas Rousseau without facing charges, which he found highly suspicious.
+(01:41:34) [[Nicholas J. Fuentes]] argued that [[Vanguard America]], as the group [[James Fields]] belonged to, had immense civil and criminal liability after [[Charlottesville]], yet reformed as [[Patriot Front]] with new branding and leadership under Thomas Rousseau without facing charges, which he found highly suspicious.
 
 ### AF 2022-01-10 0932
-(01:45:55) [[Nicholas J. Fuentes]] suggested that Thomas Rousseau, the leader of [[Patriot Front]] who was 18 and a member of [[Vanguard America]] at the [[time]] of [[City of Charlottesville|Charlottesville]], could have been compromised by the government to avoid legal consequences, providing an "in" for federal infiltration.
+(01:45:55) [[Nicholas J. Fuentes]] suggested that Thomas Rousseau, the leader of [[Patriot Front]] who was 18 and a member of [[Vanguard America]] at the [[time]] of [[Charlottesville]], could have been compromised by the government to avoid legal consequences, providing an "in" for federal infiltration.

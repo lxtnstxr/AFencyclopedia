@@ -80,7 +80,7 @@
 (00:27:02) [[Nicholas J. Fuentes]] stated that [[Sam Francis]] was fired from the [[Washington Times]] after speaking at a Jared Taylor conference, following what he characterized as false reporting by [[Dinesh D'Souza]].
 
 ### AF 2022-08-11 1045
-(12:52:20) [[Nicholas J. Fuentes]] recounted meeting [[Richard Spencer]], [[Patrick Casey]], and Jared Taylor at a gathering at [[Richard Spencer|Spencer]]'s townhouse in [[City of Alexandria|Alexandria]], which attendees called "the hate lair," after a [[U.S. Inc.]] conference in September 2017.
+(12:52:20) [[Nicholas J. Fuentes]] recounted meeting [[Richard Spencer]], [[Patrick Casey]], and Jared Taylor at a gathering at [[Richard Spencer|Spencer]]'s townhouse in [[Alexandria]], which attendees called "the hate lair," after a [[U.S. Inc.]] conference in September 2017.
 
 ### AF 2022-08-11 1045
 (13:24:20) [[Nicholas J. Fuentes]] stated that Jared Taylor offered him a job at [[American Renaissance]] on the spot after his speech at the [[U.S. Inc.]] conference, but he declined to avoid losing his [[Google|YouTube]] channel and to focus on his own show.
@@ -197,7 +197,7 @@
 (00:55:00) A caller referenced Jared Taylor meeting with leaders of far-right militant groups in [[Ukraine]] that were being funded by [[Vladimir Putin|Putin]] to fight against the [[Ukraine|Ukrainians]].
 
 ### AF 2019-01-28 0319
-(00:30:38) [[Nicholas J. Fuentes]] attended a secret weekend meetup in downtown [[City of Chicago|Chicago]] with [[Patrick Casey]] of [[American Identity Movement|Identity Europa]] and Jared Taylor of [[American Renaissance]], where he participated in a speaking engagement.
+(00:30:38) [[Nicholas J. Fuentes]] attended a secret weekend meetup in downtown [[Chicago]] with [[Patrick Casey]] of [[American Identity Movement|Identity Europa]] and Jared Taylor of [[American Renaissance]], where he participated in a speaking engagement.
 
 ### AF 2019-01-04 0306
 (00:49:58) [[Nicholas J. Fuentes]] argued that while IQ may not be the ultimate measure, the disparities it highlights resonate with observable reality and the experiences of people like [[Charles Murray]], [[Jason Richwine]], Jared Taylor, and [[Jordan Peterson]].
@@ -212,7 +212,7 @@
 (01:04:20) [[Nicholas J. Fuentes]] expressed respect for Jared Taylor and [[Ron Paul|Ramsey Paul]] as valuable figures in the nationalist movement.
 
 ### AF 2018-12-10 0292
-(00:09:00) [[Nicholas J. Fuentes]] expressed personal satisfaction at [[Gavin McInnes]]'s deplatforming, citing McInnes's past refusal to collaborate or signal-boost figures like himself and Jared Taylor, and his attacks on attendees of the [[City of Charlottesville|Charlottesville rally]].
+(00:09:00) [[Nicholas J. Fuentes]] expressed personal satisfaction at [[Gavin McInnes]]'s deplatforming, citing McInnes's past refusal to collaborate or signal-boost figures like himself and Jared Taylor, and his attacks on attendees of the [[Charlottesville rally]].
 
 ### AF 2018-12-10 0292
 (00:18:40) [[Nicholas J. Fuentes]] accused figures on [[Blaze Media|CRTV]] and [[The Rebel]] of watching for years as individuals like Jared Taylor, [[Richard Spencer]], and himself were deplatformed without raising significant protest, only to become targets themselves.

@@ -36,8 +36,8 @@
 (06:41:00) [[Nicholas J. Fuentes]] argued that talk of ceasefires and negotiations served to buy [[time]] for Israel to maneuver its forces and achieve its broader strategic objectives across the [[Middle East]].
 (07:08:00) [[Nicholas J. Fuentes]] stated that Israel would not end the war until it achieved the annexation of [[Gaza Strip|Gaza]] and the [[Gaza Strip|West Bank]], the defeat of [[Hezbollah]] and the [[Bashar al-Assad|Assad]] regime, the neutralization of [[Shiite|Shiites]] in [[Iraq]], and regime change in [[Iran]].
 (07:55:00) Israel's strike on [[Qatar]] was seen as empowering hardliners within [[Iran]] who argue the West cannot be trusted, thereby sabotaging a diplomatic breakthrough between [[Iran]] and [[Europe]].
-(08:08:00) [[France]], the [[United Kingdom]], [[Canada]], [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Gaza Strip|Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against Israel's annexation plans.
-(08:23:00) Israel was preparing an offensive in [[Gaza Strip|Gaza City]] to annex the territory before potential [[United Nations]] recognition of [[Gaza Strip|Palestine]] could take effect.
+(08:08:00) [[France]], the [[United Kingdom]], [[Canada]], [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against Israel's annexation plans.
+(08:23:00) Israel was preparing an offensive in [[Gaza Strip|Gaza City]] to annex the territory before potential [[United Nations]] recognition of [[Palestine]] could take effect.
 (08:42:00) [[Nicholas J. Fuentes]] argued that Israel consistently sabotages diplomatic breakthroughs with provocative strikes, as seen with the attack on [[Qatar]] during ceasefire talks and earlier with strikes on [[Iran]] when the [[nuclear deal]] was close to revival.
 (09:05:00) [[Nicholas J. Fuentes]] predicted that if [[Iran]] falls, Israel will become the uncontested regional hegemon of the [[Middle East]], controlling the [[region]]'s wealth and trade routes.
 (09:18:00) [[Nicholas J. Fuentes]] advocated that the [[United States]] should treat Israel like a strategic competitor, such as [[China]] or the [[Russian Federation]], and even suggested providing [[Iran]] with a nuclear weapon as a hedge against Israeli power.
@@ -72,7 +72,7 @@
 (01:59:54) Israel sought to influence [[Charlie Kirk]] because of his personal relationship with [[Donald Trump]], his role as a fundraiser for the [[Republican Party|GOP]], and his leadership of the largest conservative youth organization in [[America]].
 (02:00:44) [[Charlie Kirk]] declined [[Benjamin Netanyahu|Netanyahu]]'s offer of $150 million, knowing the money came with strings attached requiring him to work for Israel.
 (02:01:13) [[William Ackman|Bill Ackman]] is a [[Wall Street]] [[Jewish]] billionaire, a friend of [[Larry Fink]] of [[BlackRock]], and is married to an Israeli woman who received money from [[Jeffrey Epstein]].
-(02:01:55) [[William Ackman|Bill Ackman]] contributed to the firing of [[Donald Trump|the president]] of [[Harvard University]] following anti-Israel protests on campus and shifted his political donations to support [[Donald Trump]] after the [[October 7th Attack]].
+(02:01:55) [[William Ackman|Bill Ackman]] contributed to the firing of [[the president]] of [[Harvard University]] following anti-Israel protests on campus and shifted his political donations to support [[Donald Trump]] after the [[October 7th Attack]].
 (02:05:12) [[William Ackman|Bill Ackman]] allegedly menaced [[Charlie Kirk]] over his refusal to take [[Benjamin Netanyahu|Netanyahu]]'s money and support Israel's war, creating a conflict of interest with his reward offer.
 (02:10:51) [[Nicholas J. Fuentes]] demanded that the [[Donald Trump|Trump]] government investigate whether Israel or leftists were behind [[Charlie Kirk]]'s assassination to understand the threat faced by [[American]] conservatives.
 (02:15:15) [[Nicholas J. Fuentes]] stated that Israel takes an interest in every [[American]] as long as [[Americans]] have a voice, vote, and say over [[U.S.]] government policy, money, and military actions that affect Israel's accountability.
@@ -146,7 +146,7 @@
 (56:21:29) [[Nicholas J. Fuentes]] expressed skepticism about [[Donald Trump|Trump]]'s ability to restrain Israel, citing a historical record where [[U.S.]] presidents have failed to stop Israeli actions.
 (57:08:81) [[Nicholas J. Fuentes]] argued that if no country on [[earth]] can tell Israel what to do, it logically implies Israel controls the whole world.
 (59:09:19) Israel's strategic objective in its war is to formally annex [[Gaza Strip|Gaza]] and the [[Gaza Strip|West Bank]], eradicating [[Palestinian]] administrative authority and creating a "greater Israel."
-(01:00:48:89) Israel's official government papers and strategic doctrine state the objective is to eradicate [[Gaza Strip|Palestine]], ethnically cleanse [[Gaza Strip|Gaza]], and annex the [[Gaza Strip|West Bank]].
+(01:00:48:89) Israel's official government papers and strategic doctrine state the objective is to eradicate [[Palestine]], ethnically cleanse [[Gaza Strip|Gaza]], and annex the [[Gaza Strip|West Bank]].
 (01:02:00:97) The war is reaching its terminal stage, with Israel authorizing a plan to take over the entire [[Gaza Strip]] and reinvading [[Gaza Strip|Gaza City]].
 (01:02:40:41) In response to Israeli plans, [[Europe|Europeans]] are trying to stop the annexation.
 (01:03:04:87) Properly understood, Israel is committing genocide and ethnic cleansing against [[Palestinians]] in [[Gaza Strip|Gaza]] and erasing a sovereign state.
@@ -159,7 +159,7 @@
 (01:10:04:81) Israeli coalition government members are drafting plans to introduce annexation of the [[Gaza Strip|West Bank]] in the Knesset next week.
 (01:10:27:89) [[Europe|Europeans]] are challenging Israel, and Israel is calling their bluff, preparing to annex despite threats of it being considered an illegal war crime.
 (01:10:45:29) [[The Times of Israel]] reported that [[Itamar Ben-Gvir]], Israel's far-right national security minister, said recognition moves demanded immediate countermeasures, including annexation.
-(01:12:16:13) Israel is now completely diplomatically isolated, with over 130 countries recognizing [[Gaza Strip|Palestine]], including two permanent [[United Nations Security Council|UN Security Council]] members and nuclear powers.
+(01:12:16:13) Israel is now completely diplomatically isolated, with over 130 countries recognizing [[Palestine]], including two permanent [[United Nations Security Council|UN Security Council]] members and nuclear powers.
 (01:12:45:49) [[Giorgia Meloni]] said [[Italy]] will put sanctions on Israel, and the [[European Union]] is drafting sanctions.
 (01:13:13:65) [[Spain]] has imposed an arms embargo on Israel, and other countries are reviewing intelligence and security relationships.
 (01:13:36:45) The [[United Arab Emirates]] said if Israel annexes the [[Gaza Strip|West Bank]], the [[Abraham Accords]] are over.
@@ -563,7 +563,7 @@
 (00:15:30) [[Nicholas J. Fuentes]] claimed the organized response from the [[Jewish community]] to any criticism of Israel or assertion that the [[United States]] is a [[Christianity|Christian]] nation is to label critics as anti-Semitic, [[Jews|Jew]]-haters, reprehensible, Nazis, and deserving of death.
 (00:22:00) [[Josh Hammer]] previously worked for [[The Daily Wire]], works at [[Newsweek]], and published a book about Israel and the West.
 (00:22:20) [[Nicholas J. Fuentes]] described [[Josh Hammer]] as Israel's chief propagandist in the [[United States]] and a supporter of every Israeli war and massacre of Arabs and Muslims.
-(00:23:40) [[Nicholas J. Fuentes]] characterized [[United States|American]] politics as a debate between pro-Israel [[Jews]] on the [[Republican Party|Republican]] side, like [[Sheldon Adelson|Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], [[Larry Ellison]], [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and [[Michael Bloomberg]].
+(00:23:40) [[Nicholas J. Fuentes]] characterized [[United States|American]] politics as a debate between pro-Israel [[Jews]] on the [[Republican Party|Republican]] side, like [[Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], [[Larry Ellison]], [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and [[Michael Bloomberg]].
 (00:24:20) [[Nicholas J. Fuentes]] stated the overriding mission of right-wing [[Jews]] is to use [[United States|America]] to help Israel with aid and wars, while [[left]]-wing [[Jews]] aim to make [[United States|America]] minority white.
 (00:29:00) [[Tucker Carlson]] was fired from [[Fox News]] and [[Nicholas J. Fuentes]] was repeatedly canceled for challenging the dogma on Israel.
 (00:31:00) [[Nicholas J. Fuentes]] argued that for ten years, the conservative movement talked about fighting cancel culture while viciously guarding the [[gates]] of acceptable discourse, particularly on criticism of Israel, opposition to mass migration, and the reality of race.
@@ -571,7 +571,7 @@
 (00:47:10) [[Josh Hammer]] wrote that [[Tucker Carlson]] and [[Nicholas J. Fuentes]] refuse to concede that an [[United States|American]] might support close [[United States|U.S]].-Israel relations due to an earnest assessment that it furthers [[United States|American]] interests, because it would undermine their foundational assertion that [[Jews]] are responsible for all of [[United States|America]]'s ills.
 (00:51:00) [[Nicholas J. Fuentes]] stated [[Josh Hammer]] is not an [[United States|American]] because his wife is not [[United States|American]], he does not look or sound [[United States|American]], and he will never put [[United States|America]] first as long as he is loyal to Israel.
 (00:52:50) [[Nicholas J. Fuentes]] stated the [[United States]] is done with the [[Jewish]] oligarchy, slavish surrender to Israel, wars, foreign aid, policing of anti-Semitism, and the Holocaust religion.
-(00:53:40) [[Nicholas J. Fuentes]] stated that in 10, 20, or 30 years, there will only be more people like him, and even [[JD Vance]] had to pander to them at Turning Point [[United States|USA]] by answering questions about [[Palantir Technologies|Palantir]], [[Sheldon Adelson|Miriam Adelson]], and whether [[Donald Trump]] obeys Israel.
+(00:53:40) [[Nicholas J. Fuentes]] stated that in 10, 20, or 30 years, there will only be more people like him, and even [[JD Vance]] had to pander to them at Turning Point [[United States|USA]] by answering questions about [[Palantir Technologies|Palantir]], [[Miriam Adelson]], and whether [[Donald Trump]] obeys Israel.
 (00:54:00) [[Nicholas J. Fuentes]] told [[Josh Hammer]], [[Mark Levin]], [[Ben Shapiro]], and [[Laura Loomer]] to get on board with the [[United States|America]] First vision or leave the [[United States]] for Israel.
 (01:04:10) [[Nicholas J. Fuentes]] stated that evangelical Protestants in the Southern [[United States]] earnestly support Israel, but when they go on pilgrimages there, they get spit on and attacked, and opinion polls show Israelis hate them.
 (01:05:20) [[Nicholas J. Fuentes]] questioned when [[Matt Walsh]] and [[Michael Knowles]] would stand up for themselves and stop being pushed around and owned by pro-Israel voices.
@@ -585,7 +585,7 @@
 (00:19:04) [[JD Vance]] stated that the current [[U.S. president]] is not controlled by Israel, that [[United States|America]] must come before Israel, that [[Jews]] do not believe in the [[Christianity|Christian]] Messiah, and that he married his wife when he was agnostic but hopes she converts to [[Christianity]].
 (00:19:28) The Israel lobby criticized [[JD Vance]] for not forcefully condemning anti-Semitism during his [[Turning Point USA]] appearance and for suggesting the current president isn't owned by Israel.
 (00:21:31) [[Nicholas J. Fuentes]] argued that [[JD Vance]] is being squeezed between "Groypers" demanding an [[United States|America]] First stance and donors from the Israel lobby who will defund him if he does not condemn them, with money potentially shifting to competitors like [[Marco Rubio]].
-(00:25:54) [[Nicholas J. Fuentes]] stated he refused to vote for [[Donald Trump]] in the last election because [[Donald Trump]] was no longer putting [[United States|America]] first, citing his acceptance of $100 million from [[Sheldon Adelson|Miriam Adelson]], endorsement by [[Nikki Haley]] in Israel, promise to bomb [[Iran]], and plan to staple green cards to Indian diplomas.
+(00:25:54) [[Nicholas J. Fuentes]] stated he refused to vote for [[Donald Trump]] in the last election because [[Donald Trump]] was no longer putting [[United States|America]] first, citing his acceptance of $100 million from [[Miriam Adelson]], endorsement by [[Nikki Haley]] in Israel, promise to bomb [[Iran]], and plan to staple green cards to Indian diplomas.
 (00:27:16) [[Nicholas J. Fuentes]] stated that under [[Donald Trump]], the [[United States]] started a war in [[Yemen]] bombing the [[Houthis]], gave Israel $12 billion in foreign aid, bombed [[Iran]], and buried the [[Jeffrey Epstein]] files.
 (00:27:53) [[Nicholas J. Fuentes]] claimed the [[U.S. Department of Justice]] under [[Donald Trump]] allowed an Israeli official accused of trying to molest an underage girl to escape from [[Las Vegas]] and take refuge in Israel.
 (00:33:41) [[Nicholas J. Fuentes]] stated that [[Larry Ellison]] and [[David Ellison]] bought [[TikTok]], [[Paramount Global]], [[Warner Brothers]], and [[CBS News]] in a partnership with [[Benjamin Netanyahu]] to censor criticism of Israel on those platforms.
@@ -620,7 +620,7 @@
 (00:24:00) [[Kevin Roberts]], president of the [[Heritage Foundation]], defended [[Tucker Carlson]] and stated the think tank was allowed to criticize Israel.
 (00:37:00) The National Task Force demanded the [[Heritage Foundation]] host weekly Shabbat dinners to vet junior staff and interns for their views on Israel and Judaism.
 (00:55:30) [[Nicholas J. Fuentes]] argued that [[Benjamin Netanyahu|Netanyahu]] and Israel have power over the [[United States]] only through the influence of [[United States|American]] [[Jewish]] oligarchs.
-(01:05:50) [[Sheldon Adelson|Miriam Adelson]] contributes $100 million per election cycle, taking advantage of the [[United States]]'s campaign finance system to support Israel.
+(01:05:50) [[Miriam Adelson]] contributes $100 million per election cycle, taking advantage of the [[United States]]'s campaign finance system to support Israel.
 (01:15:00) [[Nicholas J. Fuentes]] stated his movement's strategy for the 2028 election was to pressure [[Republican Party|Republican]] candidates to oppose Israel by making it a political liability.
 (01:29:30) [[Nicholas J. Fuentes]] declared victory in the first phase of his movement, having normalized criticism of Israel and broken through censorship efforts.
 (01:35:30) [[Brett Cooper]] told Florida state representative [[Randy Fine]] to "go back to Israel" during a public confrontation.
@@ -647,7 +647,7 @@
 (11:06:65) [[Nicholas J. Fuentes]] claimed [[TikTok]] was being acquired because too many people on the platform were criticizing Israel.
 (11:24:29) [[Nicholas J. Fuentes]] identified [[Tucker Carlson]], [[Candace Owens]], and himself as the most popular commentators in [[United States|America]] because they were the only ones willing to criticize Israel.
 (15:02:31) [[Nicholas J. Fuentes]] argued that [[United States|American]] [[Jews]], due to their ethnic affiliation with Israel, donate tens of millions to its military and hundreds of millions to [[United States|U.S]]. political campaigns on its behalf.
-(21:26:21) [[Nicholas J. Fuentes]] stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Sheldon Adelson|Miriam Adelson]], and [[Mark Levin]] used their influence in [[Wall Street]], [[Silicon Valley]], and politics to benefit themselves and Israel at the expense of [[United States|Americans]].
+(21:26:21) [[Nicholas J. Fuentes]] stated that [[William Ackman|Bill Ackman]], [[Larry Fink]], [[Miriam Adelson]], and [[Mark Levin]] used their influence in [[Wall Street]], [[Silicon Valley]], and politics to benefit themselves and Israel at the expense of [[United States|Americans]].
 ### AF 2025-11-10 1595
 (00:48:40) [[Ben Shapiro]] led a campaign of criticism against [[Nicholas J. Fuentes]], [[Tucker Carlson]], [[Candace Owens]], and [[Megyn Kelly]] for their positions on Israel.
 (01:07:40) [[Ben Shapiro]] is married to an Israeli citizen and his children hold Israeli citizenship.
@@ -695,10 +695,10 @@
 (00:15:38) Massive protests are occurring in Israel over [[Benjamin Netanyahu]]'s handling of the war, with protesters believing he is prolonging the conflict to remain in office.
 
 ### AF 2025-08-26 1557
-(00:22:12) A recent poll indicated that, for the first [[time]], a majority of [[Americans]] are more sympathetic to [[Gaza Strip|Palestine]] than to Israel, with younger demographics and [[Republican Party|Republicans]] showing even greater sympathy for [[Gaza Strip|Palestine]].
+(00:22:12) A recent poll indicated that, for the first [[time]], a majority of [[Americans]] are more sympathetic to [[Palestine]] than to Israel, with younger demographics and [[Republican Party|Republicans]] showing even greater sympathy for [[Palestine]].
 
 ### AF 2025-08-26 1557
-(00:23:20) The conflict in [[Gaza Strip|Palestine]] involves Israel, a nuclear-armed country with unconditional backing from the [[United States]], using advanced military technology against a civilian population in [[Gaza Strip|Palestine]] that lacks a standing army, government, military, or counterattack capability.
+(00:23:20) The conflict in [[Palestine]] involves Israel, a nuclear-armed country with unconditional backing from the [[United States]], using advanced military technology against a civilian population in [[Palestine]] that lacks a standing army, government, military, or counterattack capability.
 
 ### AF 2025-08-26 1557
 (00:40:17) The decision by [[France]] to recognize a [[Palestinian]] state was not well received by Israel.
@@ -725,7 +725,7 @@
 (00:47:00) Israel is using [[United States]] money, weapons, political support, and defense guarantees to conduct a war that opposes 80 years of [[United States]] foreign policy.
 
 ### AF 2025-08-26 1557
-(00:47:45) [[France]] is intervening to prevent Israel from erasing [[Gaza Strip|Palestine]] from the map, for which the [[United States]] is condemning [[France]].
+(00:47:45) [[France]] is intervening to prevent Israel from erasing [[Palestine]] from the map, for which the [[United States]] is condemning [[France]].
 
 ### AF 2025-08-26 1557
 (00:48:03) [[Donald Trump]] is appealing to [[Benjamin Netanyahu]] to stop the war and has sent [[Steve Wittkoff]] to various countries, including Israel, [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], and [[Qatar]], to urge Israel to cease its actions.
@@ -1085,7 +1085,7 @@
 (02:10:80) Ceasefire negotiations between Israel and [[Hamas]] fell apart the previous week, leading Israel and [[U.S]]. special envoy [[Steve Wittkoff]] to pull out of the talks.
 
 ### AF 2025-08-05 1545
-(03:27:10) In response to [[Europe|European]] moves toward recognizing [[Gaza Strip|Palestine]], Israel accelerated its own timeline to eradicate the [[Palestinian]] state, with the [[United States]] permitting the action.
+(03:27:10) In response to [[Europe|European]] moves toward recognizing [[Palestine]], Israel accelerated its own timeline to eradicate the [[Palestinian]] state, with the [[United States]] permitting the action.
 
 ### AF 2025-08-05 1545
 (22:01:03) [[Benjamin Netanyahu|Bibi Netanyahu]] greenlit an operation for Israel to take over the entire [[Gaza Strip]], with Israel already controlling 75% of the territory.
@@ -1115,7 +1115,7 @@
 (45:22:29) Israeli ministers discussed sending [[Palestinian]] refugees to [[Europe]] and other [[Muslim]] countries like [[Libya]], [[Morocco]], and [[Ethiopia]], as outlined in a *[[Wall Street]] Journal* op-ed.
 
 ### AF 2025-08-05 1545
-(46:57:37) [[France]], the [[United Kingdom]], and [[Dominion of Canada|Canada]]'s move to recognize [[Gaza Strip|Palestine]] was meant to impose a diplomatic red line and heap consequences on Israel if it followed through with annexation plans.
+(46:57:37) [[France]], the [[United Kingdom]], and [[Dominion of Canada|Canada]]'s move to recognize [[Palestine]] was meant to impose a diplomatic red line and heap consequences on Israel if it followed through with annexation plans.
 
 ### AF 2025-08-05 1545
 (50:13:53) [[Donald Trump]] stated in a press conference that he supported Israel's plan for the [[Gaza Strip]], giving it a green light.
@@ -1175,7 +1175,7 @@
 (00:49:51) [[Sheldon Adelson]] explicitly asked for, and received, pro-Israel actions from the [[Donald Trump|Trump]] administration, including the [[United States Embassy in Jerusalem|embassy]] move, recognition of sovereignty, and a shadow war against [[Iran]].
 
 ### AF 2025-08-04 1544
-(00:50:15) In the 2016 [[Republican Party|GOP]] primary, [[Donald Trump]] took a more neutral or balanced position on the Israel-[[Gaza Strip|Palestine]] conflict.
+(00:50:15) In the 2016 [[Republican Party|GOP]] primary, [[Donald Trump]] took a more neutral or balanced position on the Israel-[[Palestine]] conflict.
 
 ### AF 2025-08-04 1544
 (00:53:04) Following the [[October 7th Attack|October 7th]] attack, [[American]] and Israeli [[Jews|Jewry]] became extremely animated, active, and nationalistic, with the [[left]] wing in Israel disappearing and [[American]] [[Jews]] horrified by the progressive [[left]]'s sympathy for [[Palestinians]].
@@ -1241,7 +1241,7 @@
 (00:53:54) During [[Donald Trump]]'s first term, [[Jared Kushner]] negotiated the Abraham Accords, which led to [[Bahrain]], the [[United Arab Emirates]], [[Morocco]], and [[Sudan]] normalizing relations with Israel.
 
 ### AF 2025-07-31 1542
-(00:55:18) A key objective of the Abraham Accords was to secure normalization between [[Saudi Arabia]] and Israel, which was pending a [[US]] security guarantee and a commitment to a two-state solution for [[Gaza Strip|Palestine]] prior to the [[October 7th attack]].
+(00:55:18) A key objective of the Abraham Accords was to secure normalization between [[Saudi Arabia]] and Israel, which was pending a [[US]] security guarantee and a commitment to a two-state solution for [[Palestine]] prior to the [[October 7th attack]].
 
 ### AF 2025-07-31 1542
 (01:00:59) [[Alex Karp]], the [[Jewish]] co-founder and CEO of [[Palantir Technologies]], flew the company's board to Israel after [[October 7th Attack|October 7th]] to develop products, including facial recognition software, for use against [[Palestinians]].
@@ -1253,7 +1253,7 @@
 (01:08:00) The [[Donald Trump|Trump]] administration has overseen the removal of Israel-critical university presidents and the deportation of foreign students and visa holders for criticizing Israel.
 
 ### AF 2025-07-29 1541
-(01:01:00) [[Keir Starmer]] announced that the [[United Kingdom]] would move to recognize the state of [[Gaza Strip|Palestine]] in September at the [[United Nations]] General Assembly, a decision intended to pressure Israel to end the war in [[Gaza Strip|Gaza]] and commit to a two-state solution.
+(01:01:00) [[Keir Starmer]] announced that the [[United Kingdom]] would move to recognize the state of [[Palestine]] in September at the [[United Nations]] General Assembly, a decision intended to pressure Israel to end the war in [[Gaza Strip|Gaza]] and commit to a two-state solution.
 
 ### AF 2025-07-29 1541
 (01:18:40) [[Keir Starmer]] stated the [[United Kingdom]] would recognize a [[Palestinian]] state in September unless Israel took substantive steps to end the situation in [[Gaza Strip|Gaza]], agreed to a ceasefire, committed to a long-term sustainable peace delivering a two-state solution, and allowed the [[United Nations]] to restart aid supplies.
@@ -1310,7 +1310,7 @@
 (00:03:51) Israel announced it was done with peace talks, a position soon followed by the [[United States]] delegation led by [[Steve Wittkoff]], ending the pretense of a willingness to negotiate.
 
 ### AF 2025-07-25 1539
-(00:05:56) In response to [[France]]'s move to recognize [[Gaza Strip|Palestine]], Israel stated it must expedite the annexation of the [[Gaza Strip|West Bank]], arguing it cannot tolerate a hostile [[Palestinian]] state on its borders.
+(00:05:56) In response to [[France]]'s move to recognize [[Palestine]], Israel stated it must expedite the annexation of the [[Gaza Strip|West Bank]], arguing it cannot tolerate a hostile [[Palestinian]] state on its borders.
 
 ### AF 2025-07-25 1539
 (00:06:11) It was widely reported in May and June 2024 that [[Miriam Adelson]] would provide $100 million to the [[Donald Trump]] campaign only if he committed to allowing Israel to annex the [[Gaza Strip|West Bank]] upon taking office.
@@ -1346,7 +1346,7 @@
 (00:48:01) [[Nicholas J. Fuentes]] argued that questioning why Israel receives so much aid leads to examining the role of [[American Israel Public Affairs Committee|AIPAC]], [[Miriam Adelson]], and [[Jewish]] billionaires, and ultimately to the issue of dual loyalty and organized [[Jews|Jewry]].
 
 ### AF 2025-07-25 1539
-(00:56:52) [[Nicholas J. Fuentes]] claimed that Israel's long-term goal, accelerated by [[France]]'s recognition of [[Gaza Strip|Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating [[Hezbollah]], [[Iran]], and other enemies.
+(00:56:52) [[Nicholas J. Fuentes]] claimed that Israel's long-term goal, accelerated by [[France]]'s recognition of [[Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating [[Hezbollah]], [[Iran]], and other enemies.
 
 ### AF 2025-07-25 1539
 (01:00:06) [[Nicholas J. Fuentes]] noted that both [[Tucker Carlson]] and [[Charlie Kirk]] have recently stated they love Israel, support its right to exist, and have visited the [[country]], while pushing a "new path" of criticizing foreign aid.
@@ -2099,7 +2099,7 @@
 (01:24:45:710) The term "MAGA" has been redefined to mean "colorblind meritocracy, individualism, a pro-Israel spin on [[United States|America]] first," with funding from [[George Soros]], [[Thomas Klingenstein]], and [[Paul Singer]] used to advocate for banning "Groypers" and limiting free speech for "anti-Semites," while criticizing the establishment but not "Israeli donors."
 
 ### AF 2024-10-23 1411
-(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to Israel", including [[Paul Singer]], [[Peter Thiel]], [[Alex Karp]], [[Thomas Klingenstein]], [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Sheldon Adelson|Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
+(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to Israel", including [[Paul Singer]], [[Peter Thiel]], [[Alex Karp]], [[Thomas Klingenstein]], [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
 
 ### AF 2024-10-23 1411
 (01:25:51:710) [[Paul Singer]], a "pro-Israel, pro-gay [[Jews|Jew]]," backed [[George W. Bush]] in 2004, opposed [[Donald Trump]] by funding the "Steele dossier," and now funds the [[Manhattan Institute]] (which targeted [[Claudine Gay]]) and the [[Claremont Institute]] (which is developing the "colorblind meritocracy consensus").
@@ -2447,13 +2447,13 @@
 (01:47:31) The [[Republican Jewish Coalition]] stated that [[Donald Trump]] was building the most pro-Israel administration in [[United States|U.S.]] history.
 
 ### AF 2024-11-19 1421
-(01:47:55) [[Sheldon Adelson|Miriam Adelson]], a pro-Israel donor, contributed $100 million to [[Donald Trump]]'s campaign.
+(01:47:55) [[Miriam Adelson]], a pro-Israel donor, contributed $100 million to [[Donald Trump]]'s campaign.
 
 ### AF 2024-11-19 1421
 (01:48:11) Pro-Israel figures believed that [[Donald Trump]]'s rhetoric should be disregarded, as his governance would be pro-business, tax-cutting, and pro-Israel.
 
 ### AF 2024-11-19 1421
-(01:52:05) [[Marco Rubio]] was known to have close ties with [[Sheldon Adelson|Miriam Adelson]], a pro-Israel casino magnate.
+(01:52:05) [[Marco Rubio]] was known to have close ties with [[Miriam Adelson]], a pro-Israel casino magnate.
 
 ### AF 2024-11-19 1421
 (01:52:35) [[Donald Trump]] planned to name [[Marco Rubio]] as [[U.S. Department of State|Secretary of State]] and [[Michael Waltz|Mike Waltz]] as [[U.S. National Security Council|National Security Advisor]], both described as pro-Israel hawks favoring "maximum pressure" on [[Iran]].
@@ -2864,7 +2864,7 @@
 (01:23:15) Israel began focusing on invading [[Lebanon]] to secure a buffer zone.
 
 ### AF 2024-10-17 1408
-(01:27:51) Several [[Europe|European]] countries, including [[Government of France|France]] and [[Italian Republic|Italy]], embargoed weapons sales to Israel in protest of its war in [[Lebanon]] and attacks on [[United Nations]] peacekeepers.
+(01:27:51) Several [[Europe|European]] countries, including [[France]] and [[Italian Republic|Italy]], embargoed weapons sales to Israel in protest of its war in [[Lebanon]] and attacks on [[United Nations]] peacekeepers.
 
 ### AF 2024-10-17 1408
 (01:27:51) The [[Joe Biden|Biden administration]] intimated it would cut off military aid to Israel if it did not allow more humanitarian aid into [[Gaza Strip|Gaza]], citing a [[United States|U.S]]. law that forbids aid to countries blocking [[United States|U.S]]. humanitarian assistance.
@@ -3032,7 +3032,7 @@
 (00:54:19) Israel began a process of ethnic cleansing in northern [[Gaza Strip|Gaza]] with the intention of annexing the territory, abandoning ceasefire negotiations with [[Hamas]].
 
 ### AF 2024-10-14 1405
-(02:08:58) [[Donald Trump]] owes his political resurgence to major pro-Israel donors, including [[Sheldon Adelson|Miriam Adelson]], [[Jeffrey Yass]], [[Isaac Perlmutter]], and [[David Sacks]], who funded his campaign.
+(02:08:58) [[Donald Trump]] owes his political resurgence to major pro-Israel donors, including [[Miriam Adelson]], [[Jeffrey Yass]], [[Isaac Perlmutter]], and [[David Sacks]], who funded his campaign.
 
 ### AF 2024-10-14 1405
 (02:09:05) [[Donald Trump]]'s potential administration would be staffed by individuals from the [[Claremont Institute]], which is funded by pro-Israel figures like [[Peter Thiel]] and [[Paul Singer]], who would shape policy responses to [[Iran]].
@@ -3275,7 +3275,7 @@
 (01:29:25) [[Rick Grenell]], [[Howard Lutnick]], and [[Jared Kushner]] would fill the administration with gay [[Republican Party|Republicans]] who would pursue a war with [[Iran]] to benefit Israel.
 
 ### AF 2024-10-07 1401
-(01:43:24) [[Donald Trump|Trump]] attended a second [[October 7th Attack|October 7th]] commemoration event with [[Sheldon Adelson|Miriam Adelson]], where he vowed not to allow a jihad on [[United States|America]] and Israel, promised to support Israel's war on terror, and stated all "[[Jews|Jew]] haters" would be deported.
+(01:43:24) [[Donald Trump|Trump]] attended a second [[October 7th Attack|October 7th]] commemoration event with [[Miriam Adelson]], where he vowed not to allow a jihad on [[United States|America]] and Israel, promised to support Israel's war on terror, and stated all "[[Jews|Jew]] haters" would be deported.
 
 ### AF 2024-10-07 1401
 (01:46:33) A second [[Donald Trump|Trump]] administration would be run by [[Jared Kushner]], [[Howard Lutnick]], and [[Peter Thiel]], not by Project 2025 loyalists, and would exclude anyone who has ever criticized Israel.
@@ -3290,7 +3290,7 @@
 (01:55:58) [[Donald Trump|Trump]] makes political compromises with [[Jewish]] and Zionist donors on unpopular policies like the war in Israel in exchange for money, but does not make similar compromises with immigration restrictionists or [[Christianity|Christians]] on issues like border security or abortion.
 
 ### AF 2024-10-07 1401
-(02:24:23) After [[Government of France|France]] embargoed weapons to Israel, [[Bret Stephens]] wrote in [[The New York Times]] that [[Government of France|France]] had made itself geopolitically irrelevant.
+(02:24:23) After [[France]] embargoed weapons to Israel, [[Bret Stephens]] wrote in [[The New York Times]] that [[France]] had made itself geopolitically irrelevant.
 
 ### AF 2024-10-04 1400
 (00:35:44) [[Donald Trump]] advocated for bombing [[Iran]]'s nuclear facilities in response to the [[Joe Biden|Biden administration]]'s refusal to support such strikes following [[Iran]]'s attack on Israel.
@@ -3593,7 +3593,7 @@
 (23:31:79) [[Pedro Gonzalez]] apologized to [[Youram Hazony|Yoram Hazony]], an Israeli dual citizen who directs the [[National Conservative Conference]], for his past anti-Semitic statements.
 
 ### AF 2024-04-16 1320
-(23:36:57) [[Ron DeSantis]] received support from [[Sheldon Adelson|Miriam Adelson]] during the [[2024 Republican presidential primary]] and advocated for military action against [[Iran]] and unwavering support for Israel.
+(23:36:57) [[Ron DeSantis]] received support from [[Miriam Adelson]] during the [[2024 Republican presidential primary]] and advocated for military action against [[Iran]] and unwavering support for Israel.
 
 ### AF 2024-04-16 1320
 (30:38:93) The [[Nicholas J. Fuentes|Groyper]] branch of the movement advocates for social conservatism, "revanchist borderline [[Catholic Church|Catholic]] integralism," a counter-[[Jewish]] agenda opposing the influence of Israel and organized [[Jews|Jewry]] in [[United States|America]], and a form of white nationalism.
@@ -3947,7 +3947,7 @@
 (47:10:450) Israel's strategic objective since [[October 7th Attack|October 7th]] was to eliminate [[Hamas]], [[Hezbollah]], and [[Iran]], specifically targeting [[Iran]]'s nuclear sites and [[Hezbollah]], to achieve unprecedented regional dominance.
 
 ### AF 2024-04-12 1318
-(47:22:500) [[Nicholas J. Fuentes]] believed that successful elimination of [[Hamas]], [[Hezbollah]], and [[Iran]] would place Israel in an unprecedented and uniquely secure position in the [[Gaza Strip|Palestine]] [[region]], surpassing any achieved over the previous century.
+(47:22:500) [[Nicholas J. Fuentes]] believed that successful elimination of [[Hamas]], [[Hezbollah]], and [[Iran]] would place Israel in an unprecedented and uniquely secure position in the [[Palestine]] [[region]], surpassing any achieved over the previous century.
 
 ### AF 2024-04-12 1318
 (47:54:900) [[Nicholas J. Fuentes]] asserted that Israel intended to leverage the [[October 7th Attack|October 7th]] attacks to ethnically cleanse [[Gaza Strip|Gaza]], deporting its [[Muslims]] into the [[Sinai]] and then annexing the territory.
@@ -4514,7 +4514,7 @@
 (00:53:16) [[Joe Biden]] faces immense pressure from the [[Democratic Party]] and voters regarding his support for Israel.
 
 ### AF 2024-04-08 1315
-(00:53:35) Major protests are threatened in [[City of Chicago|Chicago]] at the [[Democratic Party]] convention due to [[Joe Biden]]'s support for Israel.
+(00:53:35) Major protests are threatened in [[Chicago]] at the [[Democratic Party]] convention due to [[Joe Biden]]'s support for Israel.
 
 ### AF 2024-04-08 1315
 (00:53:43) Israel's ability to wage war against [[Hezbollah]] is dependent on [[United States|America]]'s military support.
@@ -4679,7 +4679,7 @@
 (03:50:07) [[Nicholas J. Fuentes]] questions Israel's willingness to allow the [[United States]] to leave the [[Middle East]].
 
 ### AF 2025-12-06 1609
-(03:50:32) [[Europe|European Union]] countries arrest people for "bad words" and suppress political parties, while the [[United States]] administration acts in opposition by preventing [[Europe|European]] nationals who criticize Israel from entering the [[United States]].
+(03:50:32) [[European Union]] countries arrest people for "bad words" and suppress political parties, while the [[United States]] administration acts in opposition by preventing [[Europe|European]] nationals who criticize Israel from entering the [[United States]].
 
 ### AF 2025-12-06 1609
 (03:51:16) The [[United States]] gives Israel $80 billion and goes to war against [[Iran]].
@@ -5072,7 +5072,7 @@
 (02:30:00) Israel demanded that [[Hezbollah]] retreat 18 miles from the Israel-[[Lebanon]] border to the [[Lebanon|Litani River]] as a condition for the return of its evacuated civilians.
 
 ### AF 2024-03-01 1301
-(02:32:00) The [[United States]] and [[Government of France|France]] attempted to negotiate a buffer zone between Israel and [[Hezbollah]] to prevent a wider war.
+(02:32:00) The [[United States]] and [[France]] attempted to negotiate a buffer zone between Israel and [[Hezbollah]] to prevent a wider war.
 
 ### AF 2024-03-01 1301
 (02:34:00) Israel was accused of creating unreasonable demands and an air of hostility to justify a first strike against [[Hezbollah]] in [[Lebanon]].
@@ -5141,7 +5141,7 @@
 (45:14:69) [[Elon Musk]] banned criticism of Israel's actions in [[Gaza Strip|Gaza]] and banned users protesting [[United States|American]] support on his platform following pressure from [[Zionists]].
 
 ### AF 2024-02-28 1299
-(48:34:23) [[Ron DeSantis]] traveled to Israel with donors [[Sheldon Adelson|Miriam Adelson]] and other major [[Jewish]] donors shortly before his campaign announcement.
+(48:34:23) [[Ron DeSantis]] traveled to Israel with donors [[Miriam Adelson]] and other major [[Jewish]] donors shortly before his campaign announcement.
 
 ### AF 2024-02-28 1299
 (48:40:29) [[Ron DeSantis]] heeded calls from the Israeli government to act against [[Ben & Jerry's]], BDS on campuses, and anti-Semitic flyering.
@@ -5156,7 +5156,7 @@
 (00:19:940) On February 25, 2024, a 25-year-old [[United States]] Air Force service member, [[Aaron Bushnell]] of [[San Antonio, Texas]], self-immolated in front of the Israeli [[Embassy]] in [[Washington D.C.|Washington, D.C.]] in protest of [[United States]] support for Israel's military campaign in the [[Gaza Strip]].
 
 ### AF 2024-02-27 1298
-(00:34:100) [[Aaron Bushnell]] stated he was protesting the Israeli occupation of [[Gaza Strip|Palestine]] and [[United States|America]]'s support for Israel's war in the [[Gaza Strip]].
+(00:34:100) [[Aaron Bushnell]] stated he was protesting the Israeli occupation of [[Palestine]] and [[United States|America]]'s support for Israel's war in the [[Gaza Strip]].
 
 ### AF 2024-02-27 1298
 (15:36:300) [[Nicholas J. Fuentes]] argued that Israel's war in the [[Gaza Strip]] was conducted against sensible [[United States]] foreign policy, which historically wanted Israel to withdraw from occupied territories and avoid regional conflict.
@@ -5207,7 +5207,7 @@
 (01:14:07) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] is a "cut out for Israel" and that its political base for supporting Israel comes from evangelical Protestants, not [[Catholic Church|Catholics]], citing donations from figures like [[Sheldon Adelson]].
 
 ### AF 2024-02-21 1295
-(00:23:47) [[Nicholas J. Fuentes]] argued that this tentative embrace of white identity politics was being instrumentalized by [[Jewish]] interests to combat domestic supporters of [[Gaza Strip|Palestine]], similar to how [[United States|American]] patriotism was used after [[September 11 attacks|9/11]] to fight Israel's Muslim adversaries.
+(00:23:47) [[Nicholas J. Fuentes]] argued that this tentative embrace of white identity politics was being instrumentalized by [[Jewish]] interests to combat domestic supporters of [[Palestine]], similar to how [[United States|American]] patriotism was used after [[September 11 attacks|9/11]] to fight Israel's Muslim adversaries.
 
 ### AF 2024-02-21 1295
 (00:27:01) [[Nicholas J. Fuentes]] stated that after the [[October 7th attack]], a right-wing shift in Israeli society prefigured a similar shift in [[American society]], with right-wing [[Jews]] becoming more open to white nationalist arguments as a tool against Muslim protesters and their woke supporters.
@@ -5240,7 +5240,7 @@
 (00:46:20) [[Nicholas J. Fuentes]] stated that Israel depends on the [[United States]] financially, militarily, diplomatically, and politically, yet the [[United States|US]] government answers to Israel.
 
 ### AF 2024-02-21 1295
-(00:50:51) [[Nicholas J. Fuentes]] gave examples of key nodes being controlled, including [[Elon Musk]] prohibiting pro-[[Gaza Strip|Palestine]] phrases on [[Twitter]], [[Larry Fink]] of [[BlackRock]] blacklisting Israel protesters, and [[Joe Biden]] and [[Lloyd Austin]] saying nothing positive about Israel.
+(00:50:51) [[Nicholas J. Fuentes]] gave examples of key nodes being controlled, including [[Elon Musk]] prohibiting pro-[[Palestine]] phrases on [[Twitter]], [[Larry Fink]] of [[BlackRock]] blacklisting Israel protesters, and [[Joe Biden]] and [[Lloyd Austin]] saying nothing positive about Israel.
 
 ### AF 2024-02-16 1294
 (02:07:40) Israel was preparing a major offensive in the city of [[Gaza Strip|Rafah]] in the [[Gaza Strip]], where approximately 1.3 million [[Palestinian]] refugees were located.
@@ -5255,7 +5255,7 @@
 (54:14:67) [[Donald Trump]] began to build a substantial lead over [[Joe Biden]] in polling averages shortly after the [[October 7th Attack|October 7th]] [[Hamas attack]] on Israel.
 
 ### AF 2024-02-16 1294
-(56:27:49) [[Joe Biden]]'s poll numbers were theorized to have suffered because of a rupture in the [[Democratic Party]] between a progressive wing supportive of [[Gaza Strip|Palestine]] and a faction supportive of Israel.
+(56:27:49) [[Joe Biden]]'s poll numbers were theorized to have suffered because of a rupture in the [[Democratic Party]] between a progressive wing supportive of [[Palestine]] and a faction supportive of Israel.
 
 ### AF 2024-02-16 1294
 (59:32:74) [[Donald Trump]] was regarded as more pro-Israel than [[Joe Biden]], who had attempted to restrain Israel's military actions in the [[Gaza Strip]].
@@ -5318,13 +5318,13 @@
 (00:14:55) [[Nicholas J. Fuentes]] stated he had previously predicted that Argentine President [[Javier Milei]] was a "shill for Israel" with a "weird [[Likud]] connection," a claim he felt was vindicated when [[Javier Milei]] visited Israel.
 
 ### AF 2024-02-14 1292
-(00:15:55) [[Nicholas J. Fuentes]] argued that right-wing populist movements in countries like [[Brazil]], the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], [[Government of France|France]], [[Germany]], and [[El Salvador]] represent a "[[Likud]] infiltration" orchestrated by [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party to create global allies for Israel.
+(00:15:55) [[Nicholas J. Fuentes]] argued that right-wing populist movements in countries like [[Brazil]], the [[Kingdom of the Netherlands|Netherlands]], [[Italian Republic|Italy]], [[France]], [[Germany]], and [[El Salvador]] represent a "[[Likud]] infiltration" orchestrated by [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party to create global allies for Israel.
 
 ### AF 2024-02-14 1292
 (00:16:09) [[Nicholas J. Fuentes]] framed the last 15 years of geopolitics as a proxy war between [[Barack Obama]] and the progressive left, which he claimed opposes [[Benjamin Netanyahu|Netanyahu]], and the right-wing government of Israel, which he said backs right-wing populists like [[Donald Trump]] and [[Viktor Orbán]].
 
 ### AF 2024-02-14 1292
-(00:18:29) [[Nicholas J. Fuentes]] noted that [[Hungary]] and the [[Czech Republic]] vetoed an anti-Israel action in the [[Europe|European Union]], which he attributed to right-wing governments in [[Europe|Eastern Europe]] being "totally in the pocket of [[Benjamin Netanyahu|Netanyahu]]."
+(00:18:29) [[Nicholas J. Fuentes]] noted that [[Hungary]] and the [[Czech Republic]] vetoed an anti-Israel action in the [[European Union]], which he attributed to right-wing governments in [[Europe|Eastern Europe]] being "totally in the pocket of [[Benjamin Netanyahu|Netanyahu]]."
 
 ### AF 2024-02-14 1292
 (00:19:36) [[Nicholas J. Fuentes]] stated that Israel was "thoroughly behind [[Donald Trump]]" through figures like [[Jared Kushner]] and [[Sheldon Adelson]].
@@ -5402,7 +5402,7 @@
 (41:17:63) Israel has stated it will not allow an international coalition, a [[Palestinian]] government, [[Arab Republic of Egypt|Egypt]], or [[Saudi Arabia]] to administer the [[Gaza Strip]] after the war, indicating it intends to maintain control.
 
 ### AF 2024-02-13 1291
-(52:49:04) [[Elon Musk]] began banning accounts opposed to Israel on [[Twitter]] following his visit to [[City of Auschwitz|Auschwitz]].
+(52:49:04) [[Elon Musk]] began banning accounts opposed to Israel on [[Twitter]] following his visit to [[Auschwitz]].
 
 ### AF 2024-02-10 1290
 (00:00:00) [[Nicholas J. Fuentes]] announced the show would also discuss the war in [[Gaza Strip|Gaza]], noting the biggest development was that [[Saudi Arabia]] and the [[United States]] were pressuring Israel to recognize a [[Palestinian]] state after the war.
@@ -5435,7 +5435,7 @@
 (51:36:38) [[Javier Milei]] broke with his predecessor in [[Argentina]], visited Israel and cried at the Wailing Wall, visited the [[Chabad]] World Headquarters in [[Brooklyn]], and has a personal rabbi.
 
 ### AF 2024-02-08 1289
-(52:46:68) Right-wing parties in [[Europe]], such as [[Vox]] in [[Spain]], the [[National Rally|National Front]] in [[Government of France|France]], and the [[Alternative for Germany|AfD]] in [[Germany]], are also sympathetic to Israel.
+(52:46:68) Right-wing parties in [[Europe]], such as [[Vox]] in [[Spain]], the [[National Rally|National Front]] in [[France]], and the [[Alternative for Germany|AfD]] in [[Germany]], are also sympathetic to Israel.
 
 ### AF 2024-02-08 1289
 (53:57:50) [[Nicholas J. Fuentes]] suggested that leaders like [[Nayib Bukele]], [[Jair Bolsonaro]], and [[Javier Milei]] gain support from Israel and [[United States|American]] right-wing infrastructure by offering support to Israel in return.
@@ -5486,7 +5486,7 @@
 (00:03:05) The condemnation of [[Ilhan Omar]]'s dual loyalty was contrasted with the lack of similar criticism for [[U.S. Congress|members of Congress]], such as [[Elise Stefanik]], who have a vested interest in Israel's security.
 
 ### AF 2024-02-01 1287
-(00:03:47) [[Ron DeSantis]] called for the deportation of [[Ilhan Omar]] but has himself taken actions seen as supportive of Israel, including banning BDS on public campuses and visiting Israel to take money from the [[Sheldon Adelson|Miriam Adelson]] family.
+(00:03:47) [[Ron DeSantis]] called for the deportation of [[Ilhan Omar]] but has himself taken actions seen as supportive of Israel, including banning BDS on public campuses and visiting Israel to take money from the [[Miriam Adelson]] family.
 
 ### AF 2024-02-01 1287
 (00:05:45) A partisan battle in [[U.S. Congress|Congress]] over government funding since the midterms has been stalled because [[Republican Party]] leadership has refused to include immigration or border security measures in funding bills, despite using aid to [[Ukraine]] and Israel as bargaining chips.
@@ -5684,7 +5684,7 @@
 (00:13:11) [[United States|U.S.]] intelligence reportedly warned [[Iran]] about the imminent terrorist attack a day before it occurred, a disclosure [[Nicholas J. Fuentes]] interpreted as an attempt to thwart Israel's plans to provoke a retaliatory strike.
 
 ### AF 2024-01-26 1283
-(01:04:23) [[Nicholas J. Fuentes]] recounted being "red-pilled" on Holocaust skepticism, the Israel-[[Gaza Strip|Palestine]] conflict, and [[Jewish]] influence by a high school friend during Model [[United Nations|UN]] conferences and a 2016 campaign trip for [[Paul Nehlen]].
+(01:04:23) [[Nicholas J. Fuentes]] recounted being "red-pilled" on Holocaust skepticism, the Israel-[[Palestine]] conflict, and [[Jewish]] influence by a high school friend during Model [[United Nations|UN]] conferences and a 2016 campaign trip for [[Paul Nehlen]].
 
 ### AF 2024-01-25 1282
 (01:11:00) [[Nikki Haley]]'s campaign received financial and political support from [[Fox News]], the [[The New York Post|New York Post]], [[The Wall Street Journal|Wall Street]] donors, and pro-Israel groups, all properties or interests aligned with [[Rupert Murdoch]].
@@ -5696,7 +5696,7 @@
 (01:23:00) [[Tucker Carlson]] applied for a job at the [[Central Intelligence Agency|CIA]], was not accepted, and traveled to [[Nicaragua]] during the Contra war, which had ties to the [[Central Intelligence Agency|CIA]], Israel, and the [[Ronald Reagan|Reagan]] administration.
 
 ### AF 2024-01-25 1282
-(01:56:00) [[Ron DeSantis]] attended a dinner in Israel with [[Sheldon Adelson|Miriam Adelson]] and other major [[Jewish]] donors shortly before announcing his presidential campaign, which he launched with the support of [[David Sacks]] and [[Elon Musk]].
+(01:56:00) [[Ron DeSantis]] attended a dinner in Israel with [[Miriam Adelson]] and other major [[Jewish]] donors shortly before announcing his presidential campaign, which he launched with the support of [[David Sacks]] and [[Elon Musk]].
 
 ### AF 2024-01-25 1282
 (01:57:00) [[Nikki Haley]] stated that [[United States|U.S.]] policy toward Israel should be to "give them what they want, when they want it, no questions asked," and advocated for continued support for [[Ukraine]].
@@ -5708,7 +5708,7 @@
 (00:46:12) [[Benjamin Netanyahu|Bibi]] declared there would be no [[Palestinian]] state and that Israel must extend its security control from the Jordan River to the [[Mediterranean Sea]], a statement made at the [[World Economic Forum]] in [[World Economic Forum|Davos]].
 
 ### AF 2024-01-19 1280
-(00:58:14) [[Benjamin Netanyahu|Bibi]]'s declaration of Israeli control from the river to the sea implied an indefinite expansion of Israel to include the [[Gaza Strip]] and the [[Gaza Strip|West Bank]], a position opposed by [[Russia]], [[China]], the [[Europe|European Union]], and the [[United States]].
+(00:58:14) [[Benjamin Netanyahu|Bibi]]'s declaration of Israeli control from the river to the sea implied an indefinite expansion of Israel to include the [[Gaza Strip]] and the [[Gaza Strip|West Bank]], a position opposed by [[Russia]], [[China]], the [[European Union]], and the [[United States]].
 
 ### AF 2024-01-19 1280
 (01:30:66) The [[United Nations]] General Assembly holds a near-universal consensus supporting the existence of a [[Palestinian]] state, a position opposed by Israel.
@@ -5798,7 +5798,7 @@
 (00:36:11) [[Nicholas J. Fuentes]] addressed criticism that his harsh stance on Israel was incompatible with his support for the pro-Israel [[Donald Trump]].
 
 ### AF 2024-01-17 1278
-(00:37:15) Before announcing his campaign, [[Ron DeSantis]] flew to Israel and had dinner with [[Sheldon Adelson|Miriam Adelson]], the widow of major [[Republican Party|Republican]] donor [[Sheldon Adelson]].
+(00:37:15) Before announcing his campaign, [[Ron DeSantis]] flew to Israel and had dinner with [[Miriam Adelson]], the widow of major [[Republican Party|Republican]] donor [[Sheldon Adelson]].
 
 ### AF 2024-01-17 1278
 (00:37:38) [[Sheldon Adelson]] was a single-issue donor focused on Israel who spent hundreds of millions of dollars over multiple election cycles to reshape the [[Republican Party]] into a pro-Israel party.
@@ -5810,7 +5810,7 @@
 (00:40:10) [[Ron DeSantis]] visited Israel, [[London]], and [[South Korea]] before announcing his presidential campaign.
 
 ### AF 2024-01-17 1278
-(00:40:19) During his Israel trip, [[Ron DeSantis]] dined with [[Sheldon Adelson|Miriam Adelson]] and other major Zionist donors.
+(00:40:19) During his Israel trip, [[Ron DeSantis]] dined with [[Miriam Adelson]] and other major Zionist donors.
 
 ### AF 2024-01-17 1278
 (00:44:14) [[Nicholas J. Fuentes]] contrasted [[Donald Trump]]'s rhetoric with that of [[Nikki Haley]], who said the [[United States|U.S]]. should give Israel what it wants "no questions asked" and that "[[United States|America]] needs Israel."
@@ -5882,13 +5882,13 @@
 (03:24:31) Israel killed a senior [[Hezbollah]] commander in [[Lebanon]], escalating tensions along the northern border.
 
 ### AF 2024-01-06 1274
-(00:07:08) [[Nicholas J. Fuentes]] argued that [[Destiny]] is unintelligent, citing his inability to locate Israel on a map, confusion over [[Donald Trump|the president]] of [[Turkey]], and ignorance about [[Genghis Khan]], the [[Bible]], and [[Kevin McCarthy]].
+(00:07:08) [[Nicholas J. Fuentes]] argued that [[Destiny]] is unintelligent, citing his inability to locate Israel on a map, confusion over [[the president]] of [[Turkey]], and ignorance about [[Genghis Khan]], the [[Bible]], and [[Kevin McCarthy]].
 
 ### AF 2024-01-06 1274
 (00:10:21) [[Nicholas J. Fuentes]] asserted that Israel controls [[the United States]] political establishment and uses Western power to accomplish its strategic goals, primarily a confrontation with [[Iran]].
 
 ### AF 2024-01-06 1274
-(00:14:41) [[Nicholas J. Fuentes]] stated his primary political position is "[[United States|America]] First," prioritizing [[United States|American]] liberation from the [[American Israel Public Affairs Committee|Israel lobby]] and avoiding war with [[Iran]] over support for Israel or [[Gaza Strip|Palestine]].
+(00:14:41) [[Nicholas J. Fuentes]] stated his primary political position is "[[United States|America]] First," prioritizing [[United States|American]] liberation from the [[American Israel Public Affairs Committee|Israel lobby]] and avoiding war with [[Iran]] over support for Israel or [[Palestine]].
 
 ### AF 2024-01-05 1273
 (00:24:37) [[Nicholas J. Fuentes]] theorized that [[Jeffrey Epstein]] was most likely running a sexual blackmail ring for an intelligence agency, with the strongest theory being that he worked for Israeli intelligence to conduct espionage in the [[United States|American]] technology sector.
@@ -5984,7 +5984,7 @@
 (00:00:39) [[Nicholas J. Fuentes]] identified the featured story as the intense pro-Israel campaign against the presidents of three [[Ivy League|Ivy League universities]] and [[Massachusetts Institute of Technology|MIT]].
 
 ### AF 2024-01-03 1271
-(00:02:54) Pro-Israel campaigners announced they would next target [[Donald Trump|the president]] of [[Massachusetts Institute of Technology|MIT]], [[Sally Kornbluth]].
+(00:02:54) Pro-Israel campaigners announced they would next target [[the president]] of [[Massachusetts Institute of Technology|MIT]], [[Sally Kornbluth]].
 
 ### AF 2024-01-03 1271
 (00:04:15) [[Nicholas J. Fuentes]] framed the conflict at [[Harvard University]] as a direct confrontation between the "woke left" represented by [[Claudine Gay]] and the "[[American Israel Public Affairs Committee|Jewish lobby]]" which supports Israel.
@@ -6395,7 +6395,7 @@
 (06:52:90) The government of [[Germany]] proposed making citizenship conditional on a loyalty oath to Israel and deporting [[Islam|Muslims]] who did not support Israel.
 
 ### AF 2023-12-13 1262
-(24:02:35) [[Joe Biden]] stated that Israel's security could rest on the [[United States]], but that it also had the support of the [[Europe|European Union]] and most of the world, though he acknowledged this was not really true as global horror was mounting.
+(24:02:35) [[Joe Biden]] stated that Israel's security could rest on the [[United States]], but that it also had the support of the [[European Union]] and most of the world, though he acknowledged this was not really true as global horror was mounting.
 
 ### AF 2023-12-13 1262
 (29:24:73) [[Nicholas J. Fuentes]] argued that Israel's treatment of [[Palestinians]] in the [[Gaza Strip]] was worse than [[China]]'s treatment of Uighurs or [[Russia]]'s actions in [[Ukraine]], yet it received unwavering support from the [[United States]].
@@ -6461,7 +6461,7 @@
 (00:58:07) [[Nicholas J. Fuentes]] referenced [[Javier Milei]] waving an Israeli flag, suggesting it indicated he was a paid foreign shill rather than holding an authentic position.
 
 ### AF 2023-12-08 1259
-(00:03:03) Presidents of several highly selective schools were hauled before a congressional hearing to explain pro-[[Gaza Strip|Palestine]] activism on their campuses, facing immense pressure for not enforcing absolute conformity on Israel policy.
+(00:03:03) Presidents of several highly selective schools were hauled before a congressional hearing to explain pro-[[Palestine]] activism on their campuses, facing immense pressure for not enforcing absolute conformity on Israel policy.
 
 ### AF 2023-12-08 1259
 (00:40:29) [[Vivek Ramaswamy]] has been the only candidate besides [[Donald Trump]] pushing the envelope in the mainstream, talking about [[United States|American]] identity, Israel, [[January 6th Attack|January 6th]], and the deep state problem of unelected bureaucrats.
@@ -6497,7 +6497,7 @@
 (04:39:40) [[Nikki Haley]] linked global conflicts, arguing that [[Russia]]'s [[Vladimir Putin|Putin]] was losing the war in [[Ukraine]] until he received drones from [[Iran]] and missiles from [[North Korea]], and that the [[Hamas attack]] on Israel on [[Vladimir Putin|Putin]]'s birthday diverted [[United States|American]] attention from [[Ukraine]], which was [[Vladimir Putin|Putin]]'s goal.
 
 ### AF 2023-12-07 1258
-(02:02:59) [[Nicholas J. Fuentes]] stated that [[Ron DeSantis]] visited Israel before his presidential announcement and received support from [[Jewish]] donors like [[Sheldon Adelson|Miriam Adelson]], amassing a record war chest of around $200 million.
+(02:02:59) [[Nicholas J. Fuentes]] stated that [[Ron DeSantis]] visited Israel before his presidential announcement and received support from [[Jewish]] donors like [[Miriam Adelson]], amassing a record war chest of around $200 million.
 
 ### AF 2023-12-07 1258
 (02:08:45) [[Nicholas J. Fuentes]] argued that the debate parameters allowed candidates like [[Ron DeSantis]] and [[Nikki Haley]] to argue over who was more pro-Israel or anti-[[China]], but prohibited critiques of the deep state, the war agenda, or the system itself, which [[Vivek Ramaswamy]] violated.
@@ -6509,7 +6509,7 @@
 (02:29:55) [[Nicholas J. Fuentes]] refuted the neocon claim that [[Joe Biden]] gave [[Iran]] $6 billion that funded the attack on Israel, explaining the money was [[Iran]]'s frozen assets in [[South Korea]] that were transferred to [[Qatar]] and never reached [[Iran]].
 
 ### AF 2023-12-07 1258
-(02:33:42) [[Nicholas J. Fuentes]] paraphrased [[Nikki Haley]]'s debate claim that [[Gaza Strip|Palestine]] attacked Israel to relieve pressure on [[Russia]], which she said was because [[Ukraine]] was winning the war—a statement [[Nicholas J. Fuentes]] called false and indicative of living in "fantasy land."
+(02:33:42) [[Nicholas J. Fuentes]] paraphrased [[Nikki Haley]]'s debate claim that [[Palestine]] attacked Israel to relieve pressure on [[Russia]], which she said was because [[Ukraine]] was winning the war—a statement [[Nicholas J. Fuentes]] called false and indicative of living in "fantasy land."
 
 ### AF 2023-12-07 1258
 (02:34:57) [[Nicholas J. Fuentes]] summarized [[Nikki Haley]]'s theory as: [[Russia]] was losing in [[Ukraine]], so [[Russia]] called [[Iran]], which called [[Hamas]], which attacked Israel on [[Vladimir Putin|Putin]]'s birthday—a narrative [[Nicholas J. Fuentes]] called insane.
@@ -6524,7 +6524,7 @@
 (00:27:46) Israel knew about the [[Hamas]] attack on [[October 7th Attack|October 7th]] up to a year in advance, possessing detailed plans of the operation.
 
 ### AF 2023-12-05 1257
-(00:51:38) [[William Ackman|Bill Ackman]], an Ashkenazi [[Jewish]] billionaire hedge fund manager and [[Harvard University|Harvard]] alumnus, financed a campaign using electronic billboard trucks to dox pro-[[Gaza Strip|Palestine]] students at [[Harvard University]] who signed a letter blaming Israel for the [[Hamas]] attack.
+(00:51:38) [[William Ackman|Bill Ackman]], an Ashkenazi [[Jewish]] billionaire hedge fund manager and [[Harvard University|Harvard]] alumnus, financed a campaign using electronic billboard trucks to dox pro-[[Palestine]] students at [[Harvard University]] who signed a letter blaming Israel for the [[Hamas]] attack.
 
 ### AF 2023-12-05 1257
 (01:54:50) [[Bernard Marcus]], the [[Jewish]] billionaire founder of [[Home Depot]] and a donor to [[Turning Point USA]], wrote a letter endorsing [[Donald Trump]] over [[Ron DeSantis]] in the [[Republican Party|Republican]] primary, arguing [[Donald Trump|Trump]] would have prevented the [[Hamas]] attack on Israel.
@@ -6548,7 +6548,7 @@
 (00:23:24) [[Nicholas J. Fuentes]] recounted that a group of [[Harvard University]] students published a letter blaming Israel for the [[Hamas]] attack on [[October 7th Attack|October 7th]] before Israel began its invasion of [[Gaza Strip|Gaza]].
 
 ### AF 2023-12-05 1256
-(00:45:28) [[Nicholas J. Fuentes]] argued that when [[William Ackman|Bill Ackman]] and similar figures label pro-[[Gaza Strip|Palestine]] activism as "anti-Semitism," they are really defending the "[[Jewish]] interest," which he defined as the security of the State of Israel.
+(00:45:28) [[Nicholas J. Fuentes]] argued that when [[William Ackman|Bill Ackman]] and similar figures label pro-[[Palestine]] activism as "anti-Semitism," they are really defending the "[[Jewish]] interest," which he defined as the security of the State of Israel.
 
 ### AF 2023-12-05 1256
 (00:51:40) [[Nicholas J. Fuentes]] stated he does not believe [[William Ackman|Bill Ackman]] was unaware of issues like mass migration and the secularization of society, but that he either supported them or turned a blind eye until they threatened Israel.
@@ -6812,7 +6812,7 @@
 (00:56:24) [[Nicholas J. Fuentes]] expressed uncertainty over whether Israel's leaked desire for war with [[Hezbollah]] was genuine or a bluff, but believed it was more likely a deterrent signal to make [[Hezbollah]] more cautious, as a two-front war would be existentially threatening for Israel.
 
 ### AF 2023-11-11 1248
-(00:00:52) [[Emmanuel Macron|Macron]], [[the President]] of [[Government of France|France]], publicly called on Israel to stop killing babies and women in [[Gaza Strip|Gaza]] and urged a ceasefire.
+(00:00:52) [[Emmanuel Macron|Macron]], [[the President]] of [[France]], publicly called on Israel to stop killing babies and women in [[Gaza Strip|Gaza]] and urged a ceasefire.
 
 ### AF 2023-11-11 1248
 (00:17:03) [[Emmanuel Macron|Macron]] gave an interview at the [[French]] presidential palace calling for a ceasefire and stating Israel should stop killing babies and women in [[Gaza Strip|Gaza]].
@@ -7160,7 +7160,7 @@
 (01:31:51) [[Secretary of State]] [[Antony Blinken]] publicly stated "I'm a [[Jews|Jew]]" while affirming [[Joe Biden|Biden]]'s commitment to give Israel everything it needs.
 
 ### AF 2023-11-02 1242
-(01:35:34) [[Pope Francis]] called for a two-state solution with special privileges for [[Gaza Strip|Palestine]] in the Israel-[[Gaza Strip|Palestine]] conflict, a position [[Nicholas J. Fuentes]] contrasted with Protestant support for Israel.
+(01:35:34) [[Pope Francis]] called for a two-state solution with special privileges for [[Palestine]] in the Israel-[[Palestine]] conflict, a position [[Nicholas J. Fuentes]] contrasted with Protestant support for Israel.
 
 ### AF 2023-10-27 1241
 (00:12:16) The debate between [[Nicholas J. Fuentes]] and [[Alex Jones]] was initiated over a disagreement regarding whether [[Hamas]] accidentally bombed a hospital in [[Gaza Strip|Gaza]] or if Israel was responsible.
@@ -7229,7 +7229,7 @@
 (00:12:54) [[Nicholas J. Fuentes]] cited instances of doctors being fired for supporting [[Hamas]] and a [[The Wall Street Journal|Wall Street]] billionaire funding a campaign to dox and blacklist [[Harvard University|Harvard]] students who condemned Israel.
 
 ### AF 2023-10-23 1240
-(00:14:07) [[Nicholas J. Fuentes]] noted that a [[The Wall Street Journal|Wall Street]] billionaire pressured [[Harvard University|Harvard]]'s board to rescind funding and that [[Donald Trump|the president]] of the [[University of Pennsylvania]] faced calls to resign after the university hosted a speaker critical of Israel.
+(00:14:07) [[Nicholas J. Fuentes]] noted that a [[The Wall Street Journal|Wall Street]] billionaire pressured [[Harvard University|Harvard]]'s board to rescind funding and that [[the president]] of the [[University of Pennsylvania]] faced calls to resign after the university hosted a speaker critical of Israel.
 
 ### AF 2023-10-23 1240
 (00:15:59) [[Nicholas J. Fuentes]] stated that the [[Anti-Defamation League|ADL]] and [[Ben Shapiro]], despite previous factional disputes, are now united in supporting Israel, with [[Ben Shapiro]] retweeting [[Anti-Defamation League|Jonathan Greenblatt]].
@@ -7253,7 +7253,7 @@
 (00:28:50) [[Nicholas J. Fuentes]] argued that [[Ben Shapiro]]'s rhetoric about nuclear blackmail reflects Israel's strategic need for unconditional [[United States]] support, as Israel cannot simultaneously defeat [[Hamas]], [[Hezbollah]], and [[Iran]].
 
 ### AF 2023-10-23 1240
-(00:29:39) [[Nicholas J. Fuentes]] stated that Israel understands that mass protests in [[United States|American]] cities like [[City of Chicago|Chicago]], [[New York]], and [[Los Angeles]] could pressure the [[United States]] government to reduce its support.
+(00:29:39) [[Nicholas J. Fuentes]] stated that Israel understands that mass protests in [[United States|American]] cities like [[Chicago]], [[New York]], and [[Los Angeles]] could pressure the [[United States]] government to reduce its support.
 
 ### AF 2023-10-23 1240
 (00:31:53) [[Nicholas J. Fuentes]] stated that while he would not attend a pro-[[Palestinian]] protest, he acknowledged those protests are the primary source of pressure on the [[United States]] government to restrain Israel.
@@ -7331,7 +7331,7 @@
 (00:29:20) [[Nicholas J. Fuentes]] argued that Israel, [[Saudi Arabia]], [[Ukraine]], [[Democratic Party|Democrats]], various ethnic and immigrant groups, and trade interests were all represented in government, but the people who voted for [[Donald Trump]] were not.
 
 ### AF 2023-10-20 1239
-(00:35:19) [[Nicholas J. Fuentes]] questioned where [[Paul Gosar]] and [[Marjorie Taylor Greene]] were on the Israel-[[Gaza Strip|Gaza]] conflict, noting they had left the [[United States|America]] First movement while he had remained consistent on the border, [[Kevin McCarthy]], and Israel-[[Gaza Strip|Palestine]].
+(00:35:19) [[Nicholas J. Fuentes]] questioned where [[Paul Gosar]] and [[Marjorie Taylor Greene]] were on the Israel-[[Gaza Strip|Gaza]] conflict, noting they had left the [[United States|America]] First movement while he had remained consistent on the border, [[Kevin McCarthy]], and Israel-[[Palestine]].
 
 ### AF 2023-10-20 1239
 (00:37:02) [[Paul Gosar]] was hosting fundraisers with a Zionist rabbi who explained to naive boomers why Israel was the [[United States]]' closest geopolitical strategic ally.
@@ -7439,7 +7439,7 @@
 (00:43:16) [[Nicholas J. Fuentes]] cited [[United States|U.S]]. [[Secretary of State]] [[Antony Blinken]] telling Israel "I'm also a [[Jews|Jew]]" during a visit as evidence of dual loyalty.
 
 ### AF 2023-10-19 1238
-(00:44:07) [[Elon Musk]] participated in a [[Twitter]] Space with [[the President]] of Israel and [[Ben Shapiro]], where he promised to visit the [[City of Auschwitz|Auschwitz]]-Birkenau concentration camp.
+(00:44:07) [[Elon Musk]] participated in a [[Twitter]] Space with [[the President]] of Israel and [[Ben Shapiro]], where he promised to visit the [[Auschwitz]]-Birkenau concentration camp.
 
 ### AF 2023-10-19 1238
 (00:56:16) [[Nicholas J. Fuentes]] reported that [[Dave Rubin]] was calling conservatives to get them fired from their jobs for taking the wrong position on Israel.
@@ -7571,7 +7571,7 @@
 (00:57:92) [[Benjamin Netanyahu|Bibi]] formed a unity government in Israel to prosecute the war against [[Hamas]] after facing widespread domestic protests and opposition.
 
 ### AF 2023-10-17 1236
-(01:03:12) On October 12, Israel ordered the evacuation of 1.1 million people from northern [[Gaza Strip|Gaza]] within 24 hours, a directive criticized as impossible by the [[United Nations]], [[Europe|European Union]], and [[United States]], leading to a delayed timeline.
+(01:03:12) On October 12, Israel ordered the evacuation of 1.1 million people from northern [[Gaza Strip|Gaza]] within 24 hours, a directive criticized as impossible by the [[United Nations]], [[European Union]], and [[United States]], leading to a delayed timeline.
 
 ### AF 2023-10-17 1236
 (01:04:41) Israel delayed its planned ground offensive into the [[Gaza Strip]] due to intense rainfall and poor weather conditions that hampered air support operations.
@@ -7622,7 +7622,7 @@
 (01:34:20) Commentators [[Ben Shapiro]] and [[Mark Levin]] suggested that if the [[United States]] did not support Israel, Israel would use nuclear weapons against [[Gaza Strip|Gaza]], [[Iran]], and [[Syria]], which was characterized as nuclear blackmail.
 
 ### AF 2023-10-17 1236
-(01:35:02) [[Pope Francis]] called for a global day of fasting and prayer for peace in [[Gaza Strip|Palestine]].(01:22:12) Israel possesses a nuclear arsenal and holds key media positions, creating a strategic advantage over its adversaries.
+(01:35:02) [[Pope Francis]] called for a global day of fasting and prayer for peace in [[Palestine]].(01:22:12) Israel possesses a nuclear arsenal and holds key media positions, creating a strategic advantage over its adversaries.
 
 ### AF 2023-10-17 1236
 (01:22:28) The [[United States]] faces a choice between going to war with [[Iran]], [[Russia]], and [[China]], or allowing Israel to use nuclear weapons against [[Iran]], potentially triggering a world war.
@@ -7727,7 +7727,7 @@
 (00:59:37) [[Nicholas J. Fuentes]] argued that Judaism and [[Christianity]] have fundamentally different moral precepts, with Judaism having no problem with abortion, transgenderism, pornography, or, in the context of Israel, killing Gentiles.
 
 ### AF 2023-10-14 1235
-(01:02:17) [[Nicholas J. Fuentes]] contrasted Western governments' tolerance for [[Islam|Muslim]] immigration and related social problems with their rapid crackdown on pro-[[Gaza Strip|Palestine]] protests after the attack on Israel, highlighting a double standard driven by [[Jewish]] influence.
+(01:02:17) [[Nicholas J. Fuentes]] contrasted Western governments' tolerance for [[Islam|Muslim]] immigration and related social problems with their rapid crackdown on pro-[[Palestine]] protests after the attack on Israel, highlighting a double standard driven by [[Jewish]] influence.
 
 ### AF 2023-10-14 1235
 (01:03:35) [[Nicholas J. Fuentes]] stated that [[MSNBC]] fired three [[Islam|Muslim]] commentators, including [[Mehdi Hasan]], for not being sufficiently pro-Israel.
@@ -7754,7 +7754,7 @@
 (00:04:48) Israel announced an invasion of North [[Gaza Strip|Gaza]] within 24 hours, ordering approximately one million [[Palestinians]] to evacuate while blockading all exits, including the border with [[Arab Republic of Egypt|Egypt]].
 
 ### AF 2023-10-12 1234
-(00:07:03) [[Nicholas J. Fuentes]] argued that the [[Labor Party|Likud]] party in Israel had captured the [[United States]] government and was responsible for policies like censorship and the war in [[Iraq]], making Israel's conflict a strategic concern for the [[United States|America]] First movement.
+(00:07:03) [[Nicholas J. Fuentes]] argued that the [[Likud]] party in Israel had captured the [[United States]] government and was responsible for policies like censorship and the war in [[Iraq]], making Israel's conflict a strategic concern for the [[United States|America]] First movement.
 
 ### AF 2023-10-12 1234
 (00:09:04) [[Nicholas J. Fuentes]] stated that Israel was about to commit a genocide in the [[Gaza Strip]], an act he described as repugnant and evil, and called on [[Christianity|Christians]] and [[United States|America]] First supporters to pray for the people of [[Gaza Strip|Gaza]].
@@ -7808,7 +7808,7 @@
 (01:01:33) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s criticism of [[Benjamin Netanyahu|Bibi]] demonstrated he was an independent force, not a Zionist shill, unlike other politicians who were blackmailed or paid by Israel.
 
 ### AF 2023-10-12 1234
-(01:02:29) [[Nicholas J. Fuentes]] pointed to [[Donald Trump]]'s 2015 primary comments about making a deal for both Israel and [[Gaza Strip|Palestine]] and his long-standing criticism of the [[Iraq]] War as evidence he was not an agent of Israel.
+(01:02:29) [[Nicholas J. Fuentes]] pointed to [[Donald Trump]]'s 2015 primary comments about making a deal for both Israel and [[Palestine]] and his long-standing criticism of the [[Iraq]] War as evidence he was not an agent of Israel.
 
 ### AF 2023-10-12 1234
 (01:05:31) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s pro-Israel actions in office, like moving the [[United States Embassy in Jerusalem|embassy]], were largely symbolic gestures, while substantive moves like ending the pursuit of regime change in [[Syria]] under [[Bashar al-Assad]] went against Israel's interests.
@@ -7817,7 +7817,7 @@
 (01:13:02) [[Nicholas J. Fuentes]] ended the monologue by summarizing the two major developments: Israel's evacuation order in [[Gaza Strip|Gaza]] and [[Donald Trump]]'s break with [[Benjamin Netanyahu|Bibi]] amid the latter's apparent political demise.
 
 ### AF 2023-10-12 1233
-(00:05:18) [[Nicholas J. Fuentes]] reflected that the [[Cozy.tv]] platform was created in October 2021, the same month as the 2022 Defcon 3 alert and the 2023 outbreak of war between Israel and [[Gaza Strip|Palestine]].
+(00:05:18) [[Nicholas J. Fuentes]] reflected that the [[Cozy.tv]] platform was created in October 2021, the same month as the 2022 Defcon 3 alert and the 2023 outbreak of war between Israel and [[Palestine]].
 
 ### AF 2023-10-12 1233
 (26:28:44) [[Nicholas J. Fuentes]] argued that the Nakba, the displacement of [[Palestinians]], is not comparable to [[Europe|European]] colonization of [[United States|America]], and that the current immigration dynamic makes immigrants analogous to Israel as displacers of natives.
@@ -7877,10 +7877,10 @@
 (00:35:41) [[Nicholas J. Fuentes]] argued that the Israeli military had an interest in convincing the [[United States|American]] public to support their operation, and that public support was dependent on information from mainstream media sources reporting that [[Palestinians]] were killing babies.
 
 ### AF 2023-10-11 1232
-(00:52:13) [[Nicholas J. Fuentes]] argued that political discourse is colonized by the military, and that people working downstream from the national security apparatus engage in conversations about Israel and [[Gaza Strip|Palestine]] because public opinion is another front in the war.
+(00:52:13) [[Nicholas J. Fuentes]] argued that political discourse is colonized by the military, and that people working downstream from the national security apparatus engage in conversations about Israel and [[Palestine]] because public opinion is another front in the war.
 
 ### AF 2023-10-11 1232
-(00:53:23) [[Nicholas J. Fuentes]] claimed that if he convinced everyone in [[United States|America]] that Israel should show restraint, it would restrict Israel's freedom of action in [[Gaza Strip|Palestine]], which is not in Israel's interest, and consequently they have a problem with someone like him.
+(00:53:23) [[Nicholas J. Fuentes]] claimed that if he convinced everyone in [[United States|America]] that Israel should show restraint, it would restrict Israel's freedom of action in [[Palestine]], which is not in Israel's interest, and consequently they have a problem with someone like him.
 
 ### AF 2023-10-11 1232
 (00:55:49) [[Nicholas J. Fuentes]] cited [[Jordan Peterson]] as an example of someone "cheerleading" Israel with statements like "give them hell" and "level [[Gaza Strip|Gaza]]."
@@ -7901,7 +7901,7 @@
 (01:10:48) [[Nicholas J. Fuentes]] argued that the Israeli military's claim that [[Palestinians]] were "baby decapitators" was a trick to get [[United States|Americans]] to advocate against their own interest by supporting a brutal response that risked a wider war.
 
 ### AF 2023-10-10 1231
-(00:00:30) [[Nicholas J. Fuentes]] stated that the Israel-[[Gaza Strip|Palestine]] war that broke out on Saturday was a total surprise that would fundamentally change the shape of the [[region]].
+(00:00:30) [[Nicholas J. Fuentes]] stated that the Israel-[[Palestine]] war that broke out on Saturday was a total surprise that would fundamentally change the shape of the [[region]].
 
 ### AF 2023-10-10 1231
 (00:01:09) [[Hamas]], a group from the [[Gaza Strip]], invaded Israel on Saturday, marking the first widespread fighting inside Israel since 1948.
@@ -7934,7 +7934,7 @@
 (00:11:17) On Saturday, [[Hamas]] invaded Israel from the [[Gaza Strip]] by land, air, and sea, seizing towns, taking hostages, and killing people, which totally caught Israel off guard.
 
 ### AF 2023-10-10 1231
-(00:12:48) The incursion was condemned by virtually the entire world except [[Islam|Muslim]] nations, with the [[United Arab Emirates]] blaming [[Gaza Strip|Palestine]] due to its ties to Israel.
+(00:12:48) The incursion was condemned by virtually the entire world except [[Islam|Muslim]] nations, with the [[United Arab Emirates]] blaming [[Palestine]] due to its ties to Israel.
 
 ### AF 2023-10-10 1231
 (00:13:11) In the days following, Israel mounted an aggressive counteroffensive, retook all land, launched airstrikes killing hundreds of [[Palestinians]], and enacted a full blockade of the [[Gaza Strip]], preventing all electricity, water, fuel, medicine, and food.
@@ -8021,7 +8021,7 @@
 (00:45:30) If [[Saudi Arabia]] normalized ties, it would go a long way toward uniting the Arab world in accepting Israel, effectively settling the issue of Israel's integration since 1948.
 
 ### AF 2023-10-10 1231
-(00:46:16) The Abraham Accords framework aimed to shelve the Israel-[[Gaza Strip|Palestine]] issue, have Arab countries make peace with Israel on a state-by-state basis, and isolate the [[Palestinian]] problem as a domestic concern of Israel.
+(00:46:16) The Abraham Accords framework aimed to shelve the Israel-[[Palestine]] issue, have Arab countries make peace with Israel on a state-by-state basis, and isolate the [[Palestinian]] problem as a domestic concern of Israel.
 
 ### AF 2023-10-10 1231
 (00:48:36) [[Nicholas J. Fuentes]] argued that [[Hamas]] attacked now to tank the [[Saudi Arabia|Saudi]]-Israel normalization deal because if the conflict became a domestic Israeli problem, [[Palestinians]] would lose all their leverage with Arab states.
@@ -8069,7 +8069,7 @@
 (01:16:57) [[Nicholas J. Fuentes]] rejected comparisons of [[Hamas]] to [[Islamic State of Iraq and Syria|ISIS]], arguing [[Palestinians]] want a state of their own and use unconventional tactics (called terrorism) because they lack a state and army, just as [[Jewish]] groups used similar tactics before Israel's founding.
 
 ### AF 2023-10-10 1231
-(01:17:56) [[Nicholas J. Fuentes]] stated he was not pro-Israel or pro-[[Gaza Strip|Palestine]] but "pro-[[United States|America]]," and the biggest [[United States|American]] concern was avoiding a war with [[Iran]], as Israel is a belligerent state trying to ignite such a war.
+(01:17:56) [[Nicholas J. Fuentes]] stated he was not pro-Israel or pro-[[Palestine]] but "pro-[[United States|America]]," and the biggest [[United States|American]] concern was avoiding a war with [[Iran]], as Israel is a belligerent state trying to ignite such a war.
 
 ### AF 2023-10-10 1231
 (01:20:07) [[Nicholas J. Fuentes]] argued the [[United States|American]] interest is to avoid war with [[Iran]] and maintain regional stability, which means restraining Israel's counteroffensive, preventing escalation, keeping [[Hezbollah]] and [[Iran]] out, and getting the [[region]] back on track to normalization and integrating [[Iran]].
@@ -8087,7 +8087,7 @@
 (01:48:38) [[Nicholas J. Fuentes]] stated that Israel is capable of and would threaten to enact a "Samson Option," targeting nuclear plants worldwide if faced with existential defeat, though he assessed that Israel was not under such a threat from [[Hamas]].
 
 ### AF 2023-10-10 1231
-(01:56:01) [[Nicholas J. Fuentes]] expressed love for a wide array of entities and individuals, including [[black]] people, [[Jews|Jewish people]], Israel, [[Iran]], [[Gaza Strip|Palestine]], [[Palestinian]] Islamic Jihad, [[Mexico]], white people, [[Adolf Hitler|Hitler]], [[Charlie Kirk]], and [[Joe Biden]].
+(01:56:01) [[Nicholas J. Fuentes]] expressed love for a wide array of entities and individuals, including [[black]] people, [[Jews|Jewish people]], Israel, [[Iran]], [[Palestine]], [[Palestinian]] Islamic Jihad, [[Mexico]], white people, [[Adolf Hitler|Hitler]], [[Charlie Kirk]], and [[Joe Biden]].
 
 ### AF 2023-10-10 1231
 (01:57:51) [[Nicholas J. Fuentes]] condemned actions by Israelis such as stripping prisoners, torturing them, and inflicting pain for revenge, contrasting it with what he described as his own utilitarian and non-hatred-based approach to dealing with enemies.
@@ -8117,7 +8117,7 @@
 (02:40:15) [[Nicholas J. Fuentes]] recounted a debate where a critic accused him of contradiction for wanting a white-majority [[United States|America]] while criticizing Israel as an ethnostate, to which he responded that his criticism was of Israel's control over the [[United States|U.S.]] government.
 
 ### AF 2023-10-10 1231
-(02:44:07) [[Nicholas J. Fuentes]] predicted that pro-Israel actors would "start blowing shit up in [[United States|America]] blaming it on [[Gaza Strip|Palestine]]."
+(02:44:07) [[Nicholas J. Fuentes]] predicted that pro-Israel actors would "start blowing shit up in [[United States|America]] blaming it on [[Palestine]]."
 
 ### AF 2023-10-10 1231
 (02:44:45) [[Nicholas J. Fuentes]] predicted the Israel-[[Hamas]] conflict would pressure both [[Joe Biden]] and [[Donald Trump]] to adopt more hawkish positions towards [[Iran]] during the [[U.S. election]], with [[Donald Trump|Trump]] criticizing [[Joe Biden|Biden]] for weakness and [[Joe Biden|Biden]] trying to reassure [[Jewish]] voters.
@@ -8141,7 +8141,7 @@
 (03:02:29) [[Nicholas J. Fuentes]], asked why [[Donald Trump]] was so pro-Israel, stated it was "because he's owned by the [[Jews]], obviously."
 
 ### AF 2023-10-05 1230
-(00:35:23) [[Nicholas J. Fuentes]] asserted that Israel took over the mandate of [[Gaza Strip|Palestine]] by flooding the territory with [[Jewish]] immigrants, increasing from 5% to half the population.
+(00:35:23) [[Nicholas J. Fuentes]] asserted that Israel took over the mandate of [[Palestine]] by flooding the territory with [[Jewish]] immigrants, increasing from 5% to half the population.
 
 ### AF 2023-10-05 1230
 (00:35:57) [[Nicholas J. Fuentes]] stated that Israel built a giant wall between its settlements and those of its ethnic and religious peers, deporting thousands of African migrants and maintaining an immigration policy that favors ethnically [[Jews|Jewish people]].
@@ -8195,7 +8195,7 @@
 (01:41:40) An ambassador to Israel in the [[Clinton]] administration criticized [[Mitt Romney]]'s 2012 debate statement, saying it implied he would "subcontract [[Middle East]] policy to Israel."
 
 ### AF 2023-09-14 1216
-(01:45:40) [[Nicholas J. Fuentes]] posited that [[Benjamin Netanyahu|Bibi]] and [[Labor Party|Likud]] hated [[Barack Obama]] and the [[Democratic Party]] because [[Barack Obama]] wanted a rapprochement with [[Iran]], to leave [[Iraq]], refused to intervene in [[Syria]], and allowed the [[United Nations Security Council]] to condemn Israeli settlements.
+(01:45:40) [[Nicholas J. Fuentes]] posited that [[Benjamin Netanyahu|Bibi]] and [[Likud]] hated [[Barack Obama]] and the [[Democratic Party]] because [[Barack Obama]] wanted a rapprochement with [[Iran]], to leave [[Iraq]], refused to intervene in [[Syria]], and allowed the [[United Nations Security Council]] to condemn Israeli settlements.
 
 ### AF 2023-09-14 1216
 (01:48:20) [[Nicholas J. Fuentes]] characterized the 2008 election as [[Barack Obama]], who wanted to end the war in [[Iraq]], versus [[John McCain]], a "neocon" who "basically owned by Israel" and wanted more war.
@@ -8360,7 +8360,7 @@
 (00:55:53) The judicial reform debate in Israel represented a wider ideological standoff between [[Benjamin Netanyahu|Bibi]]'s government, which sought a more religious and nationalist state, and opponents holding a more secular and pluralist vision.
 
 ### AF 2023-07-26 1193
-(00:59:01) [[Nicholas J. Fuentes]] characterized the [[Labor Party|Likud]] coalition government in Israel as an anti-[[Christianity|Christian]], zealous Zionist group that wielded significant influence over the [[United States|American government]] and the [[United States|American]] right wing.
+(00:59:01) [[Nicholas J. Fuentes]] characterized the [[Likud]] coalition government in Israel as an anti-[[Christianity|Christian]], zealous Zionist group that wielded significant influence over the [[United States|American government]] and the [[United States|American]] right wing.
 
 ### AF 2023-07-26 1193
 (00:59:40) A primary effect of eliminating the Israeli Supreme Court's power would be the unchecked expansion of civilian settlements in the occupied [[Gaza Strip|West Bank]], a policy condemned by the [[United States]] and the [[United Nations]] since 1967.
@@ -8393,10 +8393,10 @@
 (30:12:69) [[Nicholas J. Fuentes]] asserted that the [[Republican Party]] is more captured by the Israel lobby than the [[Democratic Party]], citing a near-unanimous Congressional resolution declaring Israel not a racist state.
 
 ### AF 2023-07-22 1191
-(31:56:96) [[Nicholas J. Fuentes]] noted ongoing turmoil in Israel surrounding [[Benjamin Netanyahu|Netanyahu]] and the [[Labor Party|Likud]] party over proposed judicial reform.
+(31:56:96) [[Nicholas J. Fuentes]] noted ongoing turmoil in Israel surrounding [[Benjamin Netanyahu|Netanyahu]] and the [[Likud]] party over proposed judicial reform.
 
 ### AF 2023-07-22 1191
-(32:53:70) [[Nicholas J. Fuentes]] contended it was better for [[Joe Biden]] to be in the [[Joe Biden|White House]] than [[Donald Trump]] regarding Israel, because [[Donald Trump]] would actively help [[Benjamin Netanyahu|Netanyahu]] and [[Labor Party|Likud]].
+(32:53:70) [[Nicholas J. Fuentes]] contended it was better for [[Joe Biden]] to be in the [[Joe Biden|White House]] than [[Donald Trump]] regarding Israel, because [[Donald Trump]] would actively help [[Benjamin Netanyahu|Netanyahu]] and [[Likud]].
 
 ### AF 2023-07-22 1191
 (45:31:04) [[Charles Johnson]] discovered newspaper clippings showing [[Ruben Efron]] wrote frequent letters to the editor for the [[Miami Herald]] between 1971 and 1979, often focusing on Israel and [[Jewish]] issues.
@@ -8507,7 +8507,7 @@
 (01:12:48:00) [[Nicholas J. Fuentes]] responded that [[Jewish]] influence is "tribal" and based on "blood," not ideology, citing the [[Zionist Organization of America|ZOA]] and the [[Anti-Defamation League|ADL]] as examples of left-wing and right-wing groups that both support Israel.
 
 ### AF 2023-06-30 1184
-(00:13:10) [[Nicholas J. Fuentes]] stated that [[Pedro Gonzalez]] had betrayed his previously held views to support [[Ron DeSantis]], whom he characterized as a hardcore supporter of Israel who had dined with [[Sheldon Adelson|Miriam Adelson]] to receive her blessing.
+(00:13:10) [[Nicholas J. Fuentes]] stated that [[Pedro Gonzalez]] had betrayed his previously held views to support [[Ron DeSantis]], whom he characterized as a hardcore supporter of Israel who had dined with [[Miriam Adelson]] to receive her blessing.
 
 ### AF 2023-06-29 1183
 (00:12:10) [[Nicholas J. Fuentes]] noted that [[Jordan Peterson]] recently interviewed [[Benjamin Netanyahu|Bibi]] in Israel, evidencing [[The Daily Wire]]'s connections to the country.
@@ -8549,10 +8549,10 @@
 (00:48:01) [[Nicholas J. Fuentes]] reported that a Western official told [[Thomson Reuters|Reuters]] one reason for seeking a deal with [[Tehran]] was to prevent an Israeli attack on [[Iran]].
 
 ### AF 2023-06-29 1183
-(00:49:46) [[Nicholas J. Fuentes]] claimed that pro-war hawks in the [[United States Capitol|U.S. Congress]], particularly [[Republican Party|Republicans]], opposed any deal with [[Iran]] due to the influence of donors like [[Sheldon Adelson]], who gave $500 million to the [[Republican Party]] to make it a stalwart defender of Israel.
+(00:49:46) [[Nicholas J. Fuentes]] claimed that pro-war hawks in the [[U.S. Congress]], particularly [[Republican Party|Republicans]], opposed any deal with [[Iran]] due to the influence of donors like [[Sheldon Adelson]], who gave $500 million to the [[Republican Party]] to make it a stalwart defender of Israel.
 
 ### AF 2023-06-29 1183
-(00:54:48) [[Nicholas J. Fuentes]] argued that Israeli money in the [[United States Capitol|U.S. Congress]], by preventing a deal with [[Iran]], has put the [[United States]] on a path toward war with [[Iran]].
+(00:54:48) [[Nicholas J. Fuentes]] argued that Israeli money in the [[U.S. Congress]], by preventing a deal with [[Iran]], has put the [[United States]] on a path toward war with [[Iran]].
 
 ### AF 2023-06-29 1183
 (00:55:52) [[Nicholas J. Fuentes]] stated that Israel is sabotaging the peace process and constantly threatening to attack [[Iran]], which could drag the [[United States]] into a war.
@@ -8603,10 +8603,10 @@
 (00:39:05) [[Nicholas J. Fuentes]] argued that individuals who compromise their beliefs for a career in conservative politics will lose everything if they ever go against Israel or the [[Jews]].
 
 ### AF 2023-06-28 1182
-(01:00:57) [[Nicholas J. Fuentes]] stated that [[Ron DeSantis]] moved to defund [[Ben & Jerry's]] [[ice]] cream after the foreign minister of Israel called on [[United States|American]] officials to attack the company over its stance on the Israel-[[Gaza Strip|Palestine]] conflict.
+(01:00:57) [[Nicholas J. Fuentes]] stated that [[Ron DeSantis]] moved to defund [[Ben & Jerry's]] [[ice]] cream after the foreign minister of Israel called on [[United States|American]] officials to attack the company over its stance on the Israel-[[Palestine]] conflict.
 
 ### AF 2023-06-28 1182
-(01:02:45) [[Nicholas J. Fuentes]] said that before announcing his presidential campaign, [[Ron DeSantis]] traveled to Israel to meet with [[Jews|Jewish Zionist]] donors like [[Sheldon Adelson|Miriam Adelson]] to get their blessing.
+(01:02:45) [[Nicholas J. Fuentes]] said that before announcing his presidential campaign, [[Ron DeSantis]] traveled to Israel to meet with [[Jews|Jewish Zionist]] donors like [[Miriam Adelson]] to get their blessing.
 
 ### AF 2023-06-27 1181
 (01:16:02) [[Nicholas J. Fuentes]] stated that the only thing that would cause him to pause his support for [[Donald Trump]] would be evidence that he did not truly believe in the [[United States|America]] First agenda or connections that compromise him, specifically mentioning Israel.
@@ -8687,7 +8687,7 @@
 (05:56:52) [[Nicholas J. Fuentes]] listed [[Joel Pollak]] of [[Breitbart News|Breitbart]], [[Dennis Prager]] of [[Prager University]], and [[Ben Shapiro]] as examples of conservative [[Jewish]] figures with deep ties to Israel, arguing there is no meaningful distinction between "left-wing" and "right-wing" [[Jewish]] groups when it comes to advocating for [[Jewish]] interests.
 
 ### AF 2023-05-31 1169
-(05:59:22) [[Nicholas J. Fuentes]] stated that the [[Labor Party|Likud]] party in Israel, led by [[Benjamin Netanyahu|Bibi Netanyahu]] and funded by [[Jewish]] billionaires like [[Robert Kraft]], is allied with religious extremists who have spit on [[Christianity|Christians]] and proposed banning the Gospel, undermining the idea of "good," [[Christianity|Christian]]-friendly [[Jews]].
+(05:59:22) [[Nicholas J. Fuentes]] stated that the [[Likud]] party in Israel, led by [[Benjamin Netanyahu|Bibi Netanyahu]] and funded by [[Jewish]] billionaires like [[Robert Kraft]], is allied with religious extremists who have spit on [[Christianity|Christians]] and proposed banning the Gospel, undermining the idea of "good," [[Christianity|Christian]]-friendly [[Jews]].
 
 ### AF 2023-05-31 1169
 (01:35:48) During a conversation with [[Sneeko]], [[Nicholas J. Fuentes]] stated that Israel was responsible for the [[September 11 attacks]], citing declassified [[Federal Bureau of Investigation|FBI]] reports about the "dancing Israelis," the Clean Break memo, and statements from [[Benjamin Netanyahu|Bibi]].
@@ -8741,7 +8741,7 @@
 (00:09:12) [[Nicholas J. Fuentes]] argued that [[Bari Weiss]] and [[Ben Shapiro]] represent opposing political factions but share a common underlying ideology centered on support for Israel.
 
 ### AF 2023-05-11 1160
-(00:26:08) [[Rashida Tlaib]] planned to host an event at the [[United States Capitol]] Visitor Center to commemorate the Nakba, the [[Palestinian]] term for the 1948 founding of Israel which translates to "catastrophe." (00:45:58) [[Mike Johnson|Kevin McCarthy]] canceled the event hosted by [[Rashida Tlaib]] and instead reserved the space to host a bipartisan discussion honoring the 75th anniversary of the [[United States]]-Israel relationship. (00:57:44) [[Mike Johnson|Kevin McCarthy]] decried [[Rashida Tlaib]]'s planned Nakba commemoration as anti-Semitic. (01:13:40) The [[Europe|European Union]]'s foreign policy chief stated that the war in [[Ukraine]] would end within days if [[United States]] military aid stopped. (01:13:40) The [[Europe|European Union]]'s foreign policy chief argued that without [[North Atlantic Treaty Organization|NATO]] and [[United States]] support, [[Ukraine]] would have to surrender to [[Russia]]. (01:22:02) [[Mike Johnson|Kevin McCarthy]], before the 2022 midterm elections, promised that a [[Republican Party|Republican]] [[House]] majority would not write a "blank check" for aid to [[Ukraine]]. (01:23:05) [[Mike Johnson|Kevin McCarthy]] became [[Mike Johnson|Speaker of the House]] in January 2023 after a battle over the speakership. (01:24:29) [[Mike Johnson|Kevin McCarthy]], speaking at a press conference in [[Jerusalem]], delivered a full-throated defense of [[United States]] aid to [[Ukraine]] and stated, "I support aid for [[Ukraine]]." (01:26:08) [[Mike Johnson|Kevin McCarthy]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] spoke by phone for the first [[time]] in April 2023. (01:32:32) [[Mike Johnson|Kevin McCarthy]] made a promise to release 40,000 to 45,000 hours of security footage from the [[United States Capitol]] on [[January 6th Attack|January 6th]] as a term of becoming Speaker. (01:33:02) [[Tucker Carlson]] aired a limited portion of the [[January 6th Attack|January 6th]] [[United States Capitol]] security footage. (01:33:09) [[Marjorie Taylor Greene]] helped broker the deal for [[Mike Johnson|Kevin McCarthy]] to become Speaker and later questioned on [[Twitter]] why the full [[January 6th Attack|January 6th]] footage had not been released. (01:38:36) [[Marjorie Taylor Greene]] was the first to strike a deal with [[Mike Johnson|Kevin McCarthy]] and dissuade the [[MAGA]] coalition in [[Congress]] from resisting his speakership. (02:20:42) [[Nicholas J. Fuentes]] stated he would vote for [[Donald Trump]], [[Kanye West|Ye]], [[Matt Gaetz]], and [[Paul Gosar]], but not for other [[Republican Party|Republican]] candidates. (02:23:44) [[Nicholas J. Fuentes]] argued that Israel's founding in 1948 involved driving millions of [[Palestinians]] from their homes, with many massacres and destruction of villages. (02:48:24) [[Nicholas J. Fuentes]] characterized [[Rashida Tlaib]] as an Arab [[Islam|Muslim]] [[Democratic Party|Democrat]] and hardcore progressive who is anti-Israel because of its treatment of [[Palestinians]]. (02:59:54) [[Nicholas J. Fuentes]] characterized [[Mike Johnson|Kevin McCarthy]] as a white leader of the [[Republican Party]] who is pro-Israel and compromised by it. (03:14:38) [[Nicholas J. Fuentes]] stated that the [[Labor Party|Likud]] government under [[Benjamin Netanyahu|Netanyahu]] is right-wing, forming a basis for ideological affinity with [[United States|American]] conservatives. (03:47:04) [[Nicholas J. Fuentes]] positioned himself against the [[United States]] relationship with Israel but not on the side of progressive, anti-colonial [[Palestinian]] supporters. (04:12:26) [[Nicholas J. Fuentes]] argued that [[United States]] military aid, totaling nearly $200 billion, is the sole reason the war in [[Ukraine]] continues, preventing [[Russia]]'s victory. (04:14:74) [[Nicholas J. Fuentes]] claimed the [[Washington D.C.|Washington]] national security apparatus made a decision around May 2022 to provide unconditional support to [[Ukraine]], preventing the war's end. (04:46:58) [[Nicholas J. Fuentes]] stated that [[Mike Johnson|Kevin McCarthy]]'s promise of no "blank check" for [[Ukraine]] was broken, as aid continues unabated under his speakership. (05:09:12) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] risks a direct [[United States]]-[[Russia]] nuclear confrontation due to [[United States|American]] personnel and equipment involvement. (05:30:54) [[Nicholas J. Fuentes]] cited [[Mike Johnson|Kevin McCarthy]]'s reversal on [[Ukraine]] aid and failure to release [[January 6th Attack|January 6th]] footage as examples of broken promises to the [[Republican Party|Republican]] base. (06:42:46) [[Nicholas J. Fuentes]] referenced a mass shooting in [[State of Texas|Texas]] by a Mexican gunman, which media figures incorrectly linked to white supremacy by citing [[Nicholas J. Fuentes]] as an example of a Mexican white supremacist. (07:48:00) The [[State of Texas|Texas]] mall shooter mentioned [[Nicholas J. Fuentes]] by name in his journal, writing "What's going to happen when you have dozens, hundreds, or thousands of [[Nick]] Fuenteses running around?" (07:50:86) The [[State of Texas|Texas]] mall shooter's journal expressed hatred for white people and other Latino groups like [[Cubans]] and [[Puerto Rico|Puerto Ricans]]. (08:56:48) [[Nicholas J. Fuentes]] referenced the 2019 [[El Paso]] Walmart shooting, where the shooter's connection to an online manifesto was never firmly established. (09:12:90) [[Destiny]], a streamer, previously argued [[Nicholas J. Fuentes]] was not a Nazi but later stated a Mexican could be a Nazi like [[Nicholas J. Fuentes]] during coverage of the [[State of Texas|Texas]] shooting. (10:53:66) [[Nicholas J. Fuentes]] accused "liberal [[Jews|Jew]] types" of insinuating he was similar to the [[State of Texas|Texas]] mall shooter who mentioned him disparagingly. (12:44:54) [[Nicholas J. Fuentes]] claimed [[George Soros]] funds open society foundations to promote a global, multicultural world that benefits [[Jews|Jewish people]]. (13:00:42) [[Nicholas J. Fuentes]] argued that [[Jews]], having a historic animosity towards [[Europe|Europeans]] and [[Christianity]], benefit from and promote multiculturalism to avoid being identified as aliens in homogeneous societies. (13:48:18) [[Nicholas J. Fuentes]] stated that [[Jews]] comprised 1% of [[Gaza Strip|Palestine]]'s population at the turn of the 20th century and became a majority through settlement in the first half of the century. (14:13:50) [[Nicholas J. Fuentes]] characterized the political "squad"—including [[Rashida Tlaib]], [[Ilhan Omar]], and [[Alexandria Ocasio-Cortez (AOC)]]—as a brown, anti-colonial, Marxist new left that hates the historic [[United States|American]] nation. (14:30:68) [[Nicholas J. Fuentes]] stated that [[Alexandria Ocasio-Cortez (AOC)]] has [[Jewish]] ancestry, which he described as typical of new left leadership. (14:54:04) [[Nicholas J. Fuentes]] cited thinkers like [[Youram Hazony|Yoram Hazony]] and [[Costin Alamariu|Kostin Al-Amar]] for articulating a nationalist, pro-Israel ideology that positions Israel as a natural ally of Western nations against third-worldism. (15:31:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and [[Europe]] are bound by [[Christianity]], not a superficial "Western" or "Judeo-[[Christianity|Christian]]" identity constructed to include Israel. (16:02:42) [[Nicholas J. Fuentes]] proposed that the [[Holy Land]] should be administered by [[Christianity|Christians]] instead of [[Jews]] or [[Islam|Muslims]], restoring the [[Christianity|Christian]] control that existed prior to [[Islam|Muslim]] and [[Jewish]] rule.
+(00:26:08) [[Rashida Tlaib]] planned to host an event at the [[United States Capitol]] Visitor Center to commemorate the Nakba, the [[Palestinian]] term for the 1948 founding of Israel which translates to "catastrophe." (00:45:58) [[Kevin McCarthy]] canceled the event hosted by [[Rashida Tlaib]] and instead reserved the space to host a bipartisan discussion honoring the 75th anniversary of the [[United States]]-Israel relationship. (00:57:44) [[Kevin McCarthy]] decried [[Rashida Tlaib]]'s planned Nakba commemoration as anti-Semitic. (01:13:40) The [[European Union]]'s foreign policy chief stated that the war in [[Ukraine]] would end within days if [[United States]] military aid stopped. (01:13:40) The [[European Union]]'s foreign policy chief argued that without [[North Atlantic Treaty Organization|NATO]] and [[United States]] support, [[Ukraine]] would have to surrender to [[Russia]]. (01:22:02) [[Kevin McCarthy]], before the 2022 midterm elections, promised that a [[Republican Party|Republican]] [[House]] majority would not write a "blank check" for aid to [[Ukraine]]. (01:23:05) [[Kevin McCarthy]] became [[Mike Johnson|Speaker of the House]] in January 2023 after a battle over the speakership. (01:24:29) [[Kevin McCarthy]], speaking at a press conference in [[Jerusalem]], delivered a full-throated defense of [[United States]] aid to [[Ukraine]] and stated, "I support aid for [[Ukraine]]." (01:26:08) [[Kevin McCarthy]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] spoke by phone for the first [[time]] in April 2023. (01:32:32) [[Kevin McCarthy]] made a promise to release 40,000 to 45,000 hours of security footage from the [[United States Capitol]] on [[January 6th Attack|January 6th]] as a term of becoming Speaker. (01:33:02) [[Tucker Carlson]] aired a limited portion of the [[January 6th Attack|January 6th]] [[United States Capitol]] security footage. (01:33:09) [[Marjorie Taylor Greene]] helped broker the deal for [[Kevin McCarthy]] to become Speaker and later questioned on [[Twitter]] why the full [[January 6th Attack|January 6th]] footage had not been released. (01:38:36) [[Marjorie Taylor Greene]] was the first to strike a deal with [[Kevin McCarthy]] and dissuade the [[MAGA]] coalition in [[Congress]] from resisting his speakership. (02:20:42) [[Nicholas J. Fuentes]] stated he would vote for [[Donald Trump]], [[Kanye West|Ye]], [[Matt Gaetz]], and [[Paul Gosar]], but not for other [[Republican Party|Republican]] candidates. (02:23:44) [[Nicholas J. Fuentes]] argued that Israel's founding in 1948 involved driving millions of [[Palestinians]] from their homes, with many massacres and destruction of villages. (02:48:24) [[Nicholas J. Fuentes]] characterized [[Rashida Tlaib]] as an Arab [[Islam|Muslim]] [[Democratic Party|Democrat]] and hardcore progressive who is anti-Israel because of its treatment of [[Palestinians]]. (02:59:54) [[Nicholas J. Fuentes]] characterized [[Kevin McCarthy]] as a white leader of the [[Republican Party]] who is pro-Israel and compromised by it. (03:14:38) [[Nicholas J. Fuentes]] stated that the [[Likud]] government under [[Benjamin Netanyahu|Netanyahu]] is right-wing, forming a basis for ideological affinity with [[United States|American]] conservatives. (03:47:04) [[Nicholas J. Fuentes]] positioned himself against the [[United States]] relationship with Israel but not on the side of progressive, anti-colonial [[Palestinian]] supporters. (04:12:26) [[Nicholas J. Fuentes]] argued that [[United States]] military aid, totaling nearly $200 billion, is the sole reason the war in [[Ukraine]] continues, preventing [[Russia]]'s victory. (04:14:74) [[Nicholas J. Fuentes]] claimed the [[Washington D.C.|Washington]] national security apparatus made a decision around May 2022 to provide unconditional support to [[Ukraine]], preventing the war's end. (04:46:58) [[Nicholas J. Fuentes]] stated that [[Kevin McCarthy]]'s promise of no "blank check" for [[Ukraine]] was broken, as aid continues unabated under his speakership. (05:09:12) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] risks a direct [[United States]]-[[Russia]] nuclear confrontation due to [[United States|American]] personnel and equipment involvement. (05:30:54) [[Nicholas J. Fuentes]] cited [[Kevin McCarthy]]'s reversal on [[Ukraine]] aid and failure to release [[January 6th Attack|January 6th]] footage as examples of broken promises to the [[Republican Party|Republican]] base. (06:42:46) [[Nicholas J. Fuentes]] referenced a mass shooting in [[State of Texas|Texas]] by a Mexican gunman, which media figures incorrectly linked to white supremacy by citing [[Nicholas J. Fuentes]] as an example of a Mexican white supremacist. (07:48:00) The [[State of Texas|Texas]] mall shooter mentioned [[Nicholas J. Fuentes]] by name in his journal, writing "What's going to happen when you have dozens, hundreds, or thousands of [[Nick]] Fuenteses running around?" (07:50:86) The [[State of Texas|Texas]] mall shooter's journal expressed hatred for white people and other Latino groups like [[Cubans]] and [[Puerto Rico|Puerto Ricans]]. (08:56:48) [[Nicholas J. Fuentes]] referenced the 2019 [[El Paso]] Walmart shooting, where the shooter's connection to an online manifesto was never firmly established. (09:12:90) [[Destiny]], a streamer, previously argued [[Nicholas J. Fuentes]] was not a Nazi but later stated a Mexican could be a Nazi like [[Nicholas J. Fuentes]] during coverage of the [[State of Texas|Texas]] shooting. (10:53:66) [[Nicholas J. Fuentes]] accused "liberal [[Jews|Jew]] types" of insinuating he was similar to the [[State of Texas|Texas]] mall shooter who mentioned him disparagingly. (12:44:54) [[Nicholas J. Fuentes]] claimed [[George Soros]] funds open society foundations to promote a global, multicultural world that benefits [[Jews|Jewish people]]. (13:00:42) [[Nicholas J. Fuentes]] argued that [[Jews]], having a historic animosity towards [[Europe|Europeans]] and [[Christianity]], benefit from and promote multiculturalism to avoid being identified as aliens in homogeneous societies. (13:48:18) [[Nicholas J. Fuentes]] stated that [[Jews]] comprised 1% of [[Palestine]]'s population at the turn of the 20th century and became a majority through settlement in the first half of the century. (14:13:50) [[Nicholas J. Fuentes]] characterized the political "squad"—including [[Rashida Tlaib]], [[Ilhan Omar]], and [[Alexandria Ocasio-Cortez (AOC)]]—as a brown, anti-colonial, Marxist new left that hates the historic [[United States|American]] nation. (14:30:68) [[Nicholas J. Fuentes]] stated that [[Alexandria Ocasio-Cortez (AOC)]] has [[Jewish]] ancestry, which he described as typical of new left leadership. (14:54:04) [[Nicholas J. Fuentes]] cited thinkers like [[Youram Hazony|Yoram Hazony]] and [[Costin Alamariu|Kostin Al-Amar]] for articulating a nationalist, pro-Israel ideology that positions Israel as a natural ally of Western nations against third-worldism. (15:31:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and [[Europe]] are bound by [[Christianity]], not a superficial "Western" or "Judeo-[[Christianity|Christian]]" identity constructed to include Israel. (16:02:42) [[Nicholas J. Fuentes]] proposed that the [[Holy Land]] should be administered by [[Christianity|Christians]] instead of [[Jews]] or [[Islam|Muslims]], restoring the [[Christianity|Christian]] control that existed prior to [[Islam|Muslim]] and [[Jewish]] rule.
 
 ### AF 2023-05-09 1159
 (01:16:31) [[Nicholas J. Fuentes]] stated that the most salient issue in [[United States|America]] is the subversion of the country by the foreign nation of Israel and a powerful [[American Israel Public Affairs Committee|Jewish lobby]], a topic he claims figures like [[Tucker Carlson]] refuse to discuss.
@@ -8750,10 +8750,10 @@
 (01:41:23) [[Nicholas J. Fuentes]] argued that the populist infrastructure forming to succeed [[Donald Trump]] in the [[United States]] is compromised by the influence of Israel and a powerful [[American Israel Public Affairs Committee|Jewish lobby]].
 
 ### AF 2023-05-09 1158
-(05:49:860) A [[Europe|European Union]] celebration scheduled to be held in Israel was canceled due to the planned participation of an Israeli government minister who had made disparaging remarks about [[Islam|Muslims]].
+(05:49:860) A [[European Union]] celebration scheduled to be held in Israel was canceled due to the planned participation of an Israeli government minister who had made disparaging remarks about [[Islam|Muslims]].
 
 ### AF 2023-05-09 1158
-(06:21:420) [[Hungary]] and Poland were the two [[Europe|European Union]] member states that dissented against the decision to cancel the diplomatic event in Israel.
+(06:21:420) [[Hungary]] and Poland were the two [[European Union]] member states that dissented against the decision to cancel the diplomatic event in Israel.
 
 ### AF 2023-05-09 1158
 (07:03:660) [[Nicholas J. Fuentes]] characterized the governments of [[Viktor Orbán]] in [[Hungary]] and others in Poland, [[Brazil]], and [[Italian Republic|Italy]] as right-wing populist nationalist governments that were "totally mobbed up with the state of Israel."
@@ -8762,16 +8762,16 @@
 (08:02:560) [[Nicholas J. Fuentes]] asserted that Poland and [[Hungary]] were "totally mobbed up with the state of Israel," questioning how this constituted a genuine populist nationalist coalition.
 
 ### AF 2023-05-09 1158
-(15:54:830) The [[Europe|European Union]] canceled its [[Europe]] Day diplomatic event in Israel due to the planned participation of the far-right minister [[Itamar Ben-Gvir]], whose views were said to contradict [[EU]] values.
+(15:54:830) The [[European Union]] canceled its [[Europe]] Day diplomatic event in Israel due to the planned participation of the far-right minister [[Itamar Ben-Gvir]], whose views were said to contradict [[EU]] values.
 
 ### AF 2023-05-09 1158
-(17:25:490) Israeli media reported that only [[Hungary]] and Poland, described as conservative pro-Israel countries, dissented from the [[Europe|European Union]]'s decision to cancel the event.
+(17:25:490) Israeli media reported that only [[Hungary]] and Poland, described as conservative pro-Israel countries, dissented from the [[European Union]]'s decision to cancel the event.
 
 ### AF 2023-05-09 1158
 (18:56:570) [[Nicholas J. Fuentes]] argued that the nascent populist movement in [[United States|America]] was controlled by Israel, similar to right-wing movements in [[Hungary]], Poland, [[Brazil]], and [[Italian Republic|Italy]].
 
 ### AF 2023-05-09 1158
-(19:18:690) [[Nicholas J. Fuentes]] identified institutions like the [[National Conservatism|National Conservative Conference]], run by [[Youram Hazony|Yoram Hazony]], and the [[Claremont Institute]], funded by [[Paul Singer]], as being central to an [[United States|American]] right faction bolstered by money and influence from Israel's [[Labor Party|Likud]] party.
+(19:18:690) [[Nicholas J. Fuentes]] identified institutions like the [[National Conservatism|National Conservative Conference]], run by [[Youram Hazony|Yoram Hazony]], and the [[Claremont Institute]], funded by [[Paul Singer]], as being central to an [[United States|American]] right faction bolstered by money and influence from Israel's [[Likud]] party.
 
 ### AF 2023-05-09 1158
 (19:52:030) [[Youram Hazony|Yoram Hazony]], a dual citizen of Israel and the [[United States]], hosted the [[National Conservatism|National Conservative Conference]] where figures like [[Josh Hawley]], [[Ron DeSantis]], [[Marco Rubio]], [[JD Vance]], and [[Blake Masters]] spoke.
@@ -8780,7 +8780,7 @@
 (24:48:790) [[Nicholas J. Fuentes]] argued that the dominant neoconservative ideology on the [[United States|American]] right 20 years earlier, which framed a clash of civilizations between the [[Kanye West|West]] and [[Islam]], perfectly served the interests of the state of Israel.
 
 ### AF 2023-04-27 1154
-(00:27:20) [[Nicholas J. Fuentes]] characterized [[Ron DeSantis]] as a pawn of Israel but praised his confrontation with the [[Disney|Disney]] corporation.
+(00:27:20) [[Nicholas J. Fuentes]] characterized [[Ron DeSantis]] as a pawn of Israel but praised his confrontation with the [[Disney]] corporation.
 
 ### AF 2023-04-27 1154
 (01:28:40) [[Nicholas J. Fuentes]] criticized [[Tucker Carlson]] for downplaying white identity and the influence of Israel and [[Jews|Jewish people]] while popularizing the phrase "demographic change" only as a voting issue, not a racial one.
@@ -8804,7 +8804,7 @@
 (00:08:48) [[Nicholas J. Fuentes]] argued that the [[United States]] gives Israel $3.8 billion in direct foreign aid annually, with additional intangible aid to countries like [[Arab Republic of Egypt|Egypt]] and [[Jim Jordan|Jordan]] effectively benefiting Israel, and that [[United States|U.S]]. agencies like the [[Federal Bureau of Investigation|FBI]], [[State Department]], and [[U.S. Department of Defense|DOD]] are infiltrated by Israeli intelligence.
 
 ### AF 2023-04-18 1148
-(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as [[Tim Pool]], [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, [[Tucker Carlson]] being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Mike Johnson|Kevin McCarthy]], [[Matt Walsh]] making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling [[Blaze Media|The Blaze]] executives he loves Israel.
+(00:46:48) [[Nicholas J. Fuentes]] argued he was a convenient scapegoat because he had no allies and was taking on the entire system by himself, unlike others who claim to take on the system but compromise, such as [[Tim Pool]], [[Alex Jones]] advocating for euthanasia and transgender surgery without waiting periods, [[Tucker Carlson]] being pro-homosexual, [[Marjorie Taylor Greene]] making a deal with [[Kevin McCarthy]], [[Matt Walsh]] making a deal with [[Ben Shapiro]] not to talk about the [[American Israel Public Affairs Committee|Jewish lobby]], and [[Doyle]] telling [[Blaze Media|The Blaze]] executives he loves Israel.
 
 ### AF 2023-04-13 1147
 (00:11:04) [[Nicholas J. Fuentes]] claimed that figures like [[Charlie Kirk]] talk less about Israel because they know pressing the issue will generate pushback.
@@ -8816,7 +8816,7 @@
 (00:16:07) [[Nicholas J. Fuentes]] stated that the "[[Groyper]] War" challenged [[Turning Point USA]] to take [[Trump]]'s populism further on issues like Israel, legal immigration, and social conservatism.
 
 ### AF 2023-04-11 1145
-(00:30:52) [[Joe Biden]] ended the war in [[Afghanistan]] in August 2021, withdrawing [[United States|U.S]]. troops despite criticism over abandoned equipment and civilians. (00:56:57) [[Joe Biden]] ended the national COVID-19 public health emergency on April 10, 2023, signing [[House]] Joint Resolution 7, a bill sponsored by [[Paul Gosar]]. (01:10:95) [[Donald Trump]] declared the COVID-19 national emergency on March 13, 2020, after the [[World Health Organization]] declared the virus a pandemic. (01:39:73) [[Paul Gosar]] sponsored [[House]] Joint Resolution 7, the bill that terminated the national emergency concerning the COVID-19 pandemic. (02:20:11) The [[Tennessee]] [[House of Representatives]], controlled by [[Republican Party|Republicans]], expelled two [[Black]] [[Democratic Party|Democratic]] state representatives, [[Justin Jones]] and [[Justin Pearson]], for violating chamber decorum during a gun control protest. (03:47:97) The [[Nashville]] Metropolitan Council voted unanimously to reinstate [[Justin Jones]] to the [[Tennessee]] [[House of Representatives]] on an interim basis, overriding the normal four-week waiting period for filling vacancies. (04:57:03) The [[Tennessee]] [[House]] expelled [[Justin Jones]] and [[Justin Pearson]], who are [[Black]], but did not expel [[Gloria Johnson]], a white representative who participated in the same protest. (05:41:75) [[Marjorie Taylor Greene]] attacked [[Nicholas J. Fuentes]] and [[Laura Loomer]] on [[Twitter]] on Good Friday, calling [[Fuentes]] a "weirdo" and an "alleged federal informant." (08:29:77) [[The New York Times]] published a story reporting that [[Donald Trump]] wanted to hire [[Laura Loomer]] for his campaign. (09:06:37) [[Marjorie Taylor Greene]] stated it would be a "terrible mistake" for [[Donald Trump]] to hire [[Laura Loomer]] and called [[Nicholas J. Fuentes]] a "weirdo" and an "alleged federal informant." (10:29:89) [[The New York Times]] reported that federal prosecutors considered charging [[Nicholas J. Fuentes]] with conspiracy related to the [[January 6th Attack|January 6th]] Capitol riot but declined to do so. (11:46:85) [[Marjorie Taylor Greene]]'s first act after being elected to [[Congress]] was to apologize for her past controversial statements, despite previously vowing she would "never apologize." (12:16:11) [[Marjorie Taylor Greene]] compared COVID-19 mask and vaccine mandates to the Holocaust, stating anti-vaxxers were being treated like [[Jews]] during that period. (12:56:71) [[Marjorie Taylor Greene]] visited the [[United States|U.S]]. Holocaust Memorial Museum a week after her Holocaust comparison comments, stating she wanted to "get educated." (13:32:69) [[Marjorie Taylor Greene]], who had previously called for impeaching [[Mike Johnson|Kevin McCarthy]], was the first to support him for [[Mike Johnson|Speaker of the House]] after the 2022 midterms. (13:47:29) [[Marjorie Taylor Greene]] endorsed [[Laura Loomer]] for [[Congress]] in 2020 but later opposed her, influenced by [[Karen Giorno]]. (14:09:73) [[Marjorie Taylor Greene]] spoke at [[AFPAC|AFPAC 3]], an event hosted by [[Nicholas J. Fuentes]], but later claimed she did not know who he was when criticized by the media. (15:33:43) [[Nicholas J. Fuentes]] hosted 1,200 attendees at his [[AFPAC|AFPAC 3]] event, where [[Marjorie Taylor Greene]] appeared as a surprise guest. (17:01:61) [[Nicholas J. Fuentes]] stated he invited [[Marjorie Taylor Greene]] to [[AFPAC|AFPAC 3]] to gain credibility for his movement and was only willing to be "polite and cordial" with her. (18:19:57) [[Donald Trump]]'s inner circle included [[Jason Miller]], [[Rick Grenell]], [[Steve Bannon]], and [[Marjorie Taylor Greene]], according to [[Nicholas J. Fuentes]]. (19:19:69) [[Nicholas J. Fuentes]] appeared on an interview with [[Pearl Davis|Pearl]] in [[London]] where he denied the Holocaust and the Holodomor and made statements against interracial marriage. (19:53:05) [[Pearl Davis|Pearl]] was criticized in an interview with two [[United Kingdom|British]] [[Jewish]] hosts for having [[Nicholas J. Fuentes]] on her show, but she defended her decision by stating she believes in letting people talk. (21:53:83) [[Destiny]] and the podcast [[No Jumper]] frequently criticize interviewers for not providing sufficient pushback against controversial guests like [[Nicholas J. Fuentes]]. (24:36:64) The hosts of the podcast "Trigger Warning," who identify as [[Jewish]], stated they would "never have [[Nicholas J. Fuentes]] on the show," calling him a "Holocaust-denying piece of shit." (25:36:64) [[Sam Harris]] attacked [[Lex Fridman]] for his interview with [[Kanye West]], criticizing Fridman for not pushing back harder on [[Kanye West]]'s comments about [[Jews]]. (26:56:76) During [[Lex Fridman]]'s interview with [[Kanye West]], [[Kanye West]] stated "it's the [[Jews]]," to which Fridman responded by emphasizing the individuality of [[Jews|Jewish people]]. (28:55:02) [[Nicholas J. Fuentes]] observed that [[Jewish]] intellectuals like [[Sam Harris]] and [[Lex Fridman]] become emotionally agitated and lose their composure when the topic of [[Jewish]] influence is raised. (29:27:90) [[Pearl Davis|Pearl]] planned to release a major video collaboration with [[Nicholas J. Fuentes]] on the Wednesday following this broadcast. (29:33:30) [[Nicholas J. Fuentes]] announced he would not host his show on Thursday or Friday of that week, as he would be traveling for a collaboration. (33:13:66) [[Nicholas J. Fuentes]] announced forthcoming collaborations with [[Adam22]], [[Pearl Davis|Pearl]], and [[Sneako]], and noted that [[Jon Zherka]] was promoting him. (34:51:38) The [[Tennessee]] [[House of Representatives]] expelled [[Justin Jones]] and [[Justin Pearson]] for leading a protest on the chamber floor with a megaphone and bringing outside protesters into the capitol building after the Covenant School shooting. (37:18:36) The [[Nashville]] Metropolitan Council reinstated [[Justin Jones]] to the [[Tennessee]] [[House of Representatives]] just days after his expulsion, appointing him on an interim basis until a special election. (39:14:06) The Shelby County Commission planned to meet to discuss reappointing [[Justin Pearson]] to the [[Tennessee]] [[House of Representatives]] after his expulsion. (42:13:60) [[Donald Trump]] and [[Senate]] [[Republican Party|Republicans]] prioritized confirming [[Amy Coney Barrett]] to the [[Supreme Court]] over passing a COVID-19 stimulus bill before the 2020 election. (42:52:40) [[Amy Coney Barrett]] recused herself from an early [[Supreme Court]] case concerning election laws in [[Commonwealth of Pennsylvania|Pennsylvania]] or [[North Carolina]] shortly after her confirmation. (44:45:82) [[Ron DeSantis]] responded to [[Donald Trump]]'s indictment by the [[Manhattan]] District Attorney by making a dismissive comment about "porn stars." (48:50:82) [[Joe Biden]] considered expanding the number of seats on the [[Supreme Court of the United States]] after taking office, a move often referred to as "court packing." (52:07:52) [[Joe Biden]] signed [[House]] Joint Resolution 7, a [[Republican Party|Republican]]-proposed bill drafted by [[Paul Gosar]], to end the COVID-19 national emergency, despite initial [[Democratic Party|Democratic]] objections. (54:12:18) [[Joe Biden]] ended the 20-year war in [[Afghanistan]] in August 2021, ordering a full withdrawal despite terrorist attacks at the Kabul airport and the Taliban's takeover. (55:07:10) The [[Supreme Court of the United States]] overturned *Roe v. Wade* in June 2022, ending the federal constitutional right to abortion during [[Joe Biden]]'s presidency. (55:48:22) [[Joe Biden]] provided an open-ended, unlimited defense guarantee to [[Ukraine]] following [[Russia]]'s invasion in February 2022, a move [[Nicholas J. Fuentes]] argued eroded [[United States|American]] hegemony. (56:07:68) [[Government of France|France]] began discussing "strategic autonomy" from the [[United States]], and [[Brazil]], [[Saudi Arabia]], and [[India]] started conducting trade with [[China]] in yuan instead of [[United States|U.S]]. dollars. (57:45:40) [[Nicholas J. Fuentes]] argued that a primary reason the political right harbors animosity toward [[Barack Obama]] and [[Joe Biden]] is due to their perceived lack of support for Israel. (58:08:24) [[Barack Obama]] sought a "reset" in relations with [[Russia]] early in his presidency, sending [[Secretary of State]] [[Hillary Clinton]] to meet with Foreign Minister [[Sergey Lavrov]]. (58:19:48) [[Barack Obama]] refused to send lethal aid to [[Ukraine]] during his administration and allowed the [[United Nations Security Council]] to pass a resolution condemning Israeli settlements. (59:00:02) [[Nicholas J. Fuentes]] asserted that both [[Donald Trump]] and [[Joe Biden]] are influenced by [[Jewish]] advisors, citing [[Jared Kushner]] for [[Trump]] and numerous [[Jewish]] cabinet members for [[Joe Biden|Biden]]. (01:01:06:90) [[Joe Biden]] did not fully support [[Benjamin Netanyahu|Bibi]] during a period of tension the previous week, which [[Nicholas J. Fuentes]] claimed triggered the most intense anti-[[Joe Biden|Biden]] sentiment from his critics. (01:01:34:62) [[Nicholas J. Fuentes]] debated [[Alex Jones]] on [[Alex Jones|InfoWars]], arguing that [[Alex Jones|Jones]] focused on conspiracies about the [[Bilderberg Group]] and [[Klaus Schwab]] while ignoring the influence of what [[Fuentes]] called the "[[Jewish]] mafia." (01:03:06:84) [[Nicholas J. Fuentes]] acknowledged that some conspiracy theories, such as flat [[Earth]], chemtrails, and QAnon narratives, are counterproductive to building a serious populist movement. (01:05:05:57) [[Apple Inc.|Apple]] and [[Google]] implemented Bluetooth-based contact tracing systems into their mobile operating systems during the COVID-19 pandemic, creating a permanent infrastructure for proximity tracking.
+(00:30:52) [[Joe Biden]] ended the war in [[Afghanistan]] in August 2021, withdrawing [[United States|U.S]]. troops despite criticism over abandoned equipment and civilians. (00:56:57) [[Joe Biden]] ended the national COVID-19 public health emergency on April 10, 2023, signing [[House]] Joint Resolution 7, a bill sponsored by [[Paul Gosar]]. (01:10:95) [[Donald Trump]] declared the COVID-19 national emergency on March 13, 2020, after the [[World Health Organization]] declared the virus a pandemic. (01:39:73) [[Paul Gosar]] sponsored [[House]] Joint Resolution 7, the bill that terminated the national emergency concerning the COVID-19 pandemic. (02:20:11) The [[Tennessee]] [[House of Representatives]], controlled by [[Republican Party|Republicans]], expelled two [[Black]] [[Democratic Party|Democratic]] state representatives, [[Justin Jones]] and [[Justin Pearson]], for violating chamber decorum during a gun control protest. (03:47:97) The [[Nashville]] Metropolitan Council voted unanimously to reinstate [[Justin Jones]] to the [[Tennessee]] [[House of Representatives]] on an interim basis, overriding the normal four-week waiting period for filling vacancies. (04:57:03) The [[Tennessee]] [[House]] expelled [[Justin Jones]] and [[Justin Pearson]], who are [[Black]], but did not expel [[Gloria Johnson]], a white representative who participated in the same protest. (05:41:75) [[Marjorie Taylor Greene]] attacked [[Nicholas J. Fuentes]] and [[Laura Loomer]] on [[Twitter]] on Good Friday, calling [[Fuentes]] a "weirdo" and an "alleged federal informant." (08:29:77) [[The New York Times]] published a story reporting that [[Donald Trump]] wanted to hire [[Laura Loomer]] for his campaign. (09:06:37) [[Marjorie Taylor Greene]] stated it would be a "terrible mistake" for [[Donald Trump]] to hire [[Laura Loomer]] and called [[Nicholas J. Fuentes]] a "weirdo" and an "alleged federal informant." (10:29:89) [[The New York Times]] reported that federal prosecutors considered charging [[Nicholas J. Fuentes]] with conspiracy related to the [[January 6th Attack|January 6th]] Capitol riot but declined to do so. (11:46:85) [[Marjorie Taylor Greene]]'s first act after being elected to [[Congress]] was to apologize for her past controversial statements, despite previously vowing she would "never apologize." (12:16:11) [[Marjorie Taylor Greene]] compared COVID-19 mask and vaccine mandates to the Holocaust, stating anti-vaxxers were being treated like [[Jews]] during that period. (12:56:71) [[Marjorie Taylor Greene]] visited the [[United States|U.S]]. Holocaust Memorial Museum a week after her Holocaust comparison comments, stating she wanted to "get educated." (13:32:69) [[Marjorie Taylor Greene]], who had previously called for impeaching [[Kevin McCarthy]], was the first to support him for [[Mike Johnson|Speaker of the House]] after the 2022 midterms. (13:47:29) [[Marjorie Taylor Greene]] endorsed [[Laura Loomer]] for [[Congress]] in 2020 but later opposed her, influenced by [[Karen Giorno]]. (14:09:73) [[Marjorie Taylor Greene]] spoke at [[AFPAC|AFPAC 3]], an event hosted by [[Nicholas J. Fuentes]], but later claimed she did not know who he was when criticized by the media. (15:33:43) [[Nicholas J. Fuentes]] hosted 1,200 attendees at his [[AFPAC|AFPAC 3]] event, where [[Marjorie Taylor Greene]] appeared as a surprise guest. (17:01:61) [[Nicholas J. Fuentes]] stated he invited [[Marjorie Taylor Greene]] to [[AFPAC|AFPAC 3]] to gain credibility for his movement and was only willing to be "polite and cordial" with her. (18:19:57) [[Donald Trump]]'s inner circle included [[Jason Miller]], [[Rick Grenell]], [[Steve Bannon]], and [[Marjorie Taylor Greene]], according to [[Nicholas J. Fuentes]]. (19:19:69) [[Nicholas J. Fuentes]] appeared on an interview with [[Pearl Davis|Pearl]] in [[London]] where he denied the Holocaust and the Holodomor and made statements against interracial marriage. (19:53:05) [[Pearl Davis|Pearl]] was criticized in an interview with two [[United Kingdom|British]] [[Jewish]] hosts for having [[Nicholas J. Fuentes]] on her show, but she defended her decision by stating she believes in letting people talk. (21:53:83) [[Destiny]] and the podcast [[No Jumper]] frequently criticize interviewers for not providing sufficient pushback against controversial guests like [[Nicholas J. Fuentes]]. (24:36:64) The hosts of the podcast "Trigger Warning," who identify as [[Jewish]], stated they would "never have [[Nicholas J. Fuentes]] on the show," calling him a "Holocaust-denying piece of shit." (25:36:64) [[Sam Harris]] attacked [[Lex Fridman]] for his interview with [[Kanye West]], criticizing Fridman for not pushing back harder on [[Kanye West]]'s comments about [[Jews]]. (26:56:76) During [[Lex Fridman]]'s interview with [[Kanye West]], [[Kanye West]] stated "it's the [[Jews]]," to which Fridman responded by emphasizing the individuality of [[Jews|Jewish people]]. (28:55:02) [[Nicholas J. Fuentes]] observed that [[Jewish]] intellectuals like [[Sam Harris]] and [[Lex Fridman]] become emotionally agitated and lose their composure when the topic of [[Jewish]] influence is raised. (29:27:90) [[Pearl Davis|Pearl]] planned to release a major video collaboration with [[Nicholas J. Fuentes]] on the Wednesday following this broadcast. (29:33:30) [[Nicholas J. Fuentes]] announced he would not host his show on Thursday or Friday of that week, as he would be traveling for a collaboration. (33:13:66) [[Nicholas J. Fuentes]] announced forthcoming collaborations with [[Adam22]], [[Pearl Davis|Pearl]], and [[Sneako]], and noted that [[Jon Zherka]] was promoting him. (34:51:38) The [[Tennessee]] [[House of Representatives]] expelled [[Justin Jones]] and [[Justin Pearson]] for leading a protest on the chamber floor with a megaphone and bringing outside protesters into the capitol building after the Covenant School shooting. (37:18:36) The [[Nashville]] Metropolitan Council reinstated [[Justin Jones]] to the [[Tennessee]] [[House of Representatives]] just days after his expulsion, appointing him on an interim basis until a special election. (39:14:06) The Shelby County Commission planned to meet to discuss reappointing [[Justin Pearson]] to the [[Tennessee]] [[House of Representatives]] after his expulsion. (42:13:60) [[Donald Trump]] and [[Senate]] [[Republican Party|Republicans]] prioritized confirming [[Amy Coney Barrett]] to the [[Supreme Court]] over passing a COVID-19 stimulus bill before the 2020 election. (42:52:40) [[Amy Coney Barrett]] recused herself from an early [[Supreme Court]] case concerning election laws in [[Commonwealth of Pennsylvania|Pennsylvania]] or [[North Carolina]] shortly after her confirmation. (44:45:82) [[Ron DeSantis]] responded to [[Donald Trump]]'s indictment by the [[Manhattan]] District Attorney by making a dismissive comment about "porn stars." (48:50:82) [[Joe Biden]] considered expanding the number of seats on the [[Supreme Court of the United States]] after taking office, a move often referred to as "court packing." (52:07:52) [[Joe Biden]] signed [[House]] Joint Resolution 7, a [[Republican Party|Republican]]-proposed bill drafted by [[Paul Gosar]], to end the COVID-19 national emergency, despite initial [[Democratic Party|Democratic]] objections. (54:12:18) [[Joe Biden]] ended the 20-year war in [[Afghanistan]] in August 2021, ordering a full withdrawal despite terrorist attacks at the Kabul airport and the Taliban's takeover. (55:07:10) The [[Supreme Court of the United States]] overturned *Roe v. Wade* in June 2022, ending the federal constitutional right to abortion during [[Joe Biden]]'s presidency. (55:48:22) [[Joe Biden]] provided an open-ended, unlimited defense guarantee to [[Ukraine]] following [[Russia]]'s invasion in February 2022, a move [[Nicholas J. Fuentes]] argued eroded [[United States|American]] hegemony. (56:07:68) [[France]] began discussing "strategic autonomy" from the [[United States]], and [[Brazil]], [[Saudi Arabia]], and [[India]] started conducting trade with [[China]] in yuan instead of [[United States|U.S]]. dollars. (57:45:40) [[Nicholas J. Fuentes]] argued that a primary reason the political right harbors animosity toward [[Barack Obama]] and [[Joe Biden]] is due to their perceived lack of support for Israel. (58:08:24) [[Barack Obama]] sought a "reset" in relations with [[Russia]] early in his presidency, sending [[Secretary of State]] [[Hillary Clinton]] to meet with Foreign Minister [[Sergey Lavrov]]. (58:19:48) [[Barack Obama]] refused to send lethal aid to [[Ukraine]] during his administration and allowed the [[United Nations Security Council]] to pass a resolution condemning Israeli settlements. (59:00:02) [[Nicholas J. Fuentes]] asserted that both [[Donald Trump]] and [[Joe Biden]] are influenced by [[Jewish]] advisors, citing [[Jared Kushner]] for [[Trump]] and numerous [[Jewish]] cabinet members for [[Joe Biden|Biden]]. (01:01:06:90) [[Joe Biden]] did not fully support [[Benjamin Netanyahu|Bibi]] during a period of tension the previous week, which [[Nicholas J. Fuentes]] claimed triggered the most intense anti-[[Joe Biden|Biden]] sentiment from his critics. (01:01:34:62) [[Nicholas J. Fuentes]] debated [[Alex Jones]] on [[Alex Jones|InfoWars]], arguing that [[Alex Jones|Jones]] focused on conspiracies about the [[Bilderberg Group]] and [[Klaus Schwab]] while ignoring the influence of what [[Fuentes]] called the "[[Jewish]] mafia." (01:03:06:84) [[Nicholas J. Fuentes]] acknowledged that some conspiracy theories, such as flat [[Earth]], chemtrails, and QAnon narratives, are counterproductive to building a serious populist movement. (01:05:05:57) [[Apple Inc.|Apple]] and [[Google]] implemented Bluetooth-based contact tracing systems into their mobile operating systems during the COVID-19 pandemic, creating a permanent infrastructure for proximity tracking.
 
 ### AF 2023-04-07 1144
 (00:22:52) [[Hamas]] and [[Hezbollah]] launched rockets into Israel from the [[Gaza Strip]] and [[Lebanon]], with many striking civilian targets as the [[MIM-104 Patriot|Iron Dome]] intercepted only a fraction.
@@ -8861,7 +8861,7 @@
 (06:31:22) [[Nicholas J. Fuentes]] cited [[Sneako]] as one of the biggest creators who had discussed Israel's role in the [[September 11 attacks]] with [[Ryan Dawson]].
 
 ### AF 2023-04-04 1141
-(19:15:10) [[Nicholas J. Fuentes]] used the examples of [[South Africa]], [[Zimbabwe]] (formerly [[Zimbabwe|Rhodesia]]), and the Israel-[[Gaza Strip|Palestine]] conflict to argue that disenfranchised groups must organize collectively to survive, applying this logic to white people in [[United States|America]].
+(19:15:10) [[Nicholas J. Fuentes]] used the examples of [[South Africa]], [[Zimbabwe]] (formerly [[Zimbabwe|Rhodesia]]), and the Israel-[[Palestine]] conflict to argue that disenfranchised groups must organize collectively to survive, applying this logic to white people in [[United States|America]].
 
 ### AF 2023-04-04 1141
 (39:26:38) [[Nicholas J. Fuentes]] claimed the [[Anti-Defamation League|ADL]] was "in bed with the Israeli government," [[Google]], [[Facebook]], and the [[United States]] government, and could use financial data to ruin lives or share information with the [[Federal Bureau of Investigation|FBI]] or [[Israel Defense Forces|Mossad]].
@@ -8924,7 +8924,7 @@
 (00:22:27) [[Donald Trump]] initially had a more "[[United States|America]] First" approach to Israel through his campaign, transition, and early first term, similar to [[Barack Obama]]'s approach, before a later shift.
 
 ### AF 2023-03-30 1138
-(00:29:08) [[Nicholas J. Fuentes]] argued that if the [[Labor Party|Likud]] regime in Israel were toppled, its influence over [[United States|American]] politics would be significantly reduced.
+(00:29:08) [[Nicholas J. Fuentes]] argued that if the [[Likud]] regime in Israel were toppled, its influence over [[United States|American]] politics would be significantly reduced.
 
 ### AF 2023-03-30 1138
 (00:39:55) [[Nicholas J. Fuentes]] characterized [[Ben Shapiro]] as a "Zionist spy" and "this generation's Bill Kristol" and "Hasbara agent," a diplomatic mission in [[United States|America]] for the state of Israel.
@@ -9338,13 +9338,13 @@
 (00:16:45) [[Nicholas J. Fuentes]] claimed that a producer of the film *[[JFK]]* was later revealed to be an agent of [[Israel Defense Forces|Mossad]], the intelligence agency of Israel.
 
 ### AF 2022-09-10 1058
-(00:21:16) The [[Europe|European Union]] held an emergency meeting to discuss capping imports of [[Russian]] natural gas, a proposal that divided member states and was opposed by [[Hungary]] and Poland.
+(00:21:16) The [[European Union]] held an emergency meeting to discuss capping imports of [[Russian]] natural gas, a proposal that divided member states and was opposed by [[Hungary]] and Poland.
 
 ### AF 2022-09-10 1058
 (00:54:08) Eastern [[Europe|European]] countries, including [[Hungary]] and Poland, were described as more dependent on [[Russian]] gas and in conflict with Western [[Europe|European]] nations over energy policy.
 
 ### AF 2022-09-10 1058
-(30:51:12) [[Italian Republic|Italy]], Poland, [[Hungary]], and [[Greece]] were among the most vocal opponents of a price cap on [[Russia]]n gas within the [[Europe|European Union]].
+(30:51:12) [[Italian Republic|Italy]], Poland, [[Hungary]], and [[Greece]] were among the most vocal opponents of a price cap on [[Russia]]n gas within the [[European Union]].
 
 ### AF 2022-08-31 1052
 (00:22:20) [[Nicholas J. Fuentes]] criticized [[Greg Abbott]] for sitting before an Israel flag and condemning the website [[Gab]] as anti-Semitic, arguing it demonstrated misplaced loyalty.
@@ -9386,7 +9386,7 @@
 (00:04:13) [[Nicholas J. Fuentes]] argued that the [[Unilever|Ben & Jerry's]] episode demonstrated that the [[United States]] government works for Israel.
 
 ### AF 2022-07-04 1024
-(00:23:29) Israel has been militarily occupying [[Gaza Strip|Palestine]] since 1967 and expanding its borders with civilian settlements, which is broadly regarded as illegal under international law.
+(00:23:29) Israel has been militarily occupying [[Palestine]] since 1967 and expanding its borders with civilian settlements, which is broadly regarded as illegal under international law.
 
 ### AF 2022-07-04 1024
 (00:24:56) Israel accused [[Unilever|Ben & Jerry's]] of participating in the Boycott, Divestment, Sanctions ([[BDS]]) movement, labeling it anti-Semitic and anti-Israel.
@@ -9560,13 +9560,13 @@
 (00:32:32) [[Nicholas J. Fuentes]] criticized Western media for framing [[Russia]]'s gas cutoff as a "dramatic escalation," arguing it was a response to Poland sending tanks into [[Ukraine]] to kill [[Russian]] soldiers.
 
 ### AF 2022-03-31 0970
-(01:13:28) [[Nicholas J. Fuentes]] stated that the [[United States]] faces influence operations not only from [[China]], [[Russia]], and [[Iran]], but also from [[North Atlantic Treaty Organization|NATO]], the [[Europe|European Union]], Israel, [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and [[India]].
+(01:13:28) [[Nicholas J. Fuentes]] stated that the [[United States]] faces influence operations not only from [[China]], [[Russia]], and [[Iran]], but also from [[North Atlantic Treaty Organization|NATO]], the [[European Union]], Israel, [[Saudi Arabia]], the [[United Arab Emirates]], [[Qatar]], and [[India]].
 
 ### AF 2022-03-31 0970
 (01:17:21) [[Nicholas J. Fuentes]] traveled to Israel to sign an anti-[[BDS]] bill, which [[Nicholas J. Fuentes]] cited as an example of politicians serving foreign interests while decrying [[China|Chinese]] influence.
 
 ### AF 2022-03-31 0970
-(01:21:24) [[Ron DeSantis]] flew to Israel to sign an anti-[[BDS]] bill, which [[Nicholas J. Fuentes]] contrasted with his criticism of [[Disney|Disney]]'s ties to [[China]].
+(01:21:24) [[Ron DeSantis]] flew to Israel to sign an anti-[[BDS]] bill, which [[Nicholas J. Fuentes]] contrasted with his criticism of [[Disney]]'s ties to [[China]].
 
 ### AF 2022-03-31 0970
 (01:29:46) [[Mark Levin]] connected [[Vladimir Putin]] to [[Bashar al-Assad]], referring to [[Bashar al-Assad|Assad]] as "the other butcher," which [[Nicholas J. Fuentes]] interpreted as revealing [[Mark Levin|Levin]]'s primary concern for Israel's security.
@@ -9623,7 +9623,7 @@
 (55:27:96) [[Nicholas J. Fuentes]] stated he did not want to fight and die for the [[Baltic states]], [[Ukraine]], or Poland, questioning why their security was his business after the end of the [[Cold War]].
 
 ### AF 2022-03-23 0963
-(01:07:27:25) [[Nicholas J. Fuentes]] noted the [[United States]] gives unconditional support to Israel as it settles [[Gaza Strip|Palestine]], highlighting what he called a double standard.
+(01:07:27:25) [[Nicholas J. Fuentes]] noted the [[United States]] gives unconditional support to Israel as it settles [[Palestine]], highlighting what he called a double standard.
 
 ### AF 2022-03-21 0962
 (01:06:45:98) [[Nicholas J. Fuentes]] stated that [[North Atlantic Treaty Organization|NATO]] membership for the [[Baltic states]] and Poland, combined with [[Ukraine]], would leave [[Belarus]] as an indefensible protrusion and give [[North Atlantic Treaty Organization|NATO]] a decisive military advantage over [[Russia]] from the [[Baltic Sea]] to the [[Caucasus]].
@@ -9659,7 +9659,7 @@
 (15:18:40) The [[United States]] deployed troops to [[North Atlantic Treaty Organization|NATO]] countries in [[Europe|Eastern Europe]], including the [[Baltic states]], Poland, and [[Germany]], and sent military aid to [[Ukraine]], but did not put [[United States|American]] troops in [[Ukraine]] itself.
 
 ### AF 2022-03-08 0954
-(01:07:01:20) [[Nicholas J. Fuentes]] argued that [[Russia]]'s invasion was a limited military campaign with specific objectives to degrade [[Ukraine]]'s military, install a pro-[[Russian]] government, and secure [[City of Sevastopol|Crimea]] and [[Donetsk|Donbass]], not a prelude to invading Poland or the [[Baltic states]].
+(01:07:01:20) [[Nicholas J. Fuentes]] argued that [[Russia]]'s invasion was a limited military campaign with specific objectives to degrade [[Ukraine]]'s military, install a pro-[[Russian]] government, and secure [[Crimea]] and [[Donetsk|Donbass]], not a prelude to invading Poland or the [[Baltic states]].
 
 ### AF 2022-03-08 0954
 (01:29:20:08) [[Nicholas J. Fuentes]] drew a parallel between the lead-up to [[World War II]] over Poland and the current situation, arguing that [[United States|U.S.]] entry into [[World War II]] destroyed [[Europe|Western Europe]] and handed [[Europe|Eastern Europe]] to [[Joseph Stalin|Stalin]].
@@ -9680,7 +9680,7 @@
 (00:10:45) [[United States]] forces mobilized to [[Europe]] were deployed to defend [[North Atlantic Treaty Organization|NATO]] allies including Poland, [[Romania]], [[Latvia]], [[Lithuania]], and [[Estonia]] in the event [[Vladimir Putin]] decided to move [[west]].
 
 ### AF 2022-03-01 0952
-(03:20:31) [[Nicholas J. Fuentes]] criticized [[Mike Johnson|Kevin McCarthy]] for being in Israel and condemning the [[America First]] conference, asking which country the [[House]] Minority Leader serves.
+(03:20:31) [[Nicholas J. Fuentes]] criticized [[Kevin McCarthy]] for being in Israel and condemning the [[America First]] conference, asking which country the [[House]] Minority Leader serves.
 
 ### AF 2022-03-02 0951
 (01:11:56) [[Nicholas J. Fuentes]] compared [[Russia]]'s justification for securing its borders to Israel's justification for occupying [[Palestinian]] and [[Syria|Syrian]] lands for its own security.
@@ -9857,7 +9857,7 @@
 (01:32:19) [[Nicholas J. Fuentes]] answered affirmatively when asked if he would make a choice benefiting [[United States|America]] at the detriment of Israel, even if it meant punishing [[Trump]].
 
 ### AF 2021-12-08 0918
-(00:53:57) [[Mike Johnson|Kevin McCarthy]] took action against [[Congress]] members who did not support funding for Israel's [[MIM-104 Patriot|Iron Dome]] missile defense system.
+(00:53:57) [[Kevin McCarthy]] took action against [[Congress]] members who did not support funding for Israel's [[MIM-104 Patriot|Iron Dome]] missile defense system.
 
 ### AF 2021-11-23 0914
 (01:00:02.490) [[Nicholas J. Fuentes]] stated that immigrants who come to the [[United States]] and express dislike for white people should return to their countries of origin, such as [[Mexico]], [[China]], Israel, or [[African continent|Africa]].
@@ -10103,7 +10103,7 @@
 (00:46:04) [[Nicholas J. Fuentes]] reiterated that [[Breitbart News|Breitbart]] demanded [[Paul Gosar]] disavow him, which he cited as proof that Israel is a critical issue and that the fight is necessary, not infighting.
 
 ### AF 2021-06-26 0838
-(07:05:02) [[Nicholas J. Fuentes]] said, "Israel is the body of [[Jesus Christ|Christ]]. Israel are the believers in [[Jesus Christ|Christ]], not the Zionist occupation regime in [[Gaza Strip|Palestine]]."
+(07:05:02) [[Nicholas J. Fuentes]] said, "Israel is the body of [[Jesus Christ|Christ]]. Israel are the believers in [[Jesus Christ|Christ]], not the Zionist occupation regime in [[Palestine]]."
 
 ### AF 2021-06-16 0830
 (01:11:05) [[Nicholas J. Fuentes]] claimed there is a "Holocaust happening now against our people," referring to white people, while Jews have a strong, ethnically Jewish nation-state.
@@ -10163,7 +10163,7 @@
 (01:18:21:860) [[Nicholas J. Fuentes]] argued that [[Ryan Dawson]] is a liberal atheist whose opposition to Israel is based on humanitarian concerns for [[Palestinians]], not right-wing principles.
 
 ### AF 2021-05-25 0816
-(00:07:36) In a video from May 17th, [[Robert Barnes]] argued that support for [[Gaza Strip|Palestine]] is rooted in Arab nationalism, that critics of Israel are anti-Semitic, and that [[Gaza Strip|Palestine]] is not a real state but a contrived identity.
+(00:07:36) In a video from May 17th, [[Robert Barnes]] argued that support for [[Palestine]] is rooted in Arab nationalism, that critics of Israel are anti-Semitic, and that [[Palestine]] is not a real state but a contrived identity.
 
 ### AF 2021-05-25 0816
 (00:09:45) [[Robert Barnes]] argued that Arab identity in the [[Middle East]] is defined in opposition to the state of Israel.
@@ -10289,10 +10289,10 @@
 (02:42:17) [[Nicholas J. Fuentes]] criticized [[Sarah Silverman]] as a woman who has spent her life mocking [[Christianity]] and hating [[United States|America]] but plays innocent when Israel is criticized.
 
 ### AF 2021-05-18 0813
-(00:42:43) [[Nicholas J. Fuentes]] stated that ethnic conflict is an inevitable consequence of multiracial societies, citing examples like [[India]] and [[Pakistan]], Israel and [[Gaza Strip|Palestine]], and [[Rwanda]].
+(00:42:43) [[Nicholas J. Fuentes]] stated that ethnic conflict is an inevitable consequence of multiracial societies, citing examples like [[India]] and [[Pakistan]], Israel and [[Palestine]], and [[Rwanda]].
 
 ### AF 2021-05-17 0812
-(18:26:52) [[Nicholas J. Fuentes]] stated that [[Lauren Boebert|Lauren Chen]], a host at [[Blaze Media|Blaze TV]], replied to a question on [[Twitter]] by saying she did not support [[Gaza Strip|Palestine]] but was not sure that meant she automatically supported Israel. (19:43:74) (20:56:18)
+(18:26:52) [[Nicholas J. Fuentes]] stated that [[Lauren Boebert|Lauren Chen]], a host at [[Blaze Media|Blaze TV]], replied to a question on [[Twitter]] by saying she did not support [[Palestine]] but was not sure that meant she automatically supported Israel. (19:43:74) (20:56:18)
 
 ### AF 2021-05-17 0812
 (18:57:66) [[Nicholas J. Fuentes]] claimed that [[Blaze Media|Blaze TV]] is a "very Zio network" run by hardcore Zionists [[Glenn Beck]] and [[Mark Levin]], and that editorial restrictions there prevent honest criticism of Israel. (21:00:84) (21:03:16)
@@ -10340,7 +10340,7 @@
 (02:34:01) [[Nicholas J. Fuentes]] mentioned a planned free speech rally with [[Laura Loomer]] that was unrelated to Israel.
 
 ### AF 2021-05-11 0809
-(00:43:00) [[Nicholas J. Fuentes]] transitioned to discussing the conflict between Israel and [[Gaza Strip|Palestine]], framing it as a continuous struggle since the early 20th century rooted in competing territorial claims.
+(00:43:00) [[Nicholas J. Fuentes]] transitioned to discussing the conflict between Israel and [[Palestine]], framing it as a continuous struggle since the early 20th century rooted in competing territorial claims.
 
 ### AF 2021-05-11 0809
 (00:48:21) [[Nicholas J. Fuentes]] said that after [[World War II]] in 1948, [[Jews|Jewish people]] declared independence for Israel, fighting a war that displaced many [[Palestinian]] Arab [[Islam|Muslims]] into neighboring [[Jim Jordan|Jordan]] and [[Lebanon]].
@@ -10367,19 +10367,19 @@
 (01:03:18) [[Nicholas J. Fuentes]] referenced [[Ilhan Omar]]'s statement that support for Israel is "all about the Benjamins," agreeing that political support is driven by financial influence from pro-Israel donors.
 
 ### AF 2021-05-11 0809
-(01:04:51) [[Nicholas J. Fuentes]] concluded that from a perspective of [[United States|American]] national interest, the [[United States]] has no strategic reason to intervene in the Israel-[[Gaza Strip|Palestine]] conflict and that such intervention only occurs due to corrupting lobby influence.(01:22:54) [[Nicholas J. Fuentes]] described his foreign policy perspective as realist and realpolitik, generally siding with a sovereign country exercising its right to defend itself within its borders against a resentful non-state militant population.
+(01:04:51) [[Nicholas J. Fuentes]] concluded that from a perspective of [[United States|American]] national interest, the [[United States]] has no strategic reason to intervene in the Israel-[[Palestine]] conflict and that such intervention only occurs due to corrupting lobby influence.(01:22:54) [[Nicholas J. Fuentes]] described his foreign policy perspective as realist and realpolitik, generally siding with a sovereign country exercising its right to defend itself within its borders against a resentful non-state militant population.
 
 ### AF 2021-05-11 0809
-(01:23:37) [[Nicholas J. Fuentes]] stated he was ambivalent on the moral dimensions of the Israel-[[Gaza Strip|Palestine]] conflict, arguing it was a complicated matter of perspective and not his home.
+(01:23:37) [[Nicholas J. Fuentes]] stated he was ambivalent on the moral dimensions of the Israel-[[Palestine]] conflict, arguing it was a complicated matter of perspective and not his home.
 
 ### AF 2021-05-11 0809
-(01:25:40) [[Nicholas J. Fuentes]] stated he did not believe it was [[United States|America]]'s place to intervene in the Israel-[[Gaza Strip|Palestine]] conflict, as it was not strategically important and [[United States|America]]'s role should not be that of a human rights broker.
+(01:25:40) [[Nicholas J. Fuentes]] stated he did not believe it was [[United States|America]]'s place to intervene in the Israel-[[Palestine]] conflict, as it was not strategically important and [[United States|America]]'s role should not be that of a human rights broker.
 
 ### AF 2021-05-11 0809
 (01:26:29) [[Nicholas J. Fuentes]] asserted that Israel was not a strategically important country for the [[United States]], and that removing itself from the conflict would do no damage to [[United States|American]] interests.
 
 ### AF 2021-05-11 0809
-(01:27:12) [[Nicholas J. Fuentes]] clarified his position as not partial to Israel but also not caring about [[Gaza Strip|Palestine]], ultimately advocating for an "[[United States|America]] first" approach.
+(01:27:12) [[Nicholas J. Fuentes]] clarified his position as not partial to Israel but also not caring about [[Palestine]], ultimately advocating for an "[[United States|America]] first" approach.
 
 ### AF 2021-05-11 0809
 (01:27:43) [[Nicholas J. Fuentes]] framed the core problem as how to reconcile a Jewish state in the [[Middle East]], noting that Israel exists and therefore some form of reconciliation is necessary.
@@ -10397,7 +10397,7 @@
 (01:31:31) [[Nicholas J. Fuentes]] characterized Israel's war in [[Gaza Strip|Gaza]] as a counterinsurgency campaign, arguing that if its ends are considered just, then the means, including disproportionate force, are justified by the nature of war.
 
 ### AF 2021-05-11 0809
-(01:58:45) [[Nicholas J. Fuentes]] joked about a "[[City of Chicago|Chicago]] trip" where conservative figures would visit him, parodying political loyalty trips to Israel, and quipped about holding "N-word tapes" as blackmail to ensure allegiance.
+(01:58:45) [[Nicholas J. Fuentes]] joked about a "[[Chicago]] trip" where conservative figures would visit him, parodying political loyalty trips to Israel, and quipped about holding "N-word tapes" as blackmail to ensure allegiance.
 
 ### AF 2021-05-11 0809
 (02:44:18) [[Nicholas J. Fuentes]] stated that early Zionist groups in Israel almost invented [[Middle East|Middle Eastern]] terrorism, pioneering tactics like bus bombings.
@@ -10406,7 +10406,7 @@
 (02:45:21) [[Nicholas J. Fuentes]] noted that [[United States|U.S]]. policy did not fully embrace Israel until the administrations of [[JFK]] and [[Lyndon B. Johnson|LBJ]], though [[Harry S. Truman|Truman]]'s recognition of Israel involved political pressure.
 
 ### AF 2021-05-11 0809
-(02:49:14) [[Nicholas J. Fuentes]] pointed to [[Alexandria Ocasio-Cortez|AOC]]'s muted statement on the Israel-[[Gaza Strip|Palestine]] conflict as evidence that woke leftists are a sideshow and not a legitimate threat to the system.
+(02:49:14) [[Nicholas J. Fuentes]] pointed to [[Alexandria Ocasio-Cortez|AOC]]'s muted statement on the Israel-[[Palestine]] conflict as evidence that woke leftists are a sideshow and not a legitimate threat to the system.
 
 ### AF 2021-05-10 0808
 (01:07:00) [[Nicholas J. Fuentes]] stated that Israel had told the [[Joe Biden|Biden]] administration to stay out of the clashes in [[Jerusalem]].
@@ -10460,7 +10460,7 @@
 (00:13:15) [[Nicholas J. Fuentes]] claimed that [[Charlie Kirk]] and [[Turning Point USA]] were "a total shill for Israel."
 
 ### AF 2021-04-19 0794
-(01:40:48) [[Nicholas J. Fuentes]] stated that the best [[United States|America]] First position on the Israel-[[Gaza Strip|Palestine]] conflict is that it is "none of our business," and that the [[United States]] should only mediate a solution between the two parties.
+(01:40:48) [[Nicholas J. Fuentes]] stated that the best [[United States|America]] First position on the Israel-[[Palestine]] conflict is that it is "none of our business," and that the [[United States]] should only mediate a solution between the two parties.
 
 ### AF 2021-04-14 0792
 (01:22:20:06) [[Nicholas J. Fuentes]] explained that opposition to supranational organizations like the [[United Nations|UN]] among [[Jews]] was not monolithic, with atheist liberal [[Jews]] in global finance and media often supporting them, while hardcore [[Jews|Zionist Jews]] in Israel typically opposed them for passing anti-Israel resolutions.
@@ -10478,7 +10478,7 @@
 (01:54:53) [[Nicholas J. Fuentes]] responded to a question about [[Jeffrey Epstein]] being a [[Israel Defense Forces|Mossad]] agent by stating there is evidence linking [[Jeffrey Epstein]] and his associate [[Ghislaine Maxwell]], whose father was a [[Israel Defense Forces|Mossad]] agent, to [[Israel Defense Forces|Mossad]] and the Israeli government.
 
 ### AF 2021-04-14 0792
-(02:23:29) [[Nicholas J. Fuentes]] mocked the stereotypical speeches of other competitors, who used relatable pop culture analogies—like comparing Israel and [[Gaza Strip|Palestine]] to characters from *The Office*—instead of substantive arguments.
+(02:23:29) [[Nicholas J. Fuentes]] mocked the stereotypical speeches of other competitors, who used relatable pop culture analogies—like comparing Israel and [[Palestine]] to characters from *The Office*—instead of substantive arguments.
 
 ### AF 2021-04-13 0791
 (00:21:29) [[Nicholas J. Fuentes]] quoted [[Tucker Carlson]] reading a statement from the [[Anti-Defamation League|ADL]] website explaining that Israel should not grant voting rights to more Arabs because [[Jews]] would become a minority, ending equal representation and making them politically and physically vulnerable.
@@ -10508,7 +10508,7 @@
 (00:32:05) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]]'s monologue effectively employed the "nationalism for me but not for thee" double standard by quoting the [[Anti-Defamation League|ADL]]'s defense of Israel's demographic policies.
 
 ### AF 2021-04-07 0787
-(00:00:00) [[Nicholas J. Fuentes]] announced the main story for the evening would be a strike by Israel against an [[Iran|Iranian]] vessel, coinciding with [[Joe Biden]]'s administration holding talks in [[City of Vienna|Vienna]] with [[Iran]] about re-entering the [[Joint Comprehensive Plan of Action|JCPOA]] nuclear deal.
+(00:00:00) [[Nicholas J. Fuentes]] announced the main story for the evening would be a strike by Israel against an [[Iran|Iranian]] vessel, coinciding with [[Joe Biden]]'s administration holding talks in [[Vienna]] with [[Iran]] about re-entering the [[Joint Comprehensive Plan of Action|JCPOA]] nuclear deal.
 
 ### AF 2021-04-07 0787
 (00:01:32) [[Nicholas J. Fuentes]] stated that Israel was on [[the verge]] of war with [[Iran]], [[Ukraine]] was on [[the verge]] of war with [[Russia]], the [[United States]] was on [[the verge]] of war with [[China]], and [[Arab Republic of Egypt|Egypt]] was on [[the verge]] of war with both [[Republic of the Sudan|Sudan]] and [[Ethiopia]].
@@ -10520,7 +10520,7 @@
 (00:48:53) [[Nicholas J. Fuentes]] reported that Israel began a series of provocations, including air strikes and missile attacks in [[Syria]], [[Iran]], the [[Red Sea]], and the [[Persian Gulf]] in November and December 2020, aiming to scuttle potential [[United States|U.S]].-[[Iran]] diplomacy.
 
 ### AF 2021-04-07 0787
-(00:49:49) [[Nicholas J. Fuentes]] stated that on the day the [[Joe Biden|Biden administration]] sent a delegation to [[City of Vienna|Vienna]] to negotiate re-entering the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], Israel bombed an [[Iran|Iranian]] vessel in the [[Red Sea]] and conducted air strikes in [[Syria]].
+(00:49:49) [[Nicholas J. Fuentes]] stated that on the day the [[Joe Biden|Biden administration]] sent a delegation to [[Vienna]] to negotiate re-entering the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], Israel bombed an [[Iran|Iranian]] vessel in the [[Red Sea]] and conducted air strikes in [[Syria]].
 
 ### AF 2021-04-07 0787
 (00:50:21) [[Nicholas J. Fuentes]] read from an [[antiwar.com]] report quoting [[Benjamin Netanyahu|Bibi]] saying the [[Joint Comprehensive Plan of Action|JCPOA]] was a path to a nuclear-armed [[Iran]] and that Israel must act against [[Iran]], with Israeli officials threatening to attack [[Iran]] if the [[United States|U.S]]. returned to the deal.
@@ -10601,7 +10601,7 @@
 (01:06:00) Major anti-lockdown protests occurred across [[Europe]], including in the [[Kingdom of the Netherlands|Netherlands]], [[Belgium]], [[Austria]], [[Hungary]], the [[Czech Republic]], and Poland.
 
 ### AF 2021-01-29 0751
-(04:15:00) [[Nicholas J. Fuentes]] stated that the [[Atlantic Council]] is funded by the [[U.S. Department of Defense|Department of Defense]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], [[Bank of America Corporation|Bank of America]], [[Pfizer]], [[AIPAC]], the [[Europe|European Union]], [[JPMorgan Chase & Co.|JPMorgan Chase]], Israel, and the [[United Arab Emirates]].
+(04:15:00) [[Nicholas J. Fuentes]] stated that the [[Atlantic Council]] is funded by the [[U.S. Department of Defense|Department of Defense]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], [[Bank of America Corporation|Bank of America]], [[Pfizer]], [[AIPAC]], the [[European Union]], [[JPMorgan Chase & Co.|JPMorgan Chase]], Israel, and the [[United Arab Emirates]].
 
 ### AF 2021-01-28 0750
 (02:15:40) [[Nicholas J. Fuentes]] argued that evangelical [[Christianity|Christians]] who believe the modern state of Israel is biblical Israel are incorrect, stating that [[Christianity|Christians]] are the "new Israel" and that biblical Israel cannot be a state that denies [[Jesus Christ|Christ]].
@@ -10700,7 +10700,7 @@
 (02:17:55) [[Sheldon Adelson]]'s primary political issue was Israel.
 
 ### AF 2020-10-15 0702
-(02:18:30) Policy actions taken for Israel under [[Donald Trump]] included recognizing [[City of Jerusalem|Jerusalem]] as the capital, moving the [[United States Embassy in Jerusalem|embassy]], recognizing Israeli sovereignty over the Golan Heights, designating the [[Iran|IRGC]] as a terrorist group, allowing settlement expansion, greenlighting foreign aid, and passing anti-[[BDS]] laws.
+(02:18:30) Policy actions taken for Israel under [[Donald Trump]] included recognizing [[Jerusalem]] as the capital, moving the [[United States Embassy in Jerusalem|embassy]], recognizing Israeli sovereignty over the Golan Heights, designating the [[Iran|IRGC]] as a terrorist group, allowing settlement expansion, greenlighting foreign aid, and passing anti-[[BDS]] laws.
 
 ### AF 2020-10-15 0702
 (02:19:40) Since 1978, Israel has been the number one recipient of [[United States|U.S]]. foreign aid.
@@ -10709,7 +10709,7 @@
 (02:20:27) [[Donald Trump]] facilitated normalization deals between Israel and both the [[United Arab Emirates]] and [[Bahrain]].
 
 ### AF 2020-10-14 0701
-(02:21:17) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]]'s pro-Israel policies, such as moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], were driven by the $200 million campaign support from donor [[Sheldon Adelson]].
+(02:21:17) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]]'s pro-Israel policies, such as moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], were driven by the $200 million campaign support from donor [[Sheldon Adelson]].
 
 ### AF 2020-10-06 0696
 (01:19:00) [[Nicholas J. Fuentes]] characterized [[Jake Tapper]] as "a faggot" and [[Ben Shapiro]] as "a devil worshiper and not even [[United States|American]]," noting that [[Ben Shapiro]] is an Israeli citizen and [[Jews|Jewish]].
@@ -10733,7 +10733,7 @@
 (05:51:00) In February 2019, [[Brad Schneider]] tweeted that claiming [[United States|U.S]]. support for Israel is a function of political donations "rings of classic and abhorrent anti-Semitism," arguing support is based on mutual strategic interest and shared [[democratic]] values.
 
 ### AF 2020-10-05 0695
-(11:41:00) [[Nicholas J. Fuentes]] stated that to be accepted as a "[[Groyper]]," an individual must "take the trip to [[City of Chicago|Chicago]]" and "bend the knee," analogous to conservatives [[who]] travel to Israel for validation from establishment organizations.
+(11:41:00) [[Nicholas J. Fuentes]] stated that to be accepted as a "[[Groyper]]," an individual must "take the trip to [[Chicago]]" and "bend the knee," analogous to conservatives [[who]] travel to Israel for validation from establishment organizations.
 
 ### AF 2020-10-05 0695
 (42:17:00) [[Nicholas J. Fuentes]] announced that his next story would focus on a bill sponsored by [[Jews|Jewish]] [[Democratic Party|Democrats]] that would give Israel veto power over [[United States|U.S]]. arms sales in the [[Middle East]].
@@ -10838,7 +10838,7 @@
 (05:31:06) [[Nicholas J. Fuentes]] argued that the real reason the [[United States]] was involved in [[Iraq]] and [[Afghanistan]] was to support the state of Israel, which had significant influence over the [[U.S. Department of State|U.S. State Department]] and [[U.S. Department of Defense|Defense Department]].
 
 ### AF 2020-08-27 0670
-(00:36:58) [[Donald Trump]] recognized [[City of Jerusalem|Jerusalem]] as the capital of Israel and moved the [[United States]] [[United States Embassy in Jerusalem|embassy]] there from [[Rishon LeZion|Tel Aviv]].
+(00:36:58) [[Donald Trump]] recognized [[Jerusalem]] as the capital of Israel and moved the [[United States]] [[United States Embassy in Jerusalem|embassy]] there from [[Rishon LeZion|Tel Aviv]].
 
 ### AF 2020-08-27 0670
 (00:37:57) [[Donald Trump]]'s administration brokered a peace agreement between Israel and the [[United Arab Emirates]], the first such deal in the [[Middle East]] in 25 years.
@@ -10850,10 +10850,10 @@
 (12:56:14) [[Nicholas J. Fuentes]] criticized the previous night of the [[Republican Party|RNC]] as "brutal," citing a prayer for [[Jacob Blake]], a segment on a pardoned bank robber, an immigration naturalization ceremony, and a speech by [[Mike Pompeo]] from Israel.
 
 ### AF 2020-08-26 0669
-(01:08:52:52) [[Mike Pence]] credited [[Donald Trump]] with moving the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], setting the stage for the first Arab country to recognize Israel in 26 years.
+(01:08:52:52) [[Mike Pence]] credited [[Donald Trump]] with moving the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], setting the stage for the first Arab country to recognize Israel in 26 years.
 
 ### AF 2020-08-24 0668
-(02:01:25) [[Nicholas J. Fuentes]] acknowledged [[Donald Trump]]'s pro-Israel actions, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], designating the [[Iran|IRGC]] as a terrorist [[organization]], recognizing Israel's sovereignty over the Golan Heights, and overlooking settlement expansion and spying incidents.
+(02:01:25) [[Nicholas J. Fuentes]] acknowledged [[Donald Trump]]'s pro-Israel actions, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], designating the [[Iran|IRGC]] as a terrorist [[organization]], recognizing Israel's sovereignty over the Golan Heights, and overlooking settlement expansion and spying incidents.
 
 ### AF 2020-08-20 0665
 (00:56:56) [[Nicholas J. Fuentes]] stated that the [[Democratic Party]]'s commitment to [[United States|American]] imperialism, foreign warmongering, and pro-Israel policy remained steadfast despite its leftward shift on cultural issues.
@@ -10862,7 +10862,7 @@
 (03:16:17) [[Nicholas J. Fuentes]] defended his support for [[Laura Loomer]], a [[Jews|Jewish Zionist]], despite their disagreement on Israel, arguing she was a friend, a victim of censorship, a potential congresswoman, and a voice on issues like [[Concept|Big Tech]] and immigration.
 
 ### AF 2020-08-20 0665
-(03:17:35) [[Nicholas J. Fuentes]] criticized the [[Donald Trump|Trump]] administration for prioritizing policies favorable to Israel—like recognizing sovereignty over the Golan Heights and moving the [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]]—over domestic [[United States|America]] First priorities like the border wall.
+(03:17:35) [[Nicholas J. Fuentes]] criticized the [[Donald Trump|Trump]] administration for prioritizing policies favorable to Israel—like recognizing sovereignty over the Golan Heights and moving the [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]]—over domestic [[United States|America]] First priorities like the border wall.
 
 ### AF 2020-08-20 0665
 (03:18:44) [[Nicholas J. Fuentes]] claimed that during the "[[Groyper]] Wars," people advised him to stop talking about Israel if he wanted a career, but he refused.
@@ -10898,7 +10898,7 @@
 (01:22:58) The governor of [[State of Missouri|Missouri]] signed a bill prohibiting discrimination against Israel, which [[Nicholas J. Fuentes]] cited as an example of populist nationalists pandering to Israel.
 
 ### AF 2020-07-08 0636
-(15:43:28) [[Nancy Pelosi]] and the [[Democratic Party]] establishment must simultaneously appease the Israel lobby and [[Jews|Jewish]] donors, [[who]] provide half of the party's funding, and progressive members like [[Ilhan Omar]], [[Alexandria Ocasio-Cortez]], and [[Rashida Tlaib]], [[who]] are pro-[[Gaza Strip|Palestine]].
+(15:43:28) [[Nancy Pelosi]] and the [[Democratic Party]] establishment must simultaneously appease the Israel lobby and [[Jews|Jewish]] donors, [[who]] provide half of the party's funding, and progressive members like [[Ilhan Omar]], [[Alexandria Ocasio-Cortez]], and [[Rashida Tlaib]], [[who]] are pro-[[Palestine]].
 
 ### AF 2020-07-08 0636
 (34:39:21) [[Nicholas J. Fuentes]] criticized the [[Donald Trump]] administration for previously focusing its energy on "giving money to Israel, freeing [[black]] people from jail, and making gay marriage legal across the world," but acknowledged it had quietly worked to build the wall and restrict immigration.
@@ -10940,7 +10940,7 @@
 (02:46:19) [[Nicholas J. Fuentes]] mentioned that a viewer had "redpilled" his boss on Israel.
 
 ### AF 2020-06-18 0624
-(51:36:65) [[Nicholas J. Fuentes]] argued that the most tangible achievement of [[Donald Trump|Trump]]'s presidency would be moving the [[United States]] [[United States Embassy in Jerusalem|embassy]] in Israel from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]].
+(51:36:65) [[Nicholas J. Fuentes]] argued that the most tangible achievement of [[Donald Trump|Trump]]'s presidency would be moving the [[United States]] [[United States Embassy in Jerusalem|embassy]] in Israel from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]].
 
 ### AF 2020-06-18 0624
 (01:57:52) A viewer named GlowsInTheDark argued there are thousands of domain registrars, downplaying concerns about deplatforming; [[Nicholas J. Fuentes]] countered that options run out quickly, citing [[The Daily Stormer]]'s need to find a registrar in Israel.
@@ -11030,7 +11030,7 @@
 (00:36:40) [[Nicholas J. Fuentes]] traced the origin of neoconservatism to [[Jews|Jewish]] liberal intellectuals from publications like *Commentary* and *The Public Interest* [[who]] shifted towards the [[Republican Party]] due to concerns over Israel's security during the 1967 and 1971 Arab-Israeli wars.
 
 ### AF 2020-05-14 0605
-(00:13:55) [[Dan Crenshaw]] stated during his Zoom call that he did not believe immigration was a high priority compared to issues like the carried interest provision, foreign aid, and the [[United States Embassy in Jerusalem|U.S. embassy]] in [[City of Jerusalem|Jerusalem]], Israel.
+(00:13:55) [[Dan Crenshaw]] stated during his Zoom call that he did not believe immigration was a high priority compared to issues like the carried interest provision, foreign aid, and the [[United States Embassy in Jerusalem|U.S. embassy]] in [[Jerusalem]], Israel.
 
 ### AF 2020-05-14 0605
 (00:17:32) [[Nicholas J. Fuentes]] sarcastically requested to see a picture of [[Dan Crenshaw]] "taking the money from Israel," contrasting it with the congressman's public macho image.
@@ -11060,7 +11060,7 @@
 (00:28:22) [[Nicholas J. Fuentes]] argued that the [[U.S. Department of State|State Department]]'s campaign against anti-Semitic speech targets statements about [[Jews|Jewish]] allegiance to Israel, which he contends is an observable phenomenon with figures like [[Youram Hazony|Yoram Hazony]] and [[Ben Shapiro]].
 
 ### AF 2020-04-20 0589
-(01:17:02) [[Nicholas J. Fuentes]] reflected that in the period following the [[City of Charlottesville|Charlottesville]] rally, individuals [[who]] discussed topics like Israel or race were considered "radioactive" and faced widespread ostracism.
+(01:17:02) [[Nicholas J. Fuentes]] reflected that in the period following the [[Charlottesville]] rally, individuals [[who]] discussed topics like Israel or race were considered "radioactive" and faced widespread ostracism.
 
 ### AF 2020-04-20 0589
 (01:32:13) [[Nicholas J. Fuentes]] questioned whether data being held by [[China]] was fundamentally worse than it being held by [[Mark Zuckerberg]], [[Jeff Bezos]], [[Michael Bloomberg]], or the [[United States|U.S.]] or Israeli governments.
@@ -11120,13 +11120,13 @@
 (01:45:31) [[Bernie Sanders]], asked about his criticism of a prominent [[Israel lobby]] and his stance as a potential first [[Jews|Jewish]] president, called [[Benjamin Netanyahu|Bibi Netanyahu]] a reactionary racist and said [[United States|U.S]]. policy must protect Israel's security while not ignoring the suffering of the [[Palestinian]] people.
 
 ### AF 2020-02-25 0554
-(01:46:57) [[Michael Bloomberg]] stated the [[United States Embassy in Jerusalem|U.S. embassy]] should not be moved back to [[Rishon LeZion|Tel Aviv]] after being moved to [[City of Jerusalem|Jerusalem]], as it was done without getting anything from the Israeli government, and advocated for a two-state solution as the only answer.
+(01:46:57) [[Michael Bloomberg]] stated the [[United States Embassy in Jerusalem|U.S. embassy]] should not be moved back to [[Rishon LeZion|Tel Aviv]] after being moved to [[Jerusalem]], as it was done without getting anything from the Israeli government, and advocated for a two-state solution as the only answer.
 
 ### AF 2020-02-25 0554
 (01:47:51) [[Elizabeth Warren]] stated that Israelis have a right to security and [[Palestinians]] a right to dignity and self-determination in a two-state solution, but argued it was not up to the [[United States|U.S.]] to determine the terms, criticizing [[Donald Trump]] for putting a thumb on the scale for one side.
 
 ### AF 2020-02-25 0554
-(01:58:52) On the issue of Israel and [[Gaza Strip|Palestine]], [[Michael Bloomberg]] stated the [[United States|US]] [[United States Embassy in Jerusalem|embassy]] should not be moved back from [[City of Jerusalem|Jerusalem]] and advocated for a two-state solution, asking Israel to temper some settlements.
+(01:58:52) On the issue of Israel and [[Palestine]], [[Michael Bloomberg]] stated the [[United States|US]] [[United States Embassy in Jerusalem|embassy]] should not be moved back from [[Jerusalem]] and advocated for a two-state solution, asking Israel to temper some settlements.
 
 ### AF 2020-02-24 0553
 (01:04:20) The [[AIPAC]] responded to [[Bernie Sanders]]' tweet by stating he had never attended their conference and was insulting his [[Democratic Party|Democratic]] colleagues and millions of [[United States|Americans]] [[who]] support Israel.
@@ -11171,7 +11171,7 @@
 (00:36:26) The Israeli-[[Palestinian]] peace plan, dubbed the "deal of the century," was developed over years by [[Jared Kushner]] in collaboration with the Israeli government under [[Benjamin Netanyahu|Bibi]].
 
 ### AF 2020-01-28 0534
-(00:37:36) [[Donald Trump]] stated that [[City of Jerusalem|Jerusalem]] would remain Israel's "undivided capital" under the peace plan, but that a future [[Palestinian]] state could have its capital in eastern [[City of Jerusalem|Jerusalem]].
+(00:37:36) [[Donald Trump]] stated that [[Jerusalem]] would remain Israel's "undivided capital" under the peace plan, but that a future [[Palestinian]] state could have its capital in eastern [[Jerusalem]].
 
 ### AF 2020-01-28 0534
 (00:38:48) The [[Donald Trump|Trump administration]]'s plan gave Israel a green light to annex Israeli settlements in the [[Gaza Strip|West Bank]] and mandated a four-year freeze on further settlement expansion in exchange for [[United States|U.S]]. recognition of Israeli sovereignty over those settlements.
@@ -11195,7 +11195,7 @@
 (00:58:06) [[Nicholas J. Fuentes]] characterized the relationship between the [[United States]] and Israel as parasitic, arguing that [[United States|U.S]]. foreign policy had been hijacked by [[Jared Kushner]] and the Israeli government to benefit Israel at [[United States|America]]'s expense.
 
 ### AF 2020-01-28 0534
-(01:00:00) [[Nicholas J. Fuentes]] listed several actions taken by the [[Donald Trump]] administration at Israel's behest, including recognizing Israeli sovereignty over the Golan Heights, designating [[Iran|Iran's]] [[Iran|IRGC]] as a terrorist group, solidifying aid, revoking [[Palestinian]] aid, and moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]].
+(01:00:00) [[Nicholas J. Fuentes]] listed several actions taken by the [[Donald Trump]] administration at Israel's behest, including recognizing Israeli sovereignty over the Golan Heights, designating [[Iran|Iran's]] [[Iran|IRGC]] as a terrorist group, solidifying aid, revoking [[Palestinian]] aid, and moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]].
 
 ### AF 2020-01-28 0534
 (01:03:15) [[Nicholas J. Fuentes]] asserted that figures like [[Sheldon Adelson]], [[Benjamin Netanyahu|Bibi]], and [[Jared Kushner]] were "running the show" in [[United States|U.S]]. foreign policy regarding Israel, which he considered a disgrace.
@@ -11237,7 +11237,7 @@
 (00:25:24) [[Nicholas J. Fuentes]] suggested that "Zionists and neocons," unsatisfied with [[Iran]]'s muted response, could create a false flag attack in the [[United States]], [[Europe]], Israel, or the Gulf States to draw the [[United States]] further into war.
 
 ### AF 2020-01-07 0520
-(00:31:04) [[Nicholas J. Fuentes]] noted that [[Donald Trump|Trump]]'s administration had named the [[Iran|IRGC]] a terrorist group, recognized Israeli sovereignty over the Golan Heights, and moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], delivering on priorities for Zionist donors.
+(00:31:04) [[Nicholas J. Fuentes]] noted that [[Donald Trump|Trump]]'s administration had named the [[Iran|IRGC]] a terrorist group, recognized Israeli sovereignty over the Golan Heights, and moved the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], delivering on priorities for Zionist donors.
 
 ### AF 2020-01-07 0520
 (00:31:35) [[Nicholas J. Fuentes]] asserted that Israel and [[AIPAC]] were unhappy with the [[Donald Trump|Trump]] administration's cancellation of regime change in [[Syria]], attempts to pull troops from the [[region]], and decision not to retaliate militarily after the Gulf of Oman tanker incidents and the downing of a [[United States|U.S.]] drone.
@@ -11246,7 +11246,7 @@
 (00:40:20) [[Nicholas J. Fuentes]] stated the primary reasons for [[United States|U.S.]] involvement in the [[Middle East]] were the petrodollar, the military-industrial complex, and Israel, with Israel being the primary factor nobody would openly discuss.
 
 ### AF 2020-01-06 0519
-(01:25:46) [[Nicholas J. Fuentes]] noted that the [[United States]] informed Israel about the strike that killed [[Qasem Soleimani]] before notifying the [[United States Capitol|U.S. Congress]] or [[Europe|European]] allies, and that Israel subsequently stated it would not get involved in the conflict.(01:30:04) [[Iran]] has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and [[Syria]].
+(01:25:46) [[Nicholas J. Fuentes]] noted that the [[United States]] informed Israel about the strike that killed [[Qasem Soleimani]] before notifying the [[U.S. Congress]] or [[Europe|European]] allies, and that Israel subsequently stated it would not get involved in the conflict.(01:30:04) [[Iran]] has been the [[target]] of war drums and military strikes from the [[United States]] since at least the 1990s, with actions conducted in [[Iraq]] and [[Syria]].
 
 ### AF 2020-01-06 0519
 (01:43:18) [[Nicholas J. Fuentes]] denied being a neoconservative, citing his opposition to war in [[Iraq]], [[Syria]], and [[Iran]], and referencing a removed show about the Israel lobby, the [[Anti-Defamation League|ADL]], [[AIPAC]], and [[Jonathan Pollard]].
@@ -11297,7 +11297,7 @@
 (00:12:30) The proposed [[United Kingdom|UK]] law would ban public bodies from imposing their own direct or indirect boycotts, divestment, or sanctions campaigns against foreign countries, a measure reported by the [[The Jewish Chronicle|Jewish Chronicle]] as being aimed at preventing Labour-majority local councils from opposing boycotts against Israel.
 
 ### AF 2019-12-16 0514
-(00:15:09) [[Nicholas J. Fuentes]] noted that [[Brazil]] was moving its [[United States Embassy in Jerusalem|embassy]] in Israel to [[City of Jerusalem|Jerusalem]], and that leaders like [[Jair Bolsonaro]] and [[Matteo Salvini]] were advocating for Zionism.
+(00:15:09) [[Nicholas J. Fuentes]] noted that [[Brazil]] was moving its [[United States Embassy in Jerusalem|embassy]] in Israel to [[Jerusalem]], and that leaders like [[Jair Bolsonaro]] and [[Matteo Salvini]] were advocating for Zionism.
 
 ### AF 2019-12-16 0514
 (00:15:37) [[Nicholas J. Fuentes]] referenced a legal definition of anti-Semitism in the [[United States]] that includes believing [[Jews]] work together internationally or have dual allegiance to Israel.
@@ -11321,7 +11321,7 @@
 (01:39:52) The executive order adopts the International [[United States Holocaust Memorial Museum|Holocaust]] Remembrance Alliance's definition of anti-Semitism, which includes "a certain perception of [[Jews]]" that may be expressed as hatred, potentially encompassing criticism of Israel.
 
 ### AF 2019-12-10 0510
-(01:43:08) The [[Donald Trump]] administration's policy shifts regarding Israel included recognizing [[City of Jerusalem|Jerusalem]] as its capital, moving the [[United States Embassy in Jerusalem|U.S. embassy]], recognizing Golan Heights as Israeli territory, affirming the legality of [[Gaza Strip|West Bank]] settlements, and maintaining $38 billion in military aid.
+(01:43:08) The [[Donald Trump]] administration's policy shifts regarding Israel included recognizing [[Jerusalem]] as its capital, moving the [[United States Embassy in Jerusalem|U.S. embassy]], recognizing Golan Heights as Israeli territory, affirming the legality of [[Gaza Strip|West Bank]] settlements, and maintaining $38 billion in military aid.
 
 ### AF 2019-12-09 0509
 (00:10:40) [[Nicholas J. Fuentes]] stated he would accept invitations to appear on podcasts hosted by [[Charlie Kirk]] or [[Ben Shapiro]] to expose his views on demographic change, social conservatism, and the Israel lobby to mainstream audiences.
@@ -11393,7 +11393,7 @@
 (20:32:00) [[Donald Trump]]'s policy shift to support Israeli settlements was seen as endorsing a one-state solution and harming [[United States]] relationships with Arab countries.
 
 ### AF 2019-11-22 0504
-(21:07:00) [[Osama bin Laden]] cited unconditional [[United States]] support for Israel and Israeli colonization of [[Gaza Strip|Palestine]] as a primary grievance in his 1998 declaration of war against the [[United States]].
+(21:07:00) [[Osama bin Laden]] cited unconditional [[United States]] support for Israel and Israeli colonization of [[Palestine]] as a primary grievance in his 1998 declaration of war against the [[United States]].
 
 ### AF 2019-11-22 0504
 (22:01:00) [[Bret Stephens]]'s article noted that the [[Iran|Iranian]] regime killed more than 100 of its own people suppressing demonstrations, the [[Islamic State]] regrouped during [[Turkey]]'s invasion of northern [[Syria]], and Israel struck targets near [[Damascus]] after intercepting [[Iran|Iranian]] rockets.
@@ -11696,7 +11696,7 @@
 (00:48:40) [[Nicholas J. Fuentes]] recounted that an attendee at the [[University of New Hampshire]] event asked [[Charlie Kirk]] why he denied that Israel deliberately attacked the USS Liberty and whether he would debate [[Nicholas J. Fuentes]], to which [[Charlie Kirk]] replied "no, thanks."
 
 ### AF 2019-10-24 0484
-(00:51:40) [[Nicholas J. Fuentes]] described another questioner [[who]] challenged [[Charlie Kirk]] on a speech he gave in [[City of Jerusalem|Jerusalem]] where he said [[United States|America]] is defined by ideas, not its people or land, contrasting it with his support for Israel as a Jewish state.
+(00:51:40) [[Nicholas J. Fuentes]] described another questioner [[who]] challenged [[Charlie Kirk]] on a speech he gave in [[Jerusalem]] where he said [[United States|America]] is defined by ideas, not its people or land, contrasting it with his support for Israel as a Jewish state.
 
 ### AF 2019-10-23 0483
 (01:29:48) An unidentified attendee at the [[Colorado State University]] event asked [[Charlie Kirk]] about the [[United States]] providing $3.8 billion annually in foreign aid to Israel, contrasting it with aid to poorer regions and referencing the 1967 [[USS Liberty]] incident.
@@ -11753,7 +11753,7 @@
 (00:36:02) [[Nicholas J. Fuentes]] described the Samson Option as Israel's foreign policy doctrine of using its nuclear arsenal to destroy the world if the state faced imminent defeat by Arab forces.
 
 ### AF 2019-10-01 0470
-(00:21:48) [[Nicholas J. Fuentes]] debated [[Jacob Wall]] on foreign policy and Israel at a Demand Free Speech event in [[City of Miami|Miami]].
+(00:21:48) [[Nicholas J. Fuentes]] debated [[Jacob Wall]] on foreign policy and Israel at a Demand Free Speech event in [[Miami]].
 
 ### AF 2019-09-24 0468
 (18:11:30) [[Nicholas J. Fuentes]] cited a potential new government in Israel, the situation with [[Iran]], and movement towards diplomacy in [[Afghanistan]] as positive developments alongside [[Donald Trump]]'s [[United Nations]] speech.
@@ -11786,7 +11786,7 @@
 (12:15:40) Israeli [[United States Embassy in Jerusalem|embassy]] spokesperson [[Elad Strohmayer]] denied that Israel placed surveillance devices in [[Washington D.C.|Washington, D.C.]], stating, "Israel doesn't conduct espionage operations in [[the United States]], period."
 
 ### AF 2019-09-13 0461
-(15:25:84) The [[Donald Trump|Trump]] administration recognized Israeli sovereignty over the Golan Heights, moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], and issued unprecedented sanctions against [[Iran|Iran's]] [[Iran|IRGC]] without punishing Israel for expanding settlements.
+(15:25:84) The [[Donald Trump|Trump]] administration recognized Israeli sovereignty over the Golan Heights, moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], and issued unprecedented sanctions against [[Iran|Iran's]] [[Iran|IRGC]] without punishing Israel for expanding settlements.
 
 ### AF 2019-09-13 0461
 (16:36:12) Israel receives $3.8 billion per year in [[U.S. Department of Defense|U.S. military]] aid and, unlike other recipient countries, is allowed to spend a quarter of that aid on its own domestic defense industry rather than on [[United States|American]] military equipment.
@@ -11798,7 +11798,7 @@
 (22:08:82) [[Sheldon Adelson]] was the single largest individual donor to [[Donald Trump]]'s last presidential election campaign, which [[Nicholas J. Fuentes]] cited as a reason for the administration's lenient response to Israeli espionage.
 
 ### AF 2019-09-13 0461
-(25:12:70) [[Ilhan Omar]] and [[Rashida Tlaib]] introduced mainstream political skepticism regarding [[United States|U.S]]. policy toward Israel and [[Gaza Strip|Palestine]] from a left-wing, human rights perspective.
+(25:12:70) [[Ilhan Omar]] and [[Rashida Tlaib]] introduced mainstream political skepticism regarding [[United States|U.S]]. policy toward Israel and [[Palestine]] from a left-wing, human rights perspective.
 
 ### AF 2019-09-11 0459
 (05:12:81) [[Nicholas J. Fuentes]] argued that the primary grievance of [[Islamic State of Iraq and Syria|Al-Qaeda]], as stated by leader [[Ayman al-Zawahiri]] in a new video on the 18th anniversary, was to roll back the influence of Israel and its allies, not a hatred of Western freedoms.
@@ -11822,7 +11822,7 @@
 (01:51:25) [[Nicholas J. Fuentes]] advised a viewer [[who]] was talking to [[Dan Crenshaw]] to tell him "no more wars for Israel."
 
 ### AF 2019-09-06 0456
-(00:11:36) [[Nicholas J. Fuentes]] confirmed he will debate [[Jacob Wohl]] on [[Donald Trump]]'s foreign policy, with a focus on Israel, at the upcoming demandfreespeech.org event in [[City of Miami|Miami]].
+(00:11:36) [[Nicholas J. Fuentes]] confirmed he will debate [[Jacob Wohl]] on [[Donald Trump]]'s foreign policy, with a focus on Israel, at the upcoming demandfreespeech.org event in [[Miami]].
 
 ### AF 2019-09-06 0456
 (00:30:14) [[U.S. Immigration and Customs Enforcement|ICE]] arrested 39 individuals across the [[United States]] from August 27th to 29th as part of "Operation No Safe Haven V," targeting suspected human rights violators and war criminals from countries in [[West Africa]], Central America, and [[China]].
@@ -11855,7 +11855,7 @@
 (00:34:22) [[Donald Trump]] tweeted a quote from [[Wayne Alan Root]] calling him "the greatest president for [[Jews]] and for Israel in the history of the world" and stating [[Jews]] in Israel love him "like he's the [[Martin Luther King Jr.|King]] of Israel."
 
 ### AF 2019-08-21 0445
-(00:37:46) [[Donald Trump]]'s administration moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], labeled [[Hezbollah]] a terrorist group, recognized Israel's sovereignty over the Golan Heights, and approved $38 billion in aid to Israel.
+(00:37:46) [[Donald Trump]]'s administration moved the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], labeled [[Hezbollah]] a terrorist group, recognized Israel's sovereignty over the Golan Heights, and approved $38 billion in aid to Israel.
 
 ### AF 2019-08-21 0445
 (00:39:42) [[Ben Shapiro]] argued that accusing [[Jews]] of dual loyalty to Israel is anti-Semitic, a position reflected in some federal and state laws defining anti-Semitism.
@@ -11885,7 +11885,7 @@
 (00:15:43) [[Rashida Tlaib]], a [[State of Michigan|Michigan]] [[Democratic Party|Democrat]] and daughter of [[Palestinian]] immigrants, publicly canceled her planned visit to her grandmother in the [[Gaza Strip|West Bank]] after Israel granted her permission.
 
 ### AF 2019-08-16 0442
-(00:17:13) [[Ilhan Omar]] and [[Rashida Tlaib]] had planned to visit East [[City of Jerusalem|Jerusalem]] and the [[Gaza Strip|West Bank]], territories Israel controls, before their trip was canceled.
+(00:17:13) [[Ilhan Omar]] and [[Rashida Tlaib]] had planned to visit East [[Jerusalem]] and the [[Gaza Strip|West Bank]], territories Israel controls, before their trip was canceled.
 
 ### AF 2019-08-16 0442
 (00:19:08) [[Nicholas J. Fuentes]] argued that the actions of [[Rashida Tlaib]] in canceling her visit vindicated Zionist claims about [[Islam|Muslims]] being subversive towards Israel.
@@ -11906,7 +11906,7 @@
 (00:32:28) [[Nicholas J. Fuentes]] claimed that [[Ilhan Omar]] had made comments about "the Benjamins" in relation to U.S.-Israel policy.
 
 ### AF 2019-08-15 0441
-(00:30:840) Israel banned [[Ilhan Omar]] and [[Rashida Tlaib]] from entering the country, citing a law that bars supporters of the [[BDS]] movement, despite the two [[United States|U.S]]. Congresswomen planning to visit the occupied [[Gaza Strip|West Bank]] and East [[City of Jerusalem|Jerusalem]].
+(00:30:840) Israel banned [[Ilhan Omar]] and [[Rashida Tlaib]] from entering the country, citing a law that bars supporters of the [[BDS]] movement, despite the two [[United States|U.S]]. Congresswomen planning to visit the occupied [[Gaza Strip|West Bank]] and East [[Jerusalem]].
 
 ### AF 2019-08-15 0441
 (00:35:660) Israel receives $3.8 billion annually in aid from the [[United States]] [[Congress]].
@@ -11933,7 +11933,7 @@
 (02:56:56) [[Benjamin Netanyahu|Bibi Netanyahu]] received 27 standing ovations during an address to the [[United States Congress]], which [[Nicholas J. Fuentes]] cited as an example of political deference to Israel.
 
 ### AF 2019-08-14 0440
-(03:00:00) [[Nicholas J. Fuentes]] listed [[Ben Shapiro]], [[AIPAC]], [[Charlie Kirk]], and [[Mike Johnson|Kevin McCarthy]] as figures [[who]] demonstrate public support for Israel.
+(03:00:00) [[Nicholas J. Fuentes]] listed [[Ben Shapiro]], [[AIPAC]], [[Charlie Kirk]], and [[Kevin McCarthy]] as figures [[who]] demonstrate public support for Israel.
 
 ### AF 2019-08-12 0438
 (02:31:52) [[Jeffrey Epstein]]'s client list, or "little [[black]] book," reportedly included members of the [[British Royal Family]], the Israeli government, [[Israel Defense Forces|Mossad]], [[Donald Trump]], [[William Jefferson Clinton|Bill Clinton]], and [[Alan Dershowitz]].
@@ -11960,7 +11960,7 @@
 (01:41:42) [[Nicholas J. Fuentes]] thanked a commenter [[who]] said he was "radicalized" by [[Matt Walsh]] and [[Ben Shapiro]] to support wars for Israel, but was now a supporter of "[[United States|America]] first nationalism" thanks to [[Nicholas J. Fuentes]].
 
 ### AF 2019-08-01 0432
-(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steven Crowder|Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of Israel. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[City of Kabul|Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
+(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after [[Warner Bros. Discovery|CNN]] reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of Israel. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
 
 ### AF 2019-07-29 0429
 (04:58:12) [[Nicholas J. Fuentes]] stated that his moral obligation is to his family, community, and ancestors, not to people in Central America, [[African continent|Africa]], or [[Asia]], and that extending an "open arm" to potentially harmful outsiders is "actually evil."
@@ -12020,7 +12020,7 @@
 (00:30:34) [[Nicholas J. Fuentes]] contrasted the departure of senators like [[Jeff Flake]], [[John McCain]], and [[Bob Corker]] with the arrival of a new class of [[Republican Party]] lawmakers, whom he described as more "based" and less aligned with neoconservative and pro-Israel priorities.
 
 ### AF 2019-06-18 0409
-(01:07:14) [[Donald Trump]] stated his administration re-established friendship with Israel, recognized [[City of Jerusalem|Jerusalem]] as its capital, opened the [[United States Embassy in Jerusalem|U.S. embassy]] there, and recognized Israeli sovereignty over the Golan Heights.
+(01:07:14) [[Donald Trump]] stated his administration re-established friendship with Israel, recognized [[Jerusalem]] as its capital, opened the [[United States Embassy in Jerusalem|U.S. embassy]] there, and recognized Israeli sovereignty over the Golan Heights.
 
 ### AF 2019-06-18 0409
 (02:07:29) [[Nicholas J. Fuentes]] predicted that Israel would "cash out huge" during a second [[Donald Trump]] term.
@@ -12038,7 +12038,7 @@
 (00:47:52) [[Nicholas J. Fuentes]] argued that powerful forces, potentially including the [[Gulf States]], Israel, or the [[Central Intelligence Agency|CIA]], were attempting to push the [[United States]] into a war with [[Iran]] through a false flag attack, citing the incident's timing during a [[State of Japan|Japanese]] diplomatic visit and the contradictory evidence.
 
 ### AF 2019-06-13 0406
-(09:37:00) The individual [[who]] accused [[Nicholas J. Fuentes]] of being an [[Iran|Iranian]] proxy was reportedly born in [[City of Jerusalem|Jerusalem]] and is an Israeli Zionist.
+(09:37:00) The individual [[who]] accused [[Nicholas J. Fuentes]] of being an [[Iran|Iranian]] proxy was reportedly born in [[Jerusalem]] and is an Israeli Zionist.
 
 ### AF 2019-06-13 0406
 (17:16:00) [[Nicholas J. Fuentes]] argued that actors other than [[Iran]], including the [[Central Intelligence Agency|CIA]], Israel, or [[Saudi Arabia]], could have been responsible for the tanker attack, citing historical precedents like Operation Northwoods.
@@ -12152,7 +12152,7 @@
 (01:02:25) [[Nicholas J. Fuentes]] sarcastically expressed his love for being on [[Google|YouTube]] while making comments about Israel and natural law.
 
 ### AF 2019-04-10 0364
-(00:10:52) [[Benjamin Netanyahu|Bibi]] secured a majority for his [[Labor Party|Likud]] party in the Israeli election, forming a coalition with allied parties.
+(00:10:52) [[Benjamin Netanyahu|Bibi]] secured a majority for his [[Likud]] party in the Israeli election, forming a coalition with allied parties.
 
 ### AF 2019-04-10 0364
 (01:23:41) [[Donald Trump]] recognized Israeli sovereignty over the Golan Heights and designated [[Iran]]'s [[Iran|Islamic Revolutionary Guard Corps]] as a terrorist [[organization]] in the lead-up to the Israeli election.
@@ -12161,10 +12161,10 @@
 (01:25:38) Israel has been accused of stealing military technology and intelligence from the [[United States]] and manipulating [[United States|American]] politics through NGOs and lobbying groups like [[AIPAC]], the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]].
 
 ### AF 2019-04-10 0364
-(01:26:40) [[Benjamin Netanyahu|Netanyahu]]'s [[Labor Party|Likud]] party maintained close relationships with right-wing nationalist governments in [[Czech Republic]], [[Hungary]], Poland, and [[Austria]].
+(01:26:40) [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party maintained close relationships with right-wing nationalist governments in [[Czech Republic]], [[Hungary]], Poland, and [[Austria]].
 
 ### AF 2019-04-10 0364
-(01:29:47) Some nationalist parties allied with [[Benjamin Netanyahu|Netanyahu]]'s [[Labor Party|Likud]] party in Israel advocated for refusing foreign aid from the [[United States]].
+(01:29:47) Some nationalist parties allied with [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party in Israel advocated for refusing foreign aid from the [[United States]].
 
 ### AF 2019-04-10 0364
 (01:34:42) Figures like [[Robert O'Rourke|Beto O'Rourke]], [[Ilhan Omar]], and [[Alexandria Ocasio-Cortez]] were pushing the [[Democratic Party]] away from its traditional support for Israel.
@@ -12173,10 +12173,10 @@
 (37:04:24) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s designation of the [[Iran|Islamic Revolutionary Guard Corps]] as a terrorist [[organization]] was a concession to Israel intended to shore up [[Benjamin Netanyahu|Bibi]]'s re-election campaign, similar to the [[United States|U.S]]. recognition of Israeli sovereignty over the Golan Heights.
 
 ### AF 2019-04-09 0363
-(41:13:94) [[Donald Trump]]'s pro-Israel actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], recognizing Israeli sovereignty over the Golan Heights, affirming foreign aid, attacking Congresswoman [[Ilhan Omar]], and attending the [[AIPAC]] conference.
+(41:13:94) [[Donald Trump]]'s pro-Israel actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], recognizing Israeli sovereignty over the Golan Heights, affirming foreign aid, attacking Congresswoman [[Ilhan Omar]], and attending the [[AIPAC]] conference.
 
 ### AF 2019-04-09 0363
-(44:42:98) [[Robert O'Rourke|Beto O'Rourke]] and other [[Democratic Party|Democrats]] positioned themselves as critics of [[Benjamin Netanyahu|Bibi]]'s [[Labor Party|Likud]] party, creating a political alignment where [[United States|American]] domestic politics became intertwined with Israeli factional politics.
+(44:42:98) [[Robert O'Rourke|Beto O'Rourke]] and other [[Democratic Party|Democrats]] positioned themselves as critics of [[Benjamin Netanyahu|Bibi]]'s [[Likud]] party, creating a political alignment where [[United States|American]] domestic politics became intertwined with Israeli factional politics.
 
 ### AF 2019-04-09 0363
 (46:44:82) Israel has been the number one recipient of [[United States]] foreign aid since 1978, having received approximately a quarter of a trillion dollars since its founding.
@@ -12200,7 +12200,7 @@
 (27:52:240) A powerful lobby, which [[Nicholas J. Fuentes]] implied was a [[Jews|Jewish]] [[organization]], had previously pressured Poland to repeal a law concerning statements about a historical event and threatened diplomatic consequences.
 
 ### AF 2019-03-29 0357
-(28:36:600) The [[Europe|European Union]] and [[Brussels]] had pressured Poland to accept more migrants.
+(28:36:600) The [[European Union]] and [[Brussels]] had pressured Poland to accept more migrants.
 
 ### AF 2019-03-29 0357
 (28:47:720) Poland banned [[Jared Taylor]] but did not ban individuals like [[George Soros]].
@@ -12260,7 +12260,7 @@
 (12:08:78) Israel wanted the [[United States]] to remain in [[Syria]] to destabilize the government of [[Bashar al-Assad]] in [[Damascus]], creating conditions to solidify its control over the Golan Heights.
 
 ### AF 2019-03-14 0347
-(14:02:56) The [[Donald Trump|Trump]] administration successfully moved the [[United States Embassy in Jerusalem|U.S. embassy]] in Israel to [[City of Jerusalem|Jerusalem]] and formally recognized [[City of Jerusalem|Jerusalem]] as Israel's capital.
+(14:02:56) The [[Donald Trump|Trump]] administration successfully moved the [[United States Embassy in Jerusalem|U.S. embassy]] in Israel to [[Jerusalem]] and formally recognized [[Jerusalem]] as Israel's capital.
 
 ### AF 2019-03-14 0347
 (15:24:90) [[David Friedman]], the [[United States|U.S]]. Ambassador to Israel, was accused of lobbying the [[United States]] government on behalf of [[Benjamin Netanyahu|Bibi Netanyahu]]'s demands instead of representing [[United States|American]] interests.
@@ -12272,7 +12272,7 @@
 (19:35:66) [[Nicholas J. Fuentes]] noted that the [[Republican Party|Republican]]-controlled [[Congress]] had previously authorized $38 billion in aid for Israel.
 
 ### AF 2019-03-14 0347
-(24:32:30) [[Nicholas J. Fuentes]] listed policy victories for other groups during [[Donald Trump]]'s term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as Israel's capital, withdrawing from the [[Iran]] nuclear deal, cutting aid to [[Gaza Strip|Palestine]], and changing language on the Golan Heights.
+(24:32:30) [[Nicholas J. Fuentes]] listed policy victories for other groups during [[Donald Trump]]'s term, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as Israel's capital, withdrawing from the [[Iran]] nuclear deal, cutting aid to [[Palestine]], and changing language on the Golan Heights.
 
 ### AF 2019-03-13 0346
 (04:23:55) [[Nicholas J. Fuentes]] interpreted [[Donald Trump]]'s "we're gonna get tired of winning" comment as being directed at Israel and [[Jews|Jewish people]], not the [[United States|American]] people.
@@ -12281,7 +12281,7 @@
 (04:54:97) The [[Donald Trump]] administration was moving toward officially recognizing the Golan Heights as sovereign territory of Israel.
 
 ### AF 2019-03-13 0346
-(05:16:17) Recognition of Israeli sovereignty over the Golan Heights was described as a very important issue for [[Benjamin Netanyahu|Bibi Netanyahu]], the [[Labor Party|Likud]] party, and Israel.
+(05:16:17) Recognition of Israeli sovereignty over the Golan Heights was described as a very important issue for [[Benjamin Netanyahu|Bibi Netanyahu]], the [[Likud]] party, and Israel.
 
 ### AF 2019-03-12 0345
 (01:01:08) [[Nicholas J. Fuentes]] stated he had declined a free trip to Israel, contrasting this with accusations that he was a paid agent.
@@ -12317,7 +12317,7 @@
 (01:00:00) [[Nicholas J. Fuentes]] stated his unironic position on Israel was indifference, but that he was forced to care due to the [[United States]] providing it foreign aid and fighting wars for its interests.
 
 ### AF 2019-03-08 0343
-(01:01:50) [[Nicholas J. Fuentes]] listed [[Donald Trump]]'s pro-Israel actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[City of Jerusalem|Jerusalem]] as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the [[Palestinian Authority]].
+(01:01:50) [[Nicholas J. Fuentes]] listed [[Donald Trump]]'s pro-Israel actions as moving the [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]], recognizing [[Jerusalem]] as the capital, ripping up the [[Iran]] nuclear deal, and cutting all aid to the [[Palestinian Authority]].
 
 ### AF 2019-03-08 0343
 (01:02:00) [[Nicholas J. Fuentes]] argued that [[United States|America]] received nothing in return from Israel for its support, citing [[Benjamin Netanyahu|Bibi Netanyahu]]'s refusal to stop building settlements or broker a [[Middle East]] peace deal.
@@ -12392,7 +12392,7 @@
 (31:39:45) [[Nicholas J. Fuentes]] argued that [[the United States]] [[Congress]] could not allocate half the amount for its own border that it gives to Israel in foreign aid.
 
 ### AF 2019-02-14 0332
-(32:06:43) [[Nicholas J. Fuentes]] stated that when Israel is attacked, the [[United States Capitol|U.S. Congress]] passes bills with near-unanimous support to authorize aid and protect it from criticism.
+(32:06:43) [[Nicholas J. Fuentes]] stated that when Israel is attacked, the [[U.S. Congress]] passes bills with near-unanimous support to authorize aid and protect it from criticism.
 
 ### AF 2019-02-14 0332
 (40:26:63) [[Nicholas J. Fuentes]] argued that attempts to withdraw troops from [[Iraq]] and [[Afghanistan]] had been blocked for 10 years by the interests of Israel, [[Saudi Arabia]], [[Qatar]], and the [[United Arab Emirates]].
@@ -12401,7 +12401,7 @@
 (00:45:40) [[Ilhan Omar]] sparked a major political controversy by posting tweets that criticized the influence of money in [[United States|American]] politics regarding support for Israel.
 
 ### AF 2019-02-11 0329
-(00:46:40) [[Ilhan Omar]] responded to a tweet from [[Glenn Greenwald]] about [[Mike Johnson|Kevin McCarthy]] threatening punishment for her criticism of Israel by stating, "it's all about the Benjamins, baby," implying financial motives.
+(00:46:40) [[Ilhan Omar]] responded to a tweet from [[Glenn Greenwald]] about [[Kevin McCarthy]] threatening punishment for her criticism of Israel by stating, "it's all about the Benjamins, baby," implying financial motives.
 
 ### AF 2019-02-11 0329
 (00:48:20) [[Glenn Greenwald]] highlighted the paradox of [[United States|U.S.]] political leaders spending significant [[time]] defending Israel, a foreign nation, even at the expense of [[United States|American]] free speech rights.
@@ -12440,13 +12440,13 @@
 (02:06:40) [[Nicholas J. Fuentes]] characterized commentators like [[Mike Cernovich]] and [[Paul Joseph Watson]] as "shills" [[who]] support Israel to maintain careers in politics and media by remaining friendly with Zionist power centers.
 
 ### AF 2019-02-08 0328
-(01:09:40) [[Nicholas J. Fuentes]] listed policy achievements of the [[Donald Trump|Trump]] administration that benefited the [[Republican Party|GOP]] establishment, including tax cuts, deregulation, approval of the Keystone pipeline, drilling in [[Alaska]], and moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in Israel to [[City of Jerusalem|Jerusalem]].
+(01:09:40) [[Nicholas J. Fuentes]] listed policy achievements of the [[Donald Trump|Trump]] administration that benefited the [[Republican Party|GOP]] establishment, including tax cuts, deregulation, approval of the Keystone pipeline, drilling in [[Alaska]], and moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in Israel to [[Jerusalem]].
 
 ### AF 2019-02-06 0326
-(22:22:84) [[Ben Shapiro]] advocates for foreign policy that puts Israel first, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]] and potential war with [[Iran]].
+(22:22:84) [[Ben Shapiro]] advocates for foreign policy that puts Israel first, including moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]] and potential war with [[Iran]].
 
 ### AF 2019-02-05 0325
-(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that [[Nicholas J. Fuentes]] characterized as a major disappointment and a strategic failure. (00:59:82) The address, which [[Nicholas J. Fuentes]] analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject [[Nicholas J. Fuentes]] identified as [[Donald Trump|the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on [[Tucker Carlson]]'s program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to [[Nicholas J. Fuentes]]. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but [[Nicholas J. Fuentes]] noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for Israel. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which [[Nicholas J. Fuentes]] interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the [[Iran]] nuclear deal and framed [[Iran]]'s threats against Israel alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which [[Nicholas J. Fuentes]] characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) [[Nicholas J. Fuentes]] suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not [[Stephen Miller]], given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and Israel. (58:38:24) [[Nicholas J. Fuentes]] speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
+(00:22:40) [[Donald Trump]] delivered his second [[State of Illinois|State]] of the Union address, a 90-minute speech that [[Nicholas J. Fuentes]] characterized as a major disappointment and a strategic failure. (00:59:82) The address, which [[Nicholas J. Fuentes]] analyzed live, was delayed from its original January 29th date after [[Donald Trump]] conceded to [[Nancy Pelosi]]'s demand to hold it in the [[House of Representatives]]. (01:06:34) [[Donald Trump]]'s speech spent only approximately three minutes on immigration, a subject [[Nicholas J. Fuentes]] identified as [[the president's]] most urgent priority, instead focusing on topics like the [[United States Holocaust Memorial Museum|Holocaust]], AIDS, and criminal justice reform. (02:13:86) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s most independent presidential power is the "bully pulpit," his control over his own rhetoric and messaging to the [[United States|American]] people. (03:06:34) [[Donald Trump]] had previously ended the longest government shutdown in history without securing funding for a border wall, promising either a future deal or a [[state]] of emergency declaration by February 15th. (06:51:90) A [[White House]] official stated on [[Tucker Carlson]]'s program that an executive order to start building the border wall had been prepared for [[Donald Trump]]'s desk immediately after his inauguration but was never signed. (07:18:96) [[Donald Trump]]'s [[State of Illinois|State]] of the Union address included hawkish rhetoric on [[Venezuela]] and a "boomerish obsession with socialism," according to [[Nicholas J. Fuentes]]. (08:37:50) [[Donald Trump]] opened his speech by invoking the 75th anniversary of D-Day, with three D-Day veterans as special guests, and the 50th anniversary of the moon landing, with [[Buzz Aldrin]] as a special guest, to frame a theme of [[United States|American]] unity and greatness. (09:45:58) [[Donald Trump]] referred to the Allied liberation of [[Europe]] during D-Day as the "great crusade," a term originally used by [[Dwight Eisenhower]]. (11:45:60) [[Patrick Buchanan|Pat Buchanan]] wrote a column discussing the [[Ralph Northam]] blackface scandal in [[State of Virginia|Virginia]], connecting it to larger questions about [[United States|American]] historical memory. (13:38:22) [[Donald Trump]] devoted a segment of his speech to economic achievements, citing 5.3 million new jobs, 600,000 new manufacturing jobs, rising blue-collar wages, and record-low unemployment rates for [[black]], [[Hispanic]], Asian, and disabled [[United States|Americans]]. (15:00:24) [[Donald Trump]] campaigned on record-low minority unemployment rates during the 2018 midterms, but [[Nicholas J. Fuentes]] noted that [[black]] and [[Hispanic]] voter support for him did not increase in response. (18:07:46) [[Donald Trump]] discussed criminal justice reform, highlighting racial disparities in sentencing, and featured Alice [[Boris Johnson|Johnson]], a nonviolent drug offender whose sentence he commuted, and [[Matthew]] Charles, the first prisoner released under the First Step Act, as special guests. (20:32:72) [[Donald Trump]] announced he was ordering an additional 3,750 troops to the [[United States|U.S]].-Mexico border during his speech. (20:53:10) The governor of [[State of New Mexico|New Mexico]] announced he was pulling [[U.S. Department of Defense|National Guard]] troops from the border on the same day as [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (21:31:04) [[Donald Trump]] argued that "tolerance for illegal immigration is not compassionate" and listed negative impacts including reduced job opportunities, lower wages, overburdened schools, and increased crime. (21:55:88) [[Donald Trump]]'s special guests on immigration included Deborah Bissell, whose family members were killed by illegal immigrants during a burglary, and Elvin Hernandez, an immigrant [[who]] became a [[U.S. Department of Homeland Security|DHS]] agent. (22:50:34) [[Donald Trump]] featured two [[United States Holocaust Memorial Museum|Holocaust]] survivors as special guests during a segment of his speech addressing anti-Semitism and [[United States|U.S]]. support for Israel. (31:30:10) [[Donald Trump]] called on [[Congress]] to pass legislation to end late-term abortion, referencing [[Ralph Northam]]'s comments regarding executing a baby. (31:44:48) [[Donald Trump]] announced the [[United States|U.S]]. withdrawal from the Intermediate-Range Nuclear Forces (INF) Treaty with [[Russia]] during his address. (32:11:98) [[Donald Trump]] announced his second summit with [[North Korea|North Korean]] leader [[Kim Jong Un|Kim Jong-un]] would be held on February 27th in [[Vietnam]]. (32:24:26) [[Donald Trump]] used a segment on [[Venezuela]] to pivot to a condemnation of socialism in [[United States|America]], stating "we will never become a socialist nation," which [[Nicholas J. Fuentes]] interpreted as a rebuke to [[Bernie Sanders]], [[Alexandria Ocasio-Cortez]], and [[Elizabeth Warren]]. (35:09:66) [[Donald Trump]] stated that nearly 7,000 [[United States|U.S]]. troops have died and over 52,000 have been wounded in the wars in [[Afghanistan]] and [[Iraq]], at a cost of $7 trillion over 19 years, declaring that "great nations do not fight endless wars." (35:29:64) [[Donald Trump]] highlighted his decision to pull [[the United States]] out of the [[Iran]] nuclear deal and framed [[Iran]]'s threats against Israel alongside the Tree of Life synagogue massacre and the [[United States Holocaust Memorial Museum|Holocaust]]. (35:59:64) [[Donald Trump]] recognized the police officer [[who]] responded to the Tree of Life synagogue shooting as a special guest. (41:27:36) [[Supreme Court of the United States|Supreme Court]] Justice [[Ruth Bader Ginsburg]] was absent from [[Donald Trump]]'s [[State of Illinois|State]] of the Union address. (41:42:82) [[Nancy Pelosi]], the Speaker of the [[House of Representatives]], was observed shuffling papers during [[Donald Trump]]'s speech, which [[Nicholas J. Fuentes]] characterized as rude behavior that faced no political penalty. (42:40:32) [[Democratic Party|Democratic]] congresswomen, including [[Alexandria Ocasio-Cortez]], wore white as a political statement during [[Donald Trump]]'s [[State of Illinois|State]] of the Union address and stood to chant "[[United States|USA]]" during a segment on women's achievements. (42:26:82) [[Ben Shapiro]] and other commentators criticized [[Nancy Pelosi]]'s demeanor during the speech as "uncouth and impolite." (48:37:64) [[Nicholas J. Fuentes]] suggested the [[State of Illinois|State]] of the Union address was likely written by a [[Jews|Jewish]] speechwriter, not [[Stephen Miller]], given its emphasis on issues like the [[United States Holocaust Memorial Museum|Holocaust]] and Israel. (58:38:24) [[Nicholas J. Fuentes]] speculated that the speech was designed to pander to people like [[Ben Shapiro]], whom he described as "corporatist, gay [[Jews]]."
 
 ### AF 2019-02-04 0324
 (00:23:40) [[Nicholas J. Fuentes]] quoted [[Donald Trump]] directly stating, "We're going to be there and we're going to be staying. We have to protect Israel," as the reason for maintaining a troop presence in [[Syria]].
@@ -12533,7 +12533,7 @@
 (00:42:41) [[AIPAC]] gives money to [[United States|U.S]]. elected officials, which [[Nicholas J. Fuentes]] argued was a key mechanism for Israel to influence [[United States|American]] foreign policy, as the cost of funding campaigns is minor compared to the financial and military support the [[United States|U.S]]. provides to Israel.
 
 ### AF 2019-01-07 0307
-(00:46:43) The "[[Donald Trump|Trump]] revolution" was described by [[Nicholas J. Fuentes]] as a three-pronged fight for national sovereignty over trade policy (against [[China]] and the [[Europe|European Union]]), immigration policy (against [[Mexico]] and Central America), and foreign policy (against Israel and [[Saudi Arabia]]).
+(00:46:43) The "[[Donald Trump|Trump]] revolution" was described by [[Nicholas J. Fuentes]] as a three-pronged fight for national sovereignty over trade policy (against [[China]] and the [[European Union]]), immigration policy (against [[Mexico]] and Central America), and foreign policy (against Israel and [[Saudi Arabia]]).
 
 ### AF 2019-01-07 0307
 (00:50:45) [[Nicholas J. Fuentes]] expressed anxiety that his criticism of Israel could lead to people being sent to his [[house]] to threaten him or his family, stating, "They will send people to threaten me and say, stop talking about Israel or we will kill your family."
@@ -12548,7 +12548,7 @@
 (15:34:82) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] stated he told [[Benjamin Netanyahu|Bibi]] that Israel receives $4.5 billion a year from the [[United States]] and is capable of defending itself.
 
 ### AF 2018-12-27 0302
-(15:48:72) [[Nicholas J. Fuentes]] noted that [[Donald Trump]] cited his administration's move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] to [[City of Jerusalem|Jerusalem]] as evidence of his support for Israel.
+(15:48:72) [[Nicholas J. Fuentes]] noted that [[Donald Trump]] cited his administration's move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] to [[Jerusalem]] as evidence of his support for Israel.
 
 ### AF 2018-12-27 0302
 (16:21:38) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] signed a law providing Israel with $3.8 billion per year over ten years, making [[Donald Trump]]'s cited figure of $4.5 billion significant.
@@ -12581,7 +12581,7 @@
 (01:16:82) A children's speech pathologist in [[Austin]] was reportedly told she could no longer work in her school district after refusing to sign a pledge vowing never to oppose the [[State of Illinois|State]] of Israel.
 
 ### AF 2018-12-17 0297
-(01:39:68) [[Prager University|Prager University]] produced a video titled "Why Does [[United States|America]] Spend So Much on Israel?" featuring [[General Chuck Wald]] arguing that [[United States|America]] does not spend enough on the country.
+(01:39:68) [[Prager University]] produced a video titled "Why Does [[United States|America]] Spend So Much on Israel?" featuring [[General Chuck Wald]] arguing that [[United States|America]] does not spend enough on the country.
 
 ### AF 2018-12-17 0297
 (01:49:18) [[General Chuck Wald]] argued that the [[United States]] should front-load its $38 billion aid package to Israel and provide even more funding.
@@ -12608,10 +12608,10 @@
 (00:42:51) [[Nicholas J. Fuentes]] stated that Israel serves as a refuge for [[Jews|Jewish people]], a "[[Jews|Jewish]] country for [[Jews]], by [[Jews]]," while white people in [[United States|America]], [[Europe]], [[Dominion of Canada|Canada]], and [[Australia]] have no analogous contingency plan.
 
 ### AF 2018-12-06 0290
-(00:01:56) [[Marc Lamont Hill]] was fired from [[Warner Bros. Discovery|CNN]] after making comments about [[Gaza Strip|Palestine]] and Israel during a [[United Nations]] address.
+(00:01:56) [[Marc Lamont Hill]] was fired from [[Warner Bros. Discovery|CNN]] after making comments about [[Palestine]] and Israel during a [[United Nations]] address.
 
 ### AF 2018-12-06 0290
-(00:02:01) The [[BDS|Boycott, Divestment and Sanctions]] ([[BDS]]) movement is an international effort targeting Israel due to its occupation of [[Gaza Strip|Palestine]].
+(00:02:01) The [[BDS|Boycott, Divestment and Sanctions]] ([[BDS]]) movement is an international effort targeting Israel due to its occupation of [[Palestine]].
 
 ### AF 2018-12-06 0290
 (00:10:49) [[Nicholas J. Fuentes]] claimed that right-wing media outlets like [[Breitbart News]], [[The Daily Wire]], [[Blaze Media|CRTV]], and [[The Rebel Media]] never offer legitimate criticism of Israel or the [[United States|U.S]]. relationship with Israel.
@@ -12677,13 +12677,13 @@
 (00:39:56) [[Steven King|Steve King]] forcefully rejected the constituent's comparison, stating his longstanding support for Israel and refusing to answer further questions before having the man removed from the event.
 
 ### AF 2018-10-31 0273
-(01:59:59) An Egyptian caller asked [[Nicholas J. Fuentes]] for his personal moral judgment on the Israel-[[Gaza Strip|Palestine]] conflict, leading [[Fuentes]] to analyze the competing historical claims of both peoples to the land.
+(01:59:59) An Egyptian caller asked [[Nicholas J. Fuentes]] for his personal moral judgment on the Israel-[[Palestine]] conflict, leading [[Fuentes]] to analyze the competing historical claims of both peoples to the land.
 
 ### AF 2018-10-31 0273
 (01:00:27) [[Nicholas J. Fuentes]] argued that both Israelis and [[Palestinians]] have valid claims to the land, citing the [[Palestinians]]' long-term residence under the Ottoman Caliphate and Israel's [[United Nations|U.N]]. mandate and established statehood, but stated he would personally side with the [[Palestinians]] if forced to choose.
 
 ### AF 2018-10-31 0273
-(01:01:06) [[Nicholas J. Fuentes]] stated that, from an "[[United States|America]] First" perspective, the Levant is not strategically important enough for the [[United States]] to take a strong moral stance on the Israel-[[Gaza Strip|Palestine]] conflict, and that [[United States|U.S]]. policy should be based solely on [[United States|American]] interests.
+(01:01:06) [[Nicholas J. Fuentes]] stated that, from an "[[United States|America]] First" perspective, the Levant is not strategically important enough for the [[United States]] to take a strong moral stance on the Israel-[[Palestine]] conflict, and that [[United States|U.S]]. policy should be based solely on [[United States|American]] interests.
 
 ### AF 2018-10-31 0273
 (01:02:08) [[Nicholas J. Fuentes]] argued that the only country capable of posing an existential threat to Israel is [[Iran]], as neighboring states like [[Arab Republic of Egypt|Egypt]], [[Saudi Arabia]], and [[Jim Jordan|Jordan]] are allied with or neutral towards Israel, while [[Syria]] and [[Iraq]] lack full sovereignty.
@@ -12692,7 +12692,7 @@
 (01:02:42) [[Nicholas J. Fuentes]] compared [[Palestinians]] in Israel to [[Hispanic|Hispanics]] in the [[United States]], arguing that both groups, through demographic growth and contested legitimacy, present a long-term threat to the existing political order and national identity.
 
 ### AF 2018-10-30 0272
-(01:47:48) [[Nicholas J. Fuentes]] reiterated that the problem with Israel is not its [[Jews|Jewish]] character or its actions against [[Gaza Strip|Palestine]], but that it advances its interests at the expense of the [[United States]], demanding funding, drawing [[United States|America]] into wars, and lobbying [[United States|U.S]]. politicians.
+(01:47:48) [[Nicholas J. Fuentes]] reiterated that the problem with Israel is not its [[Jews|Jewish]] character or its actions against [[Palestine]], but that it advances its interests at the expense of the [[United States]], demanding funding, drawing [[United States|America]] into wars, and lobbying [[United States|U.S]]. politicians.
 
 ### AF 2018-10-30 0272
 (01:48:00) [[Nicholas J. Fuentes]] argued that if the [[United States]] stopped funding Israel and ended its security guarantees, the two nations could potentially be allies, as Israel's nation-[[state]] law is a model for Western countries.
@@ -12740,7 +12740,7 @@
 (00:47:08) [[Nicholas J. Fuentes]] recounted that during high school [[United Nations|Model UN]], he was a pariah for his ardent pro-Israel stance, influenced by [[Prager University|PragerU]] and [[Ben Shapiro]], before his views changed.
 
 ### AF 2018-10-03 0253
-(01:59:47) [[Nicholas J. Fuentes]] referenced a quote from [[Ben Shapiro]] about deep-seated ideological conflict preventing coexistence, which [[Ben Shapiro|Shapiro]] had applied to the Israel-[[Gaza Strip|Palestine]] conflict.
+(01:59:47) [[Nicholas J. Fuentes]] referenced a quote from [[Ben Shapiro]] about deep-seated ideological conflict preventing coexistence, which [[Ben Shapiro|Shapiro]] had applied to the Israel-[[Palestine]] conflict.
 
 ### AF 2018-09-28 0250
 (01:00:06:00) [[Nicholas J. Fuentes]] dismissed [[Julius Evola]]'s ideas on the sacred nature of war as "bullshit," arguing they are literary and symbolic and do not apply to modern, materialistic wars like those in [[Iraq]], which are fought for interests like Israel's security.
@@ -12806,7 +12806,7 @@
 (01:59:12) [[Nicholas J. Fuentes]] identified the [[AIPAC]] as one of the most influential foreign lobbies in the [[United States]], which gives money to politicians and silences dissent regarding Israel.
 
 ### AF 2018-09-11 0237
-(00:45:58) The 1996 "Clean Break" memo, authored for the [[Labor Party|Likud]] party in Israel by [[Douglas Feith]], [[David Wurmser]], and [[Richard Perle]], advocated for the removal of regimes in [[Iraq]], [[Syria]], [[Iran]], and [[Libya]] to secure Israel's borders.
+(00:45:58) The 1996 "Clean Break" memo, authored for the [[Likud]] party in Israel by [[Douglas Feith]], [[David Wurmser]], and [[Richard Perle]], advocated for the removal of regimes in [[Iraq]], [[Syria]], [[Iran]], and [[Libya]] to secure Israel's borders.
 
 ### AF 2018-08-31 0231
 (51:40:74) [[Nicholas J. Fuentes]] pointed to the survival and return of [[Christianity]] in post-Soviet Poland and [[Russia]] and its growth in [[Asia]] as evidence that traditional values can endure and revive even after long periods of [[state]]-enforced suppression.
@@ -12884,7 +12884,7 @@
 (01:02:34) [[Nicholas J. Fuentes]] reacted to a video sent by a caller showing [[Patrick Little]] debating [[Kassy Dillon|Cassie Dillon]] at [[University of California, Berkeley|UC Berkeley]], in which [[Patrick Little]] argued that Israel is a terrorist [[state]] that attacked the USS Liberty.
 
 ### AF 2018-07-13 0200
-(01:09:50) [[Nicholas J. Fuentes]] recounted a dream where he apologized to his pro-[[Gaza Strip|Palestine]] high school [[United Nations|Model UN]] advisor and saw [[Kassy Dillon|Cassie Dillon]], following his commentary on her debate about Israel.
+(01:09:50) [[Nicholas J. Fuentes]] recounted a dream where he apologized to his pro-[[Palestine]] high school [[United Nations|Model UN]] advisor and saw [[Kassy Dillon|Cassie Dillon]], following his commentary on her debate about Israel.
 
 ### AF 2018-07-13 0200
 (01:10:34) [[Nicholas J. Fuentes]] agreed with [[Patrick Little]]'s factual case against Israel but lamented that his rhetoric about "[[Jews|Jewish]] media" undermined an otherwise effective argument centered on the USS Liberty attack.
@@ -12959,10 +12959,10 @@
 (00:10:30) [[Donald Trump]]'s administration, with officials like [[John Bolton]] and [[Michael Pompeo|Mike Pompeo]], engaged in discussions about supporting popular protests and pursuing regime change in [[Iran]] while coordinating with allies [[Saudi Arabia]] and Israel.
 
 ### AF 2018-05-14 0163
-(00:11:08) [[Donald Trump]] recognized [[City of Jerusalem|Jerusalem]] as the capital of Israel and moved the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]].
+(00:11:08) [[Donald Trump]] recognized [[Jerusalem]] as the capital of Israel and moved the [[United States|American]] [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]].
 
 ### AF 2018-05-14 0163
-(00:18:34) The 1995 [[City of Jerusalem|Jerusalem]] [[Embassy]] Act, passed by the [[United States]] [[Congress]], mandated the federal government move the [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]] and recognize [[City of Jerusalem|Jerusalem]] as the capital of Israel.
+(00:18:34) The 1995 [[Jerusalem]] [[Embassy]] Act, passed by the [[United States]] [[Congress]], mandated the federal government move the [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]] and recognize [[Jerusalem]] as the capital of Israel.
 
 ### AF 2018-05-14 0163
 (00:24:49) An [[Iran|Iranian]] pundit speculated that by moving the [[United States Embassy in Jerusalem|embassy]], [[Donald Trump]] had indebted [[Benjamin Netanyahu|Bibi]] and Israel to the [[United States]] in a public way.
@@ -12974,7 +12974,7 @@
 (00:29:05) [[Iran]] provides support to [[Hezbollah]] on Israel's northern border and to [[Hamas]] in the [[Gaza Strip]].
 
 ### AF 2018-05-14 0163
-(00:31:19) Official [[United States]] policy maintained that [[City of Jerusalem|Jerusalem]], while recognized as the capital of Israel, should be shared between Israel and [[Gaza Strip|Palestine]].
+(00:31:19) Official [[United States]] policy maintained that [[Jerusalem]], while recognized as the capital of Israel, should be shared between Israel and [[Palestine]].
 
 ### AF 2018-05-14 0163
 (00:36:07) On the same day as the [[United States Embassy in Jerusalem|embassy]] opening, approximately 40,000 [[Palestinian]] demonstrators protested at 13 locations along the border between the [[Gaza Strip]] and Israel, organized by [[Hamas]] on the 70th anniversary of the founding of Israel.
@@ -12986,7 +12986,7 @@
 (00:38:01) Organizations like [[Amnesty International]] have documented that Israel's military responses in conflicts, including the intifadas and the war with [[Lebanon]], are often disproportionate and violate the Geneva Convention.
 
 ### AF 2018-05-14 0163
-(00:43:26) Some Orthodox [[Jews]] believe that rebuilding the Third Temple in [[City of Jerusalem|Jerusalem]] would bring about the end of the world, a motivation cited for seeking to remove threats to Israel.
+(00:43:26) Some Orthodox [[Jews]] believe that rebuilding the Third Temple in [[Jerusalem]] would bring about the end of the world, a motivation cited for seeking to remove threats to Israel.
 
 ### AF 2018-05-11 0162
 (13:45:79) [[Nicholas J. Fuentes]] analyzed the strategy of publications like [[Prager University|PragerU]] and [[The Daily Wire]], stating they attract audiences with content on trade and free speech before introducing pro-Israel material.
@@ -13040,7 +13040,7 @@
 (00:24:54) [[Nicholas J. Fuentes]] characterized the foreign policy debate over the [[Iran deal]] as a conflict between two sets of hostile influences: one from [[Saudi Arabia]] and Israel on the [[State of Illinois|State]] and Defense Departments, and another from [[Obama]], [[John Kerry]], the [[Central Intelligence Agency|CIA]], the [[United Nations|UN]], and [[Europe|European]] countries.
 
 ### AF 2018-05-08 0160
-(00:32:57) [[Nicholas J. Fuentes]] argued that adversaries of [[Iran]], namely Israel under the [[Labor Party|Likud]] party and [[Saudi Arabia]] under [[Mohammed bin Salman]], would actively work to sabotage any diplomatic process or deal.
+(00:32:57) [[Nicholas J. Fuentes]] argued that adversaries of [[Iran]], namely Israel under the [[Likud]] party and [[Saudi Arabia]] under [[Mohammed bin Salman]], would actively work to sabotage any diplomatic process or deal.
 
 ### AF 2018-05-08 0160
 (00:34:05) Shortly after [[Donald Trump|Trump]] signed the memorandum withdrawing from the [[Iran deal]], Israel launched military strikes in [[Syria]], killing nine people identified as [[Iran|Iranian]] assets.
@@ -13052,7 +13052,7 @@
 (00:58:06) [[Nicholas J. Fuentes]] stated that Israel's motivation for seeking regime change in [[Iran]] was to secure its northern border by destroying states that support [[Hezbollah]], the [[Palestine Liberation Organization|PLO]], and [[Hamas]], having already secured its southern border with [[Arab Republic of Egypt|Egypt]] and [[Saudi Arabia]].
 
 ### AF 2018-05-07 0159
-(48:01:20) [[Nicholas J. Fuentes]] argued that Israel's expulsion of [[Palestinians]] and land grabs constituted a double standard, as similar actions by [[Russia]] in [[City of Sevastopol|Crimea]] are condemned while Israel's are not.
+(48:01:20) [[Nicholas J. Fuentes]] argued that Israel's expulsion of [[Palestinians]] and land grabs constituted a double standard, as similar actions by [[Russia]] in [[Crimea]] are condemned while Israel's are not.
 
 ### AF 2018-05-04 0158
 (00:43:46) [[Nicholas J. Fuentes]] argued that evangelical supporters of Israel are resistant to reason, unaffected by evidence of Zionist violence or the Talmud's portrayal of [[Jesus Christ]].
@@ -13085,7 +13085,7 @@
 (00:04:48) [[Nicholas J. Fuentes]] spoke at an [[American Renaissance]] conference in [[Tennessee]], receiving a standing ovation for a speech criticizing baby boomers, which upset some older attendees. (00:05:02) [[Nicholas J. Fuentes]] described [[American Renaissance]] as the gold standard of dissident right conferences, praising its smooth operation and contrasting it with chaotic events like those involving [[Richard Spencer]] at [[Michigan State University]]. (00:06:06) [[Nicholas J. Fuentes]] announced the termination of his [[America First]] show's relationship with [[Maker Support]] due to the platform withholding funds and failing to communicate after its payment processor, [[Stripe]], placed an indefinite hold on all payouts. (00:08:30) The host of the [[Google|YouTube]] channel [[The Quartering]], [[who]] knew the [[Maker Support]] CEO personally, attempted to intervene in the payment dispute but received no answer. (00:10:14) [[Nicholas J. Fuentes]] had become the top creator on [[Maker Support]] with over 250 subscribers before the payment issues began. (00:12:23) A user named Dirt Kevin in [[Nicholas J. Fuentes]]'s [[Discord]] server made a controversial joke, leading a female college friend of [[Fuentes]] to complain and subsequently contact [[Richard Spencer]] and the [[National Policy Institute]] with accusations that [[Fuentes]] was condoning sexual assault. (00:15:16) [[Nicholas J. Fuentes]] listed several women, including [[Kassy Dillon|Cassie Dillon]], [[Emily Faulkner]], and [[Tara McCarthy]], as sources of career-damaging "subterfuge" against him and others in his movement. (00:16:02) Israel conducted a massive airstrike with bunker-busting bombs on military sites in [[Syria]]'s [[Hama]] and [[Aleppo]] provinces, killing 11 [[Iran|Iranians]] and 15 [[Syria|Syrians]] and destroying approximately 200 missiles, which registered as a 2.6 magnitude earthquake. (00:17:48) [[Benjamin Netanyahu|Bibi]] presented a dossier in English titled "[[Iran]] Lied," claiming [[Israel Defense Forces|Mossad]] operatives stole over 100,000 files from a warehouse in [[Tehran]] in 2017, which he said provided conclusive evidence that [[Iran]] was pursuing a clandestine nuclear weapons program in violation of the 2015 deal. (00:19:19) [[Benjamin Netanyahu|Bibi]] had for months been delivering English-language addresses from his desk aimed at a Western audience, calling for the liberation of the [[Iran]]ian people from their regime. (00:22:48) The 1996 "Clean Break Memo," authored by [[Richard Perle]], [[Douglas Feith]], and [[David Wurmser]] for then-Prime Minister [[Benjamin Netanyahu|Bibi]], outlined a new Israeli strategy to "transcend" its regional problems by removing [[Iraq]]'s [[Ba'athist]] regime as a prelude to rolling back [[Syria]] and [[Iran]] to secure Israel's northern border from [[Hezbollah]]. (00:27:33) [[Richard Perle]] and [[Douglas Feith]], authors of the Clean Break Memo, later served in the [[United States]] [[U.S. Department of Defense|Defense Department]] under the [[George W. Bush]] administration and helped establish the [[Office of Special Plans]]. (00:28:28) The [[Office of Special Plans]], according to *The Guardian*, served as an unfiltered conduit for intelligence from the office of [[Benjamin Netanyahu|Israeli Prime Minister]] [[Ariel Sharon]], bypassing [[Israel Defense Forces|Mossad]] to provide the [[George W. Bush|Bush administration]] with alarmist reports on [[Saddam Hussein]]'s [[Iraq]]. (00:30:47) [[Douglas Feith]] authorized Israeli visitors to the [[Office of Special Plans]] without requiring them to fill out standard security forms. (00:34:55) Israel possesses an estimated 200 nuclear warheads, developed through an undeclared program that allegedly used uranium stolen from the [[United States]] and [[Europe]], and has never signed the [[Nuclear Non-Proliferation Treaty]]. (00:35:44) The [[Stuxnet]] cyberweapon, reportedly developed by Israel, successfully targeted [[Iran]]'s nuclear infrastructure because Israel had stolen the same [[Germany|German]] blueprints for the equipment that [[Iran]] acquired via [[Pakistan|Pakistani]] scientist [[A.Q. Khan]]. (00:37:19) [[Donald Trump]] faces a May 12 deadline to decide whether to reimpose sanctions on [[Iran]], a move urged by Israel but opposed by [[Europe|European]] leaders like [[Emmanuel Macron]] and [[Angela Merkel]] [[who]] recently visited to preserve the nuclear deal. (00:40:08) A full-scale invasion and occupation of [[Iran]] to dismantle its nuclear program would require an estimated 250,000 [[United States]] soldiers and result in a longer, bloodier conflict than the [[Iraq War]] due to [[Iran]]'s larger population, robust military, and mountainous terrain. (00:42:25) [[Iran]]'s political and economic goals of reintegration into the global economy make the pursuit of a nuclear weapon counterproductive, unlike [[North Korea]]'s ideology of *Juche*, which prioritizes national self-sufficiency. (00:43:50) Figures like [[Mike Cernovich]] and [[Lauren Southern]], [[who]] were vocal critics of war in [[Syria]], faced a test of whether they would similarly oppose a war with [[Iran]] promoted by [[Benjamin Netanyahu|Bibi]]. (00:45:24) [[Nicholas J. Fuentes]] commented that the potential reunification of [[North Korea]] and [[South Korea]] would be a powerful testament to the unifying force of shared ethnicity and ethnic nationalism, which he contrasted with demographic trends in the [[United States]]. (00:53:12) At a rally in [[State of Michigan|Michigan]], [[Donald Trump]] voiced support for bringing in farm workers on H-2B visas, a position [[Nicholas J. Fuentes]] opposed as a departure from [[Donald Trump|Trump's]] campaign promises. (00:56:56) [[Nicholas J. Fuentes]] stated that Israel has killed more [[United States|Americans]] and planned more terrorist attacks on [[United States|U.S.]] soil than [[Iran]], citing incidents like the 1967 attack on the [[USS Liberty]] and the 1950s "Lavon Affair" bombings in [[Arab Republic of Egypt|Egypt]]. (00:58:28) [[Nicholas J. Fuentes]] criticized figures like [[Richard Spencer]] and [[Mike Cernovich|Mike Enoch]] for their persistently negative "[[black]]-pilled" commentary on [[Donald Trump]], arguing it ignored legal and political constraints while serving their desire to be the [[vanguard]] of the movement. (01:02:06) [[Nicholas J. Fuentes]] recommended researching the "1980s Plan for Israel" by [[Oded Yinon]] as a more extreme document than the Clean Break Memo regarding Israel's regional ambitions. (01:03:14) For news analysis, [[Nicholas J. Fuentes]] recommended cross-referencing headlines from a wide range of sources including [[British Broadcasting Corporation|BBC]], [[Fox News]], [[Breitbart News|Breitbart]], [[Washington Post|The Washington Post]], [[The New York Times]], and [[Antiwar.com]].
 
 ### AF 2018-04-25 0152
-(51:08:49) [[Nicholas J. Fuentes]] noted destabilizing global events, including airplane crashes in [[City of Moscow|Moscow]], [[Tehran]], and [[City of Philadelphia|Philadelphia]], earthquakes, and tensions in Israel, [[Syria]], and [[Saudi Arabia]], as part of a broader transformative period.
+(51:08:49) [[Nicholas J. Fuentes]] noted destabilizing global events, including airplane crashes in [[Moscow]], [[Tehran]], and [[Philadelphia]], earthquakes, and tensions in Israel, [[Syria]], and [[Saudi Arabia]], as part of a broader transformative period.
 
 ### AF 2018-04-25 0152
 (53:25:81) [[Nicholas J. Fuentes]] connected [[Kim Kardashian]]'s Armenian [[heritage]] to a recent attack in [[Toronto]] by an Armenian "incel," and noted her children were baptized in an Armenian church in Israel.
@@ -13214,10 +13214,10 @@
 (00:29:08) [[Nicholas J. Fuentes]] accused a "rogue nation," implied to be Israel, of spying on the [[United States]], stealing classified documents, advocating for [[Middle East|Middle Eastern]] wars, selling [[U.S. Department of Defense|U.S. military]] technology to [[China]] and [[Iran]], and attacking the USS Liberty.
 
 ### AF 2018-04-04 0138
-(14:28:230) [[Donald Trump]] announced the [[United States]] would maintain its military presence in [[Syria]], a decision [[Nicholas J. Fuentes]] speculated was influenced by pressure from [[Saudi Arabia]], Israel, and the [[United States Capitol|U.S. Congress]].
+(14:28:230) [[Donald Trump]] announced the [[United States]] would maintain its military presence in [[Syria]], a decision [[Nicholas J. Fuentes]] speculated was influenced by pressure from [[Saudi Arabia]], Israel, and the [[U.S. Congress]].
 
 ### AF 2018-04-04 0138
-(15:54:970) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s foreign policy decisions, such as recognizing [[City of Jerusalem|Jerusalem]] as the capital of Israel, were influenced by the need to court donors like [[Sheldon Adelson]] and the [[Charles Koch|Koch brothers]] for the 2018 midterm elections.
+(15:54:970) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s foreign policy decisions, such as recognizing [[Jerusalem]] as the capital of Israel, were influenced by the need to court donors like [[Sheldon Adelson]] and the [[Charles Koch|Koch brothers]] for the 2018 midterm elections.
 
 ### AF 2018-04-04 0138
 (53:06:510) [[Nicholas J. Fuentes]] stated he is frequently called an anti-Semite for criticizing the Israel lobby and left-wing [[Jews]], a label he denies.
@@ -13355,7 +13355,7 @@
 (00:55:20) [[Nicholas J. Fuentes]] recommended "Against Our Better Judgment" by [[Alison Weir]], which details how Zionists used the [[United States]] to help create the modern [[state]] of Israel.
 
 ### AF 2018-03-05 0118
-(01:06:20) [[Nicholas J. Fuentes]] argued that [[World War II]] began because [[United Kingdom|Britain]] honored a defense pact with Poland after [[Germany]] attempted to retake the [[Germany|German]] [[city]] of [[City of Gdańsk|Danzig]], questioning if the resulting devastation was worth it.
+(01:06:20) [[Nicholas J. Fuentes]] argued that [[World War II]] began because [[United Kingdom|Britain]] honored a defense pact with Poland after [[Germany]] attempted to retake the [[Germany|German]] [[city]] of [[Danzig]], questioning if the resulting devastation was worth it.
 
 ### AF 2018-03-02 0117
 (00:00:54) [[Nicholas J. Fuentes]] stated he had just returned from a [[United States Holocaust Memorial Museum|Holocaust]] class where he and classmates from diverse backgrounds studied topics including aerial photographs, smokestack shadows, and the [[Soviet Union]]'s jurisdiction over Poland.
@@ -13367,7 +13367,7 @@
 (06:38:50) The Israeli Parliament discussed implementing DNA tests to verify [[Jewish]] ancestry for individuals claiming the right of return to Israel.
 
 ### AF 2018-02-28 0115
-(12:54:64) [[Austria]] elected a far-right Prime Minister months prior, joining [[Hungary]] and Poland in ethnic nationalist resistance to [[Europe|European Union]] migration policies.
+(12:54:64) [[Austria]] elected a far-right Prime Minister months prior, joining [[Hungary]] and Poland in ethnic nationalist resistance to [[European Union]] migration policies.
 
 ### AF 2018-02-20 0112
 (02:31:22) [[Nicholas J. Fuentes]] listed recent conflicts in the [[Middle East]], including [[Turkey]]'s invasion of [[Syria]], Israel killing [[Iran|Iranians]] in [[Syria]], the [[United States]] killing [[Russian]] mercenaries, a purge in [[Saudi Arabia]], and the [[civil war]] in [[Yemen]].
@@ -13376,7 +13376,7 @@
 (02:43:94) A top senator in Poland called on Poles worldwide to report instances of anti-Polish slander, particularly regarding accusations of complicity in the [[United States Holocaust Memorial Museum|Holocaust]], to diplomatic missions.
 
 ### AF 2018-02-16 0110
-(00:29:56) Caller Simon reported that at a [[City of Gainesville|Gainesville]] event, [[Richard Spencer]] was accompanied by an [[The Atlantic|Atlantic]] journalist [[who]] was the son of an Israeli politician and had filmed the "Hale Gate" incident involving [[Mike Cernovich|Mike Enoch]].
+(00:29:56) Caller Simon reported that at a [[Gainesville]] event, [[Richard Spencer]] was accompanied by an [[The Atlantic|Atlantic]] journalist [[who]] was the son of an Israeli politician and had filmed the "Hale Gate" incident involving [[Mike Cernovich|Mike Enoch]].
 
 ### AF 2018-02-16 0110
 (00:31:07) [[Nicholas J. Fuentes]] characterized the presence of an Israeli politician's son and [[The Atlantic|Atlantic]] journalist with [[Richard Spencer]] as "fishy" and "not good," arguing that movement leaders must avoid being liabilities and maintain transparency if they claim to lead.
@@ -13478,7 +13478,7 @@
 (04:58:00) [[Nicholas J. Fuentes]] referenced the 1967 [[United States|USS Liberty]] incident, in which Israel attacked a [[United States]] [[U.S. Department of Defense|Navy]] ship, killing 126 servicemen, and noted that related documents remain classified by the [[NSA]].
 
 ### AF 2018-01-30 0097
-(35:07:74) [[Donald Trump]] cited his recognition of [[City of Jerusalem|Jerusalem]] as the capital of Israel and subsequent defunding of the [[United Nations]] as examples of his foreign policy stance.
+(35:07:74) [[Donald Trump]] cited his recognition of [[Jerusalem]] as the capital of Israel and subsequent defunding of the [[United Nations]] as examples of his foreign policy stance.
 
 ### AF 2018-01-26 0095
 (35:35:96) [[Nicholas J. Fuentes]] was asked about protests in Israel but was unsure which specific protests were being referenced.
@@ -13676,7 +13676,7 @@
 (00:19:10) Throughout 2017, Israel repeatedly launched attacks against [[Syria]] and [[Hezbollah]] targets, citing perceived threats in the Golan Heights.
 
 ### AF 2018-01-01 0076
-(00:20:30) [[Donald Trump]]'s administration recognized [[City of Jerusalem|Jerusalem]] as the capital of Israel, a move seen as less critical of Israel and less supportive of [[Iran]] compared to the prior [[Obama]] administration.
+(00:20:30) [[Donald Trump]]'s administration recognized [[Jerusalem]] as the capital of Israel, a move seen as less critical of Israel and less supportive of [[Iran]] compared to the prior [[Obama]] administration.
 
 ### AF 2018-01-01 0076
 (00:42:40) [[Paul Nehlen]], running in [[Wisconsin]]'s 1st congressional district against [[Paul Ryan]], argued that many put Israeli interests ahead of [[United States|American]] interests and that a double standard existed in the treatment of white people versus [[Jews|Jewish people]].
@@ -13691,22 +13691,22 @@
 (00:14:34) [[Nicholas J. Fuentes]] stated that the division between urban and rural life, and between cosmopolitan and traditional values, has been a feature of human civilization since ancient times, citing examples from the [[Rome|Roman Empire]], [[Babylon]], Israel, and [[Arab Republic of Egypt|Egypt]].
 
 ### AF 2017-12-21 0074
-(00:05:50) The [[United Nations General Assembly]] passed a resolution condemning the [[United States]] for recognizing [[City of Jerusalem|Jerusalem]] as the capital of Israel.
+(00:05:50) The [[United Nations General Assembly]] passed a resolution condemning the [[United States]] for recognizing [[Jerusalem]] as the capital of Israel.
 
 ### AF 2017-12-21 0074
-(00:06:20) [[Donald Trump]] moved the [[United States]] [[United States Embassy in Jerusalem|embassy]] in Israel from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]], fulfilling a provision of [[United States|U.S]]. law dating to 1995.
+(00:06:20) [[Donald Trump]] moved the [[United States]] [[United States Embassy in Jerusalem|embassy]] in Israel from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]], fulfilling a provision of [[United States|U.S]]. law dating to 1995.
 
 ### AF 2017-12-21 0074
-(00:44:30) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s pro-Israel actions, such as recognizing [[City of Jerusalem|Jerusalem]], constituted political pandering rather than selling out, noting he did not move the [[United States Embassy in Jerusalem|embassy]] or launch wars for Israel like [[George W. Bush]] or [[Barack Obama]].
+(00:44:30) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s pro-Israel actions, such as recognizing [[Jerusalem]], constituted political pandering rather than selling out, noting he did not move the [[United States Embassy in Jerusalem|embassy]] or launch wars for Israel like [[George W. Bush]] or [[Barack Obama]].
 
 ### AF 2017-12-21 0074
 (00:46:40) [[Nicholas J. Fuentes]] contended that [[Donald Trump]]'s destruction of [[Islamic State of Iraq and Syria|ISIS]] benefited [[Iran]]'s regional hegemony and was done against the wishes of some ministers in Israel.
 
 ### AF 2017-12-20 0073
-(03:48:02) [[Donald Trump]] threatened to cut off foreign aid to any country that voted in favor of a [[United Nations]] General Assembly resolution opposing [[United States|U.S]]. recognition of [[City of Jerusalem|Jerusalem]] as the capital of Israel.
+(03:48:02) [[Donald Trump]] threatened to cut off foreign aid to any country that voted in favor of a [[United Nations]] General Assembly resolution opposing [[United States|U.S]]. recognition of [[Jerusalem]] as the capital of Israel.
 
 ### AF 2017-12-20 0073
-(04:00:42) [[Donald Trump]] had previously announced [[United States|U.S]]. recognition of [[City of Jerusalem|Jerusalem]] as Israel's capital but simultaneously signed a waiver delaying the move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]], as required by a 1995 law.
+(04:00:42) [[Donald Trump]] had previously announced [[United States|U.S]]. recognition of [[Jerusalem]] as Israel's capital but simultaneously signed a waiver delaying the move of the [[United States]] [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]], as required by a 1995 law.
 
 ### AF 2017-12-20 0073
 (04:26:50) The [[United States]] provided Israel with approximately $3.8 billion in annual military aid, structured as loans that were subsequently forgiven and which Israel could use to purchase [[United States|U.S]]. [[Treasury]] notes and earn interest.
@@ -13724,22 +13724,22 @@
 (00:41:06) [[Nicholas J. Fuentes]] argued that Israel's intelligence establishment and right-wing think tanks had opposed the defeat of [[Islamic State of Iraq and Syria|ISIS]] in [[Syria]], preferring the terrorist group to [[Iran|Iranian]] influence, and that Israel benefited from regional instability caused by [[Islamic State of Iraq and Syria|ISIS]] to pursue settlement expansion uncontested.
 
 ### AF 2017-12-07 0066
-(02:00:57) [[Nicholas J. Fuentes]] suggested [[Donald Trump]]'s announcement about moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in Israel to [[City of Jerusalem|Jerusalem]] may have been a concession to [[AIPAC]] lobbying, possibly influenced by donor [[Sheldon Adelson]], in exchange for support on tax reform.
+(02:00:57) [[Nicholas J. Fuentes]] suggested [[Donald Trump]]'s announcement about moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in Israel to [[Jerusalem]] may have been a concession to [[AIPAC]] lobbying, possibly influenced by donor [[Sheldon Adelson]], in exchange for support on tax reform.
 
 ### AF 2017-12-05 0064
-(01:15:54) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] made phone calls to [[Palestinian Authority]] [[White House|President]] [[Mahmoud Abbas]] and Jordanian [[Martin Luther King Jr.|King]] [[King Abdullah II]], informing them the [[United States]] would move its [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[City of Jerusalem|Jerusalem]] and recognize [[City of Jerusalem|Jerusalem]] as the capital of Israel.
+(01:15:54) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] made phone calls to [[Palestinian Authority]] [[White House|President]] [[Mahmoud Abbas]] and Jordanian [[Martin Luther King Jr.|King]] [[King Abdullah II]], informing them the [[United States]] would move its [[United States Embassy in Jerusalem|embassy]] from [[Rishon LeZion|Tel Aviv]] to [[Jerusalem]] and recognize [[Jerusalem]] as the capital of Israel.
 
 ### AF 2017-12-05 0064
-(01:16:32) [[Nicholas J. Fuentes]] explained that in 1967, during the Arab-Israeli War, Israel seized East [[City of Jerusalem|Jerusalem]] from the [[Palestinians]] and has since expanded civilian settlements there, an act most of the world considers an illegal annexation.
+(01:16:32) [[Nicholas J. Fuentes]] explained that in 1967, during the Arab-Israeli War, Israel seized East [[Jerusalem]] from the [[Palestinians]] and has since expanded civilian settlements there, an act most of the world considers an illegal annexation.
 
 ### AF 2017-12-05 0064
-(01:17:55) [[Nicholas J. Fuentes]] noted that the 1995 [[City of Jerusalem|Jerusalem]] [[Embassy]] Act, signed by [[Bill Clinton]], stated [[City of Jerusalem|Jerusalem]] is the capital of Israel and required the [[United States Embassy in Jerusalem|U.S. embassy]] to move there, but every [[president]] since had signed a six-month waiver to delay the move.
+(01:17:55) [[Nicholas J. Fuentes]] noted that the 1995 [[Jerusalem]] [[Embassy]] Act, signed by [[Bill Clinton]], stated [[Jerusalem]] is the capital of Israel and required the [[United States Embassy in Jerusalem|U.S. embassy]] to move there, but every [[president]] since had signed a six-month waiver to delay the move.
 
 ### AF 2017-12-05 0064
-(01:18:44) [[Nicholas J. Fuentes]] reported that [[Donald Trump]]'s decision to move the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]] and recognize it as Israel's capital would effectively legitimize Israel's annexation of East [[City of Jerusalem|Jerusalem]], breaking with 50 years of [[United States|American]] precedent.
+(01:18:44) [[Nicholas J. Fuentes]] reported that [[Donald Trump]]'s decision to move the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]] and recognize it as Israel's capital would effectively legitimize Israel's annexation of East [[Jerusalem]], breaking with 50 years of [[United States|American]] precedent.
 
 ### AF 2017-12-05 0064
-(01:19:52) [[Nicholas J. Fuentes]] listed international reactions against [[Donald Trump]]'s [[City of Jerusalem|Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] of [[Turkey]], [[who]] threatened to sever ties with Israel.
+(01:19:52) [[Nicholas J. Fuentes]] listed international reactions against [[Donald Trump]]'s [[Jerusalem]] decision, including warnings from [[King Salman of Saudi Arabia]], [[King Abdullah II of Jordan]], [[White House|President]] [[Abdel Fattah el-Sisi]] of [[Arab Republic of Egypt|Egypt]], and [[White House|President]] [[Recep Tayyip Erdogan|Recep Tayyip Erdoğan]] of [[Turkey]], [[who]] threatened to sever ties with Israel.
 
 ### AF 2017-12-05 0064
 (01:22:05) [[Nicholas J. Fuentes]] questioned whether alienating allies like [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[Jim Jordan|Jordan]], [[Turkey]], [[France]], and [[Germany]] over a symbolic gesture for Israel constituted putting [[America First]].
@@ -13757,7 +13757,7 @@
 (05:33:76) [[Nicholas J. Fuentes]] stated that investigators looking for collusion with [[Russia]] during the [[Donald Trump|Trump]] transition instead found evidence of a multi-billion dollar lobbying industry involving Israel.
 
 ### AF 2017-12-04 0063
-(29:24:66) [[Donald Trump]] was rumored to be preparing an announcement to recognize [[City of Jerusalem|Jerusalem]] as the official capital of Israel, a move warned against by [[Mahmoud Abbas]], [[Jim Jordan|Jordan]], and [[Arab Republic of Egypt|Egypt]].
+(29:24:66) [[Donald Trump]] was rumored to be preparing an announcement to recognize [[Jerusalem]] as the official capital of Israel, a move warned against by [[Mahmoud Abbas]], [[Jim Jordan|Jordan]], and [[Arab Republic of Egypt|Egypt]].
 
 ### AF 2017-12-01 0062
 (00:09:04) During the call, [[Michael Flynn]] requested that the [[Russia]]n government delay or vote against a [[United Nations Security Council]] resolution condemning Israel for illegal civilian settlements in the [[Gaza Strip|West Bank]].
@@ -13787,7 +13787,7 @@
 (00:30:34) Former [[U.S. Department of State|Secretary of State]] [[John Kerry]] revealed that both [[Arab Republic of Egypt|Egypt]] and Israel agitated for the [[United States]] to bomb [[Iran]] shortly before the [[Iran]]ian nuclear deal was signed.
 
 ### AF 2017-12-01 0062
-(00:31:18) [[Axios]] reported that [[White House|President]] [[Donald Trump]] would announce within four days that [[City of Jerusalem|Jerusalem]] is the capital of Israel.
+(00:31:18) [[Axios]] reported that [[White House|President]] [[Donald Trump]] would announce within four days that [[Jerusalem]] is the capital of Israel.
 
 ### AF 2017-12-01 0062
 (00:32:59) [[Ben Shapiro]] and his colleague [[Aaron Bandler]] label criticism of Israel for spying on the [[United States]], stealing technology, or providing false intelligence as anti-Semitic.
@@ -13991,7 +13991,7 @@
 (00:31:36) [[Wilt Chamberlain|Will Chamberlain]] argued that Israel had no incentive to provide false intelligence on [[Iraq]]'s [[Weapons of Mass Destruction|WMDs]] because its primary fear was other countries acquiring nuclear weapons.
 
 ### AF 2017-10-11 0029
-(00:32:11) [[Nicholas J. Fuentes]] argued that intelligence sharing with Israel could continue without foreign aid, as it does with [[Europe|European Union]] countries, and that [[Benjamin Netanyahu|Netanyahu]] had previously promised to phase out [[United States|U.S]]. aid.
+(00:32:11) [[Nicholas J. Fuentes]] argued that intelligence sharing with Israel could continue without foreign aid, as it does with [[European Union]] countries, and that [[Benjamin Netanyahu|Netanyahu]] had previously promised to phase out [[United States|U.S]]. aid.
 
 ### AF 2017-10-11 0029
 (00:33:36) [[Nicholas J. Fuentes]] cited [[Stephen Walt]] stating that Israel provided faulty or misleading intelligence on several occasions to encourage the [[United States]] to take actions Israel wanted.
@@ -14126,7 +14126,7 @@
 (02:19:34) [[Nicholas J. Fuentes]] argued that pragmatic solutions to demographic change, such as trade, tax, and energy reform, did not require public discussion of topics like [[the Holocaust]], Israel, or race realism.
 
 ### AF 2017-09-01 0007
-(00:02:52) The [[Deferred Action for Childhood Arrivals|DACA]] program, created under [[Barack Obama]], provides temporary legal status to certain undocumented immigrants [[who]] entered the [[United States]] as children. (00:03:04) Rumors circulated that [[Donald Trump]] was considering canceling the [[Deferred Action for Childhood Arrivals|DACA]] program, with a final decision from [[the White House]] expected the following Tuesday. (00:03:26) [[Paul Ryan]] publicly urged [[Donald Trump]] to allow [[Congress]] to address and potentially preserve the [[Deferred Action for Childhood Arrivals|DACA]] program through legislation. (00:04:20) The [[Republican Party]] had failed to repeal the [[Obamacare]] health law despite controlling both houses of [[Congress]] and campaigning on its repeal for years. (00:04:54) [[Donald Trump]] was elected on a platform that included ending [[Deferred Action for Childhood Arrivals|DACA]] and removing undocumented immigrants from the [[United States]]. (00:05:19) In April, [[Donald Trump]] had stated he would keep [[Deferred Action for Childhood Arrivals|DACA]], causing concern among his immigration-restrictionist supporters. (00:05:42) [[Donald Trump]] was [[known]] to test public reaction to policy ideas through back-channel rumors before making a final decision. (00:06:27) [[Donald Trump]], as [[White House|President]] of the [[United States]], has a primary duty to serve the interests of [[United States|American]] citizens over non-citizens. (00:08:46) [[Paul Ryan]] argued that [[Deferred Action for Childhood Arrivals|DACA]] recipients were living in "limbo" and faced difficult circumstances. (00:11:12) In the 1980s, [[Ronald Reagan]] granted amnesty to approximately three million undocumented immigrants in exchange for promised border security measures that were never fully implemented. (00:25:38) An 88-year-old [[Germany|German]] woman named Ursula Haverbeck was sentenced to two years in prison by a court in [[Hamburg]] for [[United States Holocaust Memorial Museum|Holocaust]] denial, a crime in [[Germany]]. (00:26:40) [[Ben Shapiro]], [[Dave Rubin]], and [[Steven Crowder]], prominent figures [[who]] advocate for free speech, were criticized for not speaking out against Ursula Haverbeck's imprisonment. (00:28:30) [[United States Holocaust Memorial Museum|Holocaust]] denial is a criminal offense in 13 countries, including [[Germany]]. (00:31:19) [[Ben Shapiro]] built a multi-million dollar media career primarily on advocating for free speech and open discourse. (00:31:35) [[Ben Shapiro]]'s career was allegedly advanced through nepotistic connections, including his father's assistance in securing jobs and a book deal. (00:32:02) [[Ben Shapiro]]'s public platform frequently focuses on themes of free speech, civil discourse, and the open exchange of ideas. (00:35:50) [[Amazon Inc.|Amazon]]'s acquisition of [[Whole Foods]] was quickly approved by the [[U.S. Antitrust Commission]], which had several vacant seats at the [[time]]. (00:40:29) Support for mass immigration among both the [[Democratic Party]] and the [[Republican Party]] is driven by [[Democratic Party|Democrats]] seeking new voters and [[Republican Party|Republicans]] seeking cheap labor for corporate donors. (00:40:45) [[Cabot Phillips]], a commentator for [[Campus Reform]], supports immigration policies favored by the [[Leadership Institute]] and its corporate donors [[who]] benefit from low-skilled labor. (00:43:10) [[Ben Shapiro]] and others at [[The Daily Wire]] refuse to debate members of the alt-right, despite building their brands on free speech principles. (00:44:21) [[Michael J. Knowles]] of [[The Daily Wire]] had previously interviewed [[James Allsup]]. (00:44:58) On [[Dave Rubin|The Rubin Report]], [[Ben Shapiro]] stated that "real racists" should have their careers and families destroyed through public shaming. (00:45:02) [[Paul Ryan]] opposed [[Donald Trump]]'s agenda due to lobbying influence, establishment politics, and his own presidential ambitions within the [[Republican Party]]. (00:47:24) [[Nicholas J. Fuentes]] planned to have guests like [[Faith Goldy]], [[Paul Miller|Paul Town]], [[Paul Nehlen]], and possibly [[Richard Spencer]] on future episodes of his show. (00:48:47) [[Nicholas J. Fuentes]] made a bet with Phil Swanson that he would be confronted by a social justice warrior within six weeks of attending classes at [[Auburn University]]. (00:48:57) If he were [[president]], [[Nicholas J. Fuentes]] would immediately terminate [[Deferred Action for Childhood Arrivals|DACA]], triple the size of [[U.S. Immigration and Customs Enforcement|ICE]], and prosecute governors of sanctuary cities. (00:50:50) [[Faith Goldy]] demonstrated courage by appearing on [[The Daily Stormer]] podcast and reporting from the [[Charlottesville rally]] despite significant backlash. (00:51:18) [[Ezra Levant]] of [[The Rebel Media|Rebel Media]] was defended by [[Faith Goldy]] during an internal controversy at the outlet, a stance [[Nicholas J. Fuentes]] disagreed with. (00:52:52) [[Ronald Reagan]]'s hawkish foreign policy and military expansion were a necessary response to the threat posed by the [[Soviet Union]] under leaders like [[Leonid Brezhnev]] and [[Yuri Andropov]]. (00:54:47) [[Thomas Aquinas|St. Thomas Aquinas]] provided sophisticated philosophical arguments for the existence of God and the truth of [[Christianity]] that far surpass the critiques of modern atheists like [[Richard Dawkins]] and [[Christopher Hitchens]]. (00:55:34) [[Christopher Hitchens]] typically debated mainstream [[Christianity|Christian]] figures on television rather than engaging with the philosophical arguments of giants like [[Thomas Aquinas|St. Thomas Aquinas]]. (00:56:56) [[Martin Luther]]'s Protestant Reformation played an important cultural role in Western history, according to historian [[Jacques Barzun]]. (01:00:52) [[Nicholas J. Fuentes]] receives frequent unsolicited emails from viewers containing elaborate but impractical plans for political projects, stage plays, and economic models. (01:02:50) The alt-right conspiracy theory posits that a secret, omnipotent cabal controls world events and silences dissenters, yet demands public figures explicitly oppose it. (01:02:55) [[Barack Obama]]'s rapid withdrawal of troops from [[Iraq]] created a power vacuum that contributed to the rise of the [[Islamic State of Iraq and Syria|ISIS]] terrorist group. (01:03:24) [[Nicholas J. Fuentes]] expressed interest in interviewing [[Timothy Gionet|Baked Alaska]] following his involvement in the [[Charlottesville rally]]. (01:04:39) [[Christopher Cantwell]] faced up to 60 years in prison for pepper-spraying a counter-protester at the [[Charlottesville rally]], a sentence critics deemed excessively harsh for a political activist. (01:06:06) [[Donald Trump]] joked that he would build a border wall using the skulls of transgender people. (01:06:12) [[Jesse Jackson]] claimed [[Donald Trump]] would not get into heaven because of his immigration policies. (01:06:24) Secession of states like [[State of California|California]] or [[State of Texas|Texas]] is unrealistic because the federal government relies on their massive economic contributions through tax revenue. (01:06:30) The [[Civil War|American Civil War]] was fundamentally fought over tax revenue, as Southern states provided 70% of federal tariff income before seceding. (01:07:08) A military solution involving [[China]], [[State of Japan|Japan]], [[Russia]], and the [[Philippines]] may be necessary to eliminate the nuclear threat from [[North Korea]] if diplomacy fails. (01:08:15) [[Nicholas J. Fuentes]] and [[James Allsup]] position themselves as creators of a positive, ideologically coherent alternative to what they see as the opportunistic critique of figures like [[Ben Shapiro]]. (01:09:01) [[Millennial Matt]] is considered a good-hearted and humorous figure within the online political sphere, though his views sometimes fall outside the mainstream Overton window. (01:10:58) [[Paul Miller|Paul Town]] is regarded as a sincere and well-intentioned activist, in contrast to many others in politics [[who]] are seen as opportunistic. (01:11:27) [[Richard Spencer]]'s alt-right strategy employs controversial [[Germany|Nazi]] and [[Ku Klux Klan|KKK]] aesthetics to create an exclusive movement, but its effectiveness in achieving political change is questioned. (01:14:12) [[Nicholas J. Fuentes]] was suspended from [[Twitter]] for posting a meme that [[Kassy Dillon|Cassie Dillon]] interpreted as a threat, leading her to contact his employer. (01:15:34) [[Nicholas J. Fuentes]] and [[Rightside Broadcasting]] parted ways mutually after the [[Charlottesville rally]], as his controversial political movement was incompatible with their need for access to [[Donald Trump]]'s [[White House]]. (01:17:16) [[Samuel J. Hyde|Sam Hyde]] is a controversial comedian considered dangerous by some for his edgy content. (01:19:44) [[Nicholas J. Fuentes]] is a fan of [[France|French]] nationalist politician [[Marine Le Pen]]. (01:19:53) [[Alex Jones]] is seen as lacking a coherent political ideology despite his influential media platform. (01:20:33) [[Robert E. Lee]] was related to a wide array of historical figures, including boxer [[Muhammad Ali]]. (01:22:51) [[The Young Turks|Cenk Uygur]] of [[The Young Turks]] produced a critical segment about [[Nicholas J. Fuentes]], calling him "smug." (01:23:13) [[Woodrow Wilson]] established the [[Federal Reserve]], instituted the federal income tax, and led the [[United States]] into [[World War III|World War I]]. (01:23:30) [[Louis Brandeis]], a [[Supreme Court of the United States|Supreme Court]] Justice and close advisor to [[Woodrow Wilson]], was allegedly involved in brokering a deal for [[United States|U.S.]] entry into [[World War III|World War I]] in exchange for [[United Kingdom|British]] support for a [[Jews|Jewish]] homeland. (01:25:25) [[Nicholas J. Fuentes]] advocates for a "responsible [[Christianity|Christian]] capitalism" rather than socialism. (01:28:30) [[Frame Game Radio]] is recognized as one of the most original and insightful creators of political content on [[Twitter]]. (01:28:50) The "Fourteen Words" white supremacist slogan is framed as no different from the rallying cries of groups like [[Black Lives Matter]], [[La Raza]], or the [[Council on American-Islamic Relations]]. (01:29:12) [[Nicholas J. Fuentes]] rejects fascism and national socialism but is open to authoritarianism, hierarchy, and aristocracy, and opposes democracy as a failed system. (01:30:08) Critics [[who]] advocate "punching right" at other conservatives are accused of lacking strategic thought and contributing to the overwhelming opposition already faced by the right from banks, government, and the [[Republican Party]]. (01:32:06) [[Julian Assange]], though left-leaning, serves a valuable purpose by challenging the establishment through [[WikiLeaks]]. (01:33:02) [[Nicholas J. Fuentes]] scored a 34 on the ACT college entrance exam. (01:33:37) Recommended books for the movement include *Death of the [[Kanye West|West]]* by [[Patrick Buchanan|Pat Buchanan]], *Summa Theologica* by [[Thomas Aquinas|St. Thomas Aquinas]], and works by [[Samuel Huntington|Samuel P. Huntington]], [[Robert D. Kaplan]], and [[Julius Evola]]. (01:36:20) The triumph of modernist empiricism and rationalism in the 20th and 21st centuries has led to widespread spiritual misery, contrary to its promises of human flourishing. (01:37:24) [[Nicholas J. Fuentes]] is of mixed Italian, Mexican, and [[Ireland|Irish]] ancestry. (01:40:06) The [[Pope Francis|Catholic Church]] has been plagued by institutional corruption and pedophilia scandals, potentially linked to the reforms of [[Vatican II]] or [[Freemasonry]] infiltration. (01:40:44) Post-[[Vatican II]] [[Catholic]] Masses conducted in the vernacular often feature mundane homilies that detract from the sacredness of the ritual, unlike the traditional [[Latin Mass]]. (01:42:30) The most efficient method for dealing with communists is "physical removal," a euphemism for violent repression. (01:42:52) [[Islam]] is on a demographic trajectory to potentially conquer [[Europe]] due to mass migration and high birth rates. (01:43:14) Just as Israel was created as a [[Jews|Jewish]] homeland, [[Nicholas J. Fuentes]] suggested it might be [[time]] for a [[Christianity|Christian]] reconquest of [[City of Istanbul|Constantinople]] and [[Anatolia]]. (01:46:20) [[Aaron Bandler]] of [[The Daily Wire]] accused [[Nicholas J. Fuentes]] of antisemitism for stating that many early [[Bolshevik Party|Bolshevik]] leaders were ethnically [[Jews|Jewish]], a historical fact exemplified by figures like [[Leon Trotsky]] (born Lev Bronstein). (01:48:20) [[Nicholas J. Fuentes]] attributed his successful first week on his independent show to the support of online figures like [[Swag Blog]], [[Paul Miller|Paul Town]], [[Daryl Cooper|Beardson]], [[Wild Goose]], [[Andrew Quackson]], [[Spaceboys]], and [[Stevie Chats]]. (01:48:54) The takedown of the [[Reagan Battalion]] account demonstrated that organized online activists could overcome opponents with alleged high-level connections and resources.
+(00:02:52) The [[Deferred Action for Childhood Arrivals|DACA]] program, created under [[Barack Obama]], provides temporary legal status to certain undocumented immigrants [[who]] entered the [[United States]] as children. (00:03:04) Rumors circulated that [[Donald Trump]] was considering canceling the [[Deferred Action for Childhood Arrivals|DACA]] program, with a final decision from [[the White House]] expected the following Tuesday. (00:03:26) [[Paul Ryan]] publicly urged [[Donald Trump]] to allow [[Congress]] to address and potentially preserve the [[Deferred Action for Childhood Arrivals|DACA]] program through legislation. (00:04:20) The [[Republican Party]] had failed to repeal the [[Obamacare]] health law despite controlling both houses of [[Congress]] and campaigning on its repeal for years. (00:04:54) [[Donald Trump]] was elected on a platform that included ending [[Deferred Action for Childhood Arrivals|DACA]] and removing undocumented immigrants from the [[United States]]. (00:05:19) In April, [[Donald Trump]] had stated he would keep [[Deferred Action for Childhood Arrivals|DACA]], causing concern among his immigration-restrictionist supporters. (00:05:42) [[Donald Trump]] was [[known]] to test public reaction to policy ideas through back-channel rumors before making a final decision. (00:06:27) [[Donald Trump]], as [[White House|President]] of the [[United States]], has a primary duty to serve the interests of [[United States|American]] citizens over non-citizens. (00:08:46) [[Paul Ryan]] argued that [[Deferred Action for Childhood Arrivals|DACA]] recipients were living in "limbo" and faced difficult circumstances. (00:11:12) In the 1980s, [[Ronald Reagan]] granted amnesty to approximately three million undocumented immigrants in exchange for promised border security measures that were never fully implemented. (00:25:38) An 88-year-old [[Germany|German]] woman named Ursula Haverbeck was sentenced to two years in prison by a court in [[Hamburg]] for [[United States Holocaust Memorial Museum|Holocaust]] denial, a crime in [[Germany]]. (00:26:40) [[Ben Shapiro]], [[Dave Rubin]], and [[Steven Crowder]], prominent figures [[who]] advocate for free speech, were criticized for not speaking out against Ursula Haverbeck's imprisonment. (00:28:30) [[United States Holocaust Memorial Museum|Holocaust]] denial is a criminal offense in 13 countries, including [[Germany]]. (00:31:19) [[Ben Shapiro]] built a multi-million dollar media career primarily on advocating for free speech and open discourse. (00:31:35) [[Ben Shapiro]]'s career was allegedly advanced through nepotistic connections, including his father's assistance in securing jobs and a book deal. (00:32:02) [[Ben Shapiro]]'s public platform frequently focuses on themes of free speech, civil discourse, and the open exchange of ideas. (00:35:50) [[Amazon Inc.|Amazon]]'s acquisition of [[Whole Foods]] was quickly approved by the [[U.S. Antitrust Commission]], which had several vacant seats at the [[time]]. (00:40:29) Support for mass immigration among both the [[Democratic Party]] and the [[Republican Party]] is driven by [[Democratic Party|Democrats]] seeking new voters and [[Republican Party|Republicans]] seeking cheap labor for corporate donors. (00:40:45) [[Cabot Phillips]], a commentator for [[Campus Reform]], supports immigration policies favored by the [[Leadership Institute]] and its corporate donors [[who]] benefit from low-skilled labor. (00:43:10) [[Ben Shapiro]] and others at [[The Daily Wire]] refuse to debate members of the alt-right, despite building their brands on free speech principles. (00:44:21) [[Michael J. Knowles]] of [[The Daily Wire]] had previously interviewed [[James Allsup]]. (00:44:58) On [[Dave Rubin|The Rubin Report]], [[Ben Shapiro]] stated that "real racists" should have their careers and families destroyed through public shaming. (00:45:02) [[Paul Ryan]] opposed [[Donald Trump]]'s agenda due to lobbying influence, establishment politics, and his own presidential ambitions within the [[Republican Party]]. (00:47:24) [[Nicholas J. Fuentes]] planned to have guests like [[Faith Goldy]], [[Paul Miller|Paul Town]], [[Paul Nehlen]], and possibly [[Richard Spencer]] on future episodes of his show. (00:48:47) [[Nicholas J. Fuentes]] made a bet with Phil Swanson that he would be confronted by a social justice warrior within six weeks of attending classes at [[Auburn University]]. (00:48:57) If he were [[president]], [[Nicholas J. Fuentes]] would immediately terminate [[Deferred Action for Childhood Arrivals|DACA]], triple the size of [[U.S. Immigration and Customs Enforcement|ICE]], and prosecute governors of sanctuary cities. (00:50:50) [[Faith Goldy]] demonstrated courage by appearing on [[The Daily Stormer]] podcast and reporting from the [[Charlottesville rally]] despite significant backlash. (00:51:18) [[Ezra Levant]] of [[The Rebel Media|Rebel Media]] was defended by [[Faith Goldy]] during an internal controversy at the outlet, a stance [[Nicholas J. Fuentes]] disagreed with. (00:52:52) [[Ronald Reagan]]'s hawkish foreign policy and military expansion were a necessary response to the threat posed by the [[Soviet Union]] under leaders like [[Leonid Brezhnev]] and [[Yuri Andropov]]. (00:54:47) [[Thomas Aquinas|St. Thomas Aquinas]] provided sophisticated philosophical arguments for the existence of God and the truth of [[Christianity]] that far surpass the critiques of modern atheists like [[Richard Dawkins]] and [[Christopher Hitchens]]. (00:55:34) [[Christopher Hitchens]] typically debated mainstream [[Christianity|Christian]] figures on television rather than engaging with the philosophical arguments of giants like [[Thomas Aquinas|St. Thomas Aquinas]]. (00:56:56) [[Martin Luther]]'s Protestant Reformation played an important cultural role in Western history, according to historian [[Jacques Barzun]]. (01:00:52) [[Nicholas J. Fuentes]] receives frequent unsolicited emails from viewers containing elaborate but impractical plans for political projects, stage plays, and economic models. (01:02:50) The alt-right conspiracy theory posits that a secret, omnipotent cabal controls world events and silences dissenters, yet demands public figures explicitly oppose it. (01:02:55) [[Barack Obama]]'s rapid withdrawal of troops from [[Iraq]] created a power vacuum that contributed to the rise of the [[Islamic State of Iraq and Syria|ISIS]] terrorist group. (01:03:24) [[Nicholas J. Fuentes]] expressed interest in interviewing [[Timothy Gionet|Baked Alaska]] following his involvement in the [[Charlottesville rally]]. (01:04:39) [[Christopher Cantwell]] faced up to 60 years in prison for pepper-spraying a counter-protester at the [[Charlottesville rally]], a sentence critics deemed excessively harsh for a political activist. (01:06:06) [[Donald Trump]] joked that he would build a border wall using the skulls of transgender people. (01:06:12) [[Jesse Jackson]] claimed [[Donald Trump]] would not get into heaven because of his immigration policies. (01:06:24) Secession of states like [[State of California|California]] or [[State of Texas|Texas]] is unrealistic because the federal government relies on their massive economic contributions through tax revenue. (01:06:30) The [[Civil War|American Civil War]] was fundamentally fought over tax revenue, as Southern states provided 70% of federal tariff income before seceding. (01:07:08) A military solution involving [[China]], [[State of Japan|Japan]], [[Russia]], and the [[Philippines]] may be necessary to eliminate the nuclear threat from [[North Korea]] if diplomacy fails. (01:08:15) [[Nicholas J. Fuentes]] and [[James Allsup]] position themselves as creators of a positive, ideologically coherent alternative to what they see as the opportunistic critique of figures like [[Ben Shapiro]]. (01:09:01) [[Millennial Matt]] is considered a good-hearted and humorous figure within the online political sphere, though his views sometimes fall outside the mainstream Overton window. (01:10:58) [[Paul Miller|Paul Town]] is regarded as a sincere and well-intentioned activist, in contrast to many others in politics [[who]] are seen as opportunistic. (01:11:27) [[Richard Spencer]]'s alt-right strategy employs controversial [[Germany|Nazi]] and [[Ku Klux Klan|KKK]] aesthetics to create an exclusive movement, but its effectiveness in achieving political change is questioned. (01:14:12) [[Nicholas J. Fuentes]] was suspended from [[Twitter]] for posting a meme that [[Kassy Dillon|Cassie Dillon]] interpreted as a threat, leading her to contact his employer. (01:15:34) [[Nicholas J. Fuentes]] and [[Rightside Broadcasting]] parted ways mutually after the [[Charlottesville rally]], as his controversial political movement was incompatible with their need for access to [[Donald Trump]]'s [[White House]]. (01:17:16) [[Samuel J. Hyde|Sam Hyde]] is a controversial comedian considered dangerous by some for his edgy content. (01:19:44) [[Nicholas J. Fuentes]] is a fan of [[France|French]] nationalist politician [[Marine Le Pen]]. (01:19:53) [[Alex Jones]] is seen as lacking a coherent political ideology despite his influential media platform. (01:20:33) [[Robert E. Lee]] was related to a wide array of historical figures, including boxer [[Muhammad Ali]]. (01:22:51) [[The Young Turks|Cenk Uygur]] of [[The Young Turks]] produced a critical segment about [[Nicholas J. Fuentes]], calling him "smug." (01:23:13) [[Woodrow Wilson]] established the [[Federal Reserve]], instituted the federal income tax, and led the [[United States]] into [[World War III|World War I]]. (01:23:30) [[Louis Brandeis]], a [[Supreme Court of the United States|Supreme Court]] Justice and close advisor to [[Woodrow Wilson]], was allegedly involved in brokering a deal for [[United States|U.S.]] entry into [[World War III|World War I]] in exchange for [[United Kingdom|British]] support for a [[Jews|Jewish]] homeland. (01:25:25) [[Nicholas J. Fuentes]] advocates for a "responsible [[Christianity|Christian]] capitalism" rather than socialism. (01:28:30) [[Frame Game Radio]] is recognized as one of the most original and insightful creators of political content on [[Twitter]]. (01:28:50) The "Fourteen Words" white supremacist slogan is framed as no different from the rallying cries of groups like [[Black Lives Matter]], [[La Raza]], or the [[Council on American-Islamic Relations]]. (01:29:12) [[Nicholas J. Fuentes]] rejects fascism and national socialism but is open to authoritarianism, hierarchy, and aristocracy, and opposes democracy as a failed system. (01:30:08) Critics [[who]] advocate "punching right" at other conservatives are accused of lacking strategic thought and contributing to the overwhelming opposition already faced by the right from banks, government, and the [[Republican Party]]. (01:32:06) [[Julian Assange]], though left-leaning, serves a valuable purpose by challenging the establishment through [[WikiLeaks]]. (01:33:02) [[Nicholas J. Fuentes]] scored a 34 on the ACT college entrance exam. (01:33:37) Recommended books for the movement include *Death of the [[Kanye West|West]]* by [[Patrick Buchanan|Pat Buchanan]], *Summa Theologica* by [[Thomas Aquinas|St. Thomas Aquinas]], and works by [[Samuel Huntington|Samuel P. Huntington]], [[Robert D. Kaplan]], and [[Julius Evola]]. (01:36:20) The triumph of modernist empiricism and rationalism in the 20th and 21st centuries has led to widespread spiritual misery, contrary to its promises of human flourishing. (01:37:24) [[Nicholas J. Fuentes]] is of mixed Italian, Mexican, and [[Ireland|Irish]] ancestry. (01:40:06) The [[Catholic Church]] has been plagued by institutional corruption and pedophilia scandals, potentially linked to the reforms of [[Vatican II]] or [[Freemasonry]] infiltration. (01:40:44) Post-[[Vatican II]] [[Catholic]] Masses conducted in the vernacular often feature mundane homilies that detract from the sacredness of the ritual, unlike the traditional [[Latin Mass]]. (01:42:30) The most efficient method for dealing with communists is "physical removal," a euphemism for violent repression. (01:42:52) [[Islam]] is on a demographic trajectory to potentially conquer [[Europe]] due to mass migration and high birth rates. (01:43:14) Just as Israel was created as a [[Jews|Jewish]] homeland, [[Nicholas J. Fuentes]] suggested it might be [[time]] for a [[Christianity|Christian]] reconquest of [[Constantinople]] and [[Anatolia]]. (01:46:20) [[Aaron Bandler]] of [[The Daily Wire]] accused [[Nicholas J. Fuentes]] of antisemitism for stating that many early [[Bolshevik Party|Bolshevik]] leaders were ethnically [[Jews|Jewish]], a historical fact exemplified by figures like [[Leon Trotsky]] (born Lev Bronstein). (01:48:20) [[Nicholas J. Fuentes]] attributed his successful first week on his independent show to the support of online figures like [[Swag Blog]], [[Paul Miller|Paul Town]], [[Daryl Cooper|Beardson]], [[Wild Goose]], [[Andrew Quackson]], [[Spaceboys]], and [[Stevie Chats]]. (01:48:54) The takedown of the [[Reagan Battalion]] account demonstrated that organized online activists could overcome opponents with alleged high-level connections and resources.
 
 ### AF 2017-08-30 0005
 (54:34:05) [[Nicholas J. Fuentes]], asked for a good "first red pill" for lifelong leftists, recalled his own first red pill was a conversation about Israel during a drive to campaign for [[Paul Nehlen]] in [[Wisconsin]], where he moved away from [[Prager University|PragerU]] and [[The Daily Wire|Daily Wire]] talking points.
@@ -14135,7 +14135,7 @@
 (01:00:19:57) [[Nicholas J. Fuentes]] stated that big money donors are "everything" in influencing the conservative movement, recounting how an agent stopped working with him after he talked about Israel.
 
 ### AF 2017-08-30 0005
-(01:00:47:51) [[Nicholas J. Fuentes]] pointed out that young conservatives like [[Cabot Phillips]], [[Alex Acosta|Alex Sears]], and [[Kassy Dillon]] are often sent to Israel, questioning why they aren't sent to cities like [[Athens]], [[Rome]], [[City of London|London]], or [[City of Philadelphia|Philadelphia]] which he claimed built [[United States|America]].
+(01:00:47:51) [[Nicholas J. Fuentes]] pointed out that young conservatives like [[Cabot Phillips]], [[Alex Acosta|Alex Sears]], and [[Kassy Dillon]] are often sent to Israel, questioning why they aren't sent to cities like [[Athens]], [[Rome]], [[London]], or [[Philadelphia]] which he claimed built [[United States|America]].
 
 ### AF 2021-05-27 0818
 (03:41:320) A [[United Nations|UN]] subcommittee authorized an investigation into human rights abuses by Israel.
@@ -14163,3 +14163,2328 @@
 
 ### AF 2021-05-26 0817
 (29:12:320) Every sitting [[Republican Party]] congressman expresses support for Israel.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:39:50) [[Nicholas J. Fuentes]] argued that if the [[Republican Party|Republican]] movement consistently prioritizes corporate benefits and favors for Israel over policies like building border walls and deporting immigrants, then the movement is "trash" and should be discarded.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:56:49.960) The [[Canary Mission]], an [[organization]] funded by Israel, has been confirmed since July 2025 as being used by the [[Donald Trump]] administration to identify and [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:57:45.870) [[Palantir Technologies|Palantir]], a company closely associated with Israel, employs [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States]] citizens and currently collaborates with four federal agencies.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:58:57.670) [[Nicholas J. Fuentes]] believes the fundamental struggle persists as long as [[United States]] presidents are required to perform acts of deference, such as kissing a wall in Israel and wearing a small hat, and publicly declare their support for Israel.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:26.900) Israel expressed strong disapproval of the [[Iran|Iranian]] nuclear deal, leading [[Benjamin Netanyahu|Bibi]] to deliver a speech to a joint session of the [[United States]] [[U.S. Congress|Congress]] in defiance of [[Barack Obama]], which received 37 standing ovations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:44.690) [[Donald Trump]] was elected in the 2016 election with assistance from Israel.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:53.820) [[James Bamford]]'s book *Spy Fail* contains an excerpt detailing hidden collusion between [[Donald Trump]] and Israel in the 2016 election, rather than collusion between [[Donald Trump]] and [[Russian Federation|Russia]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:13.130) Israel was intensely committed to ensuring a [[Republican Party]] candidate was elected in 2016 primarily to dismantle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:01:20.850) The main request from Israel was for the [[United States]] to withdraw from the [[Iran|Iranian]] nuclear deal.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:02:05.960) Israel's opposition to [[Barack Obama]]'s nuclear deal led to their collaboration with [[Donald Trump]] to secure his election.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:41.040) Immediately after [[Donald Trump]]'s announcement, [[Iran]] stated that the ceasefire was more extensive than described, claiming it also covered hostilities between Israel and [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:33:56.160) The inclusion of Israel and [[Hezbollah]] in [[Lebanon]] became a significant point of disagreement in the ceasefire discussions.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:34:04.840) [[Iran]] and [[Pakistan]] stated they would not uphold a deal to open the Strait unless Israel ceased its attacks on [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:34:11.740) The [[United States]] and Israel did not agree to the condition that Israel would stop attacking [[Lebanon]], and indicated they would not abide by that term regardless.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:34:35.380) [[Donald Trump]] claimed that he had convinced Israel to halt its operations in [[Lebanon]], despite yesterday being the deadliest day of Israel's war in [[Lebanon]] since its resumption a month prior.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:35:26.400) Reports emerged indicating that the [[United States]] and Israel had initially agreed to a ceasefire in [[Lebanon]], but are now reportedly reneging on that agreement.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:59:45.200) [[Donald Trump]] did not pardon the J6ers, put [[Hillary Clinton]] in jail, build the wall, make allies with [[Russian Federation|Russia]], or "put Israel in its place," failing to deliver on his promises.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:03:37.890) [[Tucker Carlson]] now suggests that [[Donald Trump]] "might be the anti-[[Jesus Christ|Christ]]" and believes "nobody could go against Israel."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:08:55.980) Israel's "[[October 7th Attack|October 7th]] rolling campaign," described as a "genocide in [[Gaza Strip|Gaza]]," has drawn the [[United States]] into a war with [[Iran]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:09:06.030) An "[[America First]]" [[president]] could have been anti-immigration and resisted the Israel lobby.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:09:13.700) [[Nicholas J. Fuentes]] believes that a confrontation with the Israel lobby could never happen because [[Donald Trump]] was the presumptive nominee.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:13:36.810) [[Nicholas J. Fuentes]] describes [[Tucker Carlson]] as a "full-blown [[Adolf Hitler|Hitler]] worshipper" and suggests his criticism of Israel and [[Jews]] is excessive.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:19:56.110) [[Donald Trump]] is described as loving Israel and being "practically a [[Jews|Jew]] himself" due to his background in [[New York]] real estate.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:24:13.600) [[Pakistan]] and [[Iran]] claimed the [[United States]] agreed to a 10-point plan, including [[Iran]]'s right to enrich uranium, the lifting of all primary and secondary sanctions, the removal of 40,000 [[United States]] troops from the [[region]], and an extension of the ceasefire to Israel's war with [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:27:03.540) A report circulated today claiming that the [[United States]] and Israel had, in fact, initially agreed to a ceasefire in [[Lebanon]], but later changed their position.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:27:41.620) Israel firmly declared that it did not agree to a ceasefire in [[Lebanon]] and, yesterday, carried out the deadliest attack in [[Lebanon]] since the war with [[Iran]] restarted last month, resulting in approximately 300 deaths.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:28:05.620) The [[United States]] and Israel allegedly reneged on their agreement for a ceasefire in [[Lebanon]] and, the day after, Israel conducted its most devastating strike, killing 300 people.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:28:22.900) [[Iran]]'s parliamentary speaker, acting as head of government, stated last night that the blatant violation of the ceasefire by Israel in [[Lebanon]] meant there was no basis for a ceasefire or negotiations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:28:50.870) [[Iran]]'s government stated last night that as long as Israel continued fighting in [[Lebanon]], they would consider the deal breached, close the Strait of Hormuz, and cease negotiations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:30:50.360) Today, [[Donald Trump]] stated he would attempt to persuade Israel to cease operations in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:00.720) Israel stated it was open to discussions with [[Lebanon]] but would not stop bombing [[Hezbollah]] or agree to a ceasefire.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:17.890) [[Iran]]'s parliamentary speaker stated today that if Israel does not halt its actions in [[Lebanon]], then no deal exists and no meeting will occur.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:34.920) The [[United States]] delegation, including [[JD Vance|J.D. Vance]], [[Steve Wittkoff|Steve Wittkopf]], and [[Jared Kushner]], is in [[Pakistan]] awaiting a scheduled meeting with representatives from [[Iran]] on Saturday, but [[Iran]] has not confirmed attendance and demands Israel commit to not attacking [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:53.070) The presidents of [[France]] and [[Spain]], along with other heads of [[state]], are demanding that Israel cease its war in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:33:34.660) The question of whether the [[United States]] and [[Iran]] will meet on Saturday is now dependent on the [[United States]]' ability to compel Israel to halt its war against [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:33:56.390) All other countries are joining the call for Israel to stop its actions in [[Lebanon]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:34:13.820) The [[United States]] has now become an "unwitting negotiator" on behalf of [[Iran]], trying to convince Israel to cease attacks on [[Hezbollah]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:34:44.670) [[Iran]] has effectively linked the opening of the Strait of Hormuz to the [[United States]]' ability to compel Israel to stop its military operations, thereby turning "the whole world against Israel, including the [[United States]]."
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:01.340) [[Iran]] informed the [[United States]] that it would uphold its end of the ceasefire agreement to open the Strait only if the [[United States]] pressured Israel to stop its operations.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:15.760) The situation has positioned the [[United States]] in opposition to Israel's strategic interest of disarming [[Hezbollah]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:27.800) Israel is now viewed as the cause of global economic distress because the Strait closure affects not only the [[United States]] but also [[Europe]] (facing jet fuel shortages) and [[Asia]] (facing diesel shortages).
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:53.090) Many countries, including those in [[Europe]], [[Asia]], and [[Islam|Muslim]] nations, are pressuring Israel to halt its bombing in [[Lebanon]] so that [[Iran]] will allow oil to flow through the Strait.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(01:44:00) [[Nicholas J. Fuentes]] questioned whether the [[United States]] controls its own military and government, asserting that Israel holds the [[United States]] "hostage."
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:10:11) Divergent interpretations of the agreement emerged, with [[Washington D.C.|Washington, D.C.]] and Israel holding a different understanding than [[Pakistan]] and [[Iran]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:17) [[Pakistan]] and [[Iran]] believed the agreement included a ceasefire in [[Lebanon]] between Israel and [[Hezbollah]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:45) Since the military operation against [[Iran]] began, Israel has resumed its campaign in [[Lebanon]], leading to the displacement of millions and evacuation orders for the southern 25% of the country.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:11:58) [[Pakistan]] and [[Iran]] asserted that the agreement to open the [[Strait of Hormuz]] was contingent upon Israel ceasing its bombing of [[Lebanon]] and its conflict with [[Hezbollah]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:12:12) The [[United States]] and Israel denied that any agreement was made regarding a ceasefire in [[Lebanon]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:12:20) Israel launched severe attacks against [[Hezbollah]], causing nearly 100 fatalities and almost 1,000 injuries, which [[Iran]] cited as a violation of the ceasefire agreement.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:12:36) Following Israel's actions, [[Iran]] declared the ceasefire deal void and officially reclosed the [[Strait of Hormuz]], as reported by [[Iran|Iranian]] media.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:13:10) The head of [[Iran]]'s legislature declared that negotiations and a ceasefire were unviable due to perceived violations of the agreement by the [[United States]] and Israel.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:22:17) A significant segment of "plan trusters," or [[Donald Trump]] supporters [[who]] voted for him multiple times, are now reluctantly admitting their errors and recognizing that Israel's interests are being prioritized.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:28:45) [[Megyn Kelly]], while critical of [[Donald Trump]] and Israel, consistently affirmed her commitment to voting [[Republican Party|Republican]] regardless of circumstances.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:31:04) The war with [[Iran]] was initiated due to pressure from Israel, necessitating a $200 billion expenditure to replenish [[United States]] missiles and leading to an energy crisis and economic downturn.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:36:04) The administration forfeited its right to govern by failing on immigration policies and capitulating to Israel by initiating a war with [[Iran]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:00) Israel stated that it did not agree to certain terms within [[Iran]]'s 10-point proposal, specifically that it could not bomb [[Hezbollah]] in [[Lebanon]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:13) Following the ceasefire announcement, Israel publicly affirmed its intention to continue bombing targets in [[Lebanon]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:18) Israel stated it had not concluded its operations against [[Hezbollah]].
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:12:21) Significant disagreement existed among [[Iran]], [[Washington D.C.|Washington]], and Israel regarding the actual terms of the ceasefire agreement, mere hours after its announcement.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:15:05) [[Nicholas J. Fuentes]] presented two potential outcomes for the ceasefire: either it was a deceptive maneuver by [[Donald Trump]] to buy [[time]], or Israel would sabotage it.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:16:25) [[Iran]]'s leverage would grow, even without continued bombardment from the [[United States]] and Israel.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:24:42) The [[United States]] committed not to bomb [[Iran]], and [[Iran]] pledged not to bomb shipping in the [[Strait of Hormuz]], Gulf countries, Israel, or [[United States]] bases.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:23) Israel supported [[Donald Trump]]'s decision to halt attacks on [[Iran]] for two weeks.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:28) The office of Prime Minister [[Benjamin Netanyahu]] confirmed Israel's support for the ceasefire.
+
+### 2026-04-08 IRAN WAR FINAL DAY 39 CEASEFIRE DECLARED, WAR IS OVER  America First Ep. 1669
+(03:35:43) The ceasefire provided both sides with [[time]] to negotiate a long-term resolution to the war, which had started in [[February]] with extensive military assaults on [[Iran]] by the [[United States]] and Israel.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:08:40) [[Nicholas J. Fuentes]] declared, "We're all groypers now," noting that issues like Israel, race, demographic change, white replacement, social conservatism, and [[Jesus Christ|Christ]] as [[king]] have become mainstream.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:38:44) During the [[Nicholas J. Fuentes|Groyper]] War in 2019, [[Nicholas J. Fuentes]]'s followers challenged [[Charlie Kirk]] and [[Turning Point USA|Turning Point]], questioning their conservative credentials due to support for mass migration, Israel over [[United States|America]], and social liberalism.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:39:07) [[Turning Point USA]] activists countered [[Nicholas J. Fuentes|Groyper]] criticisms by arguing that [[Donald Trump]] supported legal immigration, was pro-Israel, endorsed [[Lindsey Graham]], and was pro-gay and pro-trans, being friends with [[Caitlyn Jenner]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:02:04) [[Iran]] counter-proposed with demands for a permanent ceasefire, lifting sanctions, compensation for war damages (reparations), a new arrangement for governing the Strait of Hormuz, and an end to all regional conflict including guarantees that Israel would not [[target]] [[Hezbollah]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:16:49) [[Nicholas J. Fuentes]] expressed concern that Israel has maneuvered the [[United States]] into a "trapped" position in the conflict with [[Iran]], with no clear exit strategy.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:21:57) [[Nicholas J. Fuentes]] speculated that [[Donald Trump]]'s goal is to get [[Saudi Arabia]], the [[United Arab Emirates]], and Israel to police the [[region]] so the [[United States]] can recuse itself from the fighting.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:39:21) [[Iran]] demanded a peace treaty ratified by the [[U.S. Congress|United States Congress]] and assurances that the [[United States]] can control Israel to prevent it from restarting the conflict.
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(03:51:55) [[Nicholas J. Fuentes]] argued that the only way to solve the crisis is to "restrain Israel and tell the [[Jews]] no."
+
+### 2026-04-02 IRAN WAR DAY 33 Trump Announces NOTHING, GROUND OPS IMMINENT  America First Ep. 1667
+(04:01:50) [[Nicholas J. Fuentes]] identified [[Matt Walsh]] as a primary problem for downplaying the influence of Israel over the past two and a half years.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(00:35:43) [[Nicholas J. Fuentes]] questioned whether Israel controls the [[United States]] government and military.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(00:56:49) [[Nicholas J. Fuentes]] described the Canary Mission as an Israeli-funded blacklist used by the [[Donald Trump|Trump administration]] since July 2025 to [[target]] students and professionals opposing Israel.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(00:58:46) [[Nicholas J. Fuentes]] characterized the [[United States]] as an "occupied nation" being ruled by a small country across an ocean, which he identified as Israel.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:00:30) [[Nicholas J. Fuentes]] claimed that [[Benjamin Netanyahu|Netanyahu]] and Israel were furious about the [[Joint Comprehensive Plan of Action|JCPOA]] and that [[Benjamin Netanyahu|Netanyahu]] gave a speech to a joint session of [[U.S. Congress|Congress]] in defiance of [[Barack Obama]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:00:46) [[Nicholas J. Fuentes]] asserted that [[Donald Trump|Trump]] was elected in 2016 with the help of Israel, citing an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail*.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:13) [[Nicholas J. Fuentes]] explained that Israel colluded with [[Donald Trump|Trump]] to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(01:01:59) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] situation with the nuclear deal but that Israel colluded with [[Donald Trump|Trump]] to pull the [[United States]] out and create a ladder of escalation.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:09:03) [[Nicholas J. Fuentes]] claimed that [[Donald Trump|Trump]] got elected with the help of Israel to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(02:53:04) [[Nicholas J. Fuentes]] stated that the messaging from the administration, [[Lindsey Graham]], and Israel over the past 48 hours constitutes a "full spectrum propaganda" campaign designed to convince the public that a cessation of hostilities is imminent on [[Iran]]'s terms.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:24:04) [[Nicholas J. Fuentes]] cited [[Benjamin Netanyahu]] as telling the Israeli press that [[Iran]] no longer poses a threat to Israel.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:25:10) [[Nicholas J. Fuentes]] speculated that [[Donald Trump|Trump]]'s prime [[time]] address might be to announce a withdrawal, and that the [[United States]] might leave [[Middle East|Middle Eastern]] bases to build a new base in Israel.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:34:21) [[Nicholas J. Fuentes]] referenced the previous negotiations that began when [[Benjamin Netanyahu|Netanyahu]] visited the [[White House]], which allowed Israel and the [[United States|U.S]]. [[time]] to plan the attacks "Rising Lion" and "Midnight Hammer" last June.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:43:16) [[Nicholas J. Fuentes]] argued that a peace deal with [[Iran]] is impossible if Israel is sabotaging it as a matter of grand strategy.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(00:56:49) The Canary Mission is an Israeli-funded blacklist utilized by the [[Donald Trump|Trump administration]] since July 2025 to [[target]] students, professors, and professionals in [[the United States]] [[who]] oppose Israel.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:00:51) [[Donald Trump]] was elected in the 2016 election with the help of the Israelis, according to an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail*, which details hidden collusion in the 2016 election between [[Donald Trump]] and Israel.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:58:41) [[Steven Miller]] is artistically focused on mass deportations, but [[Nicholas J. Fuentes]] stated he is also focused on Israel.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:00:26) [[Iran]] currently maintains the capability to bombard the Persian Gulf, Strait of Hormuz, Gulf countries, Israel, and [[United States|U.S]]. bases with drones and ballistic missiles.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:08:07) The Israeli press has stated that before the war ends, they are shifting to their final phase to focus on economic targets, including oil.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:20:41) Israel is drawing the [[United States]] into an existential total war with [[Iran]] by using [[Iran|Iran's]] weapons as bait, aiming for regime change in [[Iran]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:20:41) Israel cannot topple [[Iran]] by itself because [[Iran]] is a large country with 90 million people, a big economy, and an arsenal of 3,000 missiles.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:21:54) Israel started a war with [[Iran]] last year and could not finish it, which forced the [[United States]] to intervene.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:25:53) [[Marco Rubio]] said that Israel was planning yet another preemptive attack on [[Iran]], and if they attacked their missiles, those missiles would be used against [[United States|U.S]]. positions, forcing the [[United States|U.S]]. to go in.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:30:40) [[Nicholas J. Fuentes]] stated that [[Iran]] is fighting for the whole world against the Zionist occupation regime, and if [[Iran]] falls, Israel will control the entire [[Middle East]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:26:43) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] gave [[Iran]] a 48-hour ultimatum to open the [[Strait of Hormuz]] or [[Donald Trump|Trump]] and Israel would begin bombing [[Iran]]'s power plants and civilian infrastructure.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:42) [[Nicholas J. Fuentes]] argued that the real "generational coalition" in 2024 was not voters but a moneyed coalition of tech billionaires, the Israel lobby, and [[The Wall Street Journal|Wall Street]] bankers.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:29:44) [[Nicholas J. Fuentes]] identified the Israel lobby, [[Miriam Adelson]], and the [[American Israel Public Affairs Committee|AIPAC]] as key components of the real 2024 coalition.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(06:32:21) [[Nicholas J. Fuentes]] stated that the [[United States]] and Israel have engaged [[Iran]] in a joint operation using only air and sea power, having bombed [[Iran]] almost 10,000 times.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:54:46) Israel knew that the mission to take [[Kharg Island]] was likely a suicide mission for the [[United States]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:59:33) Israel was identified as wanting regime change in [[Iran]] and planned to fight the war to the last [[United States|American]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:59:46) Israel stated it needed to hit [[Iran]] as hard as possible in the next two days because peace might break out at any [[time]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:00:04) Israel was accused of drawing the [[United States]] deeper into the war by encouraging escalation, reducing the number of off-ramps, and forcing the only possible path to be the collapse of the [[Iran|Iranian]] regime.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:33) The Israelis were said to wonder if [[JD Vance]] was in their pocket, and saw [[Marco Rubio]] as the safe option.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:41) The Israelis wanted to prevent [[JD Vance]] from becoming [[president]] in 2028 and were attempting to have him and [[Donald Trump]] blamed for the catastrophe of the war.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:53) The Israelis and Zionists were said to be moving their support to [[Marco Rubio]] to replace [[[[JD Vance]] in the administration.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:10:14) The Israelis went to the press to claim that the only people [[who]] wanted [[JD Vance]] to lead peace talks were the [[Iran|Iranians]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:10:59) [[Miriam Adelson]]'s paper in Israel reported that [[JD Vance]] and [[Benjamin Netanyahu]] were fighting.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:11:24) [[Vance's]] people were lobbying [[Donald Trump|Trump]] to let [[JD Vance|Vance]] solve his [[Iran]] problem, while the Israelis were lobbying him not to.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:13:29) [[United States|US]] and Israeli sources reported that [[JD Vance]] was highly skeptical of Israel's rosy pre-war assessment of how the war would unfold.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:13:52) [[Vance's]] advisors believed some in Israel were trying to undermine him, possibly because they found him insufficiently hawkish.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:28) [[White House]] officials began suspecting that some in the Israeli government were trying to smear [[JD Vance]] after a difficult phone call on Monday between [[Benjamin Netanyahu]] and [[JD Vance]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:21:52) The Israelis were accused of poisoning the well by spreading narratives that [[JD Vance]] hates Israel and that the only people [[who]] want him to negotiate are the [[Iran|Iranians]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:24:08) [[Tucker Carlson]], [[Joe Kent]], [[David Sacks]], and [[JD Vance]] were identified as being against the war not because they are against Israel, but because they are against the war itself and against [[Benjamin Netanyahu]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:24:57) [[Tucker Carlson]], when interviewed by [[Piers Morgan]] in [[Saudi Arabia]], would not commit to a position on whether foreign aid to Israel should be cut.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:25:16) The faction represented by [[Tucker Carlson]] and [[JD Vance]] was described as not believing that the hardliners in Israel are a faction of the regime that wants the [[United States]] to do more than is in its interest, to the detriment of focusing on [[China]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:26:48) [[Peter Thiel]], [[Tucker Carlson]], and the broader faction were described as incidentally critical of Israel because Israeli hardliners wanted the [[United States]] to fight [[Iran]] and not [[China]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:27:32) [[Nicholas J. Fuentes]] argued that the biggest threat to [[United States|America]] is not [[China]], but whatever Israel becomes after the conflict, because [[China]] has not penetrated the [[United States|US]] system to the same extent as what he called "the [[Jews]]."
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:29:22) [[Nicholas J. Fuentes|Fuentes]] speculated that Israel wants to control the [[Red Sea]], [[Persian Gulf]], [[Bosporus Strait]], [[Aegean Sea]], [[Mediterranean Sea|Eastern Mediterranean]], and the [[Caspian Sea]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:24:56) [[Nicholas J. Fuentes]] argued that [[Joe Kent]]’s resignation letter, in which [[Joe Kent]] blamed Israel for the war, was a “ruse” and part of an effort to salvage [[JD Vance]]’s 2028 presidential ambitions.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:56:43) When the 60-day ultimatum expired without a deal, Israel made its move, and the [[United States]] joined, with [[Nicholas J. Fuentes]] suggesting the negotiations were a trick to buy [[time]] for an attack.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:57:07) [[Donald Trump]] admitted that he knew Israel was preparing an attack, and the [[United States]] may have used the 60 days to get into position for that attack.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:01:53) [[Nicholas J. Fuentes]] argued that the war had increased [[Iran]]’s leverage because [[Iran]] had kept its regime intact, suppressed all protests, maintained leadership, and continued launching attacks against the strait, the Gulf, Israel, and [[United States|U.S]]. bases.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:20:46) [[JD Vance]] told the Quincy Institute that funding [[Ukraine]] should stop but that Israel was different and should be funded to bomb [[Iran]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:29:25) [[Nicholas J. Fuentes]] concluded that the planted stories were an effort to create a narrative that [[JD Vance]] was restraining Israel and leading peace negotiations.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:33:21) [[Larry Ellison]] put [[Bari Weiss]] in charge of [[CBS News]], turning it into a pro-Israel propaganda outlet.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:34:14) [[JD Vance]] rehabilitated his image from “Never Trumper” to pro-Israel through [[Youram Hazony|Yoram Hazony]], [[who]] lived in Israel and whose [[National Conservatism|NatCon]] conference was funded by [[Peter Thiel]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:03:46) [[Donald Trump|Trump]] issued an ultimatum on Saturday stating that if the [[Strait of Hormuz]] is not opened in 48 hours, [[Donald Trump|Trump]], Israel, and possibly [[Saudi Arabia]] would engage [[Iran]] in an all-out attack on its energy infrastructure.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:14:10) [[Donald Trump|Trump]] authorized an Israeli strike on [[Iran]]'s southern Pars gas fields.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:17:23) [[Donald Trump|Trump]] stated that the [[United States]] had nothing to do with the Israeli strike on [[Iran]]'s gas fields and that he would restrain Israel from attacking [[Iran]]'s energy if [[Iran]] did not continue its attacks.Here is the chronological knowledge log derived from the monologue portion of the transcript.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:33:40) [[Nicholas J. Fuentes]] argued that Israel and the [[United States]] have not abandoned their ultimate goal of regime change in [[Iran]], describing the current conflict as "mowing the grass"—a recurring cycle of strikes against [[Iran]]'s rebuilt missile and nuclear capabilities.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:33:50) [[Nicholas J. Fuentes]] stated that the [[United States]] and Israel had initially hoped the opening strikes would cause [[Iran]]'s government to collapse, but this did not happen.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:35:37) Israel's radar and early warning systems were hit by missiles, and their [[Dimona nuclear complex]] was also hit.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:39:21) [[Nicholas J. Fuentes]] predicted that after the midterms, the [[United States]] and Israel will call for another, larger operation aimed at fully toppling the [[Iran]]ian regime.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:45:52) [[Nicholas J. Fuentes]] stated that the "forces of evil," including Israel and [[JD Vance]]'s team, are trying to turn the negative of the war into a positive for [[JD Vance]] by making him the "peacemaker."
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:47:51) [[Benjamin Netanyahu]] faced an upcoming election in Israel, and [[Nicholas J. Fuentes]] speculated that his loss might be beneficial for the [[JD Vance]] peace narrative.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(00:35:43) [[Nicholas J. Fuentes]] asked whether the [[United States]] runs the world, its own country, its own military, and its own government, or if Israel does.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(00:56:50) [[Nicholas J. Fuentes]] reported that the "Canary mission" is an Israeli-funded blacklist confirmed to be used by the [[Donald Trump|Trump administration]] since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:00:51) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 with the help of Israel and cited an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail* about hidden collusion in the 2016 election, which he described as "[[Donald Trump|Trump]] and Israel," not "[[Donald Trump|Trump]] and [[Russian Federation|Russia]]."
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:01:07) [[Nicholas J. Fuentes]] explained that Israel was "hell-bent" on getting a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran|Iranian]] nuclear deal, which resulted in the [[United States]] withdrawing from the deal.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:05:09) [[Nicholas J. Fuentes]] stated that Israel has so much control over the [[United States]] government that "[[America first]]" has become "[[Israel first]]."
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:05:12) [[Nicholas J. Fuentes]] repeated the report that the "Canary mission" is used by the [[Donald Trump|Trump administration]] to [[target]] students and professionals [[who]] oppose Israel.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:07:01) [[Nicholas J. Fuentes]] stated that as long as [[United States|American]] presidents have to kiss the wall in Israel and say "we want to make Israel great again," he will never be okay with it.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:08:11) [[Nicholas J. Fuentes]] repeated his account of the timeline from [[Barack Obama]]'s [[Joint Comprehensive Plan of Action|JCPOA]] to [[Benjamin Netanyahu|Bibi]]'s speech to [[U.S. Congress|Congress]] to [[Donald Trump]]'s election with the help of Israel.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:15:24) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] brought the [[United States]] into a war in [[Iran]] on behalf of Israel.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:19:59) [[Nicholas J. Fuentes]] detailed the spending priorities of the [[Donald Trump|Trump]] administration, stating that tax money goes to "[[Somalia|Somali]] scammers," illegal immigrants, and Israel's decapitation campaign against [[Iran]], while a $20 billion border wall was deemed too expensive in [[Donald Trump|Trump's]] first term.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:00:51) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]] was elected in 2016 with the help of the Israelis, citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election, which he claimed was between [[Donald Trump|Trump]] and Israel, not [[Donald Trump|Trump]] and [[Russian Federation|Russia]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:01:13) [[Nicholas J. Fuentes]] argued that Israel was hell-bent on getting a [[Republican Party|Republican]] elected in 2016 in order to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:05:09) [[Nicholas J. Fuentes]] described Israel as having so much control over the government that "[[America First]]" is actually "[[American Israel Public Affairs Committee|Israel First]]," and criticized [[Tucker Carlson]] for wanting to "slam the door" on him and [[his movement]] after they paved the way by getting banned and slandered.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(01:44:00) [[Nicholas J. Fuentes]] repeated his questions about whether the [[United States]] or Israel runs the world, the country, the military, and the government.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:06:03) [[Nicholas J. Fuentes]] repeated his description of [[Palantir Technologies|Palantir]] as a company closely aligned with Israel that uses [[Artificial Intelligence|AI]] to maintain private databases on [[United States|U.S]]. citizens.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:30:55) [[Nicholas J. Fuentes]] explained that [[Iran]]'s chief means of forcing the [[United States]] to exit the conflict is by attacking energy infrastructure, and that up until that point, the [[United States|U.S]]. and Israel had refrained from striking [[Iran]]'s energy infrastructure for fear of retaliation against Gulf energy.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:31:54) [[Nicholas J. Fuentes]] reported that Israel launched a major strike on [[Iran]]'s gas fields near [[Tehran]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:33:12) [[Nicholas J. Fuentes]] quoted [[Donald Trump|Trump]]'s [[Cozy.tv|Truth Social]] post, in which [[Donald Trump|Trump]] claimed the administration was unaware of the attack, did not give Israel permission, and said there would be no further attacks on [[Iran]]'s energy and that the [[United States|U.S]]. would retaliate if [[Iran]] hits any energy in the Gulf.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:34:24) [[Nicholas J. Fuentes]] stated his belief that [[Donald Trump|Trump]] is "abjectly lying" and that of course Israel told the [[United States]] and the [[United States]] approved the strike as part of an escalatory tactic against [[Iran]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:47:38) [[Nicholas J. Fuentes]] quoted [[Joe Kent]]'s resignation letter, in which [[Joe Kent]] said that [[Iran]] did not pose an imminent threat and that the [[United States|U.S]]. was dragged into the conflict by Israel and its lobby.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:07:53) [[Nicholas J. Fuentes]] stated that he does not trust [[Joe Kent]] or [[Tucker Carlson]], noting that [[Joe Kent]] as recently as 2024 was saying the [[United States|U.S]]. should give Israel foreign aid and bomb [[Iran]]'s nukes.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:11:11) [[Nicholas J. Fuentes]] described the first phase of the war as the [[United States|U.S]]. bombing regime targets and military hardware, and the second phase as an attritional war where the [[United States|U.S]]. and Israel are using air and sea power to bomb [[Iran]] continually.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:28:01) [[Nicholas J. Fuentes]] reported that Israel launched a major strike on the [[Southern United States|South]] Pars gas field and [[Iran]] retaliated by bombing [[Qatar]]'s gas, the Emirati's gas, and [[Saudi Arabia|Saudi]] oil.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:30:34) [[Nicholas J. Fuentes]] noted that [[Qatar]] condemned the attack as a dangerous escalation, and that Arab governments were furious about Israel's attack and the [[United States|U.S]]. failure to head it off.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:31:28) [[Nicholas J. Fuentes]] argued that the strategy was for [[Donald Trump|Trump]] to hit Kharg Island, then when allies refused to help, he moved in with Israel to hit the gas field, anticipating that [[Iran]] would bomb the Gulf.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:35:06) [[Nicholas J. Fuentes]] quoted [[Donald Trump|Trump]]'s [[Cozy.tv|Truth Social]] post, in which [[Donald Trump|Trump]] said the [[United States|U.S]]. knew nothing about the attack, that no more attacks will be made by Israel on the [[Southern United States|South]] Pars field unless [[Iran]] attacks [[Qatar]] again, in which case the [[United States|U.S]]. will "massively blow up the entirety of the [[Southern United States|South]] Pars gas field."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:37:35) [[Nicholas J. Fuentes]] stated his belief that [[Donald Trump|Trump]] is obviously lying, and that the strategy all along was to hit Kharg Island, wait for allies to refuse to help, then give Israel permission to launch a limited strike on the gas field.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:51:28) [[Nicholas J. Fuentes]] argued that Israel went out of their way to kill the [[Iran|Iranian]] leadership, including those more likely to make peace, which made it impossible for the [[United States|U.S]]. to make a deal, thereby dragging the [[United States|U.S]]. into a deeper conflict.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:55:00) [[Nicholas J. Fuentes]] accused [[Donald Trump|Trump]] of having no idea what he is doing, of being "totally [[ad]] hoc," and of contradicting himself daily, while Israel has a plan and a strategy.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:56:08) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] stumbled into the conflict with no plan, while Israel is the "maestro" [[who]] knows exactly how it has to go.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:56:25) [[Nicholas J. Fuentes]] claimed that [[Donald Trump|Trump]] is being [[fed]] propaganda through [[Fox News]], which Israel controls.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:38:75) [[Nicholas J. Fuentes]] reported that the Canary Mission is an Israeli-funded blacklist used by the [[Donald Trump|Trump administration]] since July 2025 to [[target]] students and professionals [[who]] oppose Israel in the [[United States]].
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:39:28) [[Nicholas J. Fuentes]] identified [[Palantir Technologies|Palantir]] as a company closely aligned with the [[state]] of Israel that uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States]] citizens.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:41:32) [[Nicholas J. Fuentes]] cited an excerpt from [[James Bamford]]'s book "Spy Fail," alleging hidden collusion between [[Donald Trump]] and Israel in the 2016 election to scuttle the [[Iran]] nuclear deal.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:35:43.600) [[Nicholas J. Fuentes]] questioned whether the [[United States]] or Israel controls the [[U.S. Department of Defense|U.S. military]] and government.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:56:50.090) [[Nicholas J. Fuentes]] stated that the Canary mission is an Israeli-funded blacklist confirmed to be used by the [[Donald Trump|Trump]] administration since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:59:01.270) [[Nicholas J. Fuentes]] stated he would never be satisfied as long as [[United States|U.S]]. presidents visit the Western Wall and say they want to "make Israel great again."
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:00:52.530) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]] was elected in 2016 with the help of the Israelis, citing a book by [[James Bamford]] titled "Spy Fail" that details "hidden collusion" between the [[Donald Trump|Trump campaign]] and Israel.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:01:05.090) [[Nicholas J. Fuentes]] claimed the reason Israel was intent on getting a [[Republican Party|Republican]] elected in 2016 was to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:05:09.900) [[Nicholas J. Fuentes]] stated that Israel has so much control over the [[United States|U.S. government]] that "[[America First]]" is really "[[American Israel Public Affairs Committee|Israel First]]."
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:10:28.240) [[Nicholas J. Fuentes]] stated that the [[Donald Trump|Trump]] administration is diverging from Israel's policy on the strategic objective of the war in [[Iran]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:10:33.320) [[Nicholas J. Fuentes]] asserted that Israel's objective in the conflict is regime change in [[Iran]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:11:16.840) [[Nicholas J. Fuentes]] stated that Israel launched an all-out attack on [[Iran]]'s oil infrastructure over the weekend, which the [[United States|US]] condemned.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:20:49.000) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] is answering to [[The Wall Street Journal|Wall Street]], [[San Francisco Bay Area|Silicon Valley]], and the Israel lobby.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:37:46.890) [[Nicholas J. Fuentes|Nicholas J. Fuentess]] contrasted [[Republican Party|Republican]] actions on the border wall versus their actions on the [[Joint Comprehensive Plan of Action|JCPOA]], noting the Israel-related items were delivered on demand.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:47:42.000) [[Nicholas J. Fuentes]] launched into a detailed analysis of the strategic objectives of Israel and the [[United States]] in [[Iran]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:47:52.000) [[Nicholas J. Fuentes]] stated that Israel's strategic objective is regime change in [[Iran]] to pursue a "Greater Israel" expansionist agenda.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:48:10.000) [[Nicholas J. Fuentes]] stated that Israel wants to annex the [[Gaza Strip|West Bank]] and occupy Southern [[Lebanon]] and Southern [[Syria]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:48:31.000) [[Nicholas J. Fuentes]] argued that [[Iran]], an Islamist [[state]], stands in the way of Israel's expansion.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:48:51.000) [[Nicholas J. Fuentes]] stated that Israel needs to topple the [[Government of Iran|Iranian government]] to stop [[Iran]]'s support for militias like [[Hezbollah]] and [[Hamas]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:50:48.000) [[Nicholas J. Fuentes]] argued that Israel got the [[United States]] on the hook for war by claiming [[Iran]] was on the cusp of getting the bomb and preemptively striking.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:52:29.000) [[Nicholas J. Fuentes]] stated that the Israelis are "pressing for escalation" and talking to the [[Kurdistan|Kurds]], while the [[United States]] is looking for an exit.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:55:23.000) [[Nicholas J. Fuentes]] argued that for the [[United States]], degrading [[Iran]]'s military is sufficient, but for Israel, only regime change is acceptable.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:56:18.000) [[Nicholas J. Fuentes]] stated that Israel wants the war to go on longer, and the [[United States|U.S]]. told Israel not to strike [[Iran]]'s oil infrastructure again without approval.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:56:18.000) [[Nicholas J. Fuentes]] quoted an [[Axios]] report stating that the [[United States]] asked Israel to halt strikes on [[Iran]]'s energy infrastructure.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:56:26.000) [[Nicholas J. Fuentes]] stated that the [[United States|U.S]]. told Israel it was not happy with the attacks on [[Iran|Iranian]] energy facilities.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:54:54) [[Nicholas J. Fuentes]] reported that [[Iran]] was carrying out missile strikes against [[Gulf States]] and Israel, and had closed the Strait of Hormuz.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(01:56:55) [[Nicholas J. Fuentes]] stated that Israel was at war with [[Iran|Persia]], calling it the end of the world.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:05:52) [[Nicholas J. Fuentes]] stated that the ideal for the war in [[Iran]] was for Israel to have hegemony over the [[region]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:08:11) [[Nicholas J. Fuentes]] stated that the agenda for Israel comes from a messianic [[Jews|Jewish]] belief that the [[Jews|Jewish people]] must return from exile, rebuild the Third Temple in [[Jerusalem]], and that this temple will be the seat of the Antichrist.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:20:36) [[Nicholas J. Fuentes]] stated that the whole point of [[September 11 attacks|9/11]] was to let [[Islam|Muslims]] attack the [[United States]] so that [[United States|Americans]] would want to fight Israel's enemies.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:21:00) [[Nicholas J. Fuentes]] claimed that eyewitnesses in Israel were recorded on video after [[September 11 attacks|9/11]] saying they were glad it happened so that [[United States|Americans]] would identify [[Islam|Muslims]] as the enemy.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:26:22) [[Nicholas J. Fuentes]] stated that the war in [[Iran]] is a war that nobody voted for, nobody wants, that Israel is making the [[United States]] fight.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:27:00) [[Nicholas J. Fuentes]] stated that 2024 and 2025 was a mass awakening where the pro-Israel lobby lost the propaganda war, but that this has no relationship with policy outcomes, as the [[United States]] is now in Israel's war in [[Iran]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:39:10) [[Nicholas J. Fuentes]] called for Jake Lang to be deported to Israel, calling him a "[[Jews|Jewish]] Syop."
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:41:33) [[Nicholas J. Fuentes]] stated that [[United States|American]] sons and daughters are killing and dying in [[Iran]] for a foreign country's (Israel's) agenda.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:51:13) [[Nicholas J. Fuentes]] reported that the [[United States]] and Israel had hit [[Iran]] 3,000 times and spent $3 billion per day, but [[Iran]] was still launching missiles.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:08:40) [[Nicholas J. Fuentes]] reported that [[Marco Rubio]] said Israel was going to attack [[Iran]] anyway, so the [[United States]] joined them, but [[Donald Trump]] later said the [[United States]] was going to attack and had to get Israel in on it.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:13:39) [[Nicholas J. Fuentes]] stated that Israel, the "closest ally," will not let the [[United States]] walk away from the war.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(35:35:450) [[Nicholas J. Fuentes]] asserted that the [[United States]] is held hostage and questioned whether Israel runs the world, the [[United States]] military, and the [[United States]] government.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(56:49:930) [[Nicholas J. Fuentes]] reported that the Canary Mission is an Israeli-funded blacklist, which since July 2025 has been confirmed to be used by the [[Donald Trump|Trump]] administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(57:45:800) [[Nicholas J. Fuentes]] asserted that [[Palantir Technologies|Palantir]], a company closely aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens and currently works with four federal agencies.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:00:52:410) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]] was elected in 2016 with the help of Israel, citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election between [[Donald Trump|Trump]] and Israel.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:01:04:970) [[Nicholas J. Fuentes]] argued that Israel was hell-bent on getting a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(56:49:930) [[Nicholas J. Fuentes]] reiterated that the Canary Mission is an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration to [[target]] opponents of Israel in the [[United States]], and is part of the [[Heritage Foundation]]'s Project Esther.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(57:45:800) [[Nicholas J. Fuentes]] repeated his assertion that [[Palantir Technologies|Palantir]] is a company aligned with Israel that uses [[Artificial Intelligence|AI]] to maintain private databases on [[United States|U.S]]. citizens and works with four federal agencies.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(01:00:52:410) [[Nicholas J. Fuentes]] repeated his assertion of collusion between [[Donald Trump|Trump]] and Israel in 2016 to scuttle the [[Iran deal]], citing [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(03:32:53:200) [[Nicholas J. Fuentes]] argued that all the upside of the war belongs to Israel while the blowback, collateral damage, and loss of life belong to the [[United States]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(35:43:55) [[Nicholas J. Fuentes]] questioned whether the [[United States]] controls its own government and military, or if Israel does.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(56:49:96) The Canary Mission is an Israeli-funded blacklist used since July 2025 by the [[Donald Trump|Trump administration]] to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel; the initiative was created by the [[Heritage Foundation]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:00:46:32) [[Donald Trump]] was elected in 2016 with the help of the Israelis, according to an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail*, which [[Nicholas J. Fuentes]] cited as detailing hidden collusion between [[Donald Trump]] and Israel.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(01:05:14:92) [[Nicholas J. Fuentes]] stated that the [[America First]] movement has been an "[[Israel first]]" policy because Israel has so much control over the [[United States|U.S. government]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:05:07:24) The Canary Mission is an Israeli-funded blacklist used by the [[Donald Trump|Trump administration]] to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel, and was created by the [[Heritage Foundation]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:07:14:95) [[Nicholas J. Fuentes]] stated he will never be okay with [[United States|U.S]]. presidents kissing the wall in Israel, wearing a small hat, and declaring "Make Israel Great Again."
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:46:38:08) [[Nicholas J. Fuentes]] noted that the brain of OpenAI is in Israel, and [[the Pentagon]] fired Anthropic for refusing to militarize [[Artificial Intelligence|AI]], making OpenAI the provider for the [[U.S. Department of Defense|U.S. military]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:56:12:65) [[Nicholas J. Fuentes]] declared that the [[Republican Party]] ([[Republican Party|GOP]]) is part of a hostile occupying force controlled by Israel, and that the administration must be investigated, impeached, and slowed down by a divided government.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:57:01:41) [[Nicholas J. Fuentes]] stated he will vote for anyone [[who]] opposes Israel, specifically ruling out [[JD Vance]] and [[Marco Rubio]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:11:51:66) [[Brian McGinnis]] returned from Israel where he was supervising humanitarian aid delivery in the [[Gaza Strip]] and gave an eyewitness account of the [[Israel Defense Forces|IDF]] shooting unarmed people in the back of the head.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:25:24:60) [[Nicholas J. Fuentes]] argued that Israel went to war with [[Iran]] confidently knowing that with a [[Republican Party|Republican]] administration, they would have backing from [[the Pentagon]] and that a [[Republican Party|Republican]]-controlled [[U.S. Congress|Congress]] would provide no check on the [[president]]'s power.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:29:55:22) [[Stephen Miller]] is [[Jews|Jewish]] and married to his [[Jews|Jewish]] wife, with his children by a rabbi [[who]] works with the [[United States|U.S]]. ambassador to Israel, [[David Friedman]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:33:00:03) [[Nicholas J. Fuentes]] noted that [[Brian McGinnis]], [[who]] had the courage to stand up in a [[U.S. Congress|Senate]] hearing and say he does not want to die for Israel, is a member of the [[Green Party]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:33:43:07) [[Nicholas J. Fuentes]] accused anonymous pro-[[Donald Trump|Trump]] [[Twitter]] users of acting as if they are making deals on behalf of [[the United States]] with "organized [[Jews|Jewry]]," while the actual decision-makers in [[the White House]] only care about Israel.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:34:55:52) [[Nicholas J. Fuentes]] stated that the [[U.S. Department of State|Secretary of State]] is scanning social media and revoking visas for people [[who]] criticize Israel.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:41:36:26) [[Nicholas J. Fuentes]] reported that a memorandum was sent to soldiers stating the war was being waged so Israel could rebuild the Third Temple.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:46:51:59) [[Nicholas J. Fuentes]] reacted to a clip of [[Dan Bilzerian]] saying the only country to go to war with is Israel, and that he wants a gun to "wipe him off the fucking map," calling it too extreme.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:47:09:53) [[Nicholas J. Fuentes]] stated he is not calling for the extermination of Israel, and that he is starting to understand what [[Tucker Carlson]] means about being against "blood guilt."
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:50:07:83) [[Nicholas J. Fuentes]] noted that the [[Ayatollah Ali Khamenei|Ayatollah]] of [[Iran]] is in an fortified bunker, has a 200,000-man army of loyalists, and that if Israel could get him, they could get [[Donald Trump]], [[Nicholas J. Fuentes]], or anyone.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:31:45) [[Nicholas J. Fuentes]] argued that the [[Republican Party]] and Israel "dragged [[us]] into the war."
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:31:50) [[Nicholas J. Fuentes]] asserted that Israel got the [[Republican Party]] into power for the purpose of starting a war with [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:47:15) [[Nicholas J. Fuentes]] described the fighting as the [[United States]] and Israel launching air strikes over [[Iran]], bombing missile launch platforms, missile production facilities, [[Iran|Iran's]] [[U.S. Department of Defense|Navy]], and the leadership of the government and military.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:48:30) [[Nicholas J. Fuentes]] stated that the [[United States]] and Israel had hit 1,700 targets in [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:48:36) [[Nicholas J. Fuentes]] said that [[Iran]] was retaliating with ballistic missiles against [[United States|US]] bases in the [[Persian Gulf]], [[Erbil]], [[Jim Jordan|Jordan]], and against military and government targets in Israel, as well as civilian targets in the Gulf countries.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:49:50) [[Nicholas J. Fuentes]] said that [[Iran]]'s goal is to overwhelm the air defenses with large volleys of missiles or over a sustained period, counting on the [[United States]], Israel, and the Gulf states to run out of interceptors.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:51:55) [[Nicholas J. Fuentes]] noted that Israel claimed the joint operations had destroyed half of [[Iran|Iran's]] ballistic missile launch platforms, but that it is an open-ended question whether they can destroy all of them.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:06:42) [[Nicholas J. Fuentes]] said that [[Iran]] is launching missiles against Israel, [[Jim Jordan|Jordan]], [[Northern Iraq]], [[Riyadh]], [[Bahrain]], the [[United Arab Emirates|Emirates]], [[Qatar]], [[Oman]], and ships in the [[Persian Gulf]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:09:16) [[Nicholas J. Fuentes]] argued that it is in the [[United States|US]] interest for the war to be fast because they cannot tolerate their bases and Israel being hit with missiles for weeks or months.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:31) [[Nicholas J. Fuentes]] stated that Israel has had close security, military, and intelligence ties with the [[Kurdistan|Kurds]] in [[Syria]], [[Iraq]], and [[Turkey]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:18:28) [[Nicholas J. Fuentes]] stated that [[Iraq|Iraqi]] [[Kurdistan]] is effectively autonomous and that the [[Kurdistan|Kurds]] are huge allies of Israel.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:19:00) [[Nicholas J. Fuentes]] said that Israel and to some extent the [[United States]] use the [[Kurdistan|Kurds]] against various governments, treating diversity as a secret weapon.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:30:34) [[Nicholas J. Fuentes]] said that if the regime survives, Israel will likely keep the conflict going at a "low boil," constantly degrading [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:34:31) [[Nicholas J. Fuentes]] said that [[Iran]] is fighting for its sovereignty so it does not have to capitulate to [[Washington D.C.|Washington, D.C.]] and Israel.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:38:41) [[Nicholas J. Fuentes]] claimed that the internet in the [[United States]] is "pumped full of propaganda" from Israel, [[India]], and the [[Central Intelligence Agency|CIA]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:39:46) [[Nicholas J. Fuentes]] said that Israel does not tolerate the kind of openness that he described as a vulnerability.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:41:24) [[Nicholas J. Fuentes]] stated he would not vote for the party that brought the war in [[Iran]] for Israel.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:41:33) [[Marco Rubio]], serving as [[U.S. Department of State|Secretary of State]], informed the press that the [[United States]] went to war with [[Iran]] because Israel was preparing to strike [[Iran]] regardless of [[United States|American]] intervention.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:41:59) [[Marco Rubio]] stated that the decision for the [[United States]] to join the war was made because if Israel struck [[Iran]] without the [[United States]], [[Iran]] would retaliate against [[United States|American]] forces regardless.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:43:11) [[Nicholas J. Fuentes]] argued that Israel is a client [[state]] of the [[United States]], dependent on its military aid and diplomatic cover.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:43:51) [[Nicholas J. Fuentes]] asserted that [[Benjamin Netanyahu]] informed the [[United States]] that Israel had made the decision to go to war, leaving the [[United States]] with no recourse but to join.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:45:01) [[Nicholas J. Fuentes]] stated that Israel does not want peace in the [[Middle East]] and that the [[United States]] must restrain Israel to achieve stability.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:58:24) Israel claimed that 50% of [[Iran]]'s missile launch platforms had been destroyed in the first 48 to 72 hours of the conflict.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:07:52) [[Marco Rubio]] stated that Israel was planning an attack on [[Iran]] and that [[Iran]] would retaliate against [[United States|US]] interests, so [[United States|US]] forces struck preemptively.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:09:23) [[Nicholas J. Fuentes]] argued that Israel was not in any danger and that Israel made the decision to go to war with [[Iran]] because it has been their plan for many years.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:11:28) [[Nicholas J. Fuentes]] argued that Israel was planning an attack on [[Iran]] that would be unsuccessful, putting Israel in harm's way and triggering an [[Iran|Iranian]] retaliation against the [[United States]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:12:57) [[Nicholas J. Fuentes]] asserted that Israel wanted the [[United States]] to enter the war, and that Israel knew that if they attacked [[Iran]], [[Iran]] would rain missiles on [[United States|American]] bases.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:13:37) [[Politico]] reported that the logic inside the administration was that they may have wanted Israel to attack [[Iran]] first to create a better justification for the [[United States]] to enter the war.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:14:37) [[Nicholas J. Fuentes]] stated that Israel check-mated the [[United States]], cutting off all off-ramps and making it so there was no scenario where the [[United States]] did not go to war.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:15:19) [[Nicholas J. Fuentes]] characterized Israel's actions as a pattern of orchestration.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:15:36) Under [[Joe Biden]], Israel launched an airstrike in [[Syria]] against a consulate building owned by [[Iran]], killing senior [[Iran|Iranian]] military personnel.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:16:07) [[Iran]] retaliated against Israel by launching 50 ballistic missiles in a largely telegraphed response.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:16:53) Israel provoked [[Iran]] by assassinating [[Ismail Haniyeh]], the political leader of [[Hamas]], in [[Tehran]], [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:20:48) Israel launched Operation Rising Lion, an all-out attack on [[Iran]], hitting nuclear facilities at [[Natanz]], [[Fordow|Fordo]], and [[Isfahan]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:21:35) [[Iran]] retaliated against Israel after Operation Rising Lion by raining down volleys of hundreds of ballistic missiles for nearly two weeks.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:22:13) Israel was not able to destroy [[Iran]]'s nuclear infrastructure, which is deep underground and fortified by mountains.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:22:20) Israel struck [[Iran]]'s nuclear facilities knowing they could not achieve their objectives, which triggered an [[Iran|Iranian]] retaliation in a war of attrition they knew they could not sustain.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:27:56) [[Benjamin Netanyahu]] informed the [[president]] in February 2026 that Israel would launch a war before the [[Jews|Jewish]] holiday of Purim.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:28:05) [[Nicholas J. Fuentes]] stated that Israel was celebrating their victory over the Amalekites with the planned timing of the war.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:28:17) Israel informed the [[United States]] that they would bomb [[Iran]] without them, and that if they did, [[Iran]] would launch its missiles at [[United States|US]] bases in the [[region]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:29:02) [[Nicholas J. Fuentes]] asserted that Israel orchestrated the elimination of the [[Iran|Iranian]] nuclear deal in 2018, the al-Aqsa Flood in 2023, the war in 2025, and the current war.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:29:52) [[Nicholas J. Fuentes]] said the [[United States]] provides Israel with $3.8 billion per year in military aid.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:31:22) [[Nicholas J. Fuentes]] asserted that Israel controls the [[United States]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:34:09) [[Nicholas J. Fuentes]] stated that Israel's power proceeds from the fact that the [[United States]] is run by organized [[Jews|Jewry]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:35:05) [[William Ackman|Bill Ackman]] went to [[Larry Fink]] after the protests following [[October 7th Attack|October 7th]] and said to blacklist every student [[who]] protested against Israel in finance.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:38:10) [[Nicholas J. Fuentes]] argued that the implication of [[John F. Kennedy]]'s assassination is that a [[United States|US]] [[president]] cannot say no to Israel.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:39:38) [[Nicholas J. Fuentes]] called on [[Donald Trump]] to look at Israel and tell them "no, I'm the boss, I'm [[United States|America]]."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:41:52) [[Nicholas J. Fuentes]] stated that Israel wanted a war to destroy [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:42:15) [[Nicholas J. Fuentes]] stated that Israel has 300 nuclear warheads and that [[Iran]] could not pose an existential threat to them.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:42:54) [[Nicholas J. Fuentes]] stated that Israel wants regime change in [[Iraq]], [[Syria]], [[State of Libya|Libya]], [[Arab Republic of Egypt|Egypt]], and [[Turkey]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:43:12) [[Nicholas J. Fuentes]] cited a grand strategy for Israel from the 1980s by [[Oded Yinon]], which called for toppling powerful Arab and Islamist dictators, dismembering all states, and fracturing them along ethnic and sectarian lines.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:44:28) [[Nicholas J. Fuentes]] cited the 1996 Clean Break Report, which he said was written by the same people in the [[George W. Bush|Bush]] [[White House]], as calling for Israel to take out [[Iraq]], then [[Syria]], then [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:45:50) [[Nicholas J. Fuentes]] stated that [[United States|Americans]] are dying for a greater Israel.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:51:34) [[JD Vance]] gave a speech at the [[Quincy Institute]], an anti-war nonprofit, where he said "we have to arm Israel so they can bomb [[Iran]]."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:01:37) [[Nicholas J. Fuentes]] stated that [[Marco Rubio]] and [[JD Vance]] are pushing for the war and that they "killed [[United States|Americans]] for Israel."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:03:01) [[Nicholas J. Fuentes]] stated that the [[United States]] is pulling air defense systems from [[South Korea]] and an aircraft carrier from the [[Sea of Japan]] for the conflict, proving the war is about Israel, not [[China]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:14:05) [[Nicholas J. Fuentes]] stated that the leader of the opposition party in the Knesset wrote an op-ed in the [[The New York Times|New York Times]] stating that the war is not just about [[Benjamin Netanyahu]], but about all of Israel.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:15:10) Polling indicated that 70% of Israelis supported Israel bombing [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:32:18) [[Nicholas J. Fuentes]] stated that the [[United States|USS Liberty]] incident is an example of Israel doing more terror attacks against the [[United States]] than [[Iran]] has.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:56:49) The [[Canary Mission]] is an Israeli-funded blacklist used since July 2025 by the [[Donald Trump|Trump administration]] to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:57:45) [[Palantir Technologies|Palantir]], a company closely aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on citizens of the [[United States]] and works with four federal agencies.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:00:29) Israel was furious about the early talks for the [[Barack Obama]] nuclear deal.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:00:50) [[Donald Trump]] was elected in 2016 with the help of Israel.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:00:56) An excerpt from [[James Bamford]]'s book, *Spy Fail*, details the hidden collusion in the 2016 election between [[Donald Trump]] and Israel.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:01:11) Israel was determined to get a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:02:03) [[Barack Obama]] had a solution for the [[Iran|Iranian]] nuclear issue, but Israel hated him for it, colluded with [[Donald Trump]] to get him elected to create maximum pressure and a ladder of escalation.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:14:45) Before Israel bombed [[Iran]] last year in June, they had scheduled another round of talks.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:24:08) [[Larry Ellison]] is a close personal friend of [[Benjamin Netanyahu]] and a huge supporter of Israel.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:24:18) The newly formed media conglomerate will use its power to make the case for Zionism and Israel's expansionist war in the [[Middle East]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:26:08) The [[U.S. Department of State|State Department]] and [[U.S. Department of Homeland Security|DHS]] are actively deporting anyone [[who]] criticizes Israel on social media.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:32:40) The high watermark of the JQ movement was when [[Charlie Kirk]] got assassinated, and the consensus was that Israel was involved.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:35:27) The [[Benjamin Netanyahu|Netanyahu]] letter regarding [[Charlie Kirk]] was exactly what [[Benjamin Netanyahu|Netanyahu]] represented; [[Charlie Kirk]] was glazing Israel in it.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:33:04) [[Nicholas J. Fuentes]] argued that the campaign by figures like [[Nick Shirley]] and [[Elon Musk]] to expose fraud by [[Somalia|Somali]] immigrants was a diversion to stop people from talking about [[American Israel Public Affairs Committee|AIPAC]] and Israel.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:46:00) [[Nicholas J. Fuentes]] criticized [[Rashida Tlaib]] and [[Ilhan Omar]], calling them "disgusting, anti-[[United States|American]] pieces of shit," despite their critique of Israel.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:47:13) [[Nicholas J. Fuentes]] stated that [[Nancy Pelosi]] "cracked a whip" on [[Ilhan Omar]] after [[Ilhan Omar]] made comments about [[United States|US]] aid to Israel being "all about the Benjamins," causing her to "pipe down."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:59:23) [[Nicholas J. Fuentes]] reported that according to Israeli media, [[Iran]] was not budging on enrichment, but might concede on downgrading its stockpile of highly enriched uranium or enriching at a low level.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:02:08) [[Nicholas J. Fuentes]] cited a [[Politico]] article reporting that the [[United States|US]] may want Israel to hit [[Iran]] first, to make it easier for the [[United States|US]] to enter a war with a casus belli.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:03:57) [[Nicholas J. Fuentes]] mentioned the Canary Mission, describing it as an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration since July 2025 to [[target]] pro-[[Palestine|Palestinian]] students and professionals in the [[United States]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:05:39) [[Nicholas J. Fuentes]] argued that the [[United States]] is an "occupied nation," being ruled by "a small country across an ocean," a reference to Israel.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:42) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] was elected in 2016 with the help of Israel, citing an excerpt from [[James Allsup|James]] Bamford's book, *Spy Fail*, which he said detailed the hidden collusion between [[Donald Trump|Trump]] and Israel in the 2016 election to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], Israel, [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(35:43:28) [[Nicholas J. Fuentes]] questioned whether [[the United States]] or Israel runs the world and the [[United States|U.S. government]], and asked when any leader will reassert [[United States|American]] sovereignty.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(56:49:93) [[Nicholas J. Fuentes]] described the Canary Mission as an Israeli-funded blacklist, which since July 2025 has been used by the [[Donald Trump|Trump administration]] to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(57:44:11) [[Nicholas J. Fuentes]] claimed that [[Palantir Technologies|Palantir]], a company closely aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens and works with four federal agencies.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(58:57:65) [[Nicholas J. Fuentes]] declared he will never be okay with [[United States|U.S]]. presidents having to kiss the wall in Israel and say "make Israel great again," no matter what concessions are offered.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:00:30:69) [[Nicholas J. Fuentes]] claimed that the Israelis were furious about the nuclear deal, that [[Benjamin Netanyahu|Netanyahu]] went to a joint session of [[U.S. Congress|Congress]] to defy the [[United States|American]] [[president]] on the deal, and received 37 standing ovations.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:00:51:66) [[Nicholas J. Fuentes]] alleged that [[Donald Trump|Trump]] was elected in 2016 with the help of the Israelis, citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion between [[Donald Trump|Trump]] and Israel.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:02:02:90) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the [[Iran]] problem with the deal, but [[Benjamin Netanyahu|Netanyahu]] and the Israelis hated him for it and colluded with [[Donald Trump|Trump]] to create a ladder of escalation.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:05:09:80) [[Nicholas J. Fuentes]] asserted that Israel has so much control over the [[United States|U.S. government]] that the policy is "[[Israel first]]."
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(01:44:00:56) [[Nicholas J. Fuentes]] delivered a near-verbatim repeat of his earlier monologue questioning whether the [[United States]] or Israel runs the country.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:02:14:44) [[Nicholas J. Fuentes]] announced that the featured story of the evening would be [[Tucker Carlson]]'s interview with [[Mike Huckabee]], noting that the original interview was removed because [[Tucker Carlson]] made a potentially libelous allegation against the [[president]] of Israel.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:02:52:68) [[Nicholas J. Fuentes]] stated that the interview was removed because [[Tucker Carlson]] said that the [[president]] of Israel, [[Isaac Herzog]], was on [[Jeffrey Epstein|Epstein Island]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:03:46:92) [[Nicholas J. Fuentes]] credited [[Tucker Carlson]] with exposing the "Greater Israel project" and flipping the narrative about Israel's right to exist on its head.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:04:05:08) [[Nicholas J. Fuentes]] described the pro-Israel argument as a chain: if Israel has a right to exist, it has a right to defend itself, and therefore it can do whatever it wants.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:04:53:43) [[Nicholas J. Fuentes]] stated that [[Mike Huckabee]] gave a two-part answer on where Israel's right to exist comes from: first from international law, and second, more importantly, from the Bible.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:05:25:15) [[Nicholas J. Fuentes]] argued that the God-given right to exist that [[Huckabee]] cited is not just for the modern territory of Israel, but for the entire [[Middle East]], including half of [[Arab Republic of Egypt|Egypt]], the [[Sinai]], parts of [[Saudi Arabia]], parts of [[Iraq]], all of [[Jim Jordan|Jordan]], and all of [[Lebanon]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:06:07:29) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] asked [[Huckabee]] if Israel had a claim to the whole [[Middle East]], given its biblical right to exist.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:06:22:01) [[Nicholas J. Fuentes]] reported that [[Huckabee]] agreed that Israel has a right to everything [[west]] of the Jordan River and seemed to say they have a right to the rest of the land as well.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:06:51:34) [[Nicholas J. Fuentes]] stated that [[Huckabee]] tried to walk back his statement, saying he didn't think Israel would actually take that land.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:07:01:42) [[Nicholas J. Fuentes]] argued that the belief in a claim to all that land is what many Israelis and the founders of the [[state]] of Israel believe, referencing an ideology called Revisionist Zionism that claims land from the Nile to the Euphrates.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:08:07:89) [[Nicholas J. Fuentes]] praised [[Tucker Carlson]] for doing a "phenomenal job" in the interview, calling it a massive victory and an important refinement of the conversation about Israel.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:09:07:52) [[Nicholas J. Fuentes]] identified what he considered a serious mistake in the [[Tucker Carlson|Tucker]]-[[Huckabee]] interview: [[Tucker Carlson|Tucker]] questioned whether the modern-day people of Israel [[who]] claim to be the same [[Jews]] from the Old Testament are, in fact, the same people with the same ancestry.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:10:09:90) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] said that [[Benjamin Netanyahu]] and other Ashkenazi [[Jews]] from central and [[Europe|Eastern Europe]] are not Middle Easterners but from Poland, implying they are not the "real [[Jews]]" and may not have a claim to the land.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:10:35:53) [[Nicholas J. Fuentes]] noted that this question about whether Israel is made up of "real [[Jews]]" is also raised by [[Candace Owens]] and others in the Israel-critical space.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:12:58:33) [[Nicholas J. Fuentes]] argued that if the people in Israel are not the [[Jews]], then they are just white people, and he dislikes this implication because it serves a left-wing anti-[[Jews|Zionist]], anti-racist narrative.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:13:27:44) [[Nicholas J. Fuentes]] claimed that left-wing circles like [[Max Blumenthal]] promote the idea that Israel is a settler colonialist project by white people, and that [[Benjamin Netanyahu|Netanyahu]] is just some white [[person]] from [[Europe]] [[who]] doesn't belong there.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:14:07:92) [[Nicholas J. Fuentes]] argued that this narrative takes away from what Israel really is, which is "[[Jews|Jewish]] supremacy," not white supremacy.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:14:19:16) [[Nicholas J. Fuentes]] stated that [[Benjamin Netanyahu|Netanyahu]] is a [[Jews|Jew]], the Israelis are [[Jews]], and the [[Jews|Zionist]] project is based on [[Jews|Jewish]] mythology and [[Jews|Jewish]] chauvinism sourced from the Old Testament and the Talmud.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:15:00:04) [[Nicholas J. Fuentes]] argued that when the Hebrew Bible tells [[Jews]] to genocide the Amalekites (kill the women and children), and the Talmud tells them to kill idolaters, it is directly linked to the modern [[state]] of Israel murdering civilians.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:15:27:60) [[Nicholas J. Fuentes]] praised [[Tucker Carlson]] for shining a spotlight on the "perverse situation" of [[Huckabee]] being a [[Christianity|Christian]] [[Jews|Zionist]] [[who]] worships Israel and the Jewish state.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:58:27:87) [[Nicholas J. Fuentes]] argued that the purpose of an ambassador is to represent [[United States|American]] interests, but if the ambassador to Israel has a religious idolatry of Israel, then he is actually working for them instead of for the [[United States]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:01:52:73) [[Nicholas J. Fuentes]] described the pro-Israel argument about "Israel's right to exist" as a rhetorical trap: when someone criticizes Israel's actions, Zionists ask, "Does Israel have a right to exist?" to short-circuit the discussion.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:02:33:14) [[Nicholas J. Fuentes]] argued that the "right to exist" question is a "playbook" developed by [[Jews]] to manipulate conversations about Israel.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:05:12:57) [[Nicholas J. Fuentes]] reported that [[Huckabee]] first cited international law, but [[Tucker Carlson|Carlson]] countered by pointing out that Israel constantly breaks international law.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:06:01:70) [[Nicholas J. Fuentes]] reported that [[Huckabee]] then said Israel's right comes from the Bible, because God promised the land to [[Abraham]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:06:56:02) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]] pointed out that the biblical land grant from God in Genesis gives Israel the right to everything from the [[Nile River]] in [[Arab Republic of Egypt|Egypt]] to the [[Euphrates River]] in [[Syria]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:08:03:40) [[Nicholas J. Fuentes]] reported that [[Mike Huckabee]] agreed that Israel has a right to all that land, but then walked it back by saying Israel is not looking to expand its territory.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:14:23:20) [[Nicholas J. Fuentes]] claimed that [[Huckabee]] not only supports Israel's current policies but also the most expansionist ambitions of the most radical members of Israel, including taking [[Iraq]], the [[Sinai]], [[Arab Republic of Egypt|Egypt]], [[Saudi Arabia]], and [[Jim Jordan|Jordan]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:23:28:04) [[Nicholas J. Fuentes]] concluded that the [[United States|U.S]]. ambassador to Israel, [[Huckabee]], is not [[America First]] but is instead a firm partisan of the [[Jews|Jewish]] nation.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:25:53:64) [[Nicholas J. Fuentes]] argued that [[Arab Republic of Egypt|Egypt]] is mobilizing in the [[Sinai]] and [[Turkey]] is extending its arm into [[Syria]] because Israel's expansionist ambitions are destabilizing the [[Middle East]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:26:29:10) [[Nicholas J. Fuentes]] stated that the "Greater Israel" project is as [[Jews|Jewish]] as it gets, and that Revisionist Zionists and the founders of the [[Likud|Likud party]] believe Israel should take all of [[Jim Jordan|Jordan]], the [[Sinai]], the Golan, and Southern [[Lebanon]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:27:52:53) [[Nicholas J. Fuentes]] moved to the other part of [[Tucker Carlson|Tucker]]'s interview that he disliked: the questioning of the Jewishness of Israel.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:29:52:38) [[Nicholas J. Fuentes]] summarized the argument: Israel's right to exist comes from the Bible, and the [[Jews]] came back to collect on that land grant after being in exile for 2,000 years.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:30:50:50) [[Nicholas J. Fuentes]] stated that some people, including [[Tucker Carlson]], attack the continuity of the [[Jews|Jewish people]], asking if the modern [[Jews]] in Israel are really the beneficiaries of that biblical land grant.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:33:45:46) [[Nicholas J. Fuentes]] declared that it is a matter of fact that the [[Jews]] in Israel, including Mizrahi, Sephardic, and Ashkenazi, all descend from the [[Middle East]], as proven by genetic testing showing Levantine DNA.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:36:33:51) [[Nicholas J. Fuentes]] argued that the narrative that Ashkenazi [[Jews]] are [[Europe|Europeans]] serves to characterize Israel as "another white supremacist colony," which he views as a way to vilify white people.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:42:07:53) [[Nicholas J. Fuentes]] argued that the number one beneficiary of the narrative that [[Benjamin Netanyahu]] is not a real [[Jews|Jew]] is Orthodox [[Jews]] in [[United States|America]] [[who]] don't want to be blamed for what Israel is doing.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:43:17:13) [[Nicholas J. Fuentes]] claimed that [[Candace Owens]] says Israel is all Khazarians, and that this is a narrative that protects "Israel-critical [[Jews]]."
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:44:50:76) [[Nicholas J. Fuentes]] argued against the need to invent "some esoteric satanic cult" to explain Israel's actions, stating that the Israelis have the lineage to the original [[Jews]] [[who]] rejected [[Jesus Christ|Christ]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(21:44:94:00) [[Nicholas J. Fuentes]] compared the massive military deployment to the [[Middle East]] for a regime change war for Israel with the inability to deploy 5,000 [[U.S. Department of Defense|National Guard]] and [[Customs and Border Protection|Border Patrol]] to liberate [[Minneapolis]] from [[Somalia|Somali]] scammers and leftists.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(22:55:06:00) [[Nicholas J. Fuentes]] argued that the [[Donald Trump|Trump]] administration claims it cannot restore order in [[Chicago]] or [[Minneapolis]] because it is too complicated, but it has half the military in the [[Middle East]] to topple another government for the benefit of Israel.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(24:00:37:00) [[Nicholas J. Fuentes]] stated that he is "out" and for "[[America First]]," meaning no regime change in [[Iran]], and that Israel should fight its own war.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:19:15) A [[Catholic Church|Catholic]] woman appointed to the Federal Religious Liberty Commission by [[Donald Trump]] was removed after stating that as a [[Catholic Church|Catholic]], she was not a [[Jews|Zionist]] and did not support Israel.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:20:03) Kerry Pregine-Bowler was terminated from the Federal Religious Liberty Commission after she said she was not a [[Jews|Zionist]] and did not support Israel.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:21:43) Kerry Pregine-Bowler questioned [[Seth Dillon]] during the Federal Religious Liberty Commission hearing about whether critics of Israel should be considered antisemitic.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:22:04) [[Nicholas J. Fuentes]] stated that as a [[Catholic Church|Catholic]], his God is [[Jesus Christ]], not rabbinical Talmudic [[Jews]], and he believes in the [[Catholic Church]], not the Jewish state of Israel.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:58:45) [[Nicholas J. Fuentes]] argued that Israel fundamentally seeks regime change in [[Iran]] and does not want a deal.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:01:55) [[Nicholas J. Fuentes]] argued that Israel does not want a deal with [[Iran]] because the Revolutionary Theocratic [[government of Iran]] has a message that appeals to [[Islam|Muslims]] throughout the [[Middle East]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:03:43) [[Nicholas J. Fuentes]] argued that to the extent [[Iran]] makes a deal with the [[United States]], Israel cannot have uncontested influence in the [[Middle East]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:04:05) [[Nicholas J. Fuentes]] argued that Israel is incentivized to sabotage any deal with [[Iran]] because a deal keeps the [[Iran|Iranian regime]] in place.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:04:35) [[Nicholas J. Fuentes]] argued that Israel's "happy ending" is that [[Iran]] falls, the regime falls, and [[Iran]] is split up into different countries.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:04:50) [[Nicholas J. Fuentes]] speculated that Israel wants [[Kurdistan]] to become its own country and become Israel's closest ally.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:05:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and Israel are diametrically opposed on [[Iran|Iranian]] policy, with the [[United States]] wanting a deal and Israel wanting chaos.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:06:30) [[Nicholas J. Fuentes]] argued that Israel got [[Donald Trump]] in office because they know he is the least likely [[person]] in the world to make a deal with [[Iran]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:06:55) [[Nicholas J. Fuentes]] argued that Israel has engendered bad blood and made [[Donald Trump]] the mortal enemy of [[Iran]], potentially precluding the [[United States]] from making a deal because of [[Donald Trump]]'s grudge.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:07:10) [[Nicholas J. Fuentes]] argued that Israel does not want [[Iran]] to have centrifuges and missiles for the same reason that Israel destroyed [[Hezbollah]], [[Bashar al-Assad|Assad]], and the [[Houthis]] - to make [[Iran]] defenseless.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:07:30) [[Nicholas J. Fuentes]] argued that [[Iran]] will not give up their missiles and nukes because they know that if they do, Israel will destroy them anyway.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:08:05) [[Nicholas J. Fuentes]] argued that if [[Iran]] is sitting on a pile of 2000 ballistic missiles, everyone knows that if the [[United States]] goes in, people will die and [[Iran]] will rain missiles on Israel.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:09:24) [[Nicholas J. Fuentes]] argued that if the [[United States]] shoots down 90% of 2000 missiles from [[Iran]], that still leaves 200 missiles getting through to Israel.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:10:05) [[Nicholas J. Fuentes]] cited Israel's own leadership saying they want to open up a new front in [[Iran]] and control [[Iran]]'s airspace the way they do with [[Syria]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:10:45) [[Nicholas J. Fuentes]] argued that the reason Israel cannot do airstrikes in [[Iran]] like they do in [[Syria]] is because [[Iran]] has missiles and air defenses.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:11:08) [[Nicholas J. Fuentes]] argued that Israel wants the [[United States]] to take away [[Iran]]'s defenses so that a "Persian spring" can begin.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:11:28) [[Nicholas J. Fuentes]] stated that Israel's stated desire to bomb [[Iran]] is published in [[The Jerusalem Post]] and [[i24 News]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:12:40) [[Nicholas J. Fuentes]] argued that Israel is willing to lose [[Europe]] and the [[Islam|Muslim]] world because they are not counting on returning to the status quo from before the conflict.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:18:32) [[Nicholas J. Fuentes]] argued that [[Jews]] established a country in Israel in preparation for a worldly Messiah [[who]] they think will bring them an earthly kingdom, while [[Catholic Church|Catholics]] believe the Messiah already arrived and his kingdom is not of this world.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:19:38) [[Nicholas J. Fuentes]] noted that Kerry Pregine-Bowler was kicked off the religious liberty commission for expressing her [[Catholic Church|Catholic]] position on Israel.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:22:27) [[Nicholas J. Fuentes]] argued that a critic of Israel would last longer on a [[Democratic Party|Democratic]] religious liberty commission than a [[Republican Party|Republican]] one.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:23:12) [[Nicholas J. Fuentes]] argued that the war in [[Iran]], the acquisition of [[Warner Bros. Discovery|Warner Bros.]] by [[Paramount Global]], and the acquisition of [[TikTok Inc.|TikTok]] by [[Larry Ellison]] are all for Israel.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:24:12) [[Nicholas J. Fuentes]] argued that illegal immigrants working on farms can stay in the [[United States]], but a [[Europe|European]] [[who]] criticized Israel on [[Twitter]] is banned from coming into [[United States|America]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:26:21) [[Nicholas J. Fuentes]] argued that social media and legacy media are more pro-Israel and censored than they were in 2024.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:35:02) [[Nicholas J. Fuentes]] argued that [[William Ackman|Bill Ackman]] went to his friend [[Larry Fink]] at [[BlackRock]] to blacklist anybody that protested Israel in college.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(01:44:00.490) [[Nicholas J. Fuentes]] questioned whether the [[United States]] or Israel controls the world, the country, the military, and the government.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:05:07.150) [[Nicholas J. Fuentes]] reported that the Canary Mission, an Israeli-funded blacklist, has been used by the administration of [[Donald Trump]] since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:06:01.320) [[Nicholas J. Fuentes]] identified [[Palantir Technologies|Palantir]] as a company closely aligned with Israel that uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States]] citizens and works with four federal agencies.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:09:08.840) [[Nicholas J. Fuentes]] cited the book *Spy Fail* by [[James Bamford]], claiming it details hidden collusion in the 2016 election between [[Donald Trump]] and Israel, not [[Donald Trump]] and [[Russian Federation|Russia]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:30:28.310) [[Nicholas J. Fuentes]] compared the looming war with [[Iran]] to the [[Iraq]] War, calling it "a war for Israel" against a country that does not threaten the [[United States]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:24:31) [[The Prime Minister of Israel]] pushed for action to weaken [[Iran]]’s ability to launch missiles at Israel.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:24:37) Israeli forces prepared for a possible war, and a meeting of Israel’s security cabinet was moved to Sunday.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:25:48) Israel provoked [[Iran]] into a war, and the [[United States]] intervened to cripple [[Iran]]'s nuclear complex by bombing [[Fordow|Fordo]], [[Isfahan|Esfahan]], and [[Natanz]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:26:55) Israel argued that [[Iran]] would preemptively attack Israel using ballistic missiles, requiring the [[United States]] to intervene.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:30:00) The only remaining major threat to Israel and [[United States]] bases from [[Iran]] is its ballistic missile program.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:32:40) The [[United States]] and Israel perceive [[Iran]] as weaker than ever and are engaging in "gunboat diplomacy."
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:35:53) [[Iran]] can produce 150 ballistic missiles every two weeks to use against Israel.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:49:01) [[Benjamin Netanyahu|Bibi]] and Israel want a confrontation with [[Iran]], which is the key driver of the situation.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:52:24) Israel has defeated [[Hamas]], [[Hezbollah]], and [[Bashar al-Assad]], and removed the [[Iran|Revolutionary Guard]] from [[Syria]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:53:07) Israel's ultimate goal is regime change in [[Iran]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:53:17) Israel's goal is to destroy [[Iran]]'s strategic weapons and then "cut off the head of the snake."
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:53:23) A favorable regime in [[Iran]] would give Israel hegemony over the [[Middle East]], as it is the only nuclear power with a military edge guaranteed by the [[United States]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:54:11) Regime change in [[Iran]] is the grand prize for Israel.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:54:38) If Israel stops short and [[Iran]] makes a deal, [[Iran]]'s economy will recover and they will rebuild their missiles, making them unassailable.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:55:04) Israel must either totally win or totally lose in [[Iran]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:55:43) The [[United States]] is serving Israel's aims in [[Iran]].
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:55:57) [[Marco Rubio]] is preparing to visit Israel at the end of the month.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(00:56:50) The Canary Mission is an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration since July 2025 to [[target]] students, professors, and professionals in [[United States]] [[who]] oppose Israel.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(00:59:01) [[Donald Trump|Trump]] and his administration engaged in symbolic prostration to Israel, including presidents kissing the Western Wall and wearing a kippah.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:00:52) [[Donald Trump|Trump]] was elected in 2016 with the help of Israel in a hidden collusion detailed in an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail*.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:01:27) Israel was "hell-bent" on getting a [[Republican Party|Republican]] elected in 2016 in order to scuttle the [[Iran|Iranian]] nuclear deal, leading to the [[United States]] withdrawal from the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:06:22) The concessions offered by [[Iran]] fall short of what the [[United States]] and Israel are demanding.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:10:52) [[Paramount Global|Paramount]]/[[Skydance Media|Skydance]], owned by [[Larry Ellison]]'s [[Oracle Corporation|Oracle]], is an eighth-front, pro-Israel project.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:18:28) [[Nicholas J. Fuentes]] stated that the purpose of his show is to put [[United States|America]] first over Israel, [[Jews|world Jewry]], the capitalist class, billionaires, multinational corporations, free traders, foreign intelligence agencies, domestic intelligence agencies, [[The Wall Street Journal|Wall Street]], [[San Francisco Bay Area|Silicon Valley]], immigrants, and foreigners.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:32:00) [[Nicholas J. Fuentes]] stated that [[Elon Musk]], [[Jeff Bezos]], and [[Mark Zuckerberg]] were all at the inauguration because they are all working for the same agenda of foreign labor, globalization, free trade, and wars for Israel, and are all in the [[Jeffrey Epstein|Epstein]] files.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:44:33) Israel has been pursuing the overthrow of the [[Iran|Iranian]] regime since 1979.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:45:00) Israel does not care about nuclear weapons themselves, but hates them because they protect countries from Israel.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:45:12) Israel bombed [[Iraq]]'s nuclear arsenal in 1981 and [[Syria]]'s in 2007 because a nuclear arsenal would have protected those regimes from Israel's desire to destroy them.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:46:10) [[Iran]] is hedging its bets to defend itself against Israel by creating a latent nuclear arsenal, having the ability to create nuclear fuel for a bomb.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:47:05) Israel wants to destroy [[Iran]], but [[Iran]] has a nuclear capability.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:54:44) [[Nicholas J. Fuentes]] argued that [[Iran]] is buying [[time]] because they know if they give up enrichment, Israel will foment a [[civil war]] in their country within 10 years.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:00:59) [[Nicholas J. Fuentes]] characterized the negotiations as a three-party negotiation between the [[United States]], [[Iran]], and Israel.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:01:51) Israel is insistent that [[Iran]] render itself defenseless by giving up its nuclear hedge, missiles, and proxies.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:03:35) The [[United States]] bombed [[Iran]] with airstrikes in 2025, hitting [[Fordow|Fordo]] and [[Natanz]] with bunker buster bombs after Israel had pounded [[Iran]] for weeks.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:15:01) [[Nicholas J. Fuentes]] argued that Israel cannot accept any deal with [[Iran]] because it would allow [[Iran]] to normalize and rebuild its defenses, making regime change impossible.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(00:34:15) [[Nicholas J. Fuentes]] questioned whether Israel controls the [[United States]]'s government and military, asking "Do we run the world or does Israel?"
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(00:55:22) [[Nicholas J. Fuentes]] described the "Canary Mission" as an Israeli-funded blacklist used by the [[Donald Trump|Trump administration]] since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:43:50) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] was "the [[Jews|Jewish]] candidate" [[who]] gave Israel the [[Gaza Strip|West Bank]], [[Gaza Strip|Gaza]], [[Iran]], and [[Syria]] "on a silver platter."
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(04:12:47) [[Nicholas J. Fuentes]] defended [[Sneeko]] against criticism, stating that [[Sneeko]] "never snaked me" and sacrificed a lot for his views on [[COVID]], the [[Jews]], and Israel.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:33:51) [[Nicholas J. Fuentes]] asked when any leader would reassert [[United States|American]] sovereignty, questioning whether the [[United States]] or Israel runs the world, the country, the military, and the government.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:54:58) [[Nicholas J. Fuentes]] stated that the Canary Mission is an Israeli-funded blacklist which, since July 2025, has been confirmed to be used by the [[Donald Trump|Trump]] administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:57:02) [[Nicholas J. Fuentes]] declared he will never be okay with [[United States|U.S]]. presidents having to "kiss the wall in Israel" and say they want to make Israel great again, regardless of what concessions are offered.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:58:54) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 with the help of Israelis, citing an excerpt from [[James Allsup|James]] Bamford's book *Spy Fail* that details "hidden collusion" in the 2016 election between [[Donald Trump|Trump]] and Israel, not [[Donald Trump|Trump]] and [[Russian Federation|Russia]].
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:59:21) [[Nicholas J. Fuentes]] claimed that Israel was "hell-bent" on getting a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran|Iranian]] nuclear deal, which is exactly what happened.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:29:42) [[Nicholas J. Fuentes]] called for the ritual humiliation of everyone [[who]] posted a [[Stephen Miller]] meme, calling [[Stephen Miller]] a "[[Jews|Zionist]] [[Jews|Jew]]" [[who]] is smug, arrogant, flippant, and loyal to Israel.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(35:42:00) [[Nicholas J. Fuentes]] asked whether the [[United States]] or Israel runs the country, the military, and the government.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(56:49:00) [[Nicholas J. Fuentes]] reported that the Canary Mission is an Israeli-funded blacklist confirmed to be used by the [[Donald Trump|Trump]] administration to [[target]] students, professors, and professionals [[who]] oppose Israel in the [[United States]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(57:45:00) [[Nicholas J. Fuentes]] asserted that [[Palantir Technologies|Palantir]], a company closely aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens and works with four federal agencies.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:00:51:00) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 with the help of Israel.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:00:53:00) [[Nicholas J. Fuentes]] cited an excerpt from [[James Bamford]]'s book *Spy Fail* that he said details "hidden collusion" in the 2016 election between [[Donald Trump]] and Israel.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:01:20:00) [[Nicholas J. Fuentes]] stated that Israel was "hell-bent" on getting a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(01:02:06:00) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had solved the [[Iran]] issue with the deal, but Israel colluded with [[Donald Trump]] to get him elected so he would create a ladder of escalation by pulling out of the deal and killing [[Qasem Soleimani]].
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:14:52:00) [[Nicholas J. Fuentes]] stated that [[Jeffrey Epstein]] was a sex trafficker [[who]] groomed underage girls potentially for blackmail, connected to the [[British royal family]], foreign governments, Israeli intelligence, billionaires, and elite members of [[United States|American]] public and private life.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(02:38:04:00) [[Nicholas J. Fuentes]] stated that the [[Donald Trump|Trump]] administration is covering up for [[Les Wexner]], [[Ronald Lauder]], the [[United Arab Emirates|Emirates]], Israel, and [[Ehud Barak]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:20:13) [[Nicholas J. Fuentes]] identified [[Benjamin Netanyahu]] and Israel as a third party seeking to sabotage the negotiations, noting that [[Benjamin Netanyahu|Netanyahu]] arrived in the [[United States]] for a private meeting with [[Donald Trump]] to lobby against any deal.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:53:40) [[Nicholas J. Fuentes]] argued that Israel wants the [[United States]] to go to war with [[Iran]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:56:50) [[Nicholas J. Fuentes]] described the "Canary mission" as an "Israeli-funded blacklist" which, since July 2025, the [[Donald Trump|Trump]] administration has used to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(03:59:33) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]] won the 2016 election with the help of Israel, citing an excerpt from [[James Bamford]]’s book *Spy Fail*.
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:00:07) [[Nicholas J. Fuentes]] argued that Israel was "hell-bent" on getting a [[Republican Party|Republican]] elected in 2016 in order to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:01:00) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] "had this solved" with the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], but that Israel "colluded with [[Donald Trump]] to get him elected so that [[Donald Trump|Trump]] would do maximum pressure and create a ladder of escalation."
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:09:07) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] is giving [[Benjamin Netanyahu]] a platform to show [[Iran]] that Israel and the [[United States]] are aligned, but that this will backfire as it shows [[Iran]] cannot trust the [[United States]].
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:10:10) [[Nicholas J. Fuentes]] argued that the "only hope" to avoid a war is for the [[Islam|Muslim]] countries to compel the [[United States]] to "put their foot down against Israel."
+
+### 2026-02-11 IRAN NEGOTIATIONS FLOP US Headed To WAR After FAILED TALKS  America First Ep. 1638
+(04:10:27) [[Nicholas J. Fuentes]] cited a past incident in September where Israel bombed [[Qatar]], and the [[United States]] was "furious" and gave [[Qatar]] a security guarantee, after which the "[[Islam|Muslim]] countries came together" to force [[Benjamin Netanyahu]] to apologize.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(56:49:00) [[Nicholas J. Fuentes]] reported that the Canary Mission, an "Israeli-funded blacklist," has been used by the [[Donald Trump]] administration since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(58:57:00) [[Nicholas J. Fuentes]] said that as long as presidents of the [[United States]] "have to kiss the wall in Israel and wear a small hat," he will never be okay with it.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:00:20:00) [[Nicholas J. Fuentes]] said the early talks for the [[Joint Comprehensive Plan of Action|JCPOA]] were conducted in secret and that Israelis were furious about it, hating [[Barack Obama]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:00:51:00) [[Donald Trump]] was elected in 2016 with the help of Israelis, according to an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:11:00) [[Nicholas J. Fuentes]] argued that the hidden collusion in the 2016 election was between [[Donald Trump]] and Israel, not [[Donald Trump]] and [[Russian Federation|Russia]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:01:23:00) Israel was determined to get a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran]] nuclear deal, and the [[United States]] subsequently withdrew from the deal.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:02:02:00) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] "had [[[Iran]]] solved" with the deal, and that Israelis hated him for it.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:02:08:00) Israelis colluded with [[Donald Trump]] to get him elected so that he would conduct "maximum pressure" on [[Iran]] and create a "ladder of escalation."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:04:57:00) [[Nicholas J. Fuentes]] said that Israel has "so much control over our government right now," describing its influence as "[[American Israel Public Affairs Committee|Israel First]]" rather than "[[America First]]."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(01:44:00:00) [[Nicholas J. Fuentes]] asked whether the [[United States]] or Israel controls the country, its military, and its government.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:05:06:00) [[Nicholas J. Fuentes]] reported that the Canary Mission, an "Israeli-funded blacklist," has been confirmed to be used by the [[Donald Trump]] administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:07:07:00) [[Nicholas J. Fuentes]] said that as long as [[United States]] presidents "have to kiss the wall in Israel and wear a small hat," he will never be okay with it.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:05:00) [[Donald Trump]] was elected in 2016 with the help of the Israelis, according to an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:07:00) [[Nicholas J. Fuentes]] argued that the hidden collusion in the 2016 election was between [[Donald Trump]] and Israel, not [[Donald Trump]] and [[Russian Federation|Russia]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:09:18:00) Israel was determined to get a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran]] nuclear deal.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:10:19:00) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] had the [[Iran]] situation solved with the deal, and that Israelis hated him for it, so they colluded with [[Donald Trump]] to get him elected in order to conduct "maximum pressure" on [[Iran]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:13:26:00) [[Nicholas J. Fuentes]] said that Israel has "so much control over our government right now."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:06:48:00) [[Benjamin Netanyahu|Netanyahu]] said on [[Twitter]] that [[Jeffrey Epstein]] did not work for the [[state]] of Israel, arguing that [[Jeffrey Epstein|Epstein]]'s connections were to [[Benjamin Netanyahu|Netanyahu]]'s political rival, [[Ehud Barak]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:07:56:00) [[Benjamin Netanyahu|Netanyahu]] said [[Ehud Barak]] is on the political left in Israel and is "fundamentally opposed to Israel's national interests."
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:08:11:00) The *[[The Jerusalem Post|Times of Israel]]* reported that [[Benjamin Netanyahu|Netanyahu]] said the "unusual close relationship" between former Prime Minister [[Ehud Barak]] and [[Jeffrey Epstein]] proves that [[Jeffrey Epstein|Epstein]] did not work for Israel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:11:10:00) [[Nicholas J. Fuentes]] argued that [[Ehud Barak]] was the former head of Israeli military intelligence.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:12:14:00) [[Ehud Barak]] became a salesperson for Israeli intelligence companies after leaving politics, and worked with Unit 8200 to infiltrate [[San Francisco Bay Area|Silicon Valley]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:12:17:00) [[Ehud Barak]] worked with Unit 8200, an Israeli intelligence unit, to infiltrate [[San Francisco Bay Area|Silicon Valley]] by creating internet startups in the first two decades of the 21st century.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:13:40:00) At least seven of the meetings between [[Jeffrey Epstein]] and [[Ehud Barak]] took place while [[Ehud Barak]] was serving as the Minister of Defense for Israel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:14:55:00) [[Jeffrey Epstein]] had been revealed to have worked with [[Ehud Barak]] to broker security agreements and arms sales on behalf of Israel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:15:33:00) [[Nicholas J. Fuentes]] argued that [[Jeffrey Epstein]] was an operative working with Israel's military ([[Israel Defense Forces|IDF]]), not necessarily [[Israel Defense Forces|Mossad]] in particular.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:17:10:00) [[Nicholas J. Fuentes]] argued that the [[Jeffrey Epstein]] files show that the distinctions between the political left and right in Israel are "distinctions without a difference," as [[Ehud Barak]], a left-wing politician, was the head of Israeli military intelligence.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:47:10) The [[Wexner Foundation]] recruits up-and-coming [[Jews|Jewish]] students from fraternities and the Hillel Society on college campuses and sends them to Israel for conferences, including the [[American Israel Public Affairs Committee|AIPAC]] annual summit.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:48:28) [[Les Wexner]] founded a group in the 1990s called the "study group," also [[known]] as the "[[American Israel Public Affairs Committee|mega group]]," which is a confederation of [[Jews|Jewish]] billionaires aimed at advancing the cause of Israel and public diplomacy for Israel in the [[United States]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:49:18) In 2003, the [[Wexner Foundation]] commissioned [[Republican Party|GOP]] messaging guru [[Frank Luntz]] to advise [[United States|American]] [[Jews|Jewish]] leaders on how to rally support for Israel.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:49:24) [[Frank Luntz]] advised that for a solid year, [[United States|American]] [[Jews|Jewish]] leaders should invoke the name of [[Saddam Hussein]] and how Israel was always behind [[United States|American]] efforts to remove him.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:54:26) [[Ronald Lauder]] is a member of the "[[American Israel Public Affairs Committee|mega group]]," which is a pro-Israel group of billionaires.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:15:52) [[Nicholas J. Fuentes]] described [[Jeffrey Epstein]] as a "[[Jews|Jewish]] fixer" [[who]] was born in [[United States|America]] but dealt with multiple countries, including the [[United Kingdom|British]], [[Ehud Barak]] in Israel, [[United States|Americans]], and the right and left.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:17:58) [[Nicholas J. Fuentes]] argued that [[Jeffrey Epstein]]'s connections to the Israeli security [[state]] and his participation in the pro-Israel political cause were driven by his [[Jews|Jewish]] identity, not love of pedophilia or worship of Satan.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:03:47) [[Nicholas J. Fuentes]] argued that the Canary Mission was an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:04:21) [[Nicholas J. Fuentes]] alleged that [[Palantir Technologies|Palantir]], described as a company closely aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States]] citizens and works with four federal agencies.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:05:00) [[Nicholas J. Fuentes]] declared the [[United States]] to be an "occupied nation" ruled by a small country across an ocean, which he stated was Israel.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:07) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), which restricted [[Iran]]'s enrichment of uranium, and that Israelis were furious about the deal.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:24) [[Nicholas J. Fuentes]] alleged that [[Donald Trump]] was elected in 2016 with the help of Israel, citing an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(00:06:30) [[Nicholas J. Fuentes]] claimed that Israel was "hell-bent" on getting a [[Republican Party|Republican]] elected in 2016 in order to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:00:33) [[Nicholas J. Fuentes]] declared he would not vote for [[JD Vance|J.D. Vance]] in 2028, reserving his endorsement for a candidate [[who]] would put [[United States]] interests over those of Israel and [[India]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:42:09) [[Nicholas J. Fuentes]] claimed that under the [[Donald Trump|Trump]] administration the [[United States]] would receive 600,000 [[China|Chinese]] students, 130,000 H-1B [[India|Indians]], send $20 billion to Israel, and conduct 230,000 deportations.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:46:39) [[Nicholas J. Fuentes]] claimed that the plan for [[JD Vance]] was to secure contracts for [[Elon Musk|SpaceX]], [[OpenAI]], [[Palantir Technologies|Palantir]], and to give Israel bombs, in addition to building a "charter [[city]] in Greenland."
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:58:04) [[Candace Owens]] proposed a theory that Israel is not controlled by [[Jews]], but by "Gypsies pretending to be [[Jews|Jewish]]" [[who]] are "Stephords of Caesarean Turks."
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:03:05) [[Nicholas J. Fuentes]] alleged that Israel colluded with [[Donald Trump]] to get him elected in 2016 specifically so he would withdraw the [[United States]] from the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:12:05) [[Nicholas J. Fuentes]] claimed that a Canary Mission blacklist, funded by Israel, has been used by the [[Donald Trump|Trump administration]] since July 2025 to [[target]] students and professors in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(01:12:20) [[Nicholas J. Fuentes]] stated that he would never accept any concessions or placations as long as [[United States|U.S]]. presidents are required to visit Israel and pledge to make Israel great again.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] asserted that Israel has been conducting industrial sabotage against [[Iran]] for years, bombing factories, oil refineries, ports, and infrastructure.
+
+### 2026-02-04 IRAN WAR AVERTED US-Iran Negotiations SCHEDULE For Friday  America First Ep. 1634
+(02:05:52) [[Nicholas J. Fuentes]] stated that Israel bombed [[Iran]]'s internal security service during the 12-day war in June of the previous year to weaken its ability to suppress a future foreign-backed uprising.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:05:09) [[Nicholas J. Fuentes]] asserted that Israel has so much control over the [[United States|U.S. government]] that the "[[America First]]" movement is effectively promoting "[[American Israel Public Affairs Committee|Israel First]]."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(00:56:50) [[Nicholas J. Fuentes]] described the Canary Mission as an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(00:57:44) [[Nicholas J. Fuentes]] added that [[Palantir Technologies|Palantir]], a company closely aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens and works with four federal agencies.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:05) [[Nicholas J. Fuentes]] asserted that the collusion in the 2016 election was between [[Donald Trump|Trump]] and Israel, not between [[Donald Trump|Trump]] and [[Russian Federation|Russia]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:01:13) [[Nicholas J. Fuentes]] claimed that Israel's goal in helping elect [[Donald Trump|Trump]] was to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(01:02:06) [[Nicholas J. Fuentes]] concluded that Israel colluded with [[Donald Trump|Trump]] to create a "ladder of escalation" against [[Iran]], which pulled the [[United States|US]] out of the deal, declared the [[Iran|IRGC]] terrorists, killed its leader, and placed sanctions on the regime.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:05:07) [[Nicholas J. Fuentes]] described the Canary Mission as an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:06:03) [[Nicholas J. Fuentes]] repeated the claim that [[Palantir Technologies|Palantir]], a company closely aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:09:22) [[Nicholas J. Fuentes]] repeated the assertion that the collusion in the 2016 election was between [[Donald Trump|Trump]] and Israel, not between [[Donald Trump|Trump]] and [[Russian Federation|Russia]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:09:30) [[Nicholas J. Fuentes]] repeated the claim that Israel's goal in helping elect [[Donald Trump|Trump]] was to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:10:23) [[Nicholas J. Fuentes]] repeated the conclusion that Israel colluded with [[Donald Trump|Trump]] to create a "ladder of escalation" against [[Iran]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:27:32) [[Nicholas J. Fuentes]] defined the "real [[Jeffrey Epstein|Epstein]]" as someone [[who]] is "first and foremost a [[Jews|Jew]]," raised in a [[Jewish community]] with [[Jews|Jewish]] attitudes, and [[who]] received hundreds of millions of dollars from two [[Jews|Jewish]] clients affiliated with Israel.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:28:34) [[Nicholas J. Fuentes]] characterized [[Jeffrey Epstein]] as a mercenary or intelligence operative, probably working very closely for Israel in furtherance of its goals.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:35:37) [[Nicholas J. Fuentes]] defined the reality as Israel influencing the [[United States|U.S. government]] and [[Jews]] being the go-between in society, affording them enormous power and influence.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:46:05) [[Nicholas J. Fuentes]] identified the culprits as [[American Israel Public Affairs Committee|AIPAC]], the [[Anti-Defamation League|ADL]], and the [[World Jewish Congress]], and the Jewish state of Israel.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:01:29) [[Nicholas J. Fuentes]] summarized the theory that [[Jeffrey Epstein]] was working for the Israelis, trafficking underage girls to get powerful people compromised on tape so that he could be their handler on behalf of Israel.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:16:28) [[Nicholas J. Fuentes]] characterized the "real [[Jeffrey Epstein|Epstein]]" story as one about organized [[Jews|Jewry]] in [[United States|America]], where [[Jews]] have allegiance to Israel, represent a "fifth column," and use leverage to exert influence and control.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:59:00) [[Nicholas J. Fuentes]] stated that [[Jeffrey Epstein]] knew business leaders and government officials in Israel, the [[United Kingdom]], and the [[United States]], including people at [[JPMorgan Chase & Co.|JP Morgan]], [[Yale Law School|Yale University]], and individuals such as [[Reid Hoffman]], [[Peter Thiel]], and [[Marc Andreessen]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:01:04) [[Nicholas J. Fuentes]] alleged that [[Les Wexner]] and [[Leon Black]] are "[[Jews|Jewish]] covert spies" working for [[Israel Defense Forces|IDF]], [[Israel Defense Forces|Mossad]], or [[Shin Bet]] agents [[who]] can be called upon by Israeli intelligence to promote an agent inside the [[United States]] by making him appear as a billionaire playboy philanthropist.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:02:00) [[Nicholas J. Fuentes]] alleged that Israeli intelligence uses [[Les Wexner]] and [[Leon Black]] to give "their guy" $500 million to create a cover identity, using [[Victoria's Secret]] as a source for recruiting girls.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:06:00) [[Nicholas J. Fuentes]] alleged that a "backend" security vulnerability was created in [[America's]] elite by Israel through people like [[Nelson Rockefeller]] and the [[Rothschild family]], [[who]] gave [[Jeffrey Epstein]] his fortune, crib, and models.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:07:14) [[Nicholas J. Fuentes]] argued that [[Jews|Jewish people]] cannot be allowed at the highest level of society because they will get "their guy in the club" for Israel, citing [[Larry Ellison]], [[Les Wexner]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[Larry Fink]] as examples.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:08:40) [[Nicholas J. Fuentes]] characterized [[Jews|Jewish people]] within the elite as a "fifth column" with no loyalty other than to each other and to Israel, contrasting them with a disorganized elite composed of various other groups.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:09:45) [[Nicholas J. Fuentes]] announced a "super show" for Friday to map out the entire "[[Jeffrey Epstein|Epstein]] network," including [[Leon Black]], [[Les Wexner]], [[Peter Thiel]], members of the [[Donald Trump|Trump administration]], and allies in Israel.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:26:32) [[Nicholas J. Fuentes]] cited Rabbi [[Abraham Isaac Kook]] and his son, described as some of the foremost rabbis in Israel, [[who]] teach that the mass apostasy of [[Christianity|Christians]] is a necessary step for them to eventually worship the God of the [[Jews]] and accept [[Jews]] as their superiors.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:28:12) [[Nicholas J. Fuentes]] stated that [[Jeffrey Epstein]] is a [[Jews|Jew]] connected to Israel, and that [[Benjamin Netanyahu|Bibi]] is in a coalition with people [[who]] believe in a "greater Israel," aiming to build the Third Temple.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:29:21) [[Nicholas J. Fuentes]] defined [[United States|America]] as "Christendom," the civilization that has evangelized the world, and framed the conflict as the triumph of Israel over the "new [[Rome]], [[United States|America]]."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:30:07) [[Nicholas J. Fuentes]] rejected the "Khazarian mafia" theory propagated by [[Candace Owens]] as a distraction from the real story of [[Jeffrey Epstein]] being a [[Jews|Jew]] in the service of Israel.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:16:47.640) [[Nicholas J. Fuentes]] stated that the far left's criticism of Israel is done for the wrong reasons.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:20:25.130) [[Nicholas J. Fuentes]] reported that [[The Young Turks|Cenk Uygur]] appeared on [[Tucker Carlson]]'s show for two hours to discuss Israel.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:20:47.560) [[Nicholas J. Fuentes]] characterized [[The Young Turks|Cenk Uygur]] and [[Tucker Carlson]] as repeatedly stating that their criticism of Israel is confined to its government and has nothing to do with Israel, [[Jews]], or Judaism.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:28:44.770) [[Nicholas J. Fuentes]] described the collective strategy of [[Jews]] in the diaspora as creating a "two-prong strategy": liberal universalism in the diaspora and a powerful [[state]] of Israel as a long-term bet.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:30:07.230) [[Nicholas J. Fuentes]] stated that [[Jews]] in the diaspora advocate for liberalism and open borders, while [[Jews]] in Israel seek to empower the [[state]] as a survival strategy.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:31:04.340) [[Nicholas J. Fuentes]] suggested that the ultimate goal for global [[Jews]] is for all [[Jews]] to eventually go to Israel for safety.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:31:14.940) [[Nicholas J. Fuentes]] claimed that the Israeli lobby exists in every capital of every great power to neutralize threats.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:33:05.320) [[Nicholas J. Fuentes]] stated that 20% of [[United States|American]] [[Jews]] believe in helping Israel as a last stand.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:33:27.160) [[Nicholas J. Fuentes]] claimed that Israel bribed the [[United States]] government to fight its wars.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:35:33.560) [[Nicholas J. Fuentes]] stated that policies like open borders and aid to Israel are good for international [[Jews|Jewry]], not for [[United States|America]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:36:50.980) [[Nicholas J. Fuentes]] asserted that both liberal and conservative [[Jews]] are in favor of mass immigration, supporting Israel, and passing anti-Semitism laws.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:12:00.000) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 with the help of Israel.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:12:10.000) [[Nicholas J. Fuentes]] referenced an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election between [[Donald Trump]] and Israel.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:12:30.000) [[Nicholas J. Fuentes]] asserted that Israel was "hell-bent" on getting a [[Republican Party|Republican]] elected to destroy the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:14:20.000) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had a solved situation with [[Iran]], but Israel colluded with [[Donald Trump]] to create a ladder of escalation.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:16:00.000) [[Nicholas J. Fuentes]] argued that the [[Canary Mission]] is an Israeli-funded blacklist used by the [[Donald Trump|Trump administration]] since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:23:38) [[Elon Musk]] visited the [[White House]] with a [[black]] eye, which was his last visit to the [[White House|Oval Office]], and occurred a week before Israel bombed [[Iran]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:34:22) [[Nicholas J. Fuentes]] argued that if [[Miriam Adelson]], Israel, and [[Elon Musk]] can pull [[Donald Trump]]'s strings because they contribute money, and if [[Donald Trump|Trump]] employs [[Kash Patel]] and [[Pam Bondi]], they cannot possibly investigate the [[Jeffrey Epstein|Epstein]] affair.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:36:55) [[Nicholas J. Fuentes]] argued that the [[Jeffrey Epstein]] files are hanging over [[Donald Trump]]'s head like a dagger, and that if [[Donald Trump|Trump]] does not bring the [[United States]] to war with [[Iran]] or play ball with the Israel lobby and billionaires, the dagger will fall.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:37:52) [[Nicholas J. Fuentes]] argued that [[John Thune]], [[Susan Collins]], and [[Lisa Murkowski]] would be among the [[Republican Party|Republican]] senators to defect and convict [[Donald Trump]] if pressured by Israel and the billionaires, potentially leading to [[Donald Trump|Trump]]'s removal from office.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:21:05) [[Nicholas J. Fuentes]] stated that [[Kanye West]] called out Israel, went on [[Alex Jones]]' show, said he loved [[Adolf Hitler|Hitler]], and lost billions, changing the conversation.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(00:35:43) [[Nicholas J. Fuentes]] asked whether the [[United States]] controls its own military and government or if Israel does.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:00:51) [[Nicholas J. Fuentes]] stated that [[Donald Trump|Trump]] got elected in 2016 with the help of the Israelis.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:00) [[Nicholas J. Fuentes]] cited an excerpt from [[James Bamford]]'s book *Spy Fail* to argue that the hidden collusion in the 2016 election was between [[Donald Trump|Trump]] and Israel, not [[Donald Trump|Trump]] and [[Russian Federation|Russia]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:01:18) [[Nicholas J. Fuentes]] said that the reason Israel got [[Donald Trump]] elected in 2016 was to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:02:02) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had the [[Iran]] issue solved with the nuclear deal, but that the Israelis hated [[Barack Obama|Obama]] for it and colluded with [[Donald Trump|Trump]] so that [[Donald Trump|Trump]] would create a "ladder of escalation."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:05:10) [[Nicholas J. Fuentes]] stated that Israel has so much control over the [[United States|U.S.]] government that it is an "[[Israel first]]" policy.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:43:59) [[Nicholas J. Fuentes]] repeated his question about whether the [[United States]] or Israel controls the [[United States|U.S.]] government and military.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:05:07) [[Nicholas J. Fuentes]] repeated his description of the Canary Mission as an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration to [[target]] pro-[[Palestine|Palestinian]] individuals.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:07:14) [[Nicholas J. Fuentes]] repeated that he will never be okay with presidents bowing to Israel.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:08:48) [[Nicholas J. Fuentes]] repeated that the Israelis hated [[Barack Obama]] and that [[Benjamin Netanyahu|Netanyahu]] defied him in a speech to [[U.S. Congress|Congress]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:09:01) [[Nicholas J. Fuentes]] repeated that [[Donald Trump|Trump]] was elected in 2016 with the help of the Israelis to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:10:23) [[Nicholas J. Fuentes]] repeated that the Israelis colluded with [[Donald Trump|Trump]] to create a "ladder of escalation" against [[Iran]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:37:55) [[Nicholas J. Fuentes]] argued that just because [[the left]] is at war with Israel does not make them an ally, stating "the enemy of our enemy is not always our friend."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:40:53) [[Nicholas J. Fuentes]] argued that [[the left]] has a problem with Israel because Israel is capitalist, pro-Western, and a product of [[United Kingdom|British]] imperialism.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:41:57) [[Nicholas J. Fuentes]] argued that his own opposition to Israel is about identity: that non-[[Europe|European]], non-[[Christianity|Christian]] people are using their influence to enrich themselves and support Israel.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:42:48) [[Nicholas J. Fuentes]] argued that a government of white [[Christianity|Christians]] would not put Israel over [[United States|America]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:45:11) [[Nicholas J. Fuentes]] suggested that Israel could make a case for an alliance with the right by killing [[Hasan Piker]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:49:20) [[Nicholas J. Fuentes]] stated that the right must extricate itself from "left-wing capture" on the issue of Israel.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:52:47) [[Nicholas J. Fuentes]] stated he is compassionate and does not think the [[United States]] should supply Israel with bombs to kill [[Palestine|Palestinians]], but that he will not be "guilt-tripped" on his own soil.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:53:00) [[Nicholas J. Fuentes]] stated that the [[Jews]] want [[United States|Americans]] to fight for Israel, while [[the left]] wants [[United States|Americans]] to fight for "[[Somalia|Somali]] scammers," but he is saying "[[America first]], [[United States|Americans]] first, [[Europe|European]] civilization first, Christendom first."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:56:48) [[Nicholas J. Fuentes]] stated that [[the left]] wants to keep [[Somalia|Somalians]], and the Israelis want to deport [[Islam|Muslims]], but his patience is at its limit with "all of these alien tribes."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:03:51) [[Nicholas J. Fuentes]] argued that liberal [[Jews]] used their influence in media, academia, and finance to make [[United States|America]] more right-wing, allowing [[Donald Trump|Trump]] to win because they knew he was a vehicle for Israel's revenge.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:08:20) [[Nicholas J. Fuentes]] argued that the Israelis poisoned [[Donald Trump|Trump]]'s relationship with [[Iran]] by pushing him to assassinate [[Qasem Soleimani]], rip up the nuclear deal, and brand the [[Iran|IRGC]] a terrorist group, making diplomacy impossible.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:08:57) [[Nicholas J. Fuentes]] argued that the Israelis fabricated a myth that [[Iran]] was trying to assassinate [[Donald Trump|Trump]] to further poison relations.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:09:52) [[Nicholas J. Fuentes]] said that the Israelis propagandized the world about an imminent [[Iran|Iranian]] nuclear capability, leading to their preemptive attack in June.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:11:18) [[Nicholas J. Fuentes]] argued that [[Iran]]'s nuclear program was never the real problem; the real problem is that Israel cannot tolerate the existence of a large, powerful Islamist [[state]] that does not recognize Israel.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:11:58) [[Nicholas J. Fuentes]] argued that Israel wants [[Iran]] destroyed, just as it wanted [[Saddam Hussein]] and [[Bashar al-Assad]] destroyed.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:12:17) [[Nicholas J. Fuentes]] argued that [[Iran]] built a nuclear hedge in reaction to [[United States]] and Israel overthrowing regimes in [[Iraq]] and [[Syria]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:12:55) [[Nicholas J. Fuentes]] stated that the [[United States|U.S.]] interest in [[Iran]] is limited, but Israel's is unlimited, and Israel wants [[Iran]] wiped out.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:14:33) [[Nicholas J. Fuentes]] argued that taking out [[Iran]]'s nuclear program in June only left [[Iran]] vulnerable, which is what Israel wants in order to then pursue its goal of destroying [[Iran]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:15:36) [[Nicholas J. Fuentes]] argued that from the [[United States|American]] perspective, the nuclear hedge was removed, but from Israel's perspective, the "runway has been cleared" to degrade [[Iran]]'s other capabilities.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:17:46) [[Nicholas J. Fuentes]] explained that after the June strike, the [[United States]] thought it was done, but Israel saw it as "phase one complete."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:18:58) [[Nicholas J. Fuentes]] argued that [[Iran]]'s other deterrents include ballistic missiles and proxies like [[Hezbollah]] and the [[Houthis]], and that Israel cannot attack all of them simultaneously.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:20:57) [[Nicholas J. Fuentes]] stated that [[Iran]] realized it cannot trust the [[United States]] and that the [[United States]] is the "junior partner" in Israel's foreign policy.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:23:25) [[Nicholas J. Fuentes]] laid out the cycle: Israel wants to destroy [[Iran]], [[Iran]] reconstitutes its deterrents, so Israel will want to go back to war before [[Iran]] can rebuild.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:23:56) [[Nicholas J. Fuentes]] said that [[Iran]] cannot be allowed to reconstitute, so Israel will want to go to war again soon.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:24:43) [[Nicholas J. Fuentes]] argued that the Israelis will spin the situation by saying the first strike accelerated [[Iran]]'s path to nuclearization, necessitating a second strike.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(03:26:20) [[Nicholas J. Fuentes]] argued that the June strike was a mistake because Israel got the [[United States]] to bomb [[Iran]] directly, making the [[United
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:00:51) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] was elected in 2016 with the help of Israel, citing an excerpt from [[James Bamford]]'s book "Spy Fail" which he said details "hidden collusion."
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:01:07) [[Nicholas J. Fuentes]] claimed that the collusion in the 2016 election was not between [[Donald Trump|Trump]] and [[Russian Federation|Russia]], but between [[Donald Trump|Trump]] and Israel.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:01:13) [[Nicholas J. Fuentes]] argued that Israel was determined to get a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran|Iranian]] nuclear deal, which happened when the [[United States]] withdrew from it.
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:02:00) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] problem with the nuclear deal, and that Israel colluded with [[Donald Trump]] to get him elected so he would escalate the conflict into a "Forever War."
+
+### 2026-01-29 ABOLISH ICE Government Shutdown To DEFUND DHS, STOP ICE  America First Ep. 1630
+(01:05:10) [[Nicholas J. Fuentes]] stated that it is "kind of [[Israel first]]" and that Israel has "so much control over our government right now."
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(02:34:35) [[Nicholas J. Fuentes]] argued that [[Mainstream media]] had acquiesced to the [[Republican Party|Republican]] ascendancy after [[October 7th Attack|October 7th]] because the media is [[Jews|Jewish]], wanting Israel's enemies destroyed.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(36:01:44) [[Nicholas J. Fuentes]] questioned whether [[the United States]] controls its own military and government or if Israel does.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(56:50:25) The Canary Mission is an Israeli-funded blacklist that the [[Donald Trump|Trump administration]] has used since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(57:51:32) [[Palantir Technologies]], a company aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens and works with four federal agencies.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(59:01:69) [[Nicholas J. Fuentes]] stated that he will never accept [[United States|U.S]]. presidents having to kiss the wall in Israel and say "make Israel great again."
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(01:01:07:87) [[James Bamford]]’s book *Spy Fail* details hidden collusion between [[Donald Trump]] and Israel during the 2016 election to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:08:46:84) [[Nicholas J. Fuentes]] argued that left-wing pundits have bundled criticism of Israel, [[Jeffrey Epstein]], and [[Jews]] with left-wing ideology, creating a perception that all left-wing positions are pro-[[Palestine|Palestinian]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:12:24:40) [[Nicholas J. Fuentes]] stated that left-wing radicals hide their support for open borders behind criticism of Israel because shitting on Israel is popular.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:07:56:91) [[Nicholas J. Fuentes]] argued that left-wing figures like [[Hasan Piker]], [[The Young Turks|Cenk Uygur]], and [[Max Blumenthal]] are tying criticism of Israel to support for open borders to trick normies into supporting white genocide.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:10:27:76) [[Nicholas J. Fuentes]] dismissed comparisons between [[U.S. Immigration and Customs Enforcement|ICE]] raids in [[Minneapolis]] and the IDF in the [[Gaza Strip|West Bank]], stating that [[U.S. Immigration and Customs Enforcement|ICE]] is arresting people stealing money while Israel is settling disputed territory and massacring people.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:12:18:78) [[Nicholas J. Fuentes]] argued that [[the left]] uses the unpopularity of Israel as a front to push their unpopular agenda of mass amnesty and abolishing [[U.S. Immigration and Customs Enforcement|ICE]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:13:58:08) [[Israel Zangwill]], a [[Jews|Jew]] from Israel, created the myth that [[United States|America]] is a melting pot for all cultures and religions.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:17:50:00) [[Nicholas J. Fuentes]] argued that [[the left]] and the [[Jewish community]] are inextricably linked, and that [[the left]] only criticizes [[Zionism]] because it sees Israel as a capitalist extension of [[United States|U.S]]. hegemony.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:20:08:05) [[Nicholas J. Fuentes]] stated that [[Max Blumenthal]]'s publication [[The Grayzone|The Gray Zone]] originated the false theory that Israel killed [[Charlie Kirk]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:28:30:95) [[Max Blumenthal]] claimed [[Charlie Kirk]] was killed by Israel, based on allegations that [[William Ackman|Bill Ackman]] pressured [[Charlie Kirk]] and that [[Benjamin Netanyahu|Bibi Netanyahu]] bribed him with $200 million, both of which were debunked.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:35:10:60) [[Nicholas J. Fuentes]] declared that he is anti-mass migration, anti-Israel, anti-[[Burkina Faso]], anti-[[Russian Federation|Russia]], anti-[[Iran]], anti-[[Venezuela]], and pro-[[United States|America]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(00:56:49) The Canary mission is an Israeli-funded blacklist that since July 2025 has been used by the [[Donald Trump|Trump]] administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:00:51) [[Donald Trump|Trump]] was elected in 2016 with the help of the Israelis, as detailed in an excerpt from [[James Bamford]]'s book *Spy Fail*, which describes hidden collusion between [[Donald Trump|Trump]] and Israel.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:01:07) Israel was determined to get a [[Republican Party|Republican]] elected in 2016 in order to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:05:09) [[Nicholas J. Fuentes]] stated that Israel has so much control over the [[United States]] government.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:05:07) The Canary mission is an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration since July 2025 to [[target]] opponents of Israel in the [[United States]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:38:10) [[Nicholas J. Fuentes]] predicted that people would try to connect the [[United States]] acquisition of [[Country of Greenland|Greenland]] to Israel, and noted online users had posted a clip of [[Benjamin Netanyahu|Netanyahu]] saying the word "[[Country of Greenland|Greenland]]".
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(35:42:990) [[Nicholas J. Fuentes]] questioned whether the [[United States]] or Israel controls the [[United States]]'s military and government.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(56:49:930) [[Nicholas J. Fuentes]] reported that the Canary Mission, an Israeli-funded blacklist, has been used by the [[Donald Trump]] administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(59:53:320) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], and that Israeli officials were furious.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:00:51:580) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] was elected in 2016 with the help of Israel, citing an excerpt from [[James Bamford]]'s book *Spy Fail* about hidden collusion in the 2016 election, which he claimed was between [[Donald Trump|Trump]] and Israel, not [[Russian Federation|Russia]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:01:13:070) [[Nicholas J. Fuentes]] stated that Israel was determined to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], which is why they helped get a [[Republican Party|Republican]] elected in 2016.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:02:02:900) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] had solved the conflict with [[Iran]] through the deal, but Israelis hated him for it, colluded with [[Donald Trump|Trump]], and created a ladder of escalation.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:07:33:120) [[Nicholas J. Fuentes]] directed insults at [[Jews|Jewish people]] and Israel in response to the mayor's statement, saying "Fuck your tiny hat. Fuck Israel."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:39:18:780) [[Nicholas J. Fuentes]] reported that the woman, a former candidate for statewide office, wrote a [[Facebook]] comment on January 7th pointing out the mayor's hypocrisy on Israel and [[Palestine]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:39:50:680) [[Nicholas J. Fuentes]] reported that [[Stephen Minor]], the mayor, sought to evict an independent cinema from its [[city]]-owned space for airing *No Other Land*, a documentary on Israeli forces demolishing a [[Palestinian]] town in the [[Gaza Strip|West Bank]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:41:33:630) [[Nicholas J. Fuentes]] argued that the [[Concept|First Amendment]] is a license to say whatever a [[person]] wants, including criticizing [[Jews]], Israel, and the [[Jews|Jewish]] mayor.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:48:40:010) [[Nicholas J. Fuentes]] stated that [[Jews]] say Israel has a right to exist as a [[Jews|Jewish]] country, but believe white people are not entitled to a country such as [[France]], [[Italian Republic|Italy]], [[Germany]], [[United Kingdom|England]], or [[United States|America]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:19:13) [[Nicholas J. Fuentes]] argued emphatically that the global power struggle is fundamentally about [[Jews]] and Israel, not generic Satanists.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:45:50) [[Nicholas J. Fuentes]] stated that [[Brett Cooper]] told [[Randy Fine]] he would be more comfortable in Israel.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:53:20) [[Nicholas J. Fuentes]] stated his belief that Israel benefits from anti-Semitism because it incentivizes powerful [[United States|American]] [[Jews]] to move to Israel.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:53:47) [[Nicholas J. Fuentes]] cited historical examples of [[Zionists]] creating anti-Semitic pogroms in [[Iraq]] (Mesopotamia) to drive [[Jews]] to Israel.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:18:06) [[Turkey]], [[Saudi Arabia]], [[Qatar]], and Israel lobbied [[Washington D.C.]] against the strike on [[Iran]], saying they were not ready and would not allow the use of their airspace.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:06:27) [[Nicholas J. Fuentes]] asserted that wealthy elites connected to the [[Donald Trump|Trump]] administration are benefiting from [[Artificial Intelligence|AI]] investment, deregulation in the [[United States]], energy production, intervention in the Middle East, corporate tax cuts, and interest rate reductions.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(03:10:56) [[Nicholas J. Fuentes]] stated that [[San Francisco Bay Area|Silicon Valley]], [[The Wall Street Journal|Wall Street]], foreigners, and Israel "need to fucking lose" and that "[[United States|Americans]] need to start winning."
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(18:13:000) [[Nicholas J. Fuentes]] endorsed a policy of taking territory globally, citing [[Russian Federation|Russia]]'s actions in [[Ukraine]] and Israel's expansions as examples.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(21:00:000) [[Nicholas J. Fuentes]] argued that the true inheritors of the [[America First]] movement must "get more radical, not less" and take [[Donald Trump]]'s policies further, such as expanding deportations and restraining Israel.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:43:01) [[Nicholas J. Fuentes]] laughed at a joke suggesting [[Adolf Hitler]] asked if Poland had [[Catholic Church|Catholic]] Slavs in the [[Germany|German]] empire, and [[Joseph Stalin]] asked if they would take over [[Germany]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:43:56) [[Nicholas J. Fuentes]] agreed that after a successful [[Iran|Iranian]] revolution, Israel would "destroy all of [[Iran|Iran's]] weapons."
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(00:35:43) [[Nicholas J. Fuentes]] asked when a leader will “put their foot down and reassert [[United States|American]] sovereignty,” questioning whether the [[United States]] or Israel controls the [[U.S. Department of Defense|U.S. military]] and government.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(00:56:49) [[Nicholas J. Fuentes]] described the Canary Mission as an Israeli-funded blacklist used since July 2025 by the [[Donald Trump|Trump]] administration to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(00:58:57) [[Nicholas J. Fuentes]] declared that as long as [[United States|U.S]]. presidents have to “kiss the wall” in Israel and declare to “make Israel great again,” he will never be okay with it, regardless of any concessions.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:00:42) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 “with the help of the Israelis,” citing an excerpt from [[James Bamford]]'s book *Spy Fail* about alleged collusion between [[Donald Trump|Trump]] and Israel to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:02:02) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had “solved” the [[Iran]] issue with the nuclear deal, but that Israelis colluded with [[Donald Trump|Trump]] to create an escalation ladder that led to the forever war with [[Iran]] that began in 2018.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:26:33) [[Nicholas J. Fuentes]] criticized the response to Renee Good's death, specifically rejecting the idea that [[U.S. Immigration and Customs Enforcement|ICE]] is trained by the Israeli Defense Forces and that the incident represents [[Donald Trump]] “sickening the [[Israel Defense Forces|IDF]] on white people.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:31:49) [[Nicholas J. Fuentes]] predicted that if the [[United States]] launched a missile strike on [[Iran]], [[Iran]] would retaliate against Israel and [[U.S. Department of Defense|U.S. military]] bases across the [[Middle East]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:37:15) [[Nicholas J. Fuentes]] asked [[who]] is arming the [[Kurdistan|Kurds]] in [[Iran]] and [[Syria]], answering that it is Israel and the [[Central Intelligence Agency|CIA]], and that the arms provided by Western intelligence are meant to topple the government through a “color revolution” or “Arab Spring” tactic.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:41:55) [[Nicholas J. Fuentes]] listed a series of conspiracy theories surrounding [[Charlie Kirk]]'s death, starting with a donation from Israel and a meeting with [[William Ackman|Bill Ackman]], then moving to “targeted energy weapons, trap doors, body doubles, a secret beekeeper society,” and Egyptian planes.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:44:31) [[Nicholas J. Fuentes]] traced the evolution of the conspiracy: it started with someone embezzling money at [[Turning Point USA]], then turned into Israel killing him for turning against them, then Israel, [[France]], [[Arab Republic of Egypt|Egypt]], and the [[United States]] all working together, and finally the idea that he was an indigo child groomed by extraterrestrials to break the “space-[[time]] continuum.”
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(00:56:49) The Canary Mission was described as an Israeli-funded blacklist used by the [[Donald Trump]] administration since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:01:04) [[Nicholas J. Fuentes]] argued that Israel interfered in the 2016 [[United States|U.S]]. election to get [[Donald Trump]] elected for the purpose of scuttling the [[Iran]] nuclear deal, citing an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:41:00) [[Nicholas J. Fuentes]] stated that he had been predicting since October 2023 that Israel's campaign in [[Gaza Strip|Gaza]] and [[Lebanon]] would culminate in a regime change in [[Iran]] involving the [[United States]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:41:30) [[Nicholas J. Fuentes]] argued that Israel's long-term strategic goal was to dismantle [[Iran]]'s proxy network, nuclear hedge, and missile capability, thereby clearing a pathway for a decapitation strike or regime change.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:44:50) [[Nicholas J. Fuentes]] noted that after the [[United States]] and Israel bombed [[Iran]] the previous June in a "12-day war," the strikes had an 80% approval rating within the [[Republican Party|GOP]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:46:15) [[Nicholas J. Fuentes]] claimed that starting in 2021, Israel escalated a shadow war against [[Iran]] by assassinating nuclear scientists, launching cyber attacks on infrastructure, and conducting industrial espionage.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:47:30) [[Nicholas J. Fuentes]] argued that Israel's strategic objective in the [[Middle East]] is to create a "mosaic of statelets" by dismembering powerful [[Islam|Muslim]] countries so that none can threaten Israel.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:49:30) [[Nicholas J. Fuentes]] argued that Israel wanted the [[United States]] to overthrow [[Saddam Hussein]] in [[Iraq]] and divide the country into a Kurdish [[state]], a [[Shiite]] [[state]], and a [[Sunni]] [[state]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:49:40) [[Nicholas J. Fuentes]] argued that Israel wanted to divide [[Syria]] into an Alawite country, a [[Sunni]] country, a Kurdish country, and a Druze country.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:50:40) [[Nicholas J. Fuentes]] described [[Iran]] as a powerful, populous country with a large middle class and potential, but hindered by its Islamist regime; he stated that Israel has sought regime change there since 1979.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:54:00) [[Nicholas J. Fuentes]] argued that Israel and the [[United States]] sold the public on the idea of "denuclearization" as the goal of the June 2025 strikes against [[Iran]], but their true goal is regime change, which requires the destruction of [[Iran|Iran's]] layered defenses (nukes, missiles, and proxies).
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:56:50) [[Nicholas J. Fuentes]] described how Israel has systematically dismantled [[Iran]]'s proxy network since [[October 7th Attack|October 7th]], including confronting [[Hamas]] in [[Gaza Strip|Gaza]], compelling [[Hezbollah]] to surrender in [[Lebanon]], and collapsing the [[Bashar al-Assad|Assad]] regime in [[Syria]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:57:55) [[Nicholas J. Fuentes]] stated that during the 12-day war in June 2025, Israel's demand for a ceasefire was prompted by the severe damage [[Iran]]'s missile barrages were inflicting on the small country.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:01:55) [[Nicholas J. Fuentes]] described the [[Gaza Strip|Gaza]] ceasefire in September 2025 as meaningless, noting that [[Hamas]] has refused to disarm and Israel wants to lure [[Palestinian]] refugees into a zone they control and then kill them.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:03:15) [[Nicholas J. Fuentes]] stated that Israel claims [[Iran]] has fully replenished its ballistic missile stockpile since the June 2025 war and is preparing to attack.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:04:36) [[Nicholas J. Fuentes]] argued that Israel's request for the [[United States]] to bomb [[Iran]]'s missiles is a "bait and switch," as their true goal is not denuclearization or missile removal, but clearing the way to expand the war and achieve regime change.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:30:10) [[Nicholas J. Fuentes]] argued that bombing [[Iran]] now would have the opposite of the intended effect, as it might rally the pro-regime forces, and that the [[United States]] lacks the necessary force package (including an aircraft carrier) to defend Israel and itself against a retaliatory missile barrage.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:32:35) [[The Jerusalem Post|The Times of Israel]] reported that Israel and Arab officials advised the [[Donald Trump|Trump]] administration to delay striking [[Iran]], fearing that the regime is not yet sufficiently weak for an attack to topple it.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:33:00) [[NBC News]] reported that Israel proposed alternatives to a full military strike, such as assisting [[Iran|Iranians]] in getting around the communications shutdown, toughening economic sanctions, engaging in cyber attacks, or launching targeted strikes.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:34:00) [[Nicholas J. Fuentes]] predicted that the timeline for a [[United States|U.S]]. strike on [[Iran]] is likely the spring (March), as Israel and [[Donald Trump]] are conscious of the midterm election year and would want to take action before the summer.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:40:40) [[Nicholas J. Fuentes]] argued that Israel is undermining the potential for the [[United States]] to have a working relationship with [[Iran]] and that Israel must be restrained to prevent a "decisive military confrontation."
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(02:56:01) The [[United States]] let [[China]] into its hemisphere because it was involved in Israel's wars.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:00:48) The [[United States]] sends $3.8 billion to Israel.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:02:16) [[Nicholas J. Fuentes]] argued that many people [[who]] criticize Israel never let go of their ideological priors.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:02:49) [[Nicholas J. Fuentes]] stated that people [[who]] became "red-pilled" over the past two years came to the movement because Israel is committing a genocide, which has to do with [[Jews|Jewish]] supremacy.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:03:01) [[Nicholas J. Fuentes]] stated that the real problem with [[United States|America]] is that they have a [[Jews|Jewish]] oligarchy making them pay for Israel's genocide.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:03:49) [[Nicholas J. Fuentes]] stated that [[Islam|Muslims]] hate Israel because their "homeboys are being killed," and they hate [[United States|America]] too.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:05:43) [[Jeffrey Sachs]] is another liberal [[Jews|Jew]] [[who]] is deeply critical of Israel.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:06:36) [[Nicholas J. Fuentes]] argued that if a right-wing nationalist faction takes power and throws off Israel, [[Islam|Muslims]] will still be angry and will want to stay.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:08:20) [[Nicholas J. Fuentes]] stated that communists and [[Islam|Muslims]] blame Israel for attacks on [[Charlie Kirk]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:01:04) [[Nicholas J. Fuentes]] argued that wanting to invade [[Country of Greenland|Greenland]], [[Venezuela]], and the [[Panama Canal]] is not about Israel, but about [[United States|American]] power, claiming [[United States|America]] is [[Rome]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:35:46) [[Nicholas J. Fuentes]] questioned whether [[the United States]] runs the world or if Israel does, and whether the [[United States|U.S. government]] and military are controlled by the [[United States|U.S]]. or by Israel.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:56:37) [[Nicholas J. Fuentes]] described the Canary Mission as an Israel-funded blacklist that, since July 2025, has been used by the [[Donald Trump|Trump]] administration to [[target]] students and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:57:33) [[Nicholas J. Fuentes]] stated that [[Palantir Technologies|Palantir]], a company aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens and works with four federal agencies.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:58:22) [[Nicholas J. Fuentes]] described the [[United States]] as an "occupied nation" ruled by "a small country across an ocean" (implying Israel) serving itself at [[United States|American]] expense.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:00:45) [[Nicholas J. Fuentes]] asserted that the "hidden collusion" in the 2016 election, detailed in [[James Bamford]]'s book *Spy Fail*, was not between [[Donald Trump]] and [[Russian Federation|Russia]], but between [[Donald Trump]] and Israel.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:00) [[Nicholas J. Fuentes]] argued that Israel was determined to elect a [[Republican Party|Republican]] in 2016 to scuttle the [[Iran]] nuclear deal.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(01:01:50) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] situation with the nuclear deal, but Israel colluded with [[Donald Trump]] to get him elected, leading to a ladder of escalation that included withdrawing from the deal, declaring the [[Iran|IRGC]] terrorists, and killing [[Qasem Soleimani|Soleimani]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(02:06:33) [[Nicholas J. Fuentes]] described the Canary Mission as an Israel-funded blacklist used by the [[Donald Trump|Trump]] administration to [[target]] [[United States|Americans]] [[who]] oppose Israel, operating in conjunction with [[Palantir Technologies|Palantir]] to circumvent constitutional protections.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:21:17) [[Nicholas J. Fuentes]] stated that the "generational run" of his show gained traction in May and June 2025, not because of a major interview, but because of his accurate predictions regarding the Israel-[[Iran]] conflict.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:23:03) [[Nicholas J. Fuentes]] argued that his show's success stemmed from being "the only one" to predict that [[Donald Trump]] would be elected as the pro-Israel candidate and would take the [[United States]] to war with [[Iran]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:43:22) [[Nicholas J. Fuentes]] argued that the [[Jews|Jewish]] oligarchy spends [[United States|American]] resources fighting Israel's wars, hates white people, and wants them dead.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(04:04:05) [[Nicholas J. Fuentes]] demanded that the [[Republican Party|GOP]] provide an immigration moratorium and restraint on Israel in exchange for his vote, and threatened to "burn it to the ground" if they do not.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(00:35:41) [[Nicholas J. Fuentes]] asked whether Israel or the [[United States]] controls the [[United States|U.S. government]] and military.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(00:56:37) [[Nicholas J. Fuentes]] stated that the Canary Mission is an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration to [[target]] students and professors in the [[United States]] [[who]] oppose Israel.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:00:41) [[Nicholas J. Fuentes]] attributed the collusion in the 2016 election to [[Donald Trump|Trump]] and Israel, citing an excerpt from [[James Bamford]]'s book "Spy Fail" titled "Spycraft."
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(01:58:10) [[Nicholas J. Fuentes]] argued that "[[America First]]" is impossible if political and economic power is held by people [[who]] identify principally as [[Jews]] and prioritize the "global [[Jews|Jewish]] population" and Israel over the [[United States]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:14:27) [[Nicholas J. Fuentes]] claimed [[Ben Shapiro]]'s criticism targeted people [[who]] had all criticized Israel's conduct in [[Gaza Strip|Gaza]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:23:10) [[Nicholas J. Fuentes]] noted that [[Ben Shapiro]] lives in a [[Jews|Jewish]] enclave in [[State of Florida|Florida]] and created a website dedicated to supporting Israel.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:27:14) [[Nicholas J. Fuentes]] stated that if [[Jews|Jewish people]] in media have an affinity for Israel, conclusions about them are valid.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:35:05) [[Nicholas J. Fuentes]] stated the [[Anti-Defamation League|ADL]] is a hate [[organization]] that hates white people and has direct connections to Israel.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:03:16) [[Nicholas J. Fuentes]] read that [[Vivek Ramaswamy]] wrote it is acceptable to criticize aid to Israel but unacceptable to "spew poison towards [[Jews]]."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(00:35:41) [[Nicholas J. Fuentes]] posed a series of rhetorical questions, asking whether the [[United States]] or Israel "run[s] the world," runs the country, and controls the military and government.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:00:59) [[Nicholas J. Fuentes]] claimed, citing [[James Bamford]]'s book *Spy Fail*, that the hidden collusion in the 2016 election was not between [[Donald Trump|Trump]] and [[Russian Federation|Russia]], but between [[Donald Trump|Trump]] and Israel.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:00) [[Nicholas J. Fuentes]] argued that Israel's motivation for getting a [[Republican Party|Republican]] elected in 2016 was to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:01:34) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] "had this solved" with the nuclear deal, but that Israel "colluded with [[Donald Trump|Trump]] to get him elected" so that [[Donald Trump|Trump]] would create a "ladder of escalation."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(01:04:30) [[Nicholas J. Fuentes]] asserted that Israel has "so much control over our government" and that Groypers and alt-righters [[who]] were banned, slandered, or driven to suicide "paved the way" with "our corpses."
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:07:03) [[Nicholas J. Fuentes]] repeated a prediction he made last year: that [[Donald Trump|Trump]] would go to "the [[American Israel Public Affairs Committee|Israel lobby]] and [[The Wall Street Journal|Wall Street]]," delivering tax cuts for [[The Wall Street Journal|Wall Street]], a war with [[Iran]], and Israel getting the [[Gaza Strip|West Bank]], but not mass deportations or lower inflation.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:50:15) [[Nicholas J. Fuentes]] called for "an [[United States|American]] lobby" to counter the Israel lobby, arguing the [[Donald Trump|Trump]] administration fears upsetting Israelis because [[Ben Shapiro]] will not vote for [[Donald Trump|Trump]] if he doesn't think he is pro-Israel.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:51:37) [[Nicholas J. Fuentes]] argued that if [[United States|Americans]] take their own side and use their vote and money in their own defense, politicians will listen, just as [[Jews|Jewish people]] get their end taken care of for Israel.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(00:34:05) [[Nicholas J. Fuentes]] questioned whether [[the United States]] or Israel runs the world and the [[United States|U.S. government]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(00:57:18) [[Nicholas J. Fuentes]] reported that the Canary Mission is an Israeli-funded blacklist, confirmed since July 2025 to be used by the [[Donald Trump|Trump]] administration to [[target]] students and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(00:58:07) [[Nicholas J. Fuentes]] reported that [[Palantir Technologies|Palantir]], a company he described as aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens and works with four federal agencies.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(00:59:22) [[Nicholas J. Fuentes]] stated that he will never be okay with [[United States|U.S]]. presidents kissing the wall in Israel and saying "make Israel great again," and that no concessions from that country would make it acceptable.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:01:20) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 with the help of Israel, based on an excerpt from [[James Bamford]]'s book *Spy Fail*.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:01:41) [[Nicholas J. Fuentes]] argued that Israel was hell-bent on getting a [[Republican Party|Republican]] elected in 2016 to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:02:28) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] problem with the deal, but Israel and [[Donald Trump]] colluded to create a ladder of escalation.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(01:43:51) [[Nicholas J. Fuentes]] questioned whether the [[United States]] controls its own military and government or if Israel does.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:08:07) [[Nicholas J. Fuentes]] reported that [[Palantir Technologies|Palantir]], a company he described as aligned with Israel, works with four federal agencies in the [[United States]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:09:22) [[Nicholas J. Fuentes]] stated that he will never be okay with [[United States|U.S]]. presidents kissing the wall in Israel.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:11:07) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]] was elected in 2016 with the help of Israel to scuttle the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], citing [[James Bamford]]'s book *Spy Fail*.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(02:53:44) [[Nicholas J. Fuentes]] questioned whether the [[United States]] or Israel runs the world and the [[United States|U.S. government]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:17:45) [[Nicholas J. Fuentes]] suggested that the government could just stop supporting Israel instead of condemning him.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:25:16) [[Nicholas J. Fuentes]] stated that the conspiracy started as Israel being responsible for [[Charlie Kirk]]'s death, then widened to include the [[Federal Bureau of Investigation|FBI]], the [[Donald Trump|Trump]] administration, [[France]], and [[Arab Republic of Egypt|Egypt]], and now implicates [[Charlie Kirk]]'s family and wife.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:08:45) [[Nicholas J. Fuentes]] stated that [[Charlie Kirk]]'s website was an open letter to [[Jews|Jewish]] donors, emphasizing [[Turning Point USA]]'s support for Israel and distancing the [[organization]] from [[Candace Owens]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:18:54) [[Nicholas J. Fuentes]] stated that his convictions about Israel, the [[Catholic Church]], and "race realism" are all results of where the truth led him.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:24:43) [[Nicholas J. Fuentes]] rejected the idea of filling "a loot crate full of bullshit" to justify an anti-Israel narrative, stating he is only interested in what is true.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:27:48) [[Nicholas J. Fuentes]] argued that if the assassination of [[Charlie Kirk]] were a false flag operation by Israel, the patsy would not be a white male former [[Donald Trump|Trump]] supporter, but rather a [[Islam|Muslim]] or [[Palestinian]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:52:52) [[Nicholas J. Fuentes]] praised "academic agent" for his content and forgave him for calling [[him]] a [[Jews|Zionist]] when he did not immediately assume [[Charlie Kirk]] was killed by Israel.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(00:35:43) [[Nicholas J. Fuentes]] questioned whether the [[United States]] or Israel controls the [[United States|U.S. government]] and military.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(00:56:50) [[Nicholas J. Fuentes]] stated that the "Canary Mission" is an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration since July 2025 to [[target]] students and professionals in the [[United States]] [[who]] oppose Israel.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(00:58:35) [[Nicholas J. Fuentes]] described [[the United States]] as an "occupied nation" ruled by a small country across the ocean (Israel), serving itself at [[United States|America]]'s expense.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(00:58:53) [[Nicholas J. Fuentes]] declared that he will never be okay with [[United States|U.S]]. presidents stating "make Israel great again" or treating Israel as the greatest country, calling this the fundamental political struggle.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:00:52) [[Nicholas J. Fuentes]] asserted that [[Donald Trump|Trump]] was elected in 2016 with help from Israel, citing an excerpt from [[James Bamford]]'s book *Spy Fail* about "hidden collusion" between [[Donald Trump|Trump]] and Israel, not [[Donald Trump|Trump]] and [[Russian Federation|Russia]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:01:12) [[Nicholas J. Fuentes]] argued that Israel supported [[Donald Trump|Trump]]'s election to scuttle the [[Joint Comprehensive Plan of Action|JCPOA]], leading to the [[United States|U.S]]. withdrawal and escalation of a conflict with [[Iran]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:05:09) [[Nicholas J. Fuentes]] stated that Israel has so much control over the [[United States|U.S. government]] that the "[[America First]]" movement now requires the same covert tactics used by previous movements to gain influence.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:44:00) [[Nicholas J. Fuentes]] questioned whether the [[United States]] or Israel runs the world and controls the [[United States|U.S. government]] and military.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:05:07) [[Nicholas J. Fuentes]] stated that the "Canary Mission" is an Israeli-funded blacklist used by the [[Donald Trump|Trump]] administration to [[target]] [[United States|U.S]]. citizens [[who]] oppose Israel, as part of the [[Heritage Foundation]]'s "Project Esther."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:07:03) [[Nicholas J. Fuentes]] described [[the United States]] as an occupied nation ruled by Israel.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:07:27) [[Nicholas J. Fuentes]] declared he will never be okay with [[United States|U.S]]. presidents subordinating [[United States|American]] interests to Israel.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:09:03) [[Nicholas J. Fuentes]] asserted that [[Donald Trump]] was elected in 2016 with the help of Israel, citing collusion to scuttle the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:10:23) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] had "solved" the [[Iran]] issue, but Israel hated him for it and colluded with [[Donald Trump]] to escalate the conflict.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:41:40) [[Nicholas J. Fuentes]] argued that [[Jews]] [[who]] run the media have lost control of the conversation about Israel, which has become extremely unpopular.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:55:55) [[Nicholas J. Fuentes]] summarized [[Oracle Corporation|Larry Ellison]]'s influence: a personal relationship with the prime minister of Israel, allowing [[Benjamin Netanyahu|Netanyahu]]'s family to vacation on his private island, donating more money to Israel's military than any other private citizen, and even persuading a [[Los Angeles|Hollywood]] producer to drop a lawyer so [[Benjamin Netanyahu|Netanyahu]] could retain him for his corruption trial.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:09:01) [[Nicholas J. Fuentes]] argued that [[Oracle Corporation|Larry Ellison]] supports Israel because he is [[Jews|Jewish]] and Israel is the Jewish state, not because of [[Benjamin Netanyahu|Netanyahu]] or neoconservatism.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:10:57) [[Nicholas J. Fuentes]] argued that [[Oracle Corporation|Larry Ellison]] is disloyal to the country that gave him his billions and instead uses his resources to benefit Israel.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:11:20) [[Nicholas J. Fuentes]] stated that [[Oracle Corporation|Larry Ellison]] uses his structural influence in tech, politics, and media to control [[United States|American]] institutions on behalf of Israel's national interest.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:18:28) [[Nicholas J. Fuentes]] said he would amend the description of Dokoupil to note he is "[[Jews|Jewish]]," [[who]] got the job because his views align with [[Bari Weiss]] on Israel.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:18:52) [[Nicholas J. Fuentes]] reminded viewers of the interview where Tony Dokoupil aggressively interrogated [[Ta-Nehisi Coates]] about his book on [[Palestine]] and Israel, leading to a reprimand from [[CBS News]] executives.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:20:37) [[Nicholas J. Fuentes]] stated that Tony Dokoupil called [[Ta-Nehisi Coates]] a "terrorist sympathizer" for being critical of Israel.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(35:43:05) [[Nicholas J. Fuentes]] questioned whether [[the United States]] or Israel runs the world and whether the [[United States|US]] government and military are under Israeli control.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(56:50:06) [[Nicholas J. Fuentes]] identified the Canary Mission as an Israeli-funded blacklist that, since July 2025, has been used by the [[Donald Trump|Trump]] administration to [[target]] students and professors [[who]] oppose Israel.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(57:46:08) [[Nicholas J. Fuentes]] claimed that [[Palantir Technologies|Palantir]], a company closely aligned with Israel, uses [[Artificial Intelligence|AI]]-driven analytics to maintain private databases on [[United States|U.S]]. citizens and currently works with four federal agencies.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(58:38:70) [[Nicholas J. Fuentes]] stated that [[the United States]] is an occupied nation being ruled by a small country across an ocean (Israel).
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(59:01:39) [[Nicholas J. Fuentes]] criticized [[United States|U.S]]. presidents for having to "kiss the wall" in Israel and for declaring that the [[United States|US]] wants to make "Israel great again."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(59:54:97) [[Nicholas J. Fuentes]] argued that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Joint Comprehensive Plan of Action|Iran Nuclear Deal]]) in secret, which enraged Israelis.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:00:44:71) [[Nicholas J. Fuentes]] alleged that [[Donald Trump]] was elected in 2016 with the help of Israelis, citing an excerpt from [[James Bamford]]'s book *Spy Fail* which details a "hidden collusion" between [[Donald Trump|Trump]] and Israel.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(01:01:07:94) [[Nicholas J. Fuentes]] claimed that Israel was "hell-bent" on getting a [[Republican Party|Republican]] elected in 2016 in order to scuttle the [[Iran|Iranian]] nuclear deal.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:35:41:07) [[Nicholas J. Fuentes]] described [[Bari Weiss]] as an "Israeli spy" and a trained propagandist, alleging she started a pro-Israel campus group at [[Columbia|Columbia University]] and worked under [[Yoaz Hendel]] in Israel.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:37:25:06) [[Nicholas J. Fuentes]] claimed that [[CBS]] news reporting about Israel is now extremely pro-Israel as a result of [[Bari Weiss]]'s leadership.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:52:45:20) [[Nicholas J. Fuentes]] alleged that throughout 2023 and 2024, Israel committed genocide in [[Gaza Strip|Gaza]] and that the "[[Jews|Jewish]]-controlled media" ran cover for it.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:53:04:89) [[Nicholas J. Fuentes]] accused figures like [[Ben Shapiro]] of caring more about Israel than the [[United States]], and of talking about anti-Semitism while also calling for the killing of [[Palestinian]] children.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:13:50:70) [[Nicholas J. Fuentes]] asked why "some [[Jews|Jew]]" selling a book is still in [[the United States]] if his parents died in [[the Holocaust]], telling him to go to Israel.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:43:41) [[Nicholas J. Fuentes]] claimed that the coordinated attacks against him follow a "full spectrum" playbook, where critics have called him a [[Democratic Party|Democrat]] for not voting for [[Donald Trump]], a "[[Jews|Jew]] hater" for criticizing Israel, a racist for criticizing [[black]] people, a "[[fed]]" by [[Elon Musk]], and now claim his engagement is fake.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:50:17) In 2022, the [[Network Contagion Research Institute]] (NCRI) received a fifth of its funding from the [[Israel on Campus Coalition]], an [[organization]] that takes direction from the Israeli ministry.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:50:42) [[Joel Finkelstein]] and [[Adam Sohn]], co-founders of the [[Network Contagion Research Institute]] (NCRI), were summoned to report their findings to Israeli legislators at the [[Israeli-American Jewry Relations Caucus]] of the Knesset.

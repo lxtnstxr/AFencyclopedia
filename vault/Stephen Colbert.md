@@ -24,7 +24,7 @@
 (29:52:00) [[Louis C.K.]] canceled the premiere of his film *I Love You Daddy* and an appearance on Stephen Colbert's show ahead of a [[The New York Times]] report.
 
 ### AF 2017-10-03 0023
-(00:11:40) Late-night hosts including Stephen Colbert, [[Jimmy Kimmel]], [[Conan O'Brien]], [[Seth Meyers]], and [[Trevor Noah]] advocated for gun control in their monologues after the [[City of Las Vegas|Las Vegas]] shooting.
+(00:11:40) Late-night hosts including Stephen Colbert, [[Jimmy Kimmel]], [[Conan O'Brien]], [[Seth Meyers]], and [[Trevor Noah]] advocated for gun control in their monologues after the [[Las Vegas]] shooting.
 
 ### AF 2017-09-28 0020
 (12:24:00) [[Nicholas J. Fuentes]] recounted watching a segment from Stephen Colbert's *The Late Show* that discussed the [[National Football League|NFL]] kneeling scandal in racial terms.

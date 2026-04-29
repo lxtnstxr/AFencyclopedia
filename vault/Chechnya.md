@@ -12,7 +12,7 @@
 (13:43:30) [[Nicholas J. Fuentes]] referenced a 2002 essay by [[Costin Alamariu|Bronze Age Pervert]] published in *The Tech* at [[Massachusetts Institute of Technology|MIT]], titled "[[Islam|Muslim]] Inaction on Chechnya," which criticized [[Islam|Muslims]] for not condemning [[Russian]] war crimes in Chechnya while being vocal about [[Israel|Israeli]] persecution of [[Palestinians]].
 
 ### AF 2022-03-18 0960
-(01:40:50) [[Nicholas J. Fuentes]] stated that [[Vladimir Putin]] launched a preemptive invasion of [[Ukraine]] to prevent it from falling into the orbit of the [[Kanye West|West]], citing actions in Chechnya, [[City of Sevastopol|Crimea]], the [[Donetsk|Donbass]], and [[Country of Georgia|Georgia]].
+(01:40:50) [[Nicholas J. Fuentes]] stated that [[Vladimir Putin]] launched a preemptive invasion of [[Ukraine]] to prevent it from falling into the orbit of the [[Kanye West|West]], citing actions in Chechnya, [[Crimea]], the [[Donetsk|Donbass]], and [[Country of Georgia|Georgia]].
 
 ### AF 2019-03-18 0349
 (00:59:12) The suspect in the [[Utrecht]] shooting was identified as 37-year-old [[Turkey|Turkish]] national Gokman Tanis, [[who]] was [[known]] to police for alleged ties to [[Islamic State of Iraq and Syria|ISIS]] and had fought in Chechnya.

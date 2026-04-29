@@ -85,3 +85,6 @@
 
 ### AF 2019-09-11 0459
 (05:17:04) [[Nicholas J. Fuentes]] reported that, according to many sources, the masterminds of [[Islamic State of Iraq and Syria|Al-Qaeda]] were inspired to fly planes into skyscrapers by images of burning buildings in Beirut during the 1980s war between [[Israel]] and [[Lebanon]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:05:22) [[Donald Trump]] laid out a justification for the war, citing the [[Iran|Iranian]] hostage crisis, the Beirut barracks bombing, and the use of IEDs by [[Iran|Iranian]]-backed militias.

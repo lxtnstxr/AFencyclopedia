@@ -79,3 +79,27 @@
 
 ### AF 2019-12-18 0516
 (00:39:36) [[Nicholas J. Fuentes]] questioned the altruism of billionaires like Bill Gates, [[Jeff Bezos]], and [[Mark Zuckerberg]], suggesting their promotion of vaccines and public health initiatives served their own monetary and power interests.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:29:44:00) [[Jeffrey Epstein]] connected [[Leon Black]] with Bill Gates and [[Steve Bannon]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:13:15) [[Nicholas J. Fuentes]] said the files provide leads and names, creating a mandate for the [[U.S. Department of Justice|DOJ]] and [[Federal Bureau of Investigation|FBI]] to investigate people named, including [[Donald Trump]], [[George W. Bush]], Bill Gates, and [[Howard Lutnick|Howard Lutnik]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:03:00) [[Nicholas J. Fuentes]] described [[Jeffrey Epstein]] as a "[[Jews|Jewish]] [[patriot]]" [[who]] used his harem to either endear himself to or blackmail powerful people, such as Bill Gates.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:10:17.010) [[Nicholas J. Fuentes]] demanded a full investigation into all individuals named in the files, including [[Howard Lutnick]], [[Elon Musk]], [[Donald Trump]], [[William Jefferson Clinton|Bill Clinton]], [[Hillary Clinton]], and Bill Gates.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:17:14) [[Jeffrey Epstein]] drafted notes to and about Bill Gates in 2013, suggesting Gates engaged in extramarital sex and that [[Jeffrey Epstein|Epstein]] helped him acquire drugs for sex with [[Russian Federation|Russian]] girls and facilitated a rendezvous with married women.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:17:36) [[The Gates Foundation]] called the allegations in the [[Jeffrey Epstein]] emails regarding Bill Gates "absolutely absurd and completely false."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:29:26) [[Nicholas J. Fuentes]] argued that it is the obligation of the representative government, including the [[Federal Bureau of Investigation|FBI]] and the [[U.S. Department of Justice|DOJ]], to investigate the accusations in the [[Jeffrey Epstein]] files against [[Howard Lutnick]], Bill Gates, [[Elon Musk]], [[Richard Branson]], [[Steve Bannon]], and [[Donald Trump]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(04:33:40) [[Nicholas J. Fuentes]] argued that the connections of [[Howard Lutnick]], Bill Gates, and [[Elon Musk]] to [[Jeffrey Epstein]] imply not just a sex crime but political corruption and a nefarious political operation.

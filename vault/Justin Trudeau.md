@@ -30,7 +30,7 @@
 (00:40:02) [[Nicholas J. Fuentes]] declared [[Dominion of Canada|Canada]] "lost" because Justin Trudeau, whom he called a "dictator for life," had just started another term and was implementing intense hate speech laws and gun bans.
 
 ### AF 2022-02-17 0950
-(00:26:32) Justin Trudeau invoked the Emergencies Act, a measure akin to martial law, in response to the Freedom Convoy protests in [[City of Ottawa|Ottawa]].
+(00:26:32) Justin Trudeau invoked the Emergencies Act, a measure akin to martial law, in response to the Freedom Convoy protests in [[Ottawa]].
 
 ### AF 2022-02-17 0950
 (00:48:45) [[Nicholas J. Fuentes]] asserted that Justin Trudeau declaring his own people terrorists and waging war on them to enforce a vaccine mandate had exposed the regime's authoritarian nature.
@@ -39,7 +39,7 @@
 (01:00:31) Trudeau's Public Safety Minister called the bridge protest illegal, accusing the truckers and their supporters of hurting Canadians.
 
 ### AF 2022-02-07 0943
-(01:20:51) [[Nicholas J. Fuentes]] cited an article stating that Justin Trudeau, isolating after a positive [[COVID-19]] test, called the truckers' actions "an insult to truth and memory," while [[City of Ottawa|Ottawa]]'s mayor requested 1,800 police officers to end the "aggressive and hateful occupation."
+(01:20:51) [[Nicholas J. Fuentes]] cited an article stating that Justin Trudeau, isolating after a positive [[COVID-19]] test, called the truckers' actions "an insult to truth and memory," while [[Ottawa]]'s mayor requested 1,800 police officers to end the "aggressive and hateful occupation."
 
 ### AF 2022-02-03 0941
 (28:58:06) [[Canadian]] Prime Minister Justin Trudeau's government implemented a regulation requiring truckers crossing the [[United States]]-[[Dominion of Canada|Canada]] border to be vaccinated to re-enter [[Dominion of Canada|Canada]].

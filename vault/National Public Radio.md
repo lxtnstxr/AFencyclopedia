@@ -49,3 +49,6 @@
 
 ### AF 2018-09-17 0241
 (30:02:58) Media outlets like [[Vox]], the [[The Huffington Post|Huffington Post]], the [[Washington Post]], NPR, and [[NBC News]] published articles scrutinizing [[Mark Judge]]'s past writings about sex following his denial of the allegations against [[Brett Kavanaugh]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:02:01) [[Nicholas J. Fuentes]] quoted an NPR report stating that [[Paramount Global]] sweetened its offer with an all-cash deal valued at $108 billion to take over [[Warner Bros. Discovery|Warner Bros.]], outperforming [[Netflix]]'s offer.

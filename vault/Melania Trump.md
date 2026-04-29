@@ -12,7 +12,7 @@
 (00:44:40) [[Donald Trump]] defended his wife Melania Trump's statement that abortion is a fundamental right and pledged to veto any federal abortion ban bill sent to his desk, a position previously articulated by [[JD Vance]].
 
 ### AF 2020-10-02 0694
-(00:00:47) [[Donald Trump]] and Melania Trump tested positive for the coronavirus, with [[Donald Trump|the president]] experiencing moderate symptoms and being admitted to [[Walter Reed National Military Medical Center]].
+(00:00:47) [[Donald Trump]] and Melania Trump tested positive for the coronavirus, with [[the president]] experiencing moderate symptoms and being admitted to [[Walter Reed National Military Medical Center]].
 
 ### AF 2020-08-26 0669
 (29:36:96) [[Nicholas J. Fuentes]] assessed that [[Lara Trump]] was the best speaker out of the [[Donald Trump|Trump]] family so far, better than [[Eric Trump]], [[Donald Trump Jr.]], and Melania Trump.
@@ -55,3 +55,6 @@
 
 ### AF 2017-08-30 0005
 (50:51:57) [[Nicholas J. Fuentes]] stated that when he sees media attacks on First Lady Melania Trump's fashion during a crisis, he is emboldened because it reveals the absurdity of "clown world" to regular people.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(17:11:32) [[Nicholas J. Fuentes]] commented on individuals attending the speech, including [[Barron Trump]], Melania Trump, and [[JD Vance]].

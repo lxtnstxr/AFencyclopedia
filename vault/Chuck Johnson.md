@@ -48,7 +48,7 @@
 (00:21:46) [[Nicholas J. Fuentes]] argued that social media companies began their censorship campaigns with figures like [[Andrew Anglin]] and Chuck Johnson before moving to mainstream conservatives like [[Steven Crowder]].
 
 ### AF 2018-11-02 0275
-(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[City of Charlottesville|Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], [[Milo Yiannopoulos]], Chuck Johnson, and [[Andrew Anglin]], and later included [[Gavin McInnes]].
+(00:43:48) [[Nicholas J. Fuentes]] stated that the post-[[Charlottesville]] censorship campaign began with the removal of the [[Daily Stormer]], [[Milo Yiannopoulos]], Chuck Johnson, and [[Andrew Anglin]], and later included [[Gavin McInnes]].
 
 ### AF 2018-08-31 0231
 (46:32:38) [[Nicholas J. Fuentes]] recounted how [[Wild Goose]] and [[Paul Towne]] spearheaded the exposure of the "[[Ronald Reagan|Reagan]] Battalion," with [[Paul Towne]] collecting a $10,000 bounty from Chuck Johnson for their efforts.

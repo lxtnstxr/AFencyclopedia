@@ -93,7 +93,7 @@
 (11:08:36) Organizations including [[James Allsup|James Alsop]], [[American Identity Movement|AIM]], American Renaissance, and [[VDARE.com|VDARE]] faced deplatforming and suppression according to [[Nicholas J. Fuentes]].
 
 ### AF 2019-08-26 0448
-(00:22:41) [[Nicholas J. Fuentes]] stated that he attended and spoke at the [[City of Charlottesville|Charlottesville]] "Unite the Right" rally and had spoken to American Renaissance.
+(00:22:41) [[Nicholas J. Fuentes]] stated that he attended and spoke at the [[Charlottesville]] "Unite the Right" rally and had spoken to American Renaissance.
 
 ### AF 2019-08-26 0448
 (00:36:32) [[Nicholas J. Fuentes]] stated that the demographic statistics he cited came from [[Pew Research]], not from sources like [[Peter Brimelow]] at [[VDARE.com|V-Dare]] or [[Jared Taylor]] at American Renaissance.
@@ -232,3 +232,6 @@
 
 ### AF 2017-10-23 0037
 (24:01:570) American Renaissance distributed a poster at [[Boston College]] featuring Uncle Sam and the message "Don't be ashamed for being white," which [[Nicholas J. Fuentes]] cited as effective, accessible outreach.
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(15:19:09) [[Nicholas J. Fuentes]] stated that the white identity movement, including American Renaissance and [[Pierre Brumelow]] of Vidar, refuses to criticize [[Jews]].

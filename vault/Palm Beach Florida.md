@@ -9,4 +9,4 @@
 (00:07:26) [[Nicholas J. Fuentes]] planned a press conference in Palm Beach, Florida to demand that [[Ron DeSantis]] strengthen [[big tech]] censorship legislation, which he believed was toothless.
 
 ### AF 2022-02-15 0947
-(00:09:43) After being denied boarding by [[American Airlines]], [[Nicholas J. Fuentes]] was also prevented from boarding a [[United Airlines]] flight from [[City of Chicago|Chicago]] to Palm Beach, Florida.
+(00:09:43) After being denied boarding by [[American Airlines]], [[Nicholas J. Fuentes]] was also prevented from boarding a [[United Airlines]] flight from [[Chicago]] to Palm Beach, Florida.

@@ -123,10 +123,10 @@
 (01:32:01) [[Nicholas J. Fuentes]] claimed that [[Jewish]] figures like [[Ben Shapiro]], [[Dennis Prager]], and those at Breitbart operate in the [[United States]] as agents of [[Israel]] and [[Jews|world Jewry]] to secure financial and political support from [[Christianity|Christians]].
 
 ### AF 2023-03-11 1129
-(00:01:16) [[Mike Johnson|Kevin McCarthy]] announced in an interview with Breitbart his intention to release all [[January 6th Attack|January 6th]] Capitol footage to the public, pending security reviews with the [[United States Capitol Police|Capitol Police]].
+(00:01:16) [[Kevin McCarthy]] announced in an interview with Breitbart his intention to release all [[January 6th Attack|January 6th]] Capitol footage to the public, pending security reviews with the [[United States Capitol Police|Capitol Police]].
 
 ### AF 2023-03-11 1129
-(01:03:24) [[Mike Johnson|Kevin McCarthy]], in an interview with Breitbart, stated the [[January 6th Attack|January 6th]] committee never consulted the [[United States Capitol Police|Capitol Police]] about security concerns before releasing footage that revealed secure leadership locations.
+(01:03:24) [[Kevin McCarthy]], in an interview with Breitbart, stated the [[January 6th Attack|January 6th]] committee never consulted the [[United States Capitol Police|Capitol Police]] about security concerns before releasing footage that revealed secure leadership locations.
 
 ### AF 2023-02-07 1117
 (35:31:44) [[Nicholas J. Fuentes]] recounted that when he first entered politics, his media diet consisted of [[PJ Media]], Breitbart, and [[The Daily Wire]], which made him a hardcore Zionist and neocon before he was "red-pilled."
@@ -381,7 +381,7 @@
 (00:45:52) [[Nicholas J. Fuentes]] stated that major conservative media outlets like [[Blaze Media|CRTV]], [[The Daily Wire]], and Breitbart are run by Zionists, specifically naming [[Mark Levin]], [[Ben Shapiro]], and the late Andrew Breitbart.
 
 ### AF 2018-12-17 0297
-(02:30:38) Major right-wing online media outlets like [[Prager University|Prager University]], Breitbart, [[Blaze Media|CRTV]], and [[Blaze Media|The Blaze]] were either run by [[Jews|Jewish]] Zionists or people sympathetic to them.
+(02:30:38) Major right-wing online media outlets like [[Prager University]], Breitbart, [[Blaze Media|CRTV]], and [[Blaze Media|The Blaze]] were either run by [[Jews|Jewish]] Zionists or people sympathetic to them.
 
 ### AF 2018-12-06 0290
 (00:07:53) [[Larry Solov]] runs Breitbart News.
@@ -396,7 +396,7 @@
 (00:13:28) Breitbart News was founded in [[Israel]].
 
 ### AF 2018-10-09 0257
-(00:25:00) According to a Breitbart exclusive, [[Mike Johnson|Kevin McCarthy]] planned to introduce a bill in the [[Republican Party|U.S. House of Representatives]] to allocate $23.4 billion to fully fund a border wall.
+(00:25:00) According to a Breitbart exclusive, [[Kevin McCarthy]] planned to introduce a bill in the [[Republican Party|U.S. House of Representatives]] to allocate $23.4 billion to fully fund a border wall.
 
 ### AF 2018-09-12 0238
 (01:27:10) Breitbart released leaked footage from a [[Google]] "TGIF" meeting held the week after the 2016 election, featuring executives including co-founders [[Larry Page]] and [[Sergey Brin]], CFO [[Ruth Porat]], and CEO [[Sundar Pichai]].
@@ -447,7 +447,7 @@
 (00:04:48) [[Nicholas J. Fuentes]] spoke at an [[American Renaissance]] conference in [[Tennessee]], receiving a standing ovation for a speech criticizing baby boomers, which upset some older attendees. (00:05:02) [[Nicholas J. Fuentes]] described [[American Renaissance]] as the gold standard of dissident right conferences, praising its smooth operation and contrasting it with chaotic events like those involving [[Richard Spencer]] at [[Michigan State University]]. (00:06:06) [[Nicholas J. Fuentes]] announced the termination of his [[America First]] show's relationship with [[Maker Support]] due to the platform withholding funds and failing to communicate after its payment processor, [[Stripe]], placed an indefinite hold on all payouts. (00:08:30) The host of the [[Google|YouTube]] channel [[The Quartering]], [[who]] knew the [[Maker Support]] CEO personally, attempted to intervene in the payment dispute but received no answer. (00:10:14) [[Nicholas J. Fuentes]] had become the top creator on [[Maker Support]] with over 250 subscribers before the payment issues began. (00:12:23) A user named Dirt Kevin in [[Nicholas J. Fuentes]]'s [[Discord]] server made a controversial joke, leading a female college friend of [[Fuentes]] to complain and subsequently contact [[Richard Spencer]] and the [[National Policy Institute]] with accusations that [[Fuentes]] was condoning sexual assault. (00:15:16) [[Nicholas J. Fuentes]] listed several women, including [[Kassy Dillon|Cassie Dillon]], [[Emily Faulkner]], and [[Tara McCarthy]], as sources of career-damaging "subterfuge" against him and others in his movement. (00:16:02) [[Israel]] conducted a massive airstrike with bunker-busting bombs on military sites in [[Syria]]'s [[Hama]] and [[Aleppo]] provinces, killing 11 [[Iran|Iranians]] and 15 [[Syria|Syrians]] and destroying approximately 200 missiles, which registered as a 2.6 magnitude earthquake. (00:17:48) [[Benjamin Netanyahu|Bibi]] presented a dossier in English titled "[[Iran]] Lied," claiming [[Israel Defense Forces|Mossad]] operatives stole over 100,000 files from a warehouse in [[Tehran]] in 2017, which he said provided conclusive evidence that [[Iran]] was pursuing a clandestine nuclear weapons program in violation of the 2015 deal. (00:19:19) [[Benjamin Netanyahu|Bibi]] had for months been delivering English-language addresses from his desk aimed at a Western audience, calling for the liberation of the [[Iran]]ian people from their regime. (00:22:48) The 1996 "Clean Break Memo," authored by [[Richard Perle]], [[Douglas Feith]], and [[David Wurmser]] for then-Prime Minister [[Benjamin Netanyahu|Bibi]], outlined a new [[Israel|Israeli]] strategy to "transcend" its regional problems by removing [[Iraq]]'s [[Ba'athist]] regime as a prelude to rolling back [[Syria]] and [[Iran]] to secure [[Israel]]'s northern border from [[Hezbollah]]. (00:27:33) [[Richard Perle]] and [[Douglas Feith]], authors of the Clean Break Memo, later served in the [[United States]] [[U.S. Department of Defense|Defense Department]] under the [[George W. Bush]] administration and helped establish the [[Office of Special Plans]]. (00:28:28) The [[Office of Special Plans]], according to *The Guardian*, served as an unfiltered conduit for intelligence from the office of [[Benjamin Netanyahu|Israeli Prime Minister]] [[Ariel Sharon]], bypassing [[Israel Defense Forces|Mossad]] to provide the [[George W. Bush|Bush administration]] with alarmist reports on [[Saddam Hussein]]'s [[Iraq]]. (00:30:47) [[Douglas Feith]] authorized [[Israel|Israeli]] visitors to the [[Office of Special Plans]] without requiring them to fill out standard security forms. (00:34:55) [[Israel]] possesses an estimated 200 nuclear warheads, developed through an undeclared program that allegedly used uranium stolen from the [[United States]] and [[Europe]], and has never signed the [[Nuclear Non-Proliferation Treaty]]. (00:35:44) The [[Stuxnet]] cyberweapon, reportedly developed by [[Israel]], successfully targeted [[Iran]]'s nuclear infrastructure because [[Israel]] had stolen the same [[Germany|German]] blueprints for the equipment that [[Iran]] acquired via [[Pakistan|Pakistani]] scientist [[A.Q. Khan]]. (00:37:19) [[Donald Trump]] faces a May 12 deadline to decide whether to reimpose sanctions on [[Iran]], a move urged by [[Israel]] but opposed by [[Europe|European]] leaders like [[Emmanuel Macron]] and [[Angela Merkel]] [[who]] recently visited to preserve the nuclear deal. (00:40:08) A full-scale invasion and occupation of [[Iran]] to dismantle its nuclear program would require an estimated 250,000 [[United States]] soldiers and result in a longer, bloodier conflict than the [[Iraq War]] due to [[Iran]]'s larger population, robust military, and mountainous terrain. (00:42:25) [[Iran]]'s political and economic goals of reintegration into the global economy make the pursuit of a nuclear weapon counterproductive, unlike [[North Korea]]'s ideology of *Juche*, which prioritizes national self-sufficiency. (00:43:50) Figures like [[Mike Cernovich]] and [[Lauren Southern]], [[who]] were vocal critics of war in [[Syria]], faced a test of whether they would similarly oppose a war with [[Iran]] promoted by [[Benjamin Netanyahu|Bibi]]. (00:45:24) [[Nicholas J. Fuentes]] commented that the potential reunification of [[North Korea]] and [[South Korea]] would be a powerful testament to the unifying force of shared ethnicity and ethnic nationalism, which he contrasted with demographic trends in the [[United States]]. (00:53:12) At a rally in [[State of Michigan|Michigan]], [[Donald Trump]] voiced support for bringing in farm workers on H-2B visas, a position [[Nicholas J. Fuentes]] opposed as a departure from [[Donald Trump|Trump's]] campaign promises. (00:56:56) [[Nicholas J. Fuentes]] stated that [[Israel]] has killed more [[United States|Americans]] and planned more terrorist attacks on [[United States|U.S.]] soil than [[Iran]], citing incidents like the 1967 attack on the [[USS Liberty]] and the 1950s "Lavon Affair" bombings in [[Arab Republic of Egypt|Egypt]]. (00:58:28) [[Nicholas J. Fuentes]] criticized figures like [[Richard Spencer]] and [[Mike Cernovich|Mike Enoch]] for their persistently negative "[[black]]-pilled" commentary on [[Donald Trump]], arguing it ignored legal and political constraints while serving their desire to be the [[vanguard]] of the movement. (01:02:06) [[Nicholas J. Fuentes]] recommended researching the "1980s Plan for [[Israel]]" by [[Oded Yinon]] as a more extreme document than the Clean Break Memo regarding [[Israel]]'s regional ambitions. (01:03:14) For news analysis, [[Nicholas J. Fuentes]] recommended cross-referencing headlines from a wide range of sources including [[British Broadcasting Corporation|BBC]], [[Fox News]], Breitbart, [[Washington Post|The Washington Post]], [[The New York Times]], and [[Antiwar.com]].
 
 ### AF 2018-02-06 0102
-(00:34:48) [[Nicholas J. Fuentes]] argued that to reach a bigger audience, the movement must appeal more broadly, contrasting the current "alt-right" strategy with the earlier "big tent" approach that included figures like [[Mike Cernovich]], Breitbart, [[Steven Crowder|Steve Bannon]], and [[Donald Trump]].
+(00:34:48) [[Nicholas J. Fuentes]] argued that to reach a bigger audience, the movement must appeal more broadly, contrasting the current "alt-right" strategy with the earlier "big tent" approach that included figures like [[Mike Cernovich]], Breitbart, [[Steve Bannon]], and [[Donald Trump]].
 
 ### AF 2018-01-10 0083
 (00:10:21) An analysis by Breitbart estimated that ending chain migration would cut legal immigration to the [[United States]] by half.
@@ -462,7 +462,7 @@
 (17:11:10) [[Hillary Clinton]]'s 2016 presidential campaign spent one billion dollars and had the backing of nearly every major [[United States|US]] newspaper and television network except [[Fox News]] and Breitbart.
 
 ### AF 2018-01-03 0078
-(03:15:740) Breitbart, the media outlet formerly run by [[Steven Crowder|Steve Bannon]], published [[The Guardian]] article containing the controversial quotes without editorial denial or comment from [[Bannon]] himself.
+(03:15:740) Breitbart, the media outlet formerly run by [[Steve Bannon]], published [[The Guardian]] article containing the controversial quotes without editorial denial or comment from [[Bannon]] himself.
 
 ### AF 2017-11-17 0053
 (00:09:14) [[Nicholas J. Fuentes]] stated that [[Fox News]], [[Alex Jones|InfoWars]], Breitbart, and the [[The Daily Caller|Daily Caller]] do not allow discussion of white identity.
@@ -474,7 +474,7 @@
 (35:01:76) [[Ben Shapiro]] quit Breitbart over the Michelle Fields incident, which [[Nicholas J. Fuentes]] characterized as [[Ben Shapiro|Shapiro]] falsely claiming she was thrown to the ground.
 
 ### AF 2017-11-10 0051
-(12:44:04) [[Roy Moore]] defeated [[Luther Strange]], the candidate supported by [[Mitch McConnell]] and [[Donald Trump]], in the [[Republican Party|Republican]] primary, with [[Steven Crowder|Steve Bannon]] and Breitbart backing Moore's campaign.
+(12:44:04) [[Roy Moore]] defeated [[Luther Strange]], the candidate supported by [[Mitch McConnell]] and [[Donald Trump]], in the [[Republican Party|Republican]] primary, with [[Steve Bannon]] and Breitbart backing Moore's campaign.
 
 ### AF 2017-11-02 0045
 (00:08:37) [[Robert Mercer]] publicly stated he funded [[Milo Yiannopoulos]] and Breitbart because they advocated for small government and free speech, but distanced himself from associations with bigotry following the email leak.
@@ -483,13 +483,13 @@
 (00:09:30) [[Nicholas J. Fuentes]] observed that commentators like [[Robert Spencer]] can appear on [[Fox News]], the [[The Daily Caller|Daily Caller]], and Breitbart to describe [[Islam]] as a violent existential threat to the [[Kanye West|West]], but similar criticism of other influences is condemned.
 
 ### AF 2017-10-23 0037
-(33:42:410) [[Steven Crowder|Steve Bannon]], the former [[White House]] strategist [[who]] runs Breitbart News, maintained influence and had the ear of [[Donald Trump]].
+(33:42:410) [[Steve Bannon]], the former [[White House]] strategist [[who]] runs Breitbart News, maintained influence and had the ear of [[Donald Trump]].
 
 ### AF 2017-10-17 0033
 (00:35:32) Media figures like [[Jake Tapper]] of [[Warner Bros. Discovery|CNN]] and outlets like [[Fox News]] and Breitbart condemned [[Anthony Scaramucci]]'s poll as [[Holocaust denial]] and anti-Semitism.
 
 ### AF 2017-10-16 0032
-(02:25:10) [[Steven Crowder|Steve Bannon]] declared an "all-out war" through Breitbart and his media allies against the [[Republican Party|GOP]] establishment.
+(02:25:10) [[Steve Bannon]] declared an "all-out war" through Breitbart and his media allies against the [[Republican Party|GOP]] establishment.
 
 ### AF 2017-10-12 0030
 (48:00:16) [[Nicholas J. Fuentes]] stated that the death of Andrew Breitbart in his mid-40s from a heart attack was suspicious and suggested possible involvement by the [[Central Intelligence Agency|CIA]] or deep [[state]] organizations.
@@ -498,7 +498,7 @@
 (48:47:16) [[Nicholas J. Fuentes]] said he generally liked Andrew Breitbart and the Breitbart publication but was wary it was "born of in [[Israel]]" and avoided certain issues.
 
 ### AF 2017-09-27 0019
-(02:34:50) [[Steven Crowder|Steve Bannon]] and Breitbart played a crucial role in organizing for [[Roy Moore]]'s victory in [[Alabama]], and [[Bannon]] subsequently planned similar primary challenges in [[State of Nevada|Nevada]], [[Arizona]], and [[Tennessee]].
+(02:34:50) [[Steve Bannon]] and Breitbart played a crucial role in organizing for [[Roy Moore]]'s victory in [[Alabama]], and [[Bannon]] subsequently planned similar primary challenges in [[State of Nevada|Nevada]], [[Arizona]], and [[Tennessee]].
 
 ### AF 2017-09-14 0010
-(00:22:51) [[Nicholas J. Fuentes]] notes that [[Donald Trump]] removed [[Steven Crowder|Steve Bannon]] and [[Sebastian Gorka]] from the [[White House]] earlier in the month, with rumors of [[Steven Crowder|Steve Bannon]] returning to lead Breitbart.
+(00:22:51) [[Nicholas J. Fuentes]] notes that [[Donald Trump]] removed [[Steve Bannon]] and [[Sebastian Gorka]] from the [[White House]] earlier in the month, with rumors of [[Steve Bannon]] returning to lead Breitbart.

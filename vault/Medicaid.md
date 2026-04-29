@@ -15,13 +15,13 @@
 (00:00:51) The [[Donald Trump]] administration's August rule expanded the definition of a "public charge" to include immigrants likely to depend on government benefits like Medicaid, [[SNAP]], or public housing, making them inadmissible to the [[United States]].
 
 ### AF 2019-01-31 0322
-(39:40:48) Over 50% of [[United States|U.S]]. federal government spending is mandatory, directed towards programs like [[Health and Human Services|Medicare]], Medicaid, [[Social Security]], and welfare, which [[Nicholas J. Fuentes]] characterizes as a source of waste and abuse.
+(39:40:48) Over 50% of [[United States|U.S]]. federal government spending is mandatory, directed towards programs like [[Medicare]], Medicaid, [[Social Security]], and welfare, which [[Nicholas J. Fuentes]] characterizes as a source of waste and abuse.
 
 ### AF 2018-10-05 0255
 (00:28:12) [[Nicholas J. Fuentes]], citing [[Ann Coulter]], argued that legalizing drugs would burden public healthcare systems like Medicaid, with taxpayers funding medical treatment for addicts.
 
 ### AF 2018-02-08 0104
-(00:11:00) The national debt of the [[United States]] exceeds $20 trillion, with unfunded obligations for programs like [[Health and Human Services|Medicare]], [[Social Security]], and Medicaid adding approximately $110 trillion more.
+(00:11:00) The national debt of the [[United States]] exceeds $20 trillion, with unfunded obligations for programs like [[Medicare]], [[Social Security]], and Medicaid adding approximately $110 trillion more.
 
 ### AF 2017-10-27 0041
 (00:17:20) [[Nicholas J. Fuentes]] discussed a [[The New York Times|New York Times]] story about [[U.S. Immigration and Customs Enforcement|ICE]] detaining a 10-year-old girl with cerebral palsy after emergency gallbladder surgery, which was paid for by Medicaid.

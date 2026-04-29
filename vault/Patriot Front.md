@@ -32,7 +32,7 @@
 (00:25:47) [[Nicholas J. Fuentes]] advised young people to educate themselves, start book or fitness clubs, go to church, and engage in real political activism instead of joining groups like Patriot Front.
 
 ### AF 2024-01-31 1286
-(00:26:36) [[Nicholas J. Fuentes]] warned that activities like Patriot Front's were heading towards a honeypot event similar to [[City of Charlottesville|Charlottesville]] or [[January 6th Attack|January 6th]], used to set up participants.
+(00:26:36) [[Nicholas J. Fuentes]] warned that activities like Patriot Front's were heading towards a honeypot event similar to [[Charlottesville]] or [[January 6th Attack|January 6th]], used to set up participants.
 
 ### AF 2024-01-31 1286
 (00:27:06) Groups like the [[Blood Tribe]] and Patriot Front had emerged suddenly in the past couple of years, which [[Nicholas J. Fuentes]] found bizarre and in need of being called out.

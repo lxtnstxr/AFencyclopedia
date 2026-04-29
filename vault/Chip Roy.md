@@ -2,7 +2,7 @@
 #person
 
 ### AF 2023-01-14 1107
-(00:40:15) During the speakership battle, [[Marjorie Taylor Greene]] publicly supported [[Mike Johnson|Kevin McCarthy]] from the outset, while [[Matt Gaetz]], [[Paul Gosar]], Chip Roy, [[Jim Jordan]], and [[Bob Good]] led the opposition.
+(00:40:15) During the speakership battle, [[Marjorie Taylor Greene]] publicly supported [[Kevin McCarthy]] from the outset, while [[Matt Gaetz]], [[Paul Gosar]], Chip Roy, [[Jim Jordan]], and [[Bob Good]] led the opposition.
 
 
 ### AF 2021-05-14 0811

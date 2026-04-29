@@ -12,4 +12,4 @@
 (01:08:25) Jimmy Fallon hosted [[Hillary Clinton]] on *The Tonight Show* in a segment that featured the show's female writers thanking her as a role model.
 
 ### AF 2017-10-03 0023
-(00:12:30) Jimmy Fallon and [[Adam Sandler]] performed a musical tribute with [[Miley Cyrus]] instead of discussing gun control after the [[City of Las Vegas|Las Vegas]] shooting.
+(00:12:30) Jimmy Fallon and [[Adam Sandler]] performed a musical tribute with [[Miley Cyrus]] instead of discussing gun control after the [[Las Vegas]] shooting.

@@ -93,7 +93,7 @@
 (04:22:94) [[Donald Trump]], upon the expiration of a 120-day refugee ban, issued a memorandum banning refugee admissions from [[Arab Republic of Egypt|Egypt]], [[Iran]], [[Iraq]], [[State of Libya|Libya]], [[Mali]], [[North Korea]], [[Somalia]], [[South Sudan]], Sudan, [[Syria]], and [[Yemen]] unless they underwent enhanced security screening.
 
 ### AF 2017-09-25 0017
-(01:02:27) [[Destiny|Destiny]] argued people immigrate to white countries because they are the most successful, not because other countries are expected to change; if people wanted to immigrate to Sudan or [[Chad]], those countries would face similar issues.
+(01:02:27) [[Destiny]] argued people immigrate to white countries because they are the most successful, not because other countries are expected to change; if people wanted to immigrate to Sudan or [[Chad]], those countries would face similar issues.
 
 ### AF 2017-09-25 0017
 (02:07:37) [[Nicholas J. Fuentes]] argued that dropping highly skilled laborers into a [[country]] like Sudan would not automatically benefit it because the necessary capital and economic structures to utilize their skills are lacking.

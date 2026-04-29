@@ -57,7 +57,7 @@
 (00:13:40) [[Nicholas J. Fuentes]] recommended a reading list on [[Christianity]], including works by [[Edward Feser]] on [[Thomas Aquinas]], [[Peter Kreeft]]'s "A Shorter Summa," and C.S. Lewis's "Mere [[Christianity]]."
 
 ### AF 2018-01-24 0093
-(00:57:45) [[Nicholas J. Fuentes]] encouraged readers to explore the works of G.K. Chesterton and C.S. Lewis on the subject of conversion and the [[Pope Francis|Catholic Church]].
+(00:57:45) [[Nicholas J. Fuentes]] encouraged readers to explore the works of G.K. Chesterton and C.S. Lewis on the subject of conversion and the [[Catholic Church]].
 
 ### AF 2017-12-18 0071
 (01:12:50) [[Nicholas J. Fuentes]] agreed that the alt-right needs to read [[Christianity|Christian]] authors like G.K. Chesterton and C.S. Lewis to understand [[Christianity]]'s significance, noting that alt-right reading lists prominently feature [[Heidegger]], [[Friedrich Nietzsche|Nietzsche]], and [[Guillaume Faye]] but exclude [[Christianity|Christian]] thinkers.

@@ -92,3 +92,9 @@
 
 ### AF 2022-09-16 1062
 (01:35:06) [[Nicholas J. Fuentes]] recalled that [[Ben Shapiro]] had stated that non-[[Zionists]] were antisemites because [[Jews]] could not survive without a [[country]], and that [[The Daily Wire|Daily Wire]] writers Josh Hammer and [[Elliott Hamilton]] had claimed [[Europe|Europeans]] were inherently antisemitic.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:26:02) [[Steve Bannon]] took the stage at [[Conservative Political Action Conference|CPAC]] and stated he liked Josh Hammer.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:26:14) Josh Hammer was identified by [[Nicholas J. Fuentes]] as an "[[Israel first]] [[Jews|Jew]]" with contempt for the [[United States]].

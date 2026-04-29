@@ -575,7 +575,7 @@
 (00:48:31) [[Nicholas J. Fuentes]] declared "Dark [[Groyper]] season," stating that Joe Kent disavowing him resulted in the cancellation of Kent's political career.
 
 ### AF 2022-06-14 1012
-(00:15:13) [[Nicholas J. Fuentes]] and [[Tyler Russell]] planned a rally in [[Washington Post|Washington State]] in Joe Kent's district, likely to occur around the same [[time]] as the [[City of Las Vegas|Las Vegas]] event.
+(00:15:13) [[Nicholas J. Fuentes]] and [[Tyler Russell]] planned a rally in [[Washington Post|Washington State]] in Joe Kent's district, likely to occur around the same [[time]] as the [[Las Vegas]] event.
 
 ### AF 2022-06-08 1008
 (01:57:57) [[Nicholas J. Fuentes]] contrasted [[Blake Masters]]'s candid approach on race with that of Joe Kent, a [[Republican Party|Republican]] congressional candidate in [[Washington D.C.|Washington]] whom [[Fuentes]] criticized for advocating "inclusive populism" and avoiding discussions of white identity and [[Christianity]].
@@ -587,7 +587,7 @@
 (00:07:13) [[Nicholas J. Fuentes]] announced a collaborative stream scheduled for Saturday on [[Michael Alberto]]'s channel, featuring himself, [[Steven Crowder|Steven Vinyl]], [[Destiny]], [[Kai Clips]], Turkey Tom, and [[Augie RFC]].
 
 ### AF 2022-06-01 1005
-(01:23:14) [[Nicholas J. Fuentes]] announced he would participate in a multi-guest panel stream on Saturday at 11 a.m. Central [[Time]], hosted by [[Michael Alberto]] on [[Cozy.tv]], featuring [[Destiny|Destiny]], [[Kai Clips]], Turkey Tom, and [[Augie RFC]].
+(01:23:14) [[Nicholas J. Fuentes]] announced he would participate in a multi-guest panel stream on Saturday at 11 a.m. Central [[Time]], hosted by [[Michael Alberto]] on [[Cozy.tv]], featuring [[Destiny]], [[Kai Clips]], Turkey Tom, and [[Augie RFC]].
 
 ### AF 2022-05-25 1001
 (01:23:06) Milo Yiannopoulos criticized [[Nicholas J. Fuentes]]'s taste in pizza as "objectively appalling" during a live chat interaction.
@@ -914,7 +914,7 @@
 (00:36:56) [[Nicholas J. Fuentes]] read a [[BBC]] report stating that Daunte Wright was shot after an officer meant to use a taser but mistakenly drew her gun, an incident described by Police Chief Tim Gannon as an accident.
 
 ### AF 2021-04-12 0790
-(00:37:21) [[Nicholas J. Fuentes]] noted that tensions in [[City of Minneapolis|Minneapolis]] were already high due to the ongoing trial of former officer Derek Chauvin for the killing of George Floyd.
+(00:37:21) [[Nicholas J. Fuentes]] noted that tensions in [[Minneapolis]] were already high due to the ongoing trial of former officer Derek Chauvin for the killing of George Floyd.
 
 ### AF 2021-04-12 0790
 (00:38:19) [[Nicholas J. Fuentes]] stated that the officer involved in the Daunte Wright shooting had been placed on administrative leave.
@@ -969,3 +969,144 @@
 
 ### AF 2021-03-26 0781
 (01:39:48) Patrick Casey's political [[organization]] was repeatedly undermined when women he dated subsequently reported on him and his associates to media outlets like [[Warner Bros. Discovery|CNN]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:03:33) Joe Kent resigned as the director of counterterrorism under the DNI, releasing a letter stating he was against the war in [[Iran]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:07:13) [[Peter Thiel]] maxed out his campaign contribution for Joe Kent's 2022 congressional run, and [[Tucker Carlson]] promoted Kent's campaign on his show.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:07:24) Joe Kent was in the [[Central Intelligence Agency|CIA]], [[Tucker Carlson]]'s father was in the [[Central Intelligence Agency|CIA]], and [[Peter Thiel]] was identified as a [[Central Intelligence Agency|CIA]] contractor through his company [[Palantir Technologies|Palantir]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:20:41) Joe Kent left the administration to endorse [[JD Vance]] in a future presidential primary, providing him with credibility as a conscientious objector to the war.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:24:08) [[Tucker Carlson]], Joe Kent, [[David Sacks]], and [[JD Vance]] were identified as being against the war not because they are against [[Israel]], but because they are against the war itself and against [[Benjamin Netanyahu]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:32:03) [[Nicholas J. Fuentes]] criticized [[Whitney Webb]] for speculating on [[Jimmy Dore]]'s show that Joe Kent's resignation was part of a plan to "groom far-right terrorists for pre-crime," instead of understanding the simple political operation involving [[David Sacks]] and [[Peter Thiel]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:37:42) [[Nicholas J. Fuentes|Fuentes]] declared that he saw the [[JD Vance]] operation (involving [[David Sacks]] and Joe Kent) coming from "6 million miles away."
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:21:06) Joe Kent, whom [[Nicholas J. Fuentes]] described as funded by [[Peter Thiel]], appeared on [[Tucker Carlson]]’s show, a show funded by [[JD Vance]]’s Rockbridge Network, which also spawned 1789 [[United States Capitol|Capitol]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:23:40) [[Nicholas J. Fuentes]] stated that [[Tucker Carlson]]’s father, Joe Kent, and [[Peter Thiel]] all had connections to the [[Central Intelligence Agency|CIA]], and that [[JD Vance]] worked for [[Peter Thiel]], a [[Central Intelligence Agency|CIA]] contractor.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:24:56) [[Nicholas J. Fuentes]] argued that Joe Kent’s resignation letter, in which Joe Kent blamed [[Israel]] for the war, was a “ruse” and part of an effort to salvage [[JD Vance]]’s 2028 presidential ambitions.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:25:38) [[Nicholas J. Fuentes]] distinguished ordinary people from figures like [[JD Vance]], [[Tucker Carlson]], [[Peter Thiel]], and Joe Kent, claiming these individuals were not having epiphanies but were operatives engaged in a political power play.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:26:28) [[Nicholas J. Fuentes]] characterized the narrative of Joe Kent—a disillusioned war hero turned anti-war [[patriot]]—as a constructed story, noting that Joe Kent’s wife did die but that Joe Kent was a [[Central Intelligence Agency|CIA]] operative.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:27:35) [[Nicholas J. Fuentes]] concluded that Joe Kent’s resignation was an operative’s political power play, not an act of conscience.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:26:14) [[David Sacks]] was the first [[White House]] official to say the war should end, and Joe Kent resigned his post at the [[Director of National Intelligence|DNI]] and interviewed with [[Tucker Carlson]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:30) Joe Kent received money from [[Peter Thiel]] in 2022 and was promoted by [[Tucker Carlson]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:36) [[Tucker Carlson]] retaliated against [[Nicholas J. Fuentes]] with [[Max Blumenthal]] because [[Nicholas J. Fuentes]] and “the Gropers” made Joe Kent lose his election.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:32:34) [[Nicholas J. Fuentes]] rejected the idea that Joe Kent had been “red pilled,” stating that Joe Kent was a [[Central Intelligence Agency|CIA]] officer and part of a political power play, not an ordinary [[person]] influenced by media.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:35:19) Joe Kent went on [[Mark Levin]]’s show and said, “I never said we should stop supporting [[Israel]]. I just said we should stop going to war.”
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:35:36) Joe Kent did a two-hour show with [[Tucker Carlson]] and avoided mentioning [[Jews]], attributing the war to “neocons” and [[Benjamin Netanyahu]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:36:03) Joe Kent resigned on the previous Tuesday, and then when [[Donald Trump]] began celebrating the fake diplomacy efforts, Joe Kent expressed support for the peace process.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:40:47) Joe Kent resigned from his position in the government over objections to the war.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:40:48) Joe Kent was interviewed by [[Tucker Carlson]] after his resignation.
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:44:32) Following his resignation on Tuesday, Joe Kent praised [[Donald Trump]]'s negotiation efforts on Monday, which [[Nicholas J. Fuentes]] described as a sudden reversal to hail a peace process he had previously resigned over.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:42:07) [[Nicholas J. Fuentes]] reported that Joe Kent, [[who]] worked in the Office of the [[Director of National Intelligence|DNI]] at the Counterterrorism Center, resigned yesterday saying the claim that [[Iran]] posed an imminent threat is a lie.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:43:50) [[Nicholas J. Fuentes]] stated that after Joe Kent resigned, [[Tulsi Gabbard]] said on [[Twitter]] that it is [[Donald Trump|Trump]]'s judgment that determines what is an imminent threat.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:46:52) [[Nicholas J. Fuentes]] stated that Joe Kent resigned his post as the director of the Center for Counterterrorism, which is under the ODNI run by [[Tulsi Gabbard]], and that he published his resignation letter on [[Twitter]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:47:38) [[Nicholas J. Fuentes]] quoted Joe Kent's resignation letter, in which Joe Kent said that [[Iran]] did not pose an imminent threat and that the [[United States|U.S]]. was dragged into the conflict by [[Israel]] and its lobby.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:48:14) [[Nicholas J. Fuentes]] gave Joe Kent's statement a grade of "B+," noting that Joe Kent called the killing of [[Qasem Soleimani]] "[[America First]]" but also said the war in [[Iran]] was "[[United States|America]] Last" and influenced by the [[Israel|Israelis]], arguing that the killing of [[Qasem Soleimani|Soleimani]] directly led to the conflict.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:48:55) [[Nicholas J. Fuentes]] reported that Joe Kent went on [[Tucker Carlson]]'s show for a 90-minute or two-hour interview.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:49:20) [[Nicholas J. Fuentes]] criticized [[Tucker Carlson]] for putting the interview with Joe Kent behind a paywall of $6 on his website, calling the act "a [[little]] bit [[Jews|Jewish]]."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:51:55) [[Nicholas J. Fuentes]] stated that during the interview, Joe Kent said "they wouldn't let [[us]] ask any questions about the [[Charlie Kirk]] assassination."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:52:28) [[Nicholas J. Fuentes]] criticized Joe Kent for making vague insinuations, declaring that if Joe Kent knows something about the assassination of [[Charlie Kirk]], he should tell them, otherwise, "shut up."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:56:22) [[Nicholas J. Fuentes]] accused [[Tucker Carlson]] and Joe Kent of intentionally engaging in sensationalism by making vague implications of a conspiracy and a cover-up regarding the [[Charlie Kirk]] assassination.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:57:07) [[Nicholas J. Fuentes]] declared that if Joe Kent knows something and isn't telling, he is part of the cover-up, and if he doesn't know anything but implies he does, he is lying.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:58:23) [[Nicholas J. Fuentes]] stated his belief that the whole Joe Kent situation is an "op," and that it is accomplishing one of two things.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:59:14) [[Nicholas J. Fuentes]] reported that it came out that Joe Kent is under investigation by the [[Federal Bureau of Investigation|FBI]], and that the investigation predates his resignation.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:59:53) [[Nicholas J. Fuentes]] speculated that the purpose of [[Tucker Carlson|Tucker]] and Kent's media blitz might be to get ahead of the investigation.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:00:56) [[Nicholas J. Fuentes]] presented two possible explanations for the charges against [[Tucker Carlson|Tucker]] and Kent: that they are being punished by the deep [[state]] for opposing the war, or that they got caught and are becoming martyrs to get ahead of it.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:04:40) [[Nicholas J. Fuentes]] stated that Joe Kent received money from [[Peter Thiel]] when he ran for [[U.S. Congress|Congress]] in 2022.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:05:12) [[Nicholas J. Fuentes]] identified a nexus of people opposing the war—[[David Sacks]], [[Tucker Carlson]], and Joe Kent—all of whom have deep ties to [[JD Vance]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:05:43) [[Nicholas J. Fuentes]] argued that [[JD Vance]] is trying to save his prospects for 2028, and that the operation with Joe Kent is a last-ditch effort to push [[Donald Trump|Trump]] away from the war to save [[JD Vance|Vance]]'s political future.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:07:27) [[Nicholas J. Fuentes]] said he smells a "big op" with the Joe Kent situation, and that everyone is falling for it because the rhetoric is good.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:07:53) [[Nicholas J. Fuentes]] stated that he does not trust Joe Kent or [[Tucker Carlson]], noting that Joe Kent as recently as 2024 was saying the [[United States|U.S]]. should give [[Israel]] foreign aid and bomb [[Iran]]'s nukes.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:08:27) [[Nicholas J. Fuentes]] pointed out that [[Tucker Carlson|Tucker]]'s dad was in the [[Central Intelligence Agency|CIA]], Joe Kent is in the [[Central Intelligence Agency|CIA]], [[Peter Thiel]] is a [[Central Intelligence Agency|CIA]] contractor, and that [[JD Vance]] was recruited out of [[Yale Law School]], a recruiting ground for the [[Central Intelligence Agency|CIA]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(03:09:07) [[Nicholas J. Fuentes]] described the interview between [[Tucker Carlson]] and Joe Kent as a staged performance, not a real conversation.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:14) The hit piece was retaliation against [[Nicholas J. Fuentes]] for causing Joe Kent to lose his congressional race in 2022.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:20) Joe Kent, a [[Central Intelligence Agency|CIA]] officer and friend of [[Tucker Carlson]], lost his 2022 congressional race because [[Nicholas J. Fuentes]] campaigned against him.

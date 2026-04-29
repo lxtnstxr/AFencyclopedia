@@ -89,7 +89,7 @@
 (00:31:51) [[Nicholas J. Fuentes]] stated the [[Peter Thiel]] network is deeply connected to the [[National Conservatism]] Conference, with [[Peter Thiel|Thiel]] having spoken there and Curtis Yarvin attending.
 
 ### AF 2024-06-10 1341
-(01:01:00) Curtis Yarvin, a political blogger, argued that there is no significant [[Israel]] lobby and that its existence is necessary because the global community is overwhelmingly pro-[[Gaza Strip|Palestine]].
+(01:01:00) Curtis Yarvin, a political blogger, argued that there is no significant [[Israel]] lobby and that its existence is necessary because the global community is overwhelmingly pro-[[Palestine]].
 
 ### AF 2024-06-10 1341
 (01:38:00) [[Nicholas J. Fuentes]] identified Curtis Yarvin, [[JD Vance|J.D. Vance]], the [[National Conservatism]] movement, [[Youram Hazony|Yoram Hazony]], [[Peter Thiel]], and the [[Claremont Institute]] as the "real usurpers" of the [[United States|America]] First label, not figures like [[Valentina Gomez]].
@@ -215,7 +215,7 @@
 (00:16:17) [[Nicholas J. Fuentes]] described Curtis Yarvin as a [[Jewish]] intellectual, a recent guest on [[Tucker Carlson]]'s show, and a favorite of [[Peter Thiel]].
 
 ### AF 2022-06-02 1006
-(00:16:47) [[Nicholas J. Fuentes]] quoted Curtis Yarvin's blog, *Unqualified Reservations*, which compared the [[Israel lobby]] to "dental floss" and a hypothetical [[Gaza Strip|Palestine]] lobby to an "arm-thick iron rope," arguing the former's existence proves its weakness.
+(00:16:47) [[Nicholas J. Fuentes]] quoted Curtis Yarvin's blog, *Unqualified Reservations*, which compared the [[Israel lobby]] to "dental floss" and a hypothetical [[Palestine]] lobby to an "arm-thick iron rope," arguing the former's existence proves its weakness.
 
 ### AF 2022-06-02 1006
 (00:19:51) [[Nicholas J. Fuentes]] concluded that attacks against him from figures like [[Costin Alamariu|Bronze Age Pervert]] stem from their connections to Zionist networks, such as his mentor at the [[JINSA]] and patron Curtis Yarvin.
@@ -243,3 +243,6 @@
 
 ### AF 2017-10-23 0037
 (01:00:13:350) [[Nicholas J. Fuentes]] stated that reading Mencius Moldbug and other Neo-Reactionary (NRX) literature made him more skeptical of libertarianism and democracy for its own sake.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:49:01:96) [[Nicholas J. Fuentes]] argued that we must be clear that the issue is not white people, but [[Jews|Jewish]] nationalism, and cited [[Joe Lonsdale]] and Curtis Yarvin as examples of people [[who]] have not let go of their [[Jews|Jewish]] national feelings.

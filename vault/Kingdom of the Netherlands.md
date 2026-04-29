@@ -18,13 +18,13 @@
 (08:19:96) [[Israel]] shut down all commercial flights into and out of the country, with some airlines like a Dutch carrier canceling flights until October 26th in anticipation of the [[Iran|Iranian]] attack.
 
 ### AF 2024-07-11 1353
-(01:18:00) [[Nicholas J. Fuentes]] cited [[Giorgia Meloni]] in [[Italian Republic|Italy]], [[Geert Wilders]] in the Netherlands, [[Marine Le Pen]] in [[Government of France|France]], and [[Nigel Farage]] in the [[United Kingdom]] as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
+(01:18:00) [[Nicholas J. Fuentes]] cited [[Giorgia Meloni]] in [[Italian Republic|Italy]], [[Geert Wilders]] in the Netherlands, [[Marine Le Pen]] in [[France]], and [[Nigel Farage]] in the [[United Kingdom]] as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
 
 ### AF 2024-07-10 1352
-(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the [[United Kingdom]], [[Government of France|France]], [[Hungary]], the Netherlands, [[Italian Republic|Italy]], [[Brazil]], [[Argentina]], and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
+(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the [[United Kingdom]], [[France]], [[Hungary]], the Netherlands, [[Italian Republic|Italy]], [[Brazil]], [[Argentina]], and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the Netherlands, [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like [[Geert Wilders]] of the Netherlands, [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 ### AF 2024-06-28 1346
 (02:30:57) A super chatter from the Netherlands asked [[Nicholas J. Fuentes]] about Dutch voters who abstain due to distrust in the voting process, contrasting them with [[United States|Americans]] who vote despite evidence of rigging.
@@ -48,7 +48,7 @@
 (15:39:55) Countries including [[Dominion of Canada|Canada]], [[Denmark]], and the Netherlands have suspended or are in the process of suspending military aid to [[Israel]] over its campaign in the [[Gaza Strip]].
 
 ### AF 2024-02-14 1292
-(00:15:55) [[Nicholas J. Fuentes]] argued that right-wing populist movements in countries like [[Brazil]], the Netherlands, [[Italian Republic|Italy]], [[Government of France|France]], [[Germany]], and [[El Salvador]] represent a "[[Likud]] infiltration" orchestrated by [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party to create global allies for [[Israel]].
+(00:15:55) [[Nicholas J. Fuentes]] argued that right-wing populist movements in countries like [[Brazil]], the Netherlands, [[Italian Republic|Italy]], [[France]], [[Germany]], and [[El Salvador]] represent a "[[Likud]] infiltration" orchestrated by [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party to create global allies for [[Israel]].
 
 ### AF 2024-02-07 1288
 (00:12:36) [[Nicholas J. Fuentes]] argued that the rise of right-wing populist movements in the [[Kanye West|West]], including those led by [[Donald Trump]] in the [[United States]], [[Jair Bolsonaro]] in [[Brazil]], [[Javier Milei]] in [[Argentina]], [[Giorgia Meloni]] in [[Italian Republic|Italy]], and [[Geert Wilders]] in the Netherlands, coincides with support from the [[Israel|Israeli]] right-wing.
@@ -69,7 +69,7 @@
 (00:00:15) Governments across [[Europe]] were considering or implementing hard lockdowns in countries including the Netherlands, [[Germany]], [[Spain]], and [[Austria]] due to the spread of a new coronavirus variant, despite full vaccination and booster shot campaigns.
 
 ### AF 2021-12-20 0924
-(00:51:18) The Netherlands entered a full lockdown until mid-January, closing all but essential shops and schools, and limiting home visitors, while [[Germany]] imposed a 14-day quarantine on all travelers from the [[United Kingdom]], [[Denmark]], [[Norway]], and [[Government of France|France]].
+(00:51:18) The Netherlands entered a full lockdown until mid-January, closing all but essential shops and schools, and limiting home visitors, while [[Germany]] imposed a 14-day quarantine on all travelers from the [[United Kingdom]], [[Denmark]], [[Norway]], and [[France]].
 
 ### AF 2021-02-02 0753
 (01:06:00) Major anti-lockdown protests occurred across [[Europe]], including in the Netherlands, [[Belgium]], [[Austria]], [[Hungary]], the [[Czech Republic]], and [[Israel|Poland]].
@@ -78,7 +78,7 @@
 (01:16:00) The Netherlands experienced anti-curfew riots the previous week, and around 400 people gathered peacefully for an authorized "drinking coffee together" demonstration in a central Dutch [[city]].
 
 ### AF 2020-10-19 0704
-(00:05:01) [[Nicholas J. Fuentes]] cited the Bataclan mass shooting in [[Paris]], a truck attack in [[Nice]], and attacks in [[Sweden]], the Netherlands, [[San Bernardino]], and [[City of Orlando|Orlando]] as examples of frequent terrorism prior to [[Donald Trump]]'s election.
+(00:05:01) [[Nicholas J. Fuentes]] cited the Bataclan mass shooting in [[Paris]], a truck attack in [[Nice]], and attacks in [[Sweden]], the Netherlands, [[San Bernardino]], and [[Orlando]] as examples of frequent terrorism prior to [[Donald Trump]]'s election.
 
 ### AF 2020-03-20 0569
 (35:59:34) [[Nicholas J. Fuentes]] stated that [[Europe]] was being ravaged by the coronavirus, with significant outbreaks also occurring in [[Switzerland]], the [[United Kingdom]], the Netherlands, [[Austria]], [[Norway]], and [[Belgium]].

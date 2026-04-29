@@ -94,3 +94,27 @@
 
 ### AF 2019-10-04 0473
 (06:49:37) [[Nicholas J. Fuentes]] was challenged to a debate by libertarian podcaster Dave Smith, which was scheduled for the following Wednesday on Smith's podcast.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:36:44) [[Nicholas J. Fuentes]] noted that figures like [[Candace Owens]], [[Ian Carroll]], Dave Smith, and [[Alex Jones]] all supported [[Donald Trump]] in 2024, either "because they were caught up in it or because they had no other choice."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:37:42) [[Nicholas J. Fuentes]] credited [[Tucker Carlson]], [[Candace Owens]], and Dave Smith for now breaking from [[Donald Trump]], though "better late than never."
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(03:41:41) [[Nicholas J. Fuentes]] stated his disagreement with Dave Smith for saying that [[Person|Michael Tracy]] should be killed for his position on [[Jeffrey Epstein]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:42:51) [[Nicholas J. Fuentes]] criticized the common refrain "what about those good [[Jews]] like Dave Smith?"
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:45:04) [[Nicholas J. Fuentes]] argued that Dave Smith might have the right views on the war in [[Gaza Strip|Gaza]] but is still part of a [[Jews|Jewish]] family and community that is colored by tribal attitudes.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:47:40) [[Nicholas J. Fuentes]] denounced the narrative that it is "Basim Youssef and Dave Smith and the good [[Christianity|Christians]] versus the Satanists" as a global religion [[concept]] that is a "load of shit."
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:16:56) [[Nicholas J. Fuentes]] linked [[Candace Owens]]' alliance with [[Basim Youssef]] and Dave Smith to her belief in the "Khazarian mafia," arguing that it allows her to claim "good [[Jews]]" exist and it is not a conflict between religions.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:33:00) [[Nicholas J. Fuentes]] argued that the "[[Jeffrey Epstein|Epstein]] stuff" has created a ton of antisemitism, and that figures like Dave Smith would not support taking power away from [[Jews|Jewish]] billionaires.

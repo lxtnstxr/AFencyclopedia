@@ -11,3 +11,15 @@
 ### AF 2025-10-30 1589
 (00:09:07) [[Nicholas J. Fuentes]] claimed that 90% of the conservative movement is now aligned with him and [[Tucker Carlson]] against figures like [[Josh Hammer]], [[Andrew Klavan]], Seth Dillon, and [[Mark Levin]].
 
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:21:14) Seth Dillon of [[The Babylon Bee]] testified at the Federal Religious Liberty Commission hearing that conservatives need to push back against antisemitism.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:21:43) Kerry Pregine-Bowler questioned Seth Dillon during the Federal Religious Liberty Commission hearing about whether critics of [[Israel]] should be considered antisemitic.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:21:57) Kerry Pregine-Bowler questioned Seth Dillon during the hearing about whether social media sites should be pressured to ban quotations of a Bible verse that attributes the death of [[Jesus Christ|Jesus]] to [[Jews]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:21:59) Kerry Pregine-Bowler disputed Seth Dillon's criticisms of [[Candace Owens]], stating she had never heard [[Candace Owens]] say anything antisemitic.

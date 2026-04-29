@@ -10,10 +10,10 @@
 (01:21:30) [[Paleo American]] advocated for packing the [[Supreme Court of the United States|Supreme Court]] with figures like [[Ann Coulter]], Kris Kobach, [[Jeff Sessions]], and [[John Eastman]] to achieve desired immigration policy.
 
 ### AF 2019-05-31 0398
-(00:05:54) [[Steven Crowder|Steve Bannon]] and Chris Kobach unveiled a half-mile stretch of privately funded border wall in [[State of New Mexico|New Mexico]] through the "We Build the Wall" initiative.
+(00:05:54) [[Steve Bannon]] and Chris Kobach unveiled a half-mile stretch of privately funded border wall in [[State of New Mexico|New Mexico]] through the "We Build the Wall" initiative.
 
 ### AF 2019-05-31 0398
-(00:13:51) [[Nicholas J. Fuentes]] noted that the private wall built by [[Steven Crowder|Steve Bannon]] and Chris Kobach constituted nearly half the length of new border wall constructed by the [[Donald Trump|Trump]] administration, which stood at 1.1 miles.
+(00:13:51) [[Nicholas J. Fuentes]] noted that the private wall built by [[Steve Bannon]] and Chris Kobach constituted nearly half the length of new border wall constructed by the [[Donald Trump|Trump]] administration, which stood at 1.1 miles.
 
 ### AF 2019-05-21 0392
 (00:03:32) [[The New York Times]] first reported that [[Donald Trump]] selected [[Ken Cuccinelli]], not Chris Kobach, for the newly created immigration czar position.

@@ -10,7 +10,7 @@
 (02:14:01) [[Nicholas J. Fuentes]] claimed that critics had incorrectly predicted the failure of his movement after events like the launch of America First Media in January 2018, the Groypers War, [[Donald Trump]] leaving office, and his deplatforming.
 
 ### AF 2019-11-15 0500
-(03:27:37) [[Nicholas J. Fuentes]] identified the third era of his show, from August 2017 to January 2018, as a partnership with [[James Allsup]] under the company America First Media, formed in the aftermath of [[City of Charlottesville|Charlottesville]] to create a paleoconservative movement distinct from the alt-right.
+(03:27:37) [[Nicholas J. Fuentes]] identified the third era of his show, from August 2017 to January 2018, as a partnership with [[James Allsup]] under the company America First Media, formed in the aftermath of [[Charlottesville]] to create a paleoconservative movement distinct from the alt-right.
 
 ### AF 2019-11-15 0500
 (03:31:59) [[Nicholas J. Fuentes]] stated that the America First Media partnership dissolved in January 2018 over irreconcilable differences, including conflicts dubbed the "Optics War" and "Thot Wars," which led him to define an unapologetically paleoconservative direction for the show.

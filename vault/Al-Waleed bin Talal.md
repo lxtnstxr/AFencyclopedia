@@ -9,7 +9,7 @@
 (11:18:46) Al-Waleed bin Talal, a [[Saudi Arabia|Saudi]] billionaire, was a major financial benefactor to both [[Barack Obama]]'s 2008 campaign and [[Hillary Clinton]]'s presidential campaign.
 
 ### AF 2018-01-05 0080
-(12:28:36) Al-Waleed bin Talal owns a majority stake in the [[Four Seasons Hotel]], which owns the top floors of the [[Mandalay Bay]] Casino Hotel in [[City of Las Vegas|Las Vegas]].
+(12:28:36) Al-Waleed bin Talal owns a majority stake in the [[Four Seasons Hotel]], which owns the top floors of the [[Mandalay Bay]] Casino Hotel in [[Las Vegas]].
 
 ### AF 2018-01-05 0080
 (18:50:82) [[Donald Trump]] tweeted about Al-Waleed bin Talal, accusing him of trying to buy [[United States|US]] elections through his donations to [[Barack Obama]] and [[Hillary Clinton]].

@@ -84,7 +84,7 @@
 (00:40:12) [[Ghislaine Maxwell]] was arrested in New Hampshire on charges related to her involvement with [[Jeffrey Epstein]]'s sex trafficking operation, having previously kept a low profile since [[Jeffrey Epstein|Epstein]]'s arrest.
 
 ### AF 2020-06-08 0616
-(02:33:04) A viewer named Kevin compared the demographics and crime rates of predominantly white states like [[State of Maine|Maine]], New Hampshire, and [[Vermont]] to [[Europe|European]] countries, and cities like [[City of Chicago|Chicago]], [[Baltimore]], and [[City|Detroit]] to African and Haitian nations.
+(02:33:04) A viewer named Kevin compared the demographics and crime rates of predominantly white states like [[State of Maine|Maine]], New Hampshire, and [[Vermont]] to [[Europe|European]] countries, and cities like [[Chicago]], [[Baltimore]], and [[City|Detroit]] to African and Haitian nations.
 
 ### AF 2020-05-22 0611
 (00:43:12) The monologue argued that white voters in states like [[India|Indiana]], [[Iowa]], [[State of Michigan|Michigan]], [[Wisconsin]], [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Florida|Florida]], and New Hampshire were the decisive factor in flipping those states between [[Democratic Party|Democratic]] and [[Republican Party|Republican]] control in recent elections.
@@ -102,7 +102,7 @@
 (00:20:28) [[Patrick Casey]] stated he was surprised by how viable [[Joe Biden]] had proven to be, noting that the early states of [[Iowa]] and New Hampshire were not representative of the national [[Democratic Party|Democratic]] electorate.
 
 ### AF 2020-02-24 0553
-(00:55:54) [[Nicholas J. Fuentes]] claimed a majority of [[Democratic Party|Democrats]] in [[Iowa]], New Hampshire, and [[State of Nevada|Nevada]] supported [[Health and Human Services|Medicare]] for All, which was fueling [[Bernie Sanders]]' primary success but would fail in a general election.
+(00:55:54) [[Nicholas J. Fuentes]] claimed a majority of [[Democratic Party|Democrats]] in [[Iowa]], New Hampshire, and [[State of Nevada|Nevada]] supported [[Medicare]] for All, which was fueling [[Bernie Sanders]]' primary success but would fail in a general election.
 
 ### AF 2020-02-12 0545
 (00:01:06) [[Nicholas J. Fuentes]] announced the show's featured stories would be a status update on the coronavirus pandemic and an analysis of the results from the New Hampshire [[Democratic Party|Democratic]] primary.
@@ -259,3 +259,6 @@
 
 ### AF 2017-10-23 0037
 (46:57:950) [[Nicholas J. Fuentes]] argued that securing reliably [[Republican Party|Republican]] votes in [[Wisconsin]], [[State of Michigan|Michigan]], [[Commonwealth of Pennsylvania|Pennsylvania]], and New Hampshire could temporarily counteract the [[Democratic Party]]'s long-term demographic advantage in southwestern states.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:04:10:59) [[Nicholas J. Fuentes]] stated he knocked on doors for [[Donald Trump]] in 2016, took volunteers to [[Manchester]], New Hampshire, after the Billy [[George W. Bush|Bush]] tape, and flew to [[Atlanta]], [[Harrisburg]], [[Phoenix]], [[Lansing]], and [[Washington D.C.|D.C.]] to protest a stolen election in 2020.

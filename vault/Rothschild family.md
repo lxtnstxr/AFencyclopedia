@@ -22,3 +22,6 @@
 
 ### AF 2018-01-04 0079
 (00:40:57) [[Nicholas J. Fuentes]] cited the success of the Rothschild bank as an example of [[Jews|Jewish]] hyper-collectivism and ethnocentrism, where family members were sent to [[Europe|European]] capitals to build a network, virtues he described as noble.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:06:00) [[Nicholas J. Fuentes]] alleged that a "backend" security vulnerability was created in [[America's]] elite by [[Israel]] through people like [[Nelson Rockefeller]] and the Rothschild family, [[who]] gave [[Jeffrey Epstein]] his fortune, crib, and models.

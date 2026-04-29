@@ -2,7 +2,7 @@
 #Unknown
 
 ### AF 2022-05-10 0989
-(02:22:16) [[Nicholas J. Fuentes]] commented on a pattern involving [[Jaden McNeil]], [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], Ted Kennedy, and [[John Brennan]].
+(02:22:16) [[Nicholas J. Fuentes]] commented on a pattern involving [[Jaden McNeil]], [[Mitch McConnell]], [[Kevin McCarthy]], Ted Kennedy, and [[John Brennan]].
 
 
 ### AF 2021-05-07 0807

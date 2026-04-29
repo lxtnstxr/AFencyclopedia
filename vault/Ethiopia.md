@@ -70,3 +70,6 @@
 
 ### AF 2017-12-22 0075
 (01:08:43) [[Nicholas J. Fuentes]] suggested that a strong case against immigration and socialism can be made by examining the historical lack of civilization-building achievements in sub-Saharan [[African continent|Africa]], which had no thriving cities, two-story buildings, or written language (except Ethiopia) for thousands of years prior to [[Europe|European]] colonization.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], Ethiopia, [[Armenia]], [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].

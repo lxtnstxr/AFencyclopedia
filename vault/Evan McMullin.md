@@ -39,3 +39,9 @@
 
 ### AF 2021-03-26 0781
 (00:18:51) [[Bill Kristol]], a pro-[[Iraq]] war neoconservative and never-Trumper, selected former [[Central Intelligence Agency|CIA]] officer Evan McMullin to run against [[Donald Trump]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:55:27) [[JD Vance]] did not vote for [[Hillary Clinton]] or [[Donald Trump]] in the 2016 election; he voted for Evan McMullen.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:55:49) Evan McMullen is a former [[Central Intelligence Agency|CIA]] officer [[who]] was handpicked by [[Bill Kristol]] as a spoiler candidate to prevent [[Donald Trump]] from winning the 2016 election.

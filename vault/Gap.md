@@ -24,4 +24,4 @@
 (02:08:17) [[Piers Morgan]] challenged [[Kanye West|Ye]] on his suggestion to [[Tucker Carlson]] that Gap had prior knowledge of the [[Uvalde]] school shooting, calling the idea "completely insane."
 
 ### AF 2022-10-22 1084
-(02:10:57) [[Piers Morgan]] agreed that gun violence in [[City of Chicago|Chicago]] receives insufficient media attention, citing his son's experience at the [[University of Chicago]], but rejected any suggestion of prior knowledge by Gap or [[Matthew McConaughey]].
+(02:10:57) [[Piers Morgan]] agreed that gun violence in [[Chicago]] receives insufficient media attention, citing his son's experience at the [[University of Chicago]], but rejected any suggestion of prior knowledge by Gap or [[Matthew McConaughey]].

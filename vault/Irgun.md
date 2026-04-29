@@ -15,4 +15,4 @@
 (00:27:08) [[Nicholas J. Fuentes]] cited historical [[Jews|Jewish Zionist]] groups like Irgun as pioneers of false flag attacks, such as the 1946 bombing of the [[Martin Luther King Jr.|King]] David Hotel in Jerusalem.
 
 ### AF 2019-08-13 0439
-(01:38:20) [[Nicholas J. Fuentes]] argued that Zionist militias like the Irgun, led by [[Menachem Begin]], invented modern terrorist techniques such as bus bombings and suicide bombings in the 1930s and 1940s against [[United Kingdom|Great Britain]] and Arab populations in [[Gaza Strip|Palestine]].
+(01:38:20) [[Nicholas J. Fuentes]] argued that Zionist militias like the Irgun, led by [[Menachem Begin]], invented modern terrorist techniques such as bus bombings and suicide bombings in the 1930s and 1940s against [[United Kingdom|Great Britain]] and Arab populations in [[Palestine]].

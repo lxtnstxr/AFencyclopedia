@@ -55,3 +55,18 @@
 
 ### AF 2019-06-18 0409
 (00:40:21) [[Donald Trump]] thanked [[members of Congress]] in attendance, including [[Matt Gaetz]], [[Ted Yoho]], and Michael Waltz.
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:33:25) Pro-[[Israel]] figures from [[State of Florida|Florida]], including [[Susie Wiles]], [[Marco Rubio]], Mike Waltz, and [[Pam Bondi]], are closely associated with [[Donald Trump]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:53:43) Mike Waltz, [[Donald Trump]]’s [[national security advisor]], lobbied on behalf of [[Benjamin Netanyahu]] to bomb [[Iran]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:29:27:90) Mike Waltz was a [[U.S. National Security Council|National Security Advisor]] [[who]] was literally working for [[Benjamin Netanyahu]] and [[who]] used an encrypted messaging app to push [[Israel|Israel's]] agenda; he was subsequently given a different job as ambassador to the [[United Nations|UN]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:19:48) Mike Waltz, the [[U.S. National Security Council|National Security Advisor]], pushed on behalf of [[Benjamin Netanyahu]] for [[Donald Trump]] to go to war with [[Iran]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:13) [[Marco Rubio]] is the [[U.S. Department of State|Secretary of State]], [[John Ratcliffe|Ratcliffe]] is the [[Central Intelligence Agency|CIA]] director, and Waltz is the [[NSA]].

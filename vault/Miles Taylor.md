@@ -24,4 +24,4 @@
 (01:30:14) Miles Taylor, in his 2018 anonymous op-ed and subsequent interviews, stated his role as [[U.S. Department of Homeland Security|DHS]] Chief of Staff was to keep the department running normally and to stop [[Donald Trump]] from implementing disruptive policies, particularly regarding border security and immigration enforcement.
 
 ### AF 2020-10-28 0711
-(01:32:40) [[Nicholas J. Fuentes]] argued that the slow progress of [[Donald Trump]]'s [[United States|America]] First agenda was due to sabotage by a permanent bureaucratic class, or "deep state," citing Miles Taylor as one example of many administration officials hired from the [[Republican Party|Republican]] establishment [[who]] actively worked against [[Donald Trump|the president's]] goals.
+(01:32:40) [[Nicholas J. Fuentes]] argued that the slow progress of [[Donald Trump]]'s [[United States|America]] First agenda was due to sabotage by a permanent bureaucratic class, or "deep state," citing Miles Taylor as one example of many administration officials hired from the [[Republican Party|Republican]] establishment [[who]] actively worked against [[the president's]] goals.

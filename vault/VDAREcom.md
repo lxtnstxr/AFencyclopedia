@@ -18,7 +18,7 @@
 (02:48:19) [[Peter Brimelow]]'s website, VDARE, faced deplatforming when its domain registrar, [[Network Solutions]], informed the site it would lose its domain, representing an escalation in online censorship against immigration restrictionist voices.
 
 ### AF 2020-06-18 0624
-(03:58:73) Prior to VDARE, the only other major political website to have its domain pulled by a registrar was [[The Daily Stormer]], following the [[City of Charlottesville|Charlottesville]] rally.
+(03:58:73) Prior to VDARE, the only other major political website to have its domain pulled by a registrar was [[The Daily Stormer]], following the [[Charlottesville]] rally.
 
 ### AF 2020-06-18 0624
 (04:42:63) The immigration restrictionist views published on VDARE were described as not substantially different from those found on other sites like the [[Federation for American Immigration Reform|FAIR]] or the [[Center for Immigration Studies]].
@@ -30,7 +30,7 @@
 (23:05:89) [[Network Solutions]], the domain registrar for VDARE, gave the website ten days' notice of its intention to terminate their account after 20 years, citing violations of its acceptable use policy and risk to corporate reputation.
 
 ### AF 2020-06-18 0624
-(24:32:19) The only other instances of a domain registrar terminating a political website's account, prior to VDARE, were [[The Daily Stormer]] after [[City of Charlottesville|Charlottesville]] and a threatened action against [[Gab]].
+(24:32:19) The only other instances of a domain registrar terminating a political website's account, prior to VDARE, were [[The Daily Stormer]] after [[Charlottesville]] and a threatened action against [[Gab]].
 
 ### AF 2020-06-18 0624
 (28:01:23) [[Nicholas J. Fuentes]] suggested that websites of prominent immigration restrictionists like [[Patrick Buchanan|Pat Buchanan]], [[Ann Coulter]], and [[Michelle Malkin]] could be the next targets for deplatforming following VDARE.

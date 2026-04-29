@@ -123,7 +123,7 @@
 (00:55:58) [[Nicholas J. Fuentes]] stated the [[Federal Bureau of Investigation|FBI]] found no evidence of coordination between [[Trump]], [[Alex Jones]], Ali Alexander, [[Roger Stone]], or Women for [[America First]] and any plot to storm the [[United States Capitol|Capitol]].
 
 ### AF 2021-06-11 0827
-(01:02:56) [[Nicholas J. Fuentes]] recounted that he, along with [[Alex Jones]] and Ali Alexander, organized Stop the Steal events in [[Atlanta]], [[City of Phoenix|Phoenix]], [[Lansing]], [[Harrisburg]], and [[Washington D.C.|Washington, D.C.]], demanding an independently monitored audit of the ballots.
+(01:02:56) [[Nicholas J. Fuentes]] recounted that he, along with [[Alex Jones]] and Ali Alexander, organized Stop the Steal events in [[Atlanta]], [[Phoenix]], [[Lansing]], [[Harrisburg]], and [[Washington D.C.|Washington, D.C.]], demanding an independently monitored audit of the ballots.
 
 ### AF 2021-03-08 0767
 (00:02:24) [[Nicholas J. Fuentes]] noted that other political figures like Ali Alexander, [[Jacob Wohl]], and [[Ryan Girdusky]] had been streaming on [[Clubhouse]].
@@ -141,7 +141,7 @@
 (02:27:00) [[Nicholas J. Fuentes]] credited "Ali" (likely Ali Alexander) for being fair to him and the Groypers and for being actively involved in organizing events "on the ground."
 
 ### AF 2020-12-07 0729
-(00:20:48) Previous rallies in [[Atlanta]] and [[City of Phoenix|Phoenix]] featured other figures like [[Alex Jones]], Ali Alexander, [[Scott Pressler]], and [[Brandon Straka]].
+(00:20:48) Previous rallies in [[Atlanta]] and [[Phoenix]] featured other figures like [[Alex Jones]], Ali Alexander, [[Scott Pressler]], and [[Brandon Straka]].
 
 ### AF 2020-12-01 0726
 (01:07:13) [[Nicholas J. Fuentes]] partnered with Ali Alexander for some "Stop the Steal" rallies and appeared with [[Alex Jones]] at an event in [[Atlanta]].
@@ -156,7 +156,7 @@
 (01:21:48) [[Ashley St Claire|Ashley St. Clair]] was fired from [[Turning Point USA]] after being photographed at a party with [[Nicholas J. Fuentes]], [[Cathy Zhu]], [[Timothy Gionet|Baked Alaska]], [[Steve Franson]], Ali Alexander, and [[Jacob Wall]].
 
 ### AF 2019-09-20 0466
-(00:10:00) [[Nicholas J. Fuentes]] announced that a scheduled debate event in [[City of Miami|Miami]] on September 28th, featuring himself, [[Jacob Wohl]], [[Kathy Zhu]], Ali Alexander, [[Timothy Gionet|Baked Alaska]], and [[Joe Biggs]], had been moved from a yacht to a conventional hall due to booking complications.
+(00:10:00) [[Nicholas J. Fuentes]] announced that a scheduled debate event in [[Miami]] on September 28th, featuring himself, [[Jacob Wohl]], [[Kathy Zhu]], Ali Alexander, [[Timothy Gionet|Baked Alaska]], and [[Joe Biggs]], had been moved from a yacht to a conventional hall due to booking complications.
 
 ### AF 2019-09-04 0454
 (01:14:15) [[Nicholas J. Fuentes]] operates a Telegram channel at t.me/NickJFuentes1 and recommended channels run by [[Patrick Casey]], [[Faith Goldy]], [[Steve Franssen]], [[Carl Benjamin|Sargon of Akkad]], and Ali Alexander.
@@ -168,7 +168,7 @@
 (01:56:05) [[Nicholas J. Fuentes]] stated he had not seen a tweet from Ali Alexander defending him but said it would be "very cool" and that Alexander would be a "very good dude" and "loyal" if true.
 
 ### AF 2019-06-17 0408
-(00:17:00) [[Kyle Kashuv]] became a political figure as the right-wing response to left-wing [[City of Parkland|Parkland]] shooting survivors like [[David Hogg]], promoted by figures such as Ali Alexander and later [[Ben Shapiro]].
+(00:17:00) [[Kyle Kashuv]] became a political figure as the right-wing response to left-wing [[Parkland]] shooting survivors like [[David Hogg]], promoted by figures such as Ali Alexander and later [[Ben Shapiro]].
 
 ### AF 2019-05-16 0389
 (58:45:15) Ali Alexander agreed with [[Nicholas J. Fuentes]] that "Thotty Libertarians must be kicked out" of the political movement.

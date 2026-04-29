@@ -72,7 +72,7 @@
 (00:37:17) [[Nicholas J. Fuentes]] accused [[Matt Walsh|Matt Kip]] of being a federal informant who knew about an investigation into [[Fuentes]] before [[Fuentes]] did and of trying to sabotage the America First movement.
 
 ### AF 2022-08-04 1041
-(00:56:26) [[Nicholas J. Fuentes]] recounted a past conversation with [[Destiny|Destiny]] where [[Destiny|Destiny]] conceded that the [[Groypers]] and America First movement have a structural advantage because they believe in something, whereas atheists lack objective fulfillment.
+(00:56:26) [[Nicholas J. Fuentes]] recounted a past conversation with [[Destiny]] where [[Destiny]] conceded that the [[Groypers]] and America First movement have a structural advantage because they believe in something, whereas atheists lack objective fulfillment.
 
 ### AF 2022-07-11 1030
 (00:50:27) [[Nicholas J. Fuentes]] argued that having [[Joe Biden]] as president was preferable to alternatives like [[Peter Buttigieg|Pete Buttigieg]] or [[Elizabeth Warren]], as [[Joe Biden|Biden's]] administration's failures would benefit the America First movement.
@@ -174,7 +174,7 @@
 (01:46:48) [[Nicholas J. Fuentes]] argued that the America First movement must catalyze change from outside the system, as attempts to infiltrate and reform from within are often neutralized when the system cuts off the infiltrator's platform and influence.
 
 ### AF 2020-12-07 0729
-(00:20:20) [[Nicholas J. Fuentes]]'s rally in [[Harrisburg]] was the first event organized exclusively by his America First movement since a rally in [[City of Lansing|Lansing]], [[State of Michigan|Michigan]].
+(00:20:20) [[Nicholas J. Fuentes]]'s rally in [[Harrisburg]] was the first event organized exclusively by his America First movement since a rally in [[Lansing]], [[State of Michigan|Michigan]].
 
 ### AF 2020-12-07 0729
 (00:32:56) [[Nicholas J. Fuentes]] contrasted [[Ann Coulter]]'s and [[Tucker Carlson]]'s actions with those of [[Michelle Malkin]], [[who]] took a stand for America First against [[Young America's Foundation]].
@@ -364,3 +364,9 @@
 
 ### AF 2017-09-27 0019
 (00:00:14) [[Roy Moore]] won the Alabama special [[Senate]] election by 9% against the establishment-backed candidate, a victory celebrated by the America First movement.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(03:51:38:26) [[Nicholas J. Fuentes]] said that he is not saying people cannot be [[Jews|Jewish]], but they must put America First and recognize that it is a "[[Christianity|Christian]] [[Europe|European]] [[country]]."
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(02:50:58) [[Rollins|Brooke Rollins]] and the America First Policy Institute (AFPI) pushed out the [[Heritage Foundation]]'s Project 2025 staffing database after [[Donald Trump]] gave them the job of staffing his administration.

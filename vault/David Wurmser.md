@@ -6,7 +6,7 @@
 
 
 ### AF 2018-09-11 0237
-(00:45:58) The 1996 "Clean Break" memo, authored for the [[Labor Party|Likud]] party in [[Israel]] by [[Douglas Feith]], David Wurmser, and [[Richard Perle]], advocated for the removal of regimes in [[Iraq]], [[Syria]], [[Iran]], and [[Libya]] to secure [[Israel]]'s borders.
+(00:45:58) The 1996 "Clean Break" memo, authored for the [[Likud]] party in [[Israel]] by [[Douglas Feith]], David Wurmser, and [[Richard Perle]], advocated for the removal of regimes in [[Iraq]], [[Syria]], [[Iran]], and [[Libya]] to secure [[Israel]]'s borders.
 
 ### AF 2018-09-11 0237
 (00:45:58) [[Douglas Feith]], David Wurmser, and [[Richard Perle]], authors of the 1996 "Clean Break" memo, later held positions in the [[U.S. Department of Defense|Pentagon]] and [[U.S. Department of Defense|DOD]] under the [[George W. Bush]] administration.

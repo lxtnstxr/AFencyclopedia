@@ -19,3 +19,6 @@
 
 ### AF 2024-02-27 1298
 (02:09:41:700) [[Nicholas J. Fuentes]] listed [[Norm Macdonald]], [[Samuel J. Hyde|Sam Hyde]], and [[Fred Armisen]] as his favorite comedians, valuing observational and perceptive comedy over Shane Gillis's style.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(02:44:35.530) [[Nicholas J. Fuentes]] argued that [[the left]] has since adapted, creating "a post woke leftism" which he identified in the rise of "dark woke" and figures like Shane Gillis [[who]] can "present as a chud" while holding liberal politics.

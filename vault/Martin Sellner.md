@@ -30,7 +30,7 @@
 (01:03:55:180) The perpetrator of the [[New York|Christchurch]] mosque shootings had donated to Austrian activist Martin Sellner, leading to Martin Sellner being banned from the [[United States]] and Austrian Chancellor [[Sebastian Kurz]] seeking to ban the group [[Generation Identity]].
 
 ### AF 2018-05-07 0159
-(32:34:20) The "Day for Freedom" free speech rally in [[City of London|London]] drew about 4,000 people and was organized in response to figures like [[Lauren Southern]], Martin Sellner, and [[Brittany Pettibone]] being barred from the [[United Kingdom]].
+(32:34:20) The "Day for Freedom" free speech rally in [[London]] drew about 4,000 people and was organized in response to figures like [[Lauren Southern]], Martin Sellner, and [[Brittany Pettibone]] being barred from the [[United Kingdom]].
 
 ### AF 2018-05-07 0159
 (01:04:19:00) [[Nicholas J. Fuentes]] stated that [[Brittany Pettibone]] and Martin Sellner endorsed the "Day for Freedom" event, which he found "pretty sad."

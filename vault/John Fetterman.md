@@ -20,3 +20,9 @@
 
 ### AF 2022-10-27 1087
 (00:12:17) [[Nicholas J. Fuentes]] argued that media focus on John Fetterman's health and [[Joe Biden]]'s gaffes served as a distraction from more significant issues like the ongoing cancellation of [[Kanye West|Ye]] and [[North Atlantic Treaty Organization|NATO]]'s escalation of the conflict in [[Ukraine]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:38:34:95) Senator [[Ron Paul|Rand Paul]] voted with the [[Democratic Party|Democrats]] for the war powers resolution, while Senator John Fetterman voted with the [[Republican Party|Republicans]] against it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:21:44:76) John Fetterman joined [[Republican Party|Republicans]] in voting against the war powers resolution.

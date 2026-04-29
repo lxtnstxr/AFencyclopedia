@@ -6,7 +6,7 @@
 
 
 ### AF 2018-07-09 0196
-(00:02:10) After leaving the Army, [[Jake Lloyd]] began writing for a startup conservative publication and documented political rallies in Berkeley and [[City of Portland|Portland]] throughout 2017.
+(00:02:10) After leaving the Army, [[Jake Lloyd]] began writing for a startup conservative publication and documented political rallies in Berkeley and [[Portland]] throughout 2017.
 
 ### AF 2017-10-04 0024
 (03:09:72) [[Nicholas J. Fuentes]] argued that liberalism, as practiced in institutions like Berkeley, operates as a subversive force that initially champions free speech but later excludes opposing viewpoints once in power.

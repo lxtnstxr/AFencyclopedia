@@ -64,3 +64,6 @@
 
 ### AF 2022-10-07 1074
 (03:41:46) [[Nicholas J. Fuentes]] stated that he is currently in civil litigation with DLive because they froze his money in 2021, similar to what happened to his guest.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:42:33) [[Nicholas J. Fuentes]] stated that his audience has followed him across platforms after being banned from [[Google|YouTube]], DLive, and [[Twitter]], and that he gained 300,000 followers on [[Twitter]] within a month of returning from a three-year ban.

@@ -10,3 +10,6 @@
 
 ### AF 2024-01-17 1278
 (00:55:01) [[Houthis|Houthi]] attacks on shipping caused major global supply chain disruptions as companies began avoiding the [[Red Sea]] and Suez Canal, instead sailing around [[African continent|Africa]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(02:52:07) [[Iran]] demanded sovereignty over the [[Strait of Hormuz]] to extract tolls on shipping, similar to [[Arab Republic of Egypt|Egypt]]'s control over the Suez Canal.

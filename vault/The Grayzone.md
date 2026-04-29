@@ -22,3 +22,12 @@
 
 ### AF 2023-02-16 1123
 (00:24:12) The article by [[Anya Parampil]] in The Gray Zone claimed [[Nicholas J. Fuentes]] had built his following by claiming to be the "Most Cancelled Man in [[United States|America]]" and was now weaponizing that status to undermine the [[United States|America]] First movement.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:56:20) [[Nicholas J. Fuentes]] stated that the "[[fed]]" accusation against him originated from an article written by [[Anya Parampil]], wife of [[Max Blumenthal]], in The Grayzone in 2023.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:56:55) [[Tucker Carlson]] collaborated on The Grayzone hit piece against [[Nicholas J. Fuentes]] by calling [[Michelle Malkin]] to ask about [[Nicholas J. Fuentes]]'s relationships with [[Kanye West]] and [[Donald Trump]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:01) [[Anya Parampil]] and [[Max Blumenthal]] raised $100,000 to pay people to post links to The Grayzone article with the hashtag "[[Federal Reserve|Fed]] [[Nicholas J. Fuentes|Fuentes]]."

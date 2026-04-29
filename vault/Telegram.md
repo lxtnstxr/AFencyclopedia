@@ -6,19 +6,19 @@
 
 
 ### AF 2024-09-04 1383
-(01:10:59) The [[Russian]] founder of Telegram was arrested in [[Government of France|France]], amid [[Emmanuel Macron]]'s talk of deploying [[French]] military officers to [[Ukraine]].
+(01:10:59) The [[Russian]] founder of Telegram was arrested in [[France]], amid [[Emmanuel Macron]]'s talk of deploying [[French]] military officers to [[Ukraine]].
 
 ### AF 2024-08-27 1378
-(00:01:21) [[Nicholas J. Fuentes]] announced the featured story would be the arrest of [[Pavel Durov]], the CEO of Telegram, in [[Government of France|France]].
+(00:01:21) [[Nicholas J. Fuentes]] announced the featured story would be the arrest of [[Pavel Durov]], the CEO of Telegram, in [[France]].
 
 ### AF 2024-08-27 1378
-(00:23:89) Telegram was founded in [[Government of Russia|Russian Federation]] and is headquartered in the [[United Arab Emirates]], having no operational connection to [[Government of France|France]].
+(00:23:89) Telegram was founded in [[Russian Federation]] and is headquartered in the [[United Arab Emirates]], having no operational connection to [[France]].
 
 ### AF 2024-08-27 1378
 (00:44:51) The [[Government of France]] charged [[Pavel Durov]] with crimes pertaining to pornography, illicit drugs, and fraud committed by users on the Telegram platform.
 
 ### AF 2024-08-27 1378
-(00:58:11) [[Pavel Durov]] was arrested while visiting [[Government of France|France]], facing up to 20 years in prison for operating Telegram.
+(00:58:11) [[Pavel Durov]] was arrested while visiting [[France]], facing up to 20 years in prison for operating Telegram.
 
 ### AF 2024-08-27 1378
 (01:41:82) Telegram is an encrypted messaging platform with 500 to 700 million monthly active users that resists government requests to install backdoors or turn over user data.
@@ -33,10 +33,10 @@
 (02:32:52) [[Russia]] is challenging [[French]] hegemony over former [[French]] colonies in [[Western Africa|West Africa]] through the [[Wagner]] PMC group, with Telegram serving as a hub for related propaganda.
 
 ### AF 2024-08-27 1378
-(02:51:60) [[Pavel Durov]]'s arrest in [[Government of France|France]] is a geopolitical operation, with [[Government of France|France]] holding him hostage to gain leverage and potentially force Telegram to provide a backdoor for government surveillance.
+(02:51:60) [[Pavel Durov]]'s arrest in [[France]] is a geopolitical operation, with [[France]] holding him hostage to gain leverage and potentially force Telegram to provide a backdoor for government surveillance.
 
 ### AF 2024-08-26 1377
-(02:21:34) [[Nicholas J. Fuentes]] discussed the arrest of the founder of Telegram in [[Government of France|France]] on charges related to operating an encrypted service without government permission and user content on the platform.
+(02:21:34) [[Nicholas J. Fuentes]] discussed the arrest of the founder of Telegram in [[France]] on charges related to operating an encrypted service without government permission and user content on the platform.
 
 ### AF 2024-02-07 1288
 (01:39:06) [[Nicholas J. Fuentes]] stated that he has been posting content from "BAP [[Twitter]]" figures on his Telegram channel, noting they all hate [[Catholic Church|Catholics]] and lack morality.
@@ -66,7 +66,7 @@
 (00:14:26) [[Nicholas J. Fuentes]] promoted his channels on [[Cozy.tv|Cozy]], [[Gab]], and Telegram, announcing he was closing in on 100,000 subscribers on [[Cozy.tv|Cozy]].
 
 ### AF 2022-05-27 1003
-(00:51:05) The [[Anti-Defamation League]] called for Telegram to be censored by the [[Apple Inc.|App Store]] for allowing posts about replacement theory following the [[City of Buffalo|Buffalo]] shooting.
+(00:51:05) The [[Anti-Defamation League]] called for Telegram to be censored by the [[Apple Inc.|App Store]] for allowing posts about replacement theory following the [[Buffalo]] shooting.
 
 ### AF 2022-05-18 0996
 (08:08:310) Telegram began censoring talk about "white genocide," leading [[Nicholas J. Fuentes]] to urge followers to migrate to [[Gab]] and [[Truth Social]].
@@ -75,10 +75,10 @@
 (00:18:05) [[Nicholas J. Fuentes]] advised followers to also follow him on [[Gab]] and Telegram, citing [[Gab]] as the only platform with true free speech, especially for white [[United States|Americans]].
 
 ### AF 2022-05-17 0995
-(00:18:50) [[Nicholas J. Fuentes]] stated that in the wake of the [[City of Buffalo|Buffalo]] shooting, there was a renewed push for Telegram to begin censoring content.
+(00:18:50) [[Nicholas J. Fuentes]] stated that in the wake of the [[Buffalo]] shooting, there was a renewed push for Telegram to begin censoring content.
 
 ### AF 2022-05-17 0995
-(00:50:06) [[Nicholas J. Fuentes]] read a tweet from the [[Anti-Defamation League|ADL]] calling on Telegram to immediately remove content related to the [[City of Buffalo|Buffalo]] shooting and implement hate and extremism policies.
+(00:50:06) [[Nicholas J. Fuentes]] read a tweet from the [[Anti-Defamation League|ADL]] calling on Telegram to immediately remove content related to the [[Buffalo]] shooting and implement hate and extremism policies.
 
 ### AF 2022-05-17 0995
 (00:50:55) The [[Anti-Defamation League|ADL]] called on [[Google]] and [[Apple Inc.|Apple]] to remove Telegram from their app stores if the platform did not take action to censor content.
@@ -292,3 +292,6 @@
 
 ### AF 2021-05-26 0817
 (04:18:540) A new push notification feature was added to [[Nicholas J. Fuentes]]' platform, which users could toggle on via Telegram or an [[Google|Android]] mobile device.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:22:45) [[Nicholas J. Fuentes]] directed viewers to support his show through a subscription at americafirst.plus for $15 a month, and a $100 a month tier for access to a group chat on Telegram.

@@ -6,7 +6,7 @@
 
 
 ### AF 2024-10-17 1408
-(01:27:51) Several [[Europe|European]] countries, including [[Government of France|France]] and Italy, embargoed weapons sales to [[Israel]] in protest of its war in [[Lebanon]] and attacks on [[United Nations]] peacekeepers.
+(01:27:51) Several [[Europe|European]] countries, including [[France]] and Italy, embargoed weapons sales to [[Israel]] in protest of its war in [[Lebanon]] and attacks on [[United Nations]] peacekeepers.
 
 ### AF 2024-09-17 1390
 (01:57:01) [[Nicholas J. Fuentes]] stated that while other white ethnicities like Italians, [[Scottish]], and [[English]] people can be good merchants, [[Jews]] possess a special, inborn talent for commerce.
@@ -30,10 +30,10 @@
 (01:10:10) [[Nicholas J. Fuentes]] argued that Zionists have infiltrated the global right wing, citing pro-[[Israel]] shifts by figures like [[Giorgia Meloni]] in Italy, [[Javier Milei]] in [[Argentina]], and [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]].
 
 ### AF 2024-07-11 1353
-(01:18:00) [[Nicholas J. Fuentes]] cited [[Giorgia Meloni]] in Italy, [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]], [[Marine Le Pen]] in [[Government of France|France]], and [[Nigel Farage]] in the [[United Kingdom]] as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
+(01:18:00) [[Nicholas J. Fuentes]] cited [[Giorgia Meloni]] in Italy, [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]], [[Marine Le Pen]] in [[France]], and [[Nigel Farage]] in the [[United Kingdom]] as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
 
 ### AF 2024-07-10 1352
-(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the [[United Kingdom]], [[Government of France|France]], [[Hungary]], the [[Kingdom of the Netherlands|Netherlands]], Italy, [[Brazil]], [[Argentina]], and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
+(00:01:51) [[Nicholas J. Fuentes]] argued that international right-wing and nationalist movements in the [[United Kingdom]], [[France]], [[Hungary]], the [[Kingdom of the Netherlands|Netherlands]], Italy, [[Brazil]], [[Argentina]], and the [[United States]] are uniformly pro-[[Israel]], creating a contradiction for movements claiming national sovereignty.
 
 ### AF 2024-06-10 1341
 (01:19:00) [[Nicholas J. Fuentes]] stated that under Prime Minister [[Giorgia Meloni]], Italy has experienced more immigration from [[African continent|Africa]] than ever before, despite her platform opposing immigration.
@@ -51,7 +51,7 @@
 (03:26:38) [[Giorgia Meloni|Georgia Meloni]], as the prime minister of Italy, has restricted irregular migration but also allowed in hundreds of thousands, if not millions, of legal immigrants in a working capacity.
 
 ### AF 2024-02-14 1292
-(00:15:55) [[Nicholas J. Fuentes]] argued that right-wing populist movements in countries like [[Brazil]], the [[Kingdom of the Netherlands|Netherlands]], Italy, [[Government of France|France]], [[Germany]], and [[El Salvador]] represent a "[[Likud]] infiltration" orchestrated by [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party to create global allies for [[Israel]].
+(00:15:55) [[Nicholas J. Fuentes]] argued that right-wing populist movements in countries like [[Brazil]], the [[Kingdom of the Netherlands|Netherlands]], Italy, [[France]], [[Germany]], and [[El Salvador]] represent a "[[Likud]] infiltration" orchestrated by [[Benjamin Netanyahu|Netanyahu]]'s [[Likud]] party to create global allies for [[Israel]].
 
 ### AF 2024-02-07 1288
 (00:12:36) [[Nicholas J. Fuentes]] argued that the rise of right-wing populist movements in the [[Kanye West|West]], including those led by [[Donald Trump]] in the [[United States]], [[Jair Bolsonaro]] in [[Brazil]], [[Javier Milei]] in [[Argentina]], [[Giorgia Meloni]] in Italy, and [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]], coincides with support from the [[Israel|Israeli]] right-wing.
@@ -60,7 +60,7 @@
 (00:28:56) [[Nicholas J. Fuentes]] stated that [[Giorgia Meloni]]'s government in Italy has focused on Holocaust remembrance while immigration has worsened.
 
 ### AF 2023-10-05 1230
-(00:18:10) [[Nicholas J. Fuentes]] compared [[Alternative for Germany]] to other right-wing [[Europe|European]] parties like the [[National Rally|National Front]] in [[Government of France|France]], [[UK Independence Party|UKIP]] in the [[United Kingdom]], the [[BNP]], and [[Lega|Lega Nord]] in Italy.
+(00:18:10) [[Nicholas J. Fuentes]] compared [[Alternative for Germany]] to other right-wing [[Europe|European]] parties like the [[National Rally|National Front]] in [[France]], [[UK Independence Party|UKIP]] in the [[United Kingdom]], the [[BNP]], and [[Lega|Lega Nord]] in Italy.
 
 ### AF 2023-10-05 1230
 (00:19:33) [[Nicholas J. Fuentes]] noted that [[Elon Musk]] and [[United States|American]] media had weighed in on a new wave of mass migration, where hundreds of thousands of African migrants are scooped up off the coast of [[Libya]] by NGOs or the Italian government and brought to Italy.
@@ -78,16 +78,16 @@
 (23:12:20) [[Vladimir Putin]] was seen as a winner as Western governments that took up arms against [[Russia]], including those in Italy, [[Germany]], [[United Kingdom|England]], and the [[United States]], faced internal collapse and political turmoil.
 
 ### AF 2022-09-27 1067
-(01:11:20:70) [[Nicholas J. Fuentes]] stated he wants to see an Italian prime minister who pulls Italy out of the [[Europe|European Union]] and criticizes [[North Atlantic Treaty Organization|NATO]], not a pro-[[EU]] and pro-[[North Atlantic Treaty Organization|NATO]] leader who is merely "based on the family."
+(01:11:20:70) [[Nicholas J. Fuentes]] stated he wants to see an Italian prime minister who pulls Italy out of the [[European Union]] and criticizes [[North Atlantic Treaty Organization|NATO]], not a pro-[[EU]] and pro-[[North Atlantic Treaty Organization|NATO]] leader who is merely "based on the family."
 
 ### AF 2022-09-15 1061
-(02:28:29) [[Russia]] cut 80% of its natural gas exports to the [[Europe|European Union]], triggering an energy crisis and protests in [[Europe|European]] nations like Italy and the [[Czech Republic]] ahead of winter.
+(02:28:29) [[Russia]] cut 80% of its natural gas exports to the [[European Union]], triggering an energy crisis and protests in [[Europe|European]] nations like Italy and the [[Czech Republic]] ahead of winter.
 
 ### AF 2022-09-10 1058
 (01:17:92) Major protests occurred in [[Prague]], and citizens in Italy and the [[United Kingdom]] refused to pay their energy bills.
 
 ### AF 2022-09-10 1058
-(30:51:12) Italy, [[Israel|Poland]], [[Hungary]], and [[Greece]] were among the most vocal opponents of a price cap on [[Russia]]n gas within the [[Europe|European Union]].
+(30:51:12) Italy, [[Israel|Poland]], [[Hungary]], and [[Greece]] were among the most vocal opponents of a price cap on [[Russia]]n gas within the [[European Union]].
 
 ### AF 2022-09-10 1058
 (50:08:44) Record high energy prices were reported in the [[United Kingdom]], [[Germany]], Italy, and Eastern [[Europe]], affecting even countries like [[Portugal]] that are in the same economic union.
@@ -102,7 +102,7 @@
 (00:31:02) Countries like [[Germany]] and Italy were almost totally dependent on [[Russian]] natural gas for industry, manufacturing, heating, and transportation.
 
 ### AF 2022-03-01 0952
-(00:07:44) Along with 27 members of the [[Europe|European Union]], including [[Government of France|France]], [[Germany]], and Italy, and countries like the [[United Kingdom]], [[Dominion of Canada|Canada]], [[State of Japan|Japan]], [[South Korea]], [[Australia]], [[New Zealand]], and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
+(00:07:44) Along with 27 members of the [[European Union]], including [[France]], [[Germany]], and Italy, and countries like the [[United Kingdom]], [[Dominion of Canada|Canada]], [[State of Japan|Japan]], [[South Korea]], [[Australia]], [[New Zealand]], and [[Switzerland]], the free world was inflicting pain on [[Russia]] and supporting [[Ukraine]].
 
 ### AF 2022-01-10 0932
 (23:02:12) In Italy and [[Argentina]], new rules prohibit unvaccinated individuals from accessing banks after January 20th.
@@ -114,13 +114,13 @@
 (00:43:52) [[Nicholas J. Fuentes]] claimed that "concentration camps for the unvaccinated" were built in [[Australia]] and that vaccine passport systems (green passes) were implemented in [[Israel]] and Italy, with discussions about implantable chips occurring in Northern [[Europe]].
 
 ### AF 2021-12-20 0924
-(00:52:24) [[Austria]] banned entry for unvaccinated travelers, [[Government of France|France]] banned travel from the [[United Kingdom]], [[Ireland]] imposed an 8 p.m. curfew on hospitality venues, and [[Spain]] and Italy were meeting to discuss new containment measures.
+(00:52:24) [[Austria]] banned entry for unvaccinated travelers, [[France]] banned travel from the [[United Kingdom]], [[Ireland]] imposed an 8 p.m. curfew on hospitality venues, and [[Spain]] and Italy were meeting to discuss new containment measures.
 
 ### AF 2021-08-31 0870
 (11:16:04) [[Nicholas J. Fuentes]] listed [[Russia]], [[Turkey]], [[China]], [[Iran]], the [[Afghanistan|Taliban]], [[North Korea]], and [[Bashar al-Assad]] as sources of hope, along with Italy and [[Hungary]].
 
 ### AF 2021-08-19 0863
-(02:09:11) [[Nicholas J. Fuentes]] argued that Italian cuisine is superior to [[Russian]] food, citing a meal at a [[Russian]] restaurant in [[City of Miami|Miami]] with a friend as good but not comparable to Italian food.
+(02:09:11) [[Nicholas J. Fuentes]] argued that Italian cuisine is superior to [[Russian]] food, citing a meal at a [[Russian]] restaurant in [[Miami]] with a friend as good but not comparable to Italian food.
 
 ### AF 2021-08-19 0863
 (02:17:39) [[Nicholas J. Fuentes]] dismissed the Anglo meme that Italians aren't white, calling for white solidarity among Anglos, Slavs, and other [[Europe|European]] groups to preserve their [[heritage]].
@@ -132,10 +132,10 @@
 (03:07:01) [[Nicholas J. Fuentes]] advised supporters planning to question [[Charlie Kirk]] at events to craft questions that highlight contradictions between his stated beliefs and the actions of his [[organization]], [[Turning Point USA]], such as its employment of LGBT ambassadors.(01:39:54) The largest lynching in [[United States|American]] history targeted Italian immigrants, a group that faced discrimination long after the abolition of slavery.
 
 ### AF 2021-03-24 0779
-(02:25:50) Taylor Street in [[City of Chicago|Chicago]] was the historic center for Italian immigrants, where [[Nicholas J. Fuentes]]'s great-grandfather had his shoe shop.
+(02:25:50) Taylor Street in [[Chicago]] was the historic center for Italian immigrants, where [[Nicholas J. Fuentes]]'s great-grandfather had his shoe shop.
 
 ### AF 2021-03-24 0779
-(02:32:01) [[Nicholas J. Fuentes]] has been introducing his associate Jaden to [[City of Chicago|Chicago]]'s Italian-[[United States|America]]n culture by watching *Goodfellas* and visiting classic Italian neighborhoods and restaurants.
+(02:32:01) [[Nicholas J. Fuentes]] has been introducing his associate Jaden to [[Chicago]]'s Italian-[[United States|America]]n culture by watching *Goodfellas* and visiting classic Italian neighborhoods and restaurants.
 
 ### AF 2021-03-24 0779
 (02:32:28) [[Nicholas J. Fuentes]] described himself as an Italian-[[United States|America]]n chauvinist, contrasting the rich culture, food, and experience of Italian-[[United States|America]]ns with what he perceives as the blandness of other [[United States|American]] regions.
@@ -306,7 +306,7 @@
 (34:58:48) [[Nicholas J. Fuentes]] reported that Italy had 47,021 confirmed coronavirus cases, an increase of 6,000 in a single day.
 
 ### AF 2020-03-20 0569
-(56:30:26) [[Nicholas J. Fuentes]] pointed to videos of [[United States]] military Humvees being shipped to cities like [[Baltimore]], [[City of Chicago|Chicago]], and [[New York]] as evidence that the declaration of martial law and a mandatory lockdown, following the pattern seen in Italy and [[France]], was a likely next step.
+(56:30:26) [[Nicholas J. Fuentes]] pointed to videos of [[United States]] military Humvees being shipped to cities like [[Baltimore]], [[Chicago]], and [[New York]] as evidence that the declaration of martial law and a mandatory lockdown, following the pattern seen in Italy and [[France]], was a likely next step.
 
 ### AF 2020-03-19 0568
 (00:01:40) [[Nicholas J. Fuentes]] announced the main story for the show would be about the coronavirus pandemic and related economic stimulus proposals. (00:01:40) [[Senate]] [[Republican Party|Republicans]] unveiled a draft proposal to provide $1,200 cash payments to individuals earning under $75,000 and $2,400 to couples earning under $150,000, with amounts tapering for higher incomes and reduced payments for those with low taxable income. (00:03:06) The [[United States Senate]] passed the first phase of a coronavirus relief package, which included free coronavirus testing and paid sick leave. (00:04:18) Italy surpassed [[China]] in official confirmed deaths from coronavirus, with Italy reporting 41,000 cases compared to [[China]]'s 80,000. (00:05:07) [[Richard Burr]], a [[Senator]] from [[North Carolina]] and member of the [[Senate Intelligence Committee]], sold his [[stock]] holdings in late February while publicly stating the [[United States]] had the coronavirus under control. (00:06:57) [[Tulsi Gabbard]] dropped out of the [[Democratic presidential primary]] and endorsed [[Joe Biden]]. (00:07:37) [[Tulsi Gabbard]]'s presidential campaign was primarily focused on opposing foreign regime change wars. (00:08:38) [[Joe Biden]] voted for the [[Iraq War]] in 2003 and, as [[Vice President]] under [[Barack Obama]], supported the [[NATO intervention in Libya]] that deposed [[Muammar Gaddafi]] and backed funding for the [[Syria|Syrian]] opposition against [[Bashar al-Assad]]. (00:11:43) [[Nicholas J. Fuentes]] stated his opposition to regime change in [[Syria]], the wars in [[Iraq]] and [[Afghanistan]], war with [[Iran]], and expressed skepticism of alliances with [[Saudi Arabia]], [[Qatar]], and [[Israel]]. (00:12:27) [[Tulsi Gabbard]] was a member of the [[Council on Foreign Relations]]. (00:16:50) [[Tulsi Gabbard]] was a frequent guest on [[Tucker Carlson]]'s show. (00:20:09) [[Donald Trump]] opposed unnecessary regime change wars. (00:20:57) [[Donald Trump]] worked to reduce illegal immigration, build a wall, restrict asylum seekers, and reduce levels of legal immigration. (00:21:32) [[Donald Trump]] opposed [[China]] and free trade, worked to bring troops home from [[Syria]], and negotiated an end to the war in [[Afghanistan]]. (00:22:19) [[Donald Trump]] authorized three rounds of missile strikes on [[Syria]] in 2017 and 2018. (00:22:52) The [[Donald Trump]] administration abandoned the [[Barack Obama]] administration's goal of regime change in [[Syria]] and announced a near-total withdrawal of [[U.S. Department of Defense|U.S. forces]] from [[Syria]] in August 2019. (00:27:26) The number of confirmed coronavirus cases in the [[United States]] increased from approximately 9,000 to nearly 14,000 in 24 hours. (00:28:04) Global confirmed coronavirus cases reached 246,328, with [[China]] reporting 80,928, Italy at 41,035, [[Iran]] at 18,407, [[Spain]] at 18,077, [[Germany]] at 15,320, the [[United States]] at nearly 14,000, [[France]] at 10,995, and [[South Korea]] at 8,565. (00:30:53) The [[United States]] conducted 22,000 coronavirus tests in a single day, a significant increase from an estimated maximum capacity of 15,000-20,000 tests per day the previous week. (00:32:23) Drive-through coronavirus testing centers were established in [[Washington state]] and [[New York]]. (00:32:50) [[South Korea]] conducted an average of 15,000 coronavirus tests per day, which helped control its outbreak. (00:39:09) The [[The New York Times|New York Times]] reported that [[Senate]] [[Republican Party|Republicans]] unveiled an economic rescue plan providing hundreds of billions in loans to corporations and small businesses, corporate tax cuts, and $1,200 checks for taxpayers earning up to $75,000, with amounts tapering to zero for those earning over $99,000. (00:40:45) [[Mitch McConnell]], the [[Senate Majority Leader]], introduced the economic relief proposal after private talks with [[Republican Party|Republicans]] in the [[White House]]. (00:41:49) The [[Republican Party|Republican]] relief proposal included an additional $500 per child for eligible individuals and couples. (00:45:07) The [[Republican Party|Republican]] relief plan proposed moving the income tax filing deadline from April 15 to July 15. (00:45:56) The [[Republican Party|Republican]] plan authorized over $200 billion in support for hard-hit industries, including $50 billion for commercial airlines and $8 billion for air cargo carriers. (00:55:09) [[ProPublica]] reported that [[Richard Burr]], as chair of the [[Senate Intelligence Committee]], sold between $600,000 and $1.72 million in stocks in 33 transactions a week before the market declined by 30%, after receiving daily coronavirus briefings. (00:56:44) [[National Public Radio|NPR]] obtained a recording from February 27 in which [[Richard Burr]] gave a dire preview of the coronavirus's economic impact to a VIP group at the [[Capitol Hill Club]], whose members paid up to $10,000 for access. (00:57:55) In a February 7 op-ed, [[Richard Burr]] assured the public the [[United States]] was better prepared than ever for public health threats like the coronavirus. (00:58:18) [[Richard Burr]] sold up to $150,000 in shares of [[Wyndham Hotels & Resorts]] and up to $100,000 in shares of [[Extended Stay America]], companies whose values later plummeted.
@@ -321,7 +321,7 @@
 (00:33:10) Worldwide confirmed coronavirus cases reached 199,092, with [[China]] reporting 80,881 cases, Italy 31,506, [[Iran]] 16,169, [[Spain]] 11,826, [[South Korea]] 8,320, [[Germany]] 9,360, [[France]] 7,730, and the [[United States]] 6,133.
 
 ### AF 2020-03-16 0565
-(00:09:40) [[Nicholas J. Fuentes]] claimed he had been consistently covering the coronavirus outbreak since January 21st, 2020, when it was a small outbreak in [[City of Wuhan|Wuhan]], and had accurately predicted the shutdown of restaurants and the spread seen in Italy would occur in the [[United States]].
+(00:09:40) [[Nicholas J. Fuentes]] claimed he had been consistently covering the coronavirus outbreak since January 21st, 2020, when it was a small outbreak in [[Wuhan]], and had accurately predicted the shutdown of restaurants and the spread seen in Italy would occur in the [[United States]].
 
 ### AF 2020-03-16 0565
 (01:26:40) [[Nicholas J. Fuentes]] presented global coronavirus case numbers, reporting 181,853 confirmed cases worldwide with 7,113 deaths, including 80,000 cases in [[China]], 28,000 in Italy, 15,000 in [[Iran]], and 4,525 in the [[United States]].
@@ -429,7 +429,7 @@
 (00:19:00) [[Matteo Salvini]], as Deputy Prime Minister and Interior Minister of Italy, demanded snap elections, potentially ending the coalition government with the [[Five Star Movement]].
 
 ### AF 2019-08-09 0437
-(00:23:00) [[Nicholas J. Fuentes]] argued that a [[Matteo Salvini]]-led government in Italy would represent a major populist, nationalist, and anti-migration shift within a founding [[Europe|European Union]] member [[state]].
+(00:23:00) [[Nicholas J. Fuentes]] argued that a [[Matteo Salvini]]-led government in Italy would represent a major populist, nationalist, and anti-migration shift within a founding [[European Union]] member [[state]].
 
 ### AF 2019-08-09 0437
 (00:25:00) [[Nicholas J. Fuentes]] speculated about a future nationalist alliance between countries like [[Russia]], [[Israel|Poland]], and Italy that could exert external influence on the [[United States]].
@@ -444,10 +444,10 @@
 (02:32:43) [[Nicholas J. Fuentes]] listed several international terrorist attacks by [[Islam|Muslims]] that occurred in the weeks following the [[New York|Christchurch]] mosque shooting, including incidents in the [[Kingdom of the Netherlands|Netherlands]], Italy, and [[Indonesia]].
 
 ### AF 2019-05-27 0395
-(00:02:00) [[Nicholas J. Fuentes]] stated that nationalist parties in [[France]], Italy, [[Hungary]], and the [[United Kingdom]] performed well in the [[Europe|European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
+(00:02:00) [[Nicholas J. Fuentes]] stated that nationalist parties in [[France]], Italy, [[Hungary]], and the [[United Kingdom]] performed well in the [[European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
 
 ### AF 2019-05-27 0395
-(00:38:40) [[Nicholas J. Fuentes]] reported that in Italy, [[Matteo Salvini]]'s [[League]] party won a sweeping victory with 34% of the vote, making it one of the largest single parties in the [[Europe|European Union]] and prompting Salvini to call for new national elections.
+(00:38:40) [[Nicholas J. Fuentes]] reported that in Italy, [[Matteo Salvini]]'s [[League]] party won a sweeping victory with 34% of the vote, making it one of the largest single parties in the [[European Union]] and prompting Salvini to call for new national elections.
 
 ### AF 2019-05-27 0395
 (00:40:50) [[Nicholas J. Fuentes]] noted that as Interior Minister, [[Matteo Salvini]] reduced illegal immigration into Italy by 92% since 2015.
@@ -507,7 +507,7 @@
 (11:43:00) In Italy, a coalition government was formed between the anti-[[EU]] [[Five Star Movement]] and the right-wing, anti-[[EU]] [[Lega]].
 
 ### AF 2018-09-13 0239
-(14:42:00) The [[Schengen Agreement]] allowed free movement of people within the [[Europe|European Union]], enabling migrants [[who]] entered coastal countries like Italy to travel to nations like [[Sweden]], [[Denmark]], or [[France]].
+(14:42:00) The [[Schengen Agreement]] allowed free movement of people within the [[European Union]], enabling migrants [[who]] entered coastal countries like Italy to travel to nations like [[Sweden]], [[Denmark]], or [[France]].
 
 ### AF 2018-08-31 0231
 (48:40:20) [[Nicholas J. Fuentes]] argued that conservatism is experiencing a resurgence as a "perennial" recognition of human nature, citing a longing for tradition evident in movements in [[Europe|Eastern Europe]], Italy, [[Germany]], [[Brexit]], and the election of [[Donald Trump]], despite opposition from left-controlled institutions.
@@ -543,7 +543,7 @@
 (00:29:33) [[Nicholas J. Fuentes]] stated that [[Matteo Salvini]] in Italy was talking about "cleansing migrants neighborhood to neighborhood" and that [[Angela Merkel]] was on the verge of a government shutdown.
 
 ### AF 2018-05-11 0162
-(41:31:55) [[Nicholas J. Fuentes]] commented on political developments in Italy, where the Five Star Movement and a right-wing coalition opposed to the [[Europe|European Union]] had gained a majority of seats in parliament.
+(41:31:55) [[Nicholas J. Fuentes]] commented on political developments in Italy, where the Five Star Movement and a right-wing coalition opposed to the [[European Union]] had gained a majority of seats in parliament.
 
 ### AF 2018-04-24 0151
 (00:35:51) A high court in the [[United Kingdom]] ruled that the parents of Alfie Evans, a toddler with a degenerative neurological disorder, could not travel to [[Rome]], Italy to seek further medical treatment, and earlier authorized doctors to remove him from life support.
@@ -570,7 +570,7 @@
 (10:40:98) [[Matteo Renzi]]'s center-left [[Democratic Party]] was polling at 27% ahead of the Italian elections, with Renzi having previously served as Prime Minister until stepping down after a constitutional referendum.
 
 ### AF 2018-02-28 0115
-(10:52:22) [[Matteo Renzi]] stepped down as Prime Minister of Italy following a failed constitutional referendum seen as a blow to the [[Europe|European Union]].
+(10:52:22) [[Matteo Renzi]] stepped down as Prime Minister of Italy following a failed constitutional referendum seen as a blow to the [[European Union]].
 
 ### AF 2018-02-28 0115
 (11:38:34) The [[Five Star Movement]], led by [[Luigi Di Maio]], declared it would not form a coalition government and was polling at 28% ahead of the Italian elections.
@@ -588,10 +588,10 @@
 (17:29:42) Over 600,000 migrants entered Italy between 2013 and 2018, with 117,000 arriving in 2017 alone, significantly impacting a [[country]] with a native birth rate of 450,000 Italians in 2016.
 
 ### AF 2018-02-28 0115
-(18:56:50) Italy has one of the highest debt-to-GDP ratios in the [[Europe|European Union]] and an unemployment rate of 11% for its youth population.
+(18:56:50) Italy has one of the highest debt-to-GDP ratios in the [[European Union]] and an unemployment rate of 11% for its youth population.
 
 ### AF 2018-02-28 0115
-(19:45:12) The [[Europe|European Union]] based in [[Brussels]] used supranational law to force member states like Italy to accept and grant citizenship to migrants arriving from [[African continent|Africa]] and the [[Middle East]].
+(19:45:12) The [[European Union]] based in [[Brussels]] used supranational law to force member states like Italy to accept and grant citizenship to migrants arriving from [[African continent|Africa]] and the [[Middle East]].
 
 ### AF 2018-02-28 0115
 (25:39:50) The right-wing coalition in Italy adopted the slogan "Italians First" for its election campaign.
@@ -628,3 +628,21 @@
 
 ### AF 2017-09-25 0017
 (01:19:15) [[Nicholas J. Fuentes]] rejected an analogy comparing immigrant crime to crime by descendants of past immigrant groups like the [[Ireland|Irish]] or Italians, arguing it ignores the current risk assessment of new immigrant sources.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:53:43) [[Nicholas J. Fuentes]] decided to spontaneously travel to Italy after [[Bradley Martin]] suggested he take a break from the show and travel.
+
+### 2026-04-28 TRUMP ASSASSINATION ATTEMPT Most Boring Happening Of All Time  America First Ep. 1672
+(01:55:12) [[Nicholas J. Fuentes]] noted the "insane coincidence" that [[Candace Owens]] also took an unannounced trip to Italy and visited [[Rome]] during the same week he was there.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:48:00:040) [[Nicholas J. Fuentes]] stated that white people are becoming a minority in every [[country]] in which they reside, including [[London]], [[Paris]], and Italy.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:48:40:010) [[Nicholas J. Fuentes]] stated that [[Jews]] say [[Israel]] has a right to exist as a [[Jews|Jewish]] [[country]], but believe white people are not entitled to a [[country]] such as [[France]], Italy, [[Germany]], [[United Kingdom|England]], or [[United States|America]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:09:30) [[Nicholas J. Fuentes]] stated that to survive in the world, one must be a "schemer," a trait he associates with Italians and [[Jews]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(03:05:25) [[Nicholas J. Fuentes]] stated that his ancestors from Italy learned English and assimilated.

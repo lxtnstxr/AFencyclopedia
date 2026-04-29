@@ -131,7 +131,7 @@
 (02:19:00) The CDC's Advisory Committee on Immunization Practices and the [[Food and Drug Administration|FDA]] were reviewing evidence to determine a clear link between [[COVID-19]] vaccines and myocarditis.
 
 ### AF 2021-06-17 0831
-(01:49:21) The [[Chicago Department of Public Health]] allocated nearly $10 million in coronavirus relief funds from the CDC to establish six Healthy [[City of Chicago|Chicago]] Equity Zones encompassing the entire [[city]].
+(01:49:21) The [[Chicago Department of Public Health]] allocated nearly $10 million in coronavirus relief funds from the CDC to establish six Healthy [[Chicago]] Equity Zones encompassing the entire [[city]].
 
 ### AF 2021-05-20 0814
 (00:00:22) The CDC stated that the coronavirus pandemic could have originated from a laboratory leak at the [[Wuhan Institute of Virology]] in [[China]].
@@ -158,7 +158,7 @@
 (01:05:40) [[Nicholas J. Fuentes]] cited former CDC director [[Thomas Frieden]] as saying that lives would not return to normal and that long-term changes were necessary to coexist with COVID-19.
 
 ### AF 2021-02-04 0755
-(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as [[Bank of America Corporation|Bank of America]], the [[Federal Bureau of Investigation]], [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the [[United Nations]], the [[World Health Organization]], the Centers for Disease Control and Prevention, the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the [[World Economic Forum]], and the [[Europe|European Union]].
+(00:09:44) [[Nicholas J. Fuentes]] argued that left-wing groups like [[Antifa]] and [[Black Lives Matter]] were effectively aligned with powerful institutions such as [[Bank of America Corporation|Bank of America]], the [[Federal Bureau of Investigation]], [[Amazon Inc.|Amazon]], [[Twitter]], [[Facebook]], [[Raytheon Technologies Corporation|Lockheed Martin]], [[Raytheon Technologies Corporation|Raytheon]], the [[Atlanta Council]], [[Pfizer]], [[Moderna]], the [[United Nations]], the [[World Health Organization]], the Centers for Disease Control and Prevention, the [[International Monetary Fund]], the [[World Bank Group|World Bank]], the [[World Economic Forum]], and the [[European Union]].
 
 ### AF 2021-01-21 0747
 (00:53:20) [[Nicholas J. Fuentes]] asserted that media censorship and the promotion of trusted sources like the CDC and [[World Health Organization]] were used to manufacture public consent for COVID-19 policies, including vaccination.
@@ -212,7 +212,7 @@
 (01:30:01) [[Joe Biden]] claimed he helped stop the Ebola pandemic by setting up a [[White House]] office on pandemic diseases and increasing CDC and [[NIH]] budgets, policies he said [[Donald Trump]] had wiped out.
 
 ### AF 2020-02-12 0545
-(00:31:15) [[Nicholas J. Fuentes]] reported the CDC announced a new case in an [[United States|American]] evacuee from [[City of Wuhan|Wuhan]], bringing the total [[United States|U.S]]. cases to 14.
+(00:31:15) [[Nicholas J. Fuentes]] reported the CDC announced a new case in an [[United States|American]] evacuee from [[Wuhan]], bringing the total [[United States|U.S]]. cases to 14.
 
 ### AF 2020-02-12 0545
 (00:37:34) [[Nicholas J. Fuentes]] cited a CDC report stating officials believed the coronavirus would likely take a foothold and spread within communities in the [[United States]].

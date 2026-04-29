@@ -2,7 +2,7 @@
 #person
 
 ### AF 2024-06-10 1341
-(00:33:00) In the [[Europe|European Union]] elections, the [[Alternative for Germany]] increased its proportion of seats in the [[European Parliament]], performing better than the [[Social Democrats]] of Chancellor Olaf Scholz.
+(00:33:00) In the [[European Union]] elections, the [[Alternative for Germany]] increased its proportion of seats in the [[European Parliament]], performing better than the [[Social Democrats]] of Chancellor Olaf Scholz.
 
 
 ### AF 2023-11-10 1247

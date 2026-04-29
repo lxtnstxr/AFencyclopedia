@@ -304,7 +304,7 @@
 (01:51:59) A whistleblower named Eli, who served as head of sales and marketing for the Andrew Tate [[organization]] for two years, told the [[British Broadcasting Corporation|BBC]] that the War Room was "all about you getting women that serve you in your life" and described the group as a cult.
 
 ### AF 2023-08-31 1207
-(01:55:75) The [[British Broadcasting Corporation|BBC]] identified the real leader of the Andrew Tate War Room as [[Miles Sonkin]] (alias Iggy Semmelweis), a former member of alleged cults from [[City of Chicago|Chicago]], [[Illinois]], who developed an interest in the far right in the 2000s.
+(01:55:75) The [[British Broadcasting Corporation|BBC]] identified the real leader of the Andrew Tate War Room as [[Miles Sonkin]] (alias Iggy Semmelweis), a former member of alleged cults from [[Chicago]], [[Illinois]], who developed an interest in the far right in the 2000s.
 
 ### AF 2023-08-31 1207
 (46:36:25) Andrew Tate was arrested in [[Romania]] earlier in the year on charges of sex trafficking, violence against women, and other related crimes.
@@ -463,7 +463,7 @@
 (04:16:18) The guest reported that after a clip of him was played in a [[United States Senate]] committee where the chair of [[U.S. Department of Homeland Security|Homeland Security]] called him a threat, [[Instagram]] took down a post where he simply listed names of free speech advocates like [[Alex Jones]], Andrew Tate, [[Kanye West]], [[Donald Trump]], [[Julian Assange]], and [[Edward Snowden]].
 
 ### AF 2022-10-04 1071
-(00:55:56) [[Sneeko]] flew from [[City of Miami|Miami]] to [[Romania]] to appear on a stream with Andrew Tate, but Andrew Tate refused to let him on the show, citing him as a liability partly due to his association with [[Nicholas J. Fuentes]].
+(00:55:56) [[Sneeko]] flew from [[Miami]] to [[Romania]] to appear on a stream with Andrew Tate, but Andrew Tate refused to let him on the show, citing him as a liability partly due to his association with [[Nicholas J. Fuentes]].
 
 ### AF 2022-10-04 1071
 (01:27:56) Andrew Tate told [[Sneeko]] he could not appear on his show "Emergency Meeting" because [[Sneeko]]'s association with [[Nicholas J. Fuentes]] made him a risk, despite Andrew Tate himself being widely banned from platforms.
@@ -503,3 +503,78 @@
 
 ### AF 2021-12-10 0920
 (01:35:03) [[Nicholas J. Fuentes]] distanced himself from Andrew Tate, noting Tate made money from a "cam whore" farm and calling that "pretty degenerate."
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(02:05:10) [[Nicholas J. Fuentes]] traced a "through line" of lookism and inceldom from [[Elliot Rodger]] and [[Alex Acosta|Alec Minassian]] through Andrew Tate in 2022 to [[Clavicular]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:20:17) [[Nicholas J. Fuentes]] stated that Andrew Tate single-handedly dealt a "crushing blow against feminism."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:22:00) [[Nicholas J. Fuentes]] argued that people should judge public figures like [[Donald Trump]], Andrew Tate, and [[Kanye West]] on the "sum of their decisions" and not just their latest decision, because of the overwhelming pressure they are under.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:24:53) [[Nicholas J. Fuentes]] stated that Andrew Tate made an entire generation of men wake up on feminism and that "feminism got punched in the fucking face by Andrew Tate for once."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:25:24) [[Nicholas J. Fuentes]] defended Andrew Tate for not "doubling down" on the club incident, explaining it was a joke and not a political point.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:32:28:740) [[Nicholas J. Fuentes]] reported that the Tate brothers and [[Fresh & Fit|Fresh and Fit]] were in town and at the party.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:55:07:460) [[Nicholas J. Fuentes]] stated he attended a party at the residence of Andrew Tate and Tristan Tate, where he met them for the first [[time]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:56:23:190) [[Nicholas J. Fuentes]] reported that Andrew Tate told him a story about how he was locked up in [[Romania]], describing it as a "mask off story" of how the matrix works.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:57:30:320) [[Nicholas J. Fuentes]] reported that Andrew Tate said the world used to be fun, but it isn't anymore because you can't do anything without it being recorded on camera and social media.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:59:36:400) [[Nicholas J. Fuentes]] stated that Andrew Tate agreed to go to the club if he went.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(01:59:57:220) [[Nicholas J. Fuentes]] described the group that went to the club as including the Tate brothers, [[Fresh & Fit|Fresh and Fit]], [[Sneeko]], and [[Clavicular]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:05:43:670) [[Nicholas J. Fuentes]] read a report from the [[The New York Times|New York Times]] stating that Andrew Tate, Tristan Tate, and [[Myron Gaines]] were in an entourage at a [[Miami|Miami Beach]] nightclub where the song "Heil [[Adolf Hitler|Hitler]]" was played.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:12:26:420) [[Nicholas J. Fuentes]] reported that on the [[PBD podcast]], Andrew Tate did not request the song "Heil [[Adolf Hitler|Hitler]]."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:12:35:520) [[Nicholas J. Fuentes]] reported that [[Joseph McBride]], a lawyer for the Tates, said the brothers rejected hatred and that free speech is not a license for hate.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:13:01:520) [[Nicholas J. Fuentes]] defended Andrew Tate and Tristan Tate, stating they were put in jail for four years and that the [[Joe Biden|Biden]] [[U.S. Department of State|State Department]] leaned on the [[Romanian]] government to imprison them.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:15:56:200) [[Nicholas J. Fuentes]] stated that Andrew Tate insulted [[Sneeko]] a [[little]] bit but didn't throw anyone under the bus.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:52:37:610) [[Nicholas J. Fuentes]] thanked the Tates, [[Clav]], [[Sneeko]], and [[Fresh & Fit|Fresh and Fit]] for getting him out of his comfort zone.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:39:42) [[Nicholas J. Fuentes]] analyzed Andrew Tate's comments about [[Sneeko]] on the [[PBD podcast]], concluding that Tate was in "damage control mode" and his comments about [[Sneeko]] were "a [[little]] shitty."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:40:30) [[Nicholas J. Fuentes]] expressed sympathy for Andrew Tate's predicament, noting Tate has been to jail and lost a lot of money, which explains his frustration.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:51:30) [[Nicholas J. Fuentes]] compared his group to [[Star Wars]] characters, identifying himself as [[Obi-Wan Kenobi|Obi-Wan]], [[Clavicular]] as [[Anakin Skywalker|Anakin]], [[Sneeko]] as [[Jar Jar Binks]], [[Myron Gaines|Myron]] as [[Mace Windu]], and Andrew Tate as [[Yoda]].
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:00:06) [[Nicholas J. Fuentes]] used Andrew Tate as a cautionary tale, explaining that Tate became too famous and powerful too quickly, was targeted by the [[state]], and had no exit strategy.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:32:15) [[Nicholas J. Fuentes]] stated that Tristan Tate is more thoughtful and intelligent than he is given credit for.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:50:58) [[Nicholas J. Fuentes]] responded angrily to a viewer [[who]] questioned why he praises Andrew Tate and Tristan Tate if they are pornographers.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(04:51:03) [[Nicholas J. Fuentes]] told a female viewer to "shut the fuck up, bitch," and "find a man and tell a man to punch you in the face," after she questioned his stance on the Tate brothers.
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(02:09:28) [[Nicholas J. Fuentes]] stated that [[Ben Shapiro]] gave a speech calling out [[Tucker Carlson]], [[Candace Owens]], [[Daryl Cooper]], [[Steve Bannon]], [[Megyn Kelly]], Andrew Tate, and [[Alex Jones]].

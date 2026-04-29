@@ -26,10 +26,10 @@
 (19:46:01) [[Jamal Bowman]] was a political ally of [[Alexandria Ocasio-Cortez]], [[Cori Bush]], [[Rashida Tlaib]], and Ilhan Omar.
 
 ### AF 2024-05-21 1332
-(00:55:50) [[Nicholas J. Fuentes]] cited Ilhan Omar as an example of the tribalization of [[United States|American]] politics, noting she intervenes in the conflict between [[Somalia]] and [[Somalia|Somaliland]] on behalf of her [[Somalia|Somali]] constituents in [[City of Minneapolis|Minneapolis]].
+(00:55:50) [[Nicholas J. Fuentes]] cited Ilhan Omar as an example of the tribalization of [[United States|American]] politics, noting she intervenes in the conflict between [[Somalia]] and [[Somalia|Somaliland]] on behalf of her [[Somalia|Somali]] constituents in [[Minneapolis]].
 
 ### AF 2024-04-18 1321
-(03:10:00) Over 100 pro-[[Gaza Strip|Palestine]] protesters, including the daughter of Ilhan Omar, were arrested at [[Columbia|Columbia University]] after a multi-day demonstration, marking the largest mass arrest at the university since the [[Vietnam War]].
+(03:10:00) Over 100 pro-[[Palestine]] protesters, including the daughter of Ilhan Omar, were arrested at [[Columbia|Columbia University]] after a multi-day demonstration, marking the largest mass arrest at the university since the [[Vietnam War]].
 
 ### AF 2024-02-01 1287
 (00:00:00) [[Nicholas J. Fuentes]] hosts a show on a Wednesday night, stating the featured story will be about Ilhan Omar.
@@ -50,7 +50,7 @@
 (00:03:05) The condemnation of Ilhan Omar's dual loyalty was contrasted with the lack of similar criticism for [[U.S. Congress|members of Congress]], such as [[Elise Stefanik]], who have a vested interest in [[Israel]]'s security.
 
 ### AF 2024-02-01 1287
-(00:03:47) [[Ron DeSantis]] called for the deportation of Ilhan Omar but has himself taken actions seen as supportive of [[Israel]], including banning BDS on public campuses and visiting [[Israel]] to take money from the [[Sheldon Adelson|Miriam Adelson]] family.
+(00:03:47) [[Ron DeSantis]] called for the deportation of Ilhan Omar but has himself taken actions seen as supportive of [[Israel]], including banning BDS on public campuses and visiting [[Israel]] to take money from the [[Miriam Adelson]] family.
 
 ### AF 2024-02-01 1287
 (00:14:16) Ilhan Omar gave a speech to [[Somalia|Somali]] constituents in which she stated that as long as she is in [[U.S. Congress|Congress]], [[Somalia|Somalians]] have a voice and she will not let [[Somalia|Somaliland]] secede.
@@ -74,7 +74,7 @@
 (00:18:09) In her speech, Ilhan Omar stated, "While I am in [[congress]], no one will take [[Somalia]]'s sea. [[United States|The United States]] will not back others to rob [[us]]."
 
 ### AF 2024-02-01 1287
-(00:19:31) Ilhan Omar's explicit advocacy for [[Somalia]] was contrasted with the broader issue of immigrants forming segregated communities in cities like [[City of Minneapolis|Minneapolis]], [[Los Angeles]], [[City of Chicago|Chicago]], and [[New York|New York City]], which hinders assimilation into [[United States|American]] society.
+(00:19:31) Ilhan Omar's explicit advocacy for [[Somalia]] was contrasted with the broader issue of immigrants forming segregated communities in cities like [[Minneapolis]], [[Los Angeles]], [[Chicago]], and [[New York|New York City]], which hinders assimilation into [[United States|American]] society.
 
 ### AF 2024-02-01 1287
 (00:23:22) Representatives like Ilhan Omar, [[Rashida Tlaib]], [[Alexandria Ocasio-Cortez]], and [[Cori Bush]] were characterized as spokespeople for their respective ethnic enclaves rather than for [[United States|America]] as a whole.
@@ -128,7 +128,7 @@
 (44:36:00) [[Nicholas J. Fuentes]] referenced Ilhan Omar's comment that Congressional support for [[Israel]] is "all about the Benjamins," noting that groups like the [[Anti-Defamation League|ADL]] labeled this an anti-Semitic trope.
 
 ### AF 2023-05-11 1160
-(00:26:08) [[Rashida Tlaib]] planned to host an event at the [[United States Capitol]] Visitor Center to commemorate the Nakba, the [[Palestinian]] term for the 1948 founding of [[Israel]] which translates to "catastrophe." (00:45:58) [[Mike Johnson|Kevin McCarthy]] canceled the event hosted by [[Rashida Tlaib]] and instead reserved the space to host a bipartisan discussion honoring the 75th anniversary of the [[United States]]-[[Israel]] relationship. (00:57:44) [[Mike Johnson|Kevin McCarthy]] decried [[Rashida Tlaib]]'s planned Nakba commemoration as anti-Semitic. (01:13:40) The [[Europe|European Union]]'s foreign policy chief stated that the war in [[Ukraine]] would end within days if [[United States]] military aid stopped. (01:13:40) The [[Europe|European Union]]'s foreign policy chief argued that without [[North Atlantic Treaty Organization|NATO]] and [[United States]] support, [[Ukraine]] would have to surrender to [[Russia]]. (01:22:02) [[Mike Johnson|Kevin McCarthy]], before the 2022 midterm elections, promised that a [[Republican Party|Republican]] [[House]] majority would not write a "blank check" for aid to [[Ukraine]]. (01:23:05) [[Mike Johnson|Kevin McCarthy]] became [[Mike Johnson|Speaker of the House]] in January 2023 after a battle over the speakership. (01:24:29) [[Mike Johnson|Kevin McCarthy]], speaking at a press conference in [[Jerusalem]], delivered a full-throated defense of [[United States]] aid to [[Ukraine]] and stated, "I support aid for [[Ukraine]]." (01:26:08) [[Mike Johnson|Kevin McCarthy]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] spoke by phone for the first [[time]] in April 2023. (01:32:32) [[Mike Johnson|Kevin McCarthy]] made a promise to release 40,000 to 45,000 hours of security footage from the [[United States Capitol]] on [[January 6th Attack|January 6th]] as a term of becoming Speaker. (01:33:02) [[Tucker Carlson]] aired a limited portion of the [[January 6th Attack|January 6th]] [[United States Capitol]] security footage. (01:33:09) [[Marjorie Taylor Greene]] helped broker the deal for [[Mike Johnson|Kevin McCarthy]] to become Speaker and later questioned on [[Twitter]] why the full [[January 6th Attack|January 6th]] footage had not been released. (01:38:36) [[Marjorie Taylor Greene]] was the first to strike a deal with [[Mike Johnson|Kevin McCarthy]] and dissuade the [[MAGA]] coalition in [[Congress]] from resisting his speakership. (02:20:42) [[Nicholas J. Fuentes]] stated he would vote for [[Donald Trump]], [[Kanye West|Ye]], [[Matt Gaetz]], and [[Paul Gosar]], but not for other [[Republican Party|Republican]] candidates. (02:23:44) [[Nicholas J. Fuentes]] argued that [[Israel]]'s founding in 1948 involved driving millions of [[Palestinians]] from their homes, with many massacres and destruction of villages. (02:48:24) [[Nicholas J. Fuentes]] characterized [[Rashida Tlaib]] as an Arab [[Islam|Muslim]] [[Democratic Party|Democrat]] and hardcore progressive who is anti-[[Israel]] because of its treatment of [[Palestinians]]. (02:59:54) [[Nicholas J. Fuentes]] characterized [[Mike Johnson|Kevin McCarthy]] as a white leader of the [[Republican Party]] who is pro-[[Israel]] and compromised by it. (03:14:38) [[Nicholas J. Fuentes]] stated that the [[Labor Party|Likud]] government under [[Benjamin Netanyahu|Netanyahu]] is right-wing, forming a basis for ideological affinity with [[United States|American]] conservatives. (03:47:04) [[Nicholas J. Fuentes]] positioned himself against the [[United States]] relationship with [[Israel]] but not on the side of progressive, anti-colonial [[Palestinian]] supporters. (04:12:26) [[Nicholas J. Fuentes]] argued that [[United States]] military aid, totaling nearly $200 billion, is the sole reason the war in [[Ukraine]] continues, preventing [[Russia]]'s victory. (04:14:74) [[Nicholas J. Fuentes]] claimed the [[Washington D.C.|Washington]] national security apparatus made a decision around May 2022 to provide unconditional support to [[Ukraine]], preventing the war's end. (04:46:58) [[Nicholas J. Fuentes]] stated that [[Mike Johnson|Kevin McCarthy]]'s promise of no "blank check" for [[Ukraine]] was broken, as aid continues unabated under his speakership. (05:09:12) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] risks a direct [[United States]]-[[Russia]] nuclear confrontation due to [[United States|American]] personnel and equipment involvement. (05:30:54) [[Nicholas J. Fuentes]] cited [[Mike Johnson|Kevin McCarthy]]'s reversal on [[Ukraine]] aid and failure to release [[January 6th Attack|January 6th]] footage as examples of broken promises to the [[Republican Party|Republican]] base. (06:42:46) [[Nicholas J. Fuentes]] referenced a mass shooting in [[State of Texas|Texas]] by a Mexican gunman, which media figures incorrectly linked to white supremacy by citing [[Nicholas J. Fuentes]] as an example of a Mexican white supremacist. (07:48:00) The [[State of Texas|Texas]] mall shooter mentioned [[Nicholas J. Fuentes]] by name in his journal, writing "What's going to happen when you have dozens, hundreds, or thousands of [[Nick]] Fuenteses running around?" (07:50:86) The [[State of Texas|Texas]] mall shooter's journal expressed hatred for white people and other Latino groups like [[Cubans]] and [[Puerto Rico|Puerto Ricans]]. (08:56:48) [[Nicholas J. Fuentes]] referenced the 2019 [[El Paso]] Walmart shooting, where the shooter's connection to an online manifesto was never firmly established. (09:12:90) [[Destiny]], a streamer, previously argued [[Nicholas J. Fuentes]] was not a Nazi but later stated a Mexican could be a Nazi like [[Nicholas J. Fuentes]] during coverage of the [[State of Texas|Texas]] shooting. (10:53:66) [[Nicholas J. Fuentes]] accused "liberal [[Jews|Jew]] types" of insinuating he was similar to the [[State of Texas|Texas]] mall shooter who mentioned him disparagingly. (12:44:54) [[Nicholas J. Fuentes]] claimed [[George Soros]] funds open society foundations to promote a global, multicultural world that benefits [[Jews|Jewish people]]. (13:00:42) [[Nicholas J. Fuentes]] argued that [[Jews]], having a historic animosity towards [[Europe|Europeans]] and [[Christianity]], benefit from and promote multiculturalism to avoid being identified as aliens in homogeneous societies. (13:48:18) [[Nicholas J. Fuentes]] stated that [[Jews]] comprised 1% of [[Gaza Strip|Palestine]]'s population at the turn of the 20th century and became a majority through settlement in the first half of the century. (14:13:50) [[Nicholas J. Fuentes]] characterized the political "squad"—including [[Rashida Tlaib]], Ilhan Omar, and [[Alexandria Ocasio-Cortez (AOC)]]—as a brown, anti-colonial, Marxist new left that hates the historic [[United States|American]] nation. (14:30:68) [[Nicholas J. Fuentes]] stated that [[Alexandria Ocasio-Cortez (AOC)]] has [[Jewish]] ancestry, which he described as typical of new left leadership. (14:54:04) [[Nicholas J. Fuentes]] cited thinkers like [[Youram Hazony|Yoram Hazony]] and [[Costin Alamariu|Kostin Al-Amar]] for articulating a nationalist, pro-[[Israel]] ideology that positions [[Israel]] as a natural ally of Western nations against third-worldism. (15:31:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and [[Europe]] are bound by [[Christianity]], not a superficial "Western" or "Judeo-[[Christianity|Christian]]" identity constructed to include [[Israel]]. (16:02:42) [[Nicholas J. Fuentes]] proposed that the [[Holy Land]] should be administered by [[Christianity|Christians]] instead of [[Jews]] or [[Islam|Muslims]], restoring the [[Christianity|Christian]] control that existed prior to [[Islam|Muslim]] and [[Jewish]] rule.
+(00:26:08) [[Rashida Tlaib]] planned to host an event at the [[United States Capitol]] Visitor Center to commemorate the Nakba, the [[Palestinian]] term for the 1948 founding of [[Israel]] which translates to "catastrophe." (00:45:58) [[Kevin McCarthy]] canceled the event hosted by [[Rashida Tlaib]] and instead reserved the space to host a bipartisan discussion honoring the 75th anniversary of the [[United States]]-[[Israel]] relationship. (00:57:44) [[Kevin McCarthy]] decried [[Rashida Tlaib]]'s planned Nakba commemoration as anti-Semitic. (01:13:40) The [[European Union]]'s foreign policy chief stated that the war in [[Ukraine]] would end within days if [[United States]] military aid stopped. (01:13:40) The [[European Union]]'s foreign policy chief argued that without [[North Atlantic Treaty Organization|NATO]] and [[United States]] support, [[Ukraine]] would have to surrender to [[Russia]]. (01:22:02) [[Kevin McCarthy]], before the 2022 midterm elections, promised that a [[Republican Party|Republican]] [[House]] majority would not write a "blank check" for aid to [[Ukraine]]. (01:23:05) [[Kevin McCarthy]] became [[Mike Johnson|Speaker of the House]] in January 2023 after a battle over the speakership. (01:24:29) [[Kevin McCarthy]], speaking at a press conference in [[Jerusalem]], delivered a full-throated defense of [[United States]] aid to [[Ukraine]] and stated, "I support aid for [[Ukraine]]." (01:26:08) [[Kevin McCarthy]] and [[Volodymyr Zelenskyy|Volodymyr Zelensky]] spoke by phone for the first [[time]] in April 2023. (01:32:32) [[Kevin McCarthy]] made a promise to release 40,000 to 45,000 hours of security footage from the [[United States Capitol]] on [[January 6th Attack|January 6th]] as a term of becoming Speaker. (01:33:02) [[Tucker Carlson]] aired a limited portion of the [[January 6th Attack|January 6th]] [[United States Capitol]] security footage. (01:33:09) [[Marjorie Taylor Greene]] helped broker the deal for [[Kevin McCarthy]] to become Speaker and later questioned on [[Twitter]] why the full [[January 6th Attack|January 6th]] footage had not been released. (01:38:36) [[Marjorie Taylor Greene]] was the first to strike a deal with [[Kevin McCarthy]] and dissuade the [[MAGA]] coalition in [[Congress]] from resisting his speakership. (02:20:42) [[Nicholas J. Fuentes]] stated he would vote for [[Donald Trump]], [[Kanye West|Ye]], [[Matt Gaetz]], and [[Paul Gosar]], but not for other [[Republican Party|Republican]] candidates. (02:23:44) [[Nicholas J. Fuentes]] argued that [[Israel]]'s founding in 1948 involved driving millions of [[Palestinians]] from their homes, with many massacres and destruction of villages. (02:48:24) [[Nicholas J. Fuentes]] characterized [[Rashida Tlaib]] as an Arab [[Islam|Muslim]] [[Democratic Party|Democrat]] and hardcore progressive who is anti-[[Israel]] because of its treatment of [[Palestinians]]. (02:59:54) [[Nicholas J. Fuentes]] characterized [[Kevin McCarthy]] as a white leader of the [[Republican Party]] who is pro-[[Israel]] and compromised by it. (03:14:38) [[Nicholas J. Fuentes]] stated that the [[Likud]] government under [[Benjamin Netanyahu|Netanyahu]] is right-wing, forming a basis for ideological affinity with [[United States|American]] conservatives. (03:47:04) [[Nicholas J. Fuentes]] positioned himself against the [[United States]] relationship with [[Israel]] but not on the side of progressive, anti-colonial [[Palestinian]] supporters. (04:12:26) [[Nicholas J. Fuentes]] argued that [[United States]] military aid, totaling nearly $200 billion, is the sole reason the war in [[Ukraine]] continues, preventing [[Russia]]'s victory. (04:14:74) [[Nicholas J. Fuentes]] claimed the [[Washington D.C.|Washington]] national security apparatus made a decision around May 2022 to provide unconditional support to [[Ukraine]], preventing the war's end. (04:46:58) [[Nicholas J. Fuentes]] stated that [[Kevin McCarthy]]'s promise of no "blank check" for [[Ukraine]] was broken, as aid continues unabated under his speakership. (05:09:12) [[Nicholas J. Fuentes]] argued that the war in [[Ukraine]] risks a direct [[United States]]-[[Russia]] nuclear confrontation due to [[United States|American]] personnel and equipment involvement. (05:30:54) [[Nicholas J. Fuentes]] cited [[Kevin McCarthy]]'s reversal on [[Ukraine]] aid and failure to release [[January 6th Attack|January 6th]] footage as examples of broken promises to the [[Republican Party|Republican]] base. (06:42:46) [[Nicholas J. Fuentes]] referenced a mass shooting in [[State of Texas|Texas]] by a Mexican gunman, which media figures incorrectly linked to white supremacy by citing [[Nicholas J. Fuentes]] as an example of a Mexican white supremacist. (07:48:00) The [[State of Texas|Texas]] mall shooter mentioned [[Nicholas J. Fuentes]] by name in his journal, writing "What's going to happen when you have dozens, hundreds, or thousands of [[Nick]] Fuenteses running around?" (07:50:86) The [[State of Texas|Texas]] mall shooter's journal expressed hatred for white people and other Latino groups like [[Cubans]] and [[Puerto Rico|Puerto Ricans]]. (08:56:48) [[Nicholas J. Fuentes]] referenced the 2019 [[El Paso]] Walmart shooting, where the shooter's connection to an online manifesto was never firmly established. (09:12:90) [[Destiny]], a streamer, previously argued [[Nicholas J. Fuentes]] was not a Nazi but later stated a Mexican could be a Nazi like [[Nicholas J. Fuentes]] during coverage of the [[State of Texas|Texas]] shooting. (10:53:66) [[Nicholas J. Fuentes]] accused "liberal [[Jews|Jew]] types" of insinuating he was similar to the [[State of Texas|Texas]] mall shooter who mentioned him disparagingly. (12:44:54) [[Nicholas J. Fuentes]] claimed [[George Soros]] funds open society foundations to promote a global, multicultural world that benefits [[Jews|Jewish people]]. (13:00:42) [[Nicholas J. Fuentes]] argued that [[Jews]], having a historic animosity towards [[Europe|Europeans]] and [[Christianity]], benefit from and promote multiculturalism to avoid being identified as aliens in homogeneous societies. (13:48:18) [[Nicholas J. Fuentes]] stated that [[Jews]] comprised 1% of [[Palestine]]'s population at the turn of the 20th century and became a majority through settlement in the first half of the century. (14:13:50) [[Nicholas J. Fuentes]] characterized the political "squad"—including [[Rashida Tlaib]], Ilhan Omar, and [[Alexandria Ocasio-Cortez (AOC)]]—as a brown, anti-colonial, Marxist new left that hates the historic [[United States|American]] nation. (14:30:68) [[Nicholas J. Fuentes]] stated that [[Alexandria Ocasio-Cortez (AOC)]] has [[Jewish]] ancestry, which he described as typical of new left leadership. (14:54:04) [[Nicholas J. Fuentes]] cited thinkers like [[Youram Hazony|Yoram Hazony]] and [[Costin Alamariu|Kostin Al-Amar]] for articulating a nationalist, pro-[[Israel]] ideology that positions [[Israel]] as a natural ally of Western nations against third-worldism. (15:31:30) [[Nicholas J. Fuentes]] argued that the [[United States]] and [[Europe]] are bound by [[Christianity]], not a superficial "Western" or "Judeo-[[Christianity|Christian]]" identity constructed to include [[Israel]]. (16:02:42) [[Nicholas J. Fuentes]] proposed that the [[Holy Land]] should be administered by [[Christianity|Christians]] instead of [[Jews]] or [[Islam|Muslims]], restoring the [[Christianity|Christian]] control that existed prior to [[Islam|Muslim]] and [[Jewish]] rule.
 
 ### AF 2023-02-09 1119
 (01:00:51) [[Nicholas J. Fuentes]] cited [[The Joe Rogan Experience|Joe Rogan]] defending Ilhan Omar's comments about [[Jewish]] money in politics, [[Kyrie Irving]] retracting an apology, [[Kanye West|Ye]] appearing on [[Alex Jones|InfoWars]], and his own appearance on [[Adam22]]'s show as examples of slowly shifting public discourse.
@@ -155,7 +155,7 @@
 (01:03:18) [[Nicholas J. Fuentes]] referenced Ilhan Omar's statement that support for [[Israel]] is "all about the Benjamins," agreeing that political support is driven by financial influence from pro-[[Israel]] donors.
 
 ### AF 2021-03-24 0779
-(01:47:05) A [[Republican Party|GOP]] campaign chair from [[Minnesota]] advocated for running more minority candidates, a strategy correlated with the election of Ilhan Omar and the growth of a [[Somalia|Somali]] refugee population in [[City of Minneapolis|Minneapolis]].
+(01:47:05) A [[Republican Party|GOP]] campaign chair from [[Minnesota]] advocated for running more minority candidates, a strategy correlated with the election of Ilhan Omar and the growth of a [[Somalia|Somali]] refugee population in [[Minneapolis]].
 
 ### AF 2021-02-16 0762
 (01:52:57:78) [[Nicholas J. Fuentes]] argued that blaming [[Israel]] for all of [[United States|America]]'s problems is reductive, noting that figures like Ilhan Omar and [[Rashida Tlaib]] are anti-[[Israel]] but are not allies of the [[United States|America]] First movement.
@@ -182,7 +182,7 @@
 (56:04:00) Ilhan Omar previously stated that [[United States|U.S]]. support for [[Israel]] is "all about the Benjamins" (money), a sentiment [[Nicholas J. Fuentes]] suggested contains some truth, though he clarified that for [[Jews|Jewish]] lawmakers, ethnic and tribal loyalty also plays a role.
 
 ### AF 2020-09-28 0690
-(00:51:00) [[Nicholas J. Fuentes]] cited a report by [[James O'Keefe]] and [[Project Veritas]] alleging a ballot harvesting operation in [[Minnesota]] linked to Ilhan Omar's brother, [[Liban Mohamed]], and [[City of Minneapolis|Minneapolis]] [[city]] council member [[Jamal Osman]].
+(00:51:00) [[Nicholas J. Fuentes]] cited a report by [[James O'Keefe]] and [[Project Veritas]] alleging a ballot harvesting operation in [[Minnesota]] linked to Ilhan Omar's brother, [[Liban Mohamed]], and [[Minneapolis]] [[city]] council member [[Jamal Osman]].
 
 ### AF 2020-09-28 0690
 (01:56:00) [[Nicholas J. Fuentes]] stated that Ilhan Omar, a [[Somalia|Somali]]-born congresswoman, should not be making laws for the [[United States]] due to her foreign background, attire, and religion.
@@ -200,7 +200,7 @@
 (01:19:34) [[Nicholas J. Fuentes]] argued that leftist rhetoric from figures like Ilhan Omar and [[Alexandria Ocasio-Cortez]] was not hypocritical but a deliberate design to threaten white demographics and society.
 
 ### AF 2020-07-08 0636
-(15:43:28) [[Nancy Pelosi]] and the [[Democratic Party]] establishment must simultaneously appease the [[Israel]] lobby and [[Jews|Jewish]] donors, [[who]] provide half of the party's funding, and progressive members like Ilhan Omar, [[Alexandria Ocasio-Cortez]], and [[Rashida Tlaib]], [[who]] are pro-[[Gaza Strip|Palestine]].
+(15:43:28) [[Nancy Pelosi]] and the [[Democratic Party]] establishment must simultaneously appease the [[Israel]] lobby and [[Jews|Jewish]] donors, [[who]] provide half of the party's funding, and progressive members like Ilhan Omar, [[Alexandria Ocasio-Cortez]], and [[Rashida Tlaib]], [[who]] are pro-[[Palestine]].
 
 ### AF 2020-03-10 0561
 (00:50:29) [[Nicholas J. Fuentes]] noted [[Bernie Sanders]] had endorsements from figures like [[Alexandria Ocasio-Cortez]], [[Rashida Tlaib]], and Ilhan Omar, as well as enthusiastic support, but still lost to [[Joe Biden]].
@@ -230,7 +230,7 @@
 (46:39:70) Representative Ilhan Omar stated that [[Donald Trump]]'s move "will not put an end to endless wars" but would "reward [[Russia]], [[Iran]], and [[Islamic State of Iraq and Syria|ISIS]]."
 
 ### AF 2019-09-13 0461
-(25:12:70) Ilhan Omar and [[Rashida Tlaib]] introduced mainstream political skepticism regarding [[United States|U.S]]. policy toward [[Israel]] and [[Gaza Strip|Palestine]] from a left-wing, human rights perspective.
+(25:12:70) Ilhan Omar and [[Rashida Tlaib]] introduced mainstream political skepticism regarding [[United States|U.S]]. policy toward [[Israel]] and [[Palestine]] from a left-wing, human rights perspective.
 
 ### AF 2019-08-21 0445
 (00:58:36) Ilhan Omar previously suggested [[United States|U.S]]. support for [[Israel]] was "all about the Benjamins," a comment widely criticized as an anti-Semitic trope about [[Jews|Jewish]] influence.
@@ -245,13 +245,13 @@
 (00:02:21) [[Rashida Tlaib]] and Ilhan Omar were barred from visiting [[Israel]] due to their past support for the Boycott, Divestment, and Sanctions ([[BDS]]) movement.
 
 ### AF 2019-08-16 0442
-(00:17:13) Ilhan Omar and [[Rashida Tlaib]] had planned to visit East [[City of Jerusalem|Jerusalem]] and the [[Gaza Strip|West Bank]], territories [[Israel]] controls, before their trip was canceled.
+(00:17:13) Ilhan Omar and [[Rashida Tlaib]] had planned to visit East [[Jerusalem]] and the [[Gaza Strip|West Bank]], territories [[Israel]] controls, before their trip was canceled.
 
 ### AF 2019-08-16 0442
 (00:32:28) [[Nicholas J. Fuentes]] claimed that Ilhan Omar had made comments about "the Benjamins" in relation to [[U.S.-Israel]] policy.
 
 ### AF 2019-08-15 0441
-(00:30:840) [[Israel]] banned Ilhan Omar and [[Rashida Tlaib]] from entering the [[country]], citing a law that bars supporters of the [[BDS]] movement, despite the two [[United States|U.S]]. Congresswomen planning to visit the occupied [[Gaza Strip|West Bank]] and East [[City of Jerusalem|Jerusalem]].
+(00:30:840) [[Israel]] banned Ilhan Omar and [[Rashida Tlaib]] from entering the [[country]], citing a law that bars supporters of the [[BDS]] movement, despite the two [[United States|U.S]]. Congresswomen planning to visit the occupied [[Gaza Strip|West Bank]] and East [[Jerusalem]].
 
 ### AF 2019-08-15 0441
 (01:30:840) [[Donald Trump]] tweeted that it would show "great weakness" if [[Israel]] allowed Ilhan Omar and [[Rashida Tlaib]] to enter, and stated the two lawmakers "hate [[Israel]] and all [[Jews|Jewish people]]."
@@ -278,7 +278,7 @@
 (01:34:42) Figures like [[Robert O'Rourke|Beto O'Rourke]], Ilhan Omar, and [[Alexandria Ocasio-Cortez]] were pushing the [[Democratic Party]] away from its traditional support for [[Israel]].
 
 ### AF 2019-04-09 0363
-(41:13:94) [[Donald Trump]]'s pro-[[Israel]] actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[City of Jerusalem|Jerusalem]], recognizing [[Israeli sovereignty over the Golan Heights]], affirming foreign aid, attacking Congresswoman Ilhan Omar, and attending the [[AIPAC]] conference.
+(41:13:94) [[Donald Trump]]'s pro-[[Israel]] actions included moving the [[United States Embassy in Jerusalem|U.S. embassy]] to [[Jerusalem]], recognizing [[Israeli sovereignty over the Golan Heights]], affirming foreign aid, attacking Congresswoman Ilhan Omar, and attending the [[AIPAC]] conference.
 
 ### AF 2019-03-18 0349
 (00:18:58) [[Fox News]] suspended [[Jeanine Pirro]] from her show following her commentary about Ilhan Omar and Sharia law.
@@ -356,13 +356,13 @@
 (30:58:09) Congresswoman Ilhan Omar stated that [[AIPAC]] basically controls [[Congress]], which [[Nicholas J. Fuentes]] cited as evidence of foreign influence.
 
 ### AF 2019-02-14 0332
-(31:14:31) [[Nicholas J. Fuentes]] noted that Congressional leaders [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Nancy Pelosi]], and [[Chuck Schumer]] demanded an apology from Ilhan Omar for her comments about [[AIPAC]].
+(31:14:31) [[Nicholas J. Fuentes]] noted that Congressional leaders [[Kevin McCarthy]], [[Mitch McConnell]], [[Nancy Pelosi]], and [[Chuck Schumer]] demanded an apology from Ilhan Omar for her comments about [[AIPAC]].
 
 ### AF 2019-02-11 0329
 (00:45:40) Ilhan Omar sparked a major political controversy by posting tweets that criticized the influence of money in [[United States|American]] politics regarding support for [[Israel]].
 
 ### AF 2019-02-11 0329
-(00:46:40) Ilhan Omar responded to a tweet from [[Glenn Greenwald]] about [[Mike Johnson|Kevin McCarthy]] threatening punishment for her criticism of [[Israel]] by stating, "it's all about the Benjamins, baby," implying financial motives.
+(00:46:40) Ilhan Omar responded to a tweet from [[Glenn Greenwald]] about [[Kevin McCarthy]] threatening punishment for her criticism of [[Israel]] by stating, "it's all about the Benjamins, baby," implying financial motives.
 
 ### AF 2019-02-11 0329
 (00:50:20) Ilhan Omar identified [[AIPAC]] as the [[organization]] paying [[United States|American]] politicians to be pro-[[Israel]] in response to a question from journalist [[Batya Ungar-Sargon]].
@@ -402,3 +402,45 @@
 
 ### AF 2021-05-26 0817
 (28:48:340) Ilhan Omar was condemned for stating that support for [[Israel]] was "all about the Benjamins."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:46:00) [[Nicholas J. Fuentes]] criticized [[Rashida Tlaib]] and Ilhan Omar, calling them "disgusting, anti-[[United States|American]] pieces of shit," despite their critique of [[Israel]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:46:34) [[Nicholas J. Fuentes]] compared Ilhan Omar to [[Ben Shapiro]], arguing that [[Ben Shapiro]] is a "[[Jews|Jewish]] supremacist" [[who]] believes he is better than white people, while Ilhan Omar is a "[[Islam|Muslim]] [[Somalia|Somali]]" supremacist [[who]] also has disdain for white people.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:47:13) [[Nicholas J. Fuentes]] stated that [[Nancy Pelosi]] "cracked a whip" on Ilhan Omar after Ilhan Omar made comments about [[United States|US]] aid to [[Israel]] being "all about the Benjamins," causing her to "pipe down."
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:50:18) [[Nicholas J. Fuentes]] argued that left-wing anti-[[Israel]] figures like [[Ryan Grimm]], Ilhan Omar, [[Max Blumenthal]], [[Hasan Piker]], and [[The Young Turks|Cenk Uygur]] are not allies of the nationalist movement, as they hate white people and want to bring in more immigrants.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:39:20.260) [[Nicholas J. Fuentes]] reported that [[Ryan Grim]] claimed Ilhan Omar is an advocate for him because she represents the working class.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:39:45.900) [[Nicholas J. Fuentes]] noted that Ilhan Omar said the notion of preserving white [[United States|America]] is "fascinatingly disgusting."
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:41:24.720) [[Nicholas J. Fuentes]] accused Ilhan Omar of using chain migration to bring her family from [[Somalia]] to colonize his home.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:42:06.770) [[Nicholas J. Fuentes]] claimed that Ilhan Omar said [[United States|America]] should be afraid of white men, specifically young, poor white men like himself.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:48:33) [[Nicholas J. Fuentes]] called [[Ryan Grim]] "anti-white garbage" for supporting Ilhan Omar.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:55:08) [[Nicholas J. Fuentes]] said he gets the same feeling of hatred from [[Mark Levin]] and [[Roseanne Barr]] as he does from [[Hasan Piker]] and Ilhan Omar, stating "they all hate [[us]]."
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:55:46) [[Nicholas J. Fuentes]] called for putting all [[Jews]] and [[Islam|Muslims]] [[who]] hate white people, such as [[Ben Shapiro|Shapiro]] and Omar, on a boat and getting them out of the [[country]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:26:42:20) [[Nicholas J. Fuentes]] rejected being governed by [[Benjamin Netanyahu|Bibi Netanyahu]], [[Ben Shapiro]], Ilhan Omar, or [[Zoran Mamdani]].
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:02:47) [[Nicholas J. Fuentes]] stated that instead of assimilating, the population is stealing and has “disdain for [[us]],” citing Ilhan Omar as an example of someone with contempt for white [[United States|Americans]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(04:04:08) [[Donald Trump]] did not get permission from Ilhan Omar or [[Jasmine Crockett]] to invade [[Venezuela]].

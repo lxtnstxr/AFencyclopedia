@@ -7,3 +7,6 @@
 
 ### AF 2017-11-09 0050
 (31:16:00) [[Louis C.K.]]'s film *I Love You Daddy* featured a plot where his fictional daughter falls in love with a Woody Allen-type character, which [[Nicholas J. Fuentes]] described as a perverse and degenerate premise.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:04:31) [[Leon Black]]'s son [[Ben Black]] was introduced to Woody Allen by [[Jeffrey Epstein]] because the film producers behind Woody Allen were [[Jews|Jewish]] [[Los Angeles|Hollywood]] producers.

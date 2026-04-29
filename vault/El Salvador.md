@@ -4,7 +4,7 @@
 ### AF 2025-10-23 1585
 (00:52:07) The [[United States]] sought more pro-Western governments like [[Noboa]] in [[Ecuador]], [[Bukele]] in El Salvador, and [[Javier Milei]] in [[Argentina]], offering help to those who cooperated and attacking those who were antagonistic.
 ### AF 2025-11-03 1590
-(01:09:14) [[Nicholas J. Fuentes]] stated that his interview with [[Tucker Carlson]] became the fourth most-viewed video on [[Tucker Carlson|Carlson]]'s channel, behind interviews with [[Vladimir Putin]], [[Donald Trump|the president]] of El Salvador, and an exposé on the [[September 11 attacks]].
+(01:09:14) [[Nicholas J. Fuentes]] stated that his interview with [[Tucker Carlson]] became the fourth most-viewed video on [[Tucker Carlson|Carlson]]'s channel, behind interviews with [[Vladimir Putin]], [[the president]] of El Salvador, and an exposé on the [[September 11 attacks]].
 
 
 ### AF 2024-09-23 1394
@@ -81,3 +81,6 @@
 
 ### AF 2018-01-11 0084
 (00:32:52) [[Donald Trump]] made comments describing [[Haiti]], El Salvador, and African countries as "shithole countries" and suggested the [[United States]] should instead welcome immigrants from places like [[Norway]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:39:12) [[Nicholas J. Fuentes]] cited the case of "Kilmar, Alberto Garcia," [[who]] was deported to El Salvador but a judge made the administration bring him back.

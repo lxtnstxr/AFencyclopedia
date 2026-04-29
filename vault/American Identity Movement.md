@@ -6,10 +6,10 @@
 
 
 ### AF 2021-12-14 0922
-(21:42:84) [[Nicholas J. Fuentes]] stated that a [[Jewish]] woman had sued [[Richard Spencer]], Identity Europa, [[Matthew Heimbach]], and the [[Traditionalist Worker Party]] for damages related to the [[City of Charlottesville|Charlottesville]] rally.
+(21:42:84) [[Nicholas J. Fuentes]] stated that a [[Jewish]] woman had sued [[Richard Spencer]], Identity Europa, [[Matthew Heimbach]], and the [[Traditionalist Worker Party]] for damages related to the [[Charlottesville]] rally.
 
 ### AF 2021-06-15 0829
-(03:08:05) [[Nicholas J. Fuentes]] discussed [[Patrick Casey]], founder of [[Identity Evropa]] and American Identity Movement, expressing uncertainty about his background and noting it was suspicious that Casey did not disclose his impending court date related to [[City of Charlottesville|Charlottesville]] before inserting himself into [[AFPAC]] and [[Nicholas J. Fuentes|Groyper]] events.
+(03:08:05) [[Nicholas J. Fuentes]] discussed [[Patrick Casey]], founder of [[Identity Evropa]] and American Identity Movement, expressing uncertainty about his background and noting it was suspicious that Casey did not disclose his impending court date related to [[Charlottesville]] before inserting himself into [[AFPAC]] and [[Nicholas J. Fuentes|Groyper]] events.
 
 ### AF 2020-03-03 0556
 (03:10:31) [[Nicholas J. Fuentes]] clarified that the [[AFPAC]] event was already a collaboration between [[America First]] and AIM, as [[Patrick Casey]] of AIM helped organize it and AIM members attended.
@@ -87,7 +87,7 @@
 (00:10:00) [[Patrick Casey]] is the leader of Identity Europa and a personal friend of [[Nicholas J. Fuentes]].
 
 ### AF 2018-08-02 0213
-(00:44:00) Identity Europa experienced turmoil almost exactly a year prior to this conversation, following the [[City of Charlottesville|Charlottesville rally]].
+(00:44:00) Identity Europa experienced turmoil almost exactly a year prior to this conversation, following the [[Charlottesville rally]].
 
 ### AF 2018-08-02 0213
 (01:01:00) Identity Europa conducted a banner drop and a demonstration in front of the [[Mexican]] Consulate in [[New York|New York City]].
@@ -186,7 +186,7 @@
 (56:47:00) [[Patrick Casey]] provided his personal [[Twitter]] handle and directed people to identityeurope.com/apply to join Identity Europa, noting applications can be under a pseudonym.
 
 ### AF 2018-08-02 0213
-(57:09:00) Identity Europa is involved in a lawsuit related to the [[City of Charlottesville|Charlottesville rally]] and must pay a monthly amount to lawyers, for which they solicit donations via cash, check, or money order.
+(57:09:00) Identity Europa is involved in a lawsuit related to the [[Charlottesville rally]] and must pay a monthly amount to lawyers, for which they solicit donations via cash, check, or money order.
 
 ### AF 2018-08-02 0213
 (57:42:00) [[Patrick Casey]] stated that Identity Europa had been removed from virtually every online payment processor.

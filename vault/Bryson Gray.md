@@ -24,7 +24,7 @@
 (02:13:08:46) [[Nicholas J. Fuentes]] declared that the stakes are now so high that relationships within the movement must be "ride or die," with no room for conditional loyalty.(02:18:24) Bryson Gray texted [[Nicholas J. Fuentes]] to ask about the situation with [[Jaden McNeil]].
 
 ### AF 2022-03-01 0952
-(03:13:00) [[Nicholas J. Fuentes]] praised Bryson Gray as one of the nicest guys ever, recounting a story where Gray bought a sandwich for a homeless man in [[City of Miami|Miami]] after [[Nicholas J. Fuentes]] had snapped at the man.
+(03:13:00) [[Nicholas J. Fuentes]] praised Bryson Gray as one of the nicest guys ever, recounting a story where Gray bought a sandwich for a homeless man in [[Miami]] after [[Nicholas J. Fuentes]] had snapped at the man.
 
 ### AF 2022-03-01 0952
 (03:14:04) [[Nicholas J. Fuentes]] described Bryson Gray as a strong [[Christianity|Christian]] who is generous and kind, and praised Gray's girlfriend Shekinah as lovely, sweet, and pleasant.
@@ -93,7 +93,7 @@
 (01:15:30) [[Nicholas J. Fuentes]] claimed that [[Ben Shapiro]] wants to destroy the [[United States]] so that [[Jews|Jewish people]] can be safe.(01:11:35) Bryson Gray advocated for jailing doctors and potentially mothers involved in abortion, framing it as a complicit act.
 
 ### AF 2020-09-24 0688
-(01:12:21) [[Nicholas J. Fuentes]] described Bryson Gray as an easy-to-talk-to, chill [[person]] during a day spent driving around [[City of Chicago|Chicago]].
+(01:12:21) [[Nicholas J. Fuentes]] described Bryson Gray as an easy-to-talk-to, chill [[person]] during a day spent driving around [[Chicago]].
 
 ### AF 2020-09-21 0685
 (01:53:05) A viewer stated that a [[Fortnite]] stream by Bryson Gray with a gamer called "Big Nibba" was what radicalized him politically.

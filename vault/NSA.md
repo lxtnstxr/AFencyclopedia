@@ -91,3 +91,6 @@
 
 ### AF 2018-01-31 0098
 (04:58:00) [[Nicholas J. Fuentes]] referenced the 1967 [[United States|USS Liberty]] incident, in which [[Israel]] attacked a [[United States]] [[U.S. Department of Defense|Navy]] ship, killing 126 servicemen, and noted that related documents remain classified by the NSA.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:13) [[Marco Rubio]] is the [[U.S. Department of State|Secretary of State]], [[John Ratcliffe|Ratcliffe]] is the [[Central Intelligence Agency|CIA]] director, and [[Michael Waltz|Waltz]] is the NSA.

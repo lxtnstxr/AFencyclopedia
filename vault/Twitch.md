@@ -24,7 +24,7 @@
 (01:03:40) [[Nicholas J. Fuentes]] noted that since the [[October 7th attack]], pro-[[Palestinian]] content has exploded on [[TikTok]] and [[Twitter|X]] (owned by [[Elon Musk]]), but not on [[Facebook]], [[Google|YouTube]], [[Instagram]], or Twitch (owned by [[Amazon]]), suggesting this is another reason for the renewed ban effort.
 
 ### AF 2024-02-27 1298
-(00:49:640) [[Aaron Bushnell]] live-streamed his self-immolation on Twitch, wearing military fatigues and declaring he would "not be complicit in genocide" before dousing himself in liquid, lighting himself on fire, and yelling "Free [[Gaza Strip|Palestine]]" until he fell.
+(00:49:640) [[Aaron Bushnell]] live-streamed his self-immolation on Twitch, wearing military fatigues and declaring he would "not be complicit in genocide" before dousing himself in liquid, lighting himself on fire, and yelling "Free [[Palestine]]" until he fell.
 
 ### AF 2022-11-04 1093
 (00:38:01) [[Sneako]] noted he was banned from Twitch for eating a salad, illustrating the unpredictable nature of platform enforcement.
@@ -39,7 +39,7 @@
 (04:10:02) [[Nicholas J. Fuentes]] advised the guest to stream on Twitch as long as possible while moderating content, and to simultaneously build an audience on alternative platforms like [[Rumble Inc.|Rumble]] and [[Cozy.tv|Cozy]] to survive an inevitable ban.
 
 ### AF 2022-05-17 0995
-(00:29:41) The [[City of Buffalo|Buffalo]] shooter livestreamed the attack on Twitch.
+(00:29:41) The [[Buffalo]] shooter livestreamed the attack on Twitch.
 
 ### AF 2022-03-31 0970
 (00:02:06) [[Nicholas J. Fuentes]] was banned from major platforms including [[Google|YouTube]], [[DLive]], Twitch, and [[Twitter]], and faced financial sanctions from [[Peter Thiel|PayPal]].

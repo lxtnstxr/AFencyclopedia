@@ -9,10 +9,10 @@
 (01:22:00) [[Nicholas J. Fuentes]] argued that acts of political violence, like the Christchurch massacre, accelerate global censorship protocols and harm the political movements with which the perpetrators are associated.
 
 ### AF 2022-05-17 0995
-(00:19:12) [[Nicholas J. Fuentes]] compared the post-[[City of Buffalo|Buffalo]] censorship push to the aftermath of the Christchurch mosque shooting in [[New Zealand]].
+(00:19:12) [[Nicholas J. Fuentes]] compared the post-[[Buffalo]] censorship push to the aftermath of the Christchurch mosque shooting in [[New Zealand]].
 
 ### AF 2022-05-17 0995
-(00:29:53) [[Nicholas J. Fuentes]] reported that the [[City of Buffalo|Buffalo]] shooter's manifesto was 63% plagiarized from the manifesto of Christchurch mosque shooter [[Brenton Tarrant]].
+(00:29:53) [[Nicholas J. Fuentes]] reported that the [[Buffalo]] shooter's manifesto was 63% plagiarized from the manifesto of Christchurch mosque shooter [[Brenton Tarrant]].
 
 ### AF 2022-05-17 0995
 (00:48:42) [[Nicholas J. Fuentes]] stated that a major censorship push began after the Christchurch mosque shooting, leading to an international consortium of governments and tech companies restricting speech online.

@@ -6,7 +6,7 @@
 
 
 ### AF 2022-08-16 1048
-(00:00:00) [[Nicholas J. Fuentes]] stated he has been banned from [[Bank of America]], [[U.S. Bank]], [[Chase Bank]], and the airline Delta due to his political views and being doxed, and is planning to move from [[City of Chicago|Chicago]] to [[State of Florida|Florida]].
+(00:00:00) [[Nicholas J. Fuentes]] stated he has been banned from [[Bank of America]], [[U.S. Bank]], [[Chase Bank]], and the airline Delta due to his political views and being doxed, and is planning to move from [[Chicago]] to [[State of Florida|Florida]].
 
 ### AF 2022-01-04 0928
 (01:24:50) [[Nicholas J. Fuentes]] listed the platforms and services from which he is banned, including [[Twitter]], [[Facebook]], [[Instagram]], [[Reddit]], [[Discord]], [[Google|YouTube]], [[Twitch Inc.|Twitch]], [[TikTok Inc.|TikTok]], [[Peter Thiel|PayPal]], [[Clubhouse]], [[Stripe]], [[Venmo]], [[Spotify]], [[Apple Podcasts]], [[Airbnb]], [[Patreon]], [[Shopify]], [[Amazon Inc.|Amazon]], [[Streamlabs]], [[Stream Elements]], [[DLive]], [[Coinbase]], [[StackPath]], [[EmailOctopus]], Delta Airlines, [[Trovo]], [[Entropy]], [[Conservative Political Action Conference|CPAC]], [[Turning Point USA]], and [[U.S. Bank]].

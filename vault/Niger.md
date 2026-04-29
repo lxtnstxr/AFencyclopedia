@@ -6,7 +6,7 @@
 
 
 ### AF 2024-07-26 1361
-(52:35:95) In [[African continent|Africa]], [[Russia]] is waging a proxy war against [[Government of France|France]] via the [[Wagner Group]], a private military contractor overthrowing pro-[[French]] regimes and replacing them with pro-[[Russian]] ones in countries like [[Burkina Faso]] and Niger across the Sahel [[region]].
+(52:35:95) In [[African continent|Africa]], [[Russia]] is waging a proxy war against [[France]] via the [[Wagner Group]], a private military contractor overthrowing pro-[[French]] regimes and replacing them with pro-[[Russian]] ones in countries like [[Burkina Faso]] and Niger across the Sahel [[region]].
 
 ### AF 2023-09-21 1221
 (29:31:29) A series of coups and revolutions against [[French]] neo-imperialism occurred in Niger, [[Burkina Faso]], [[Guinea]], and [[Mali]].
@@ -24,7 +24,7 @@
 (00:11:09) The [[ECOWAS]], led primarily by [[Nigeria]] and including [[Togo]], [[Ivory Coast]], [[Sierra Leone]], and [[Benin]], is preparing a potential military intervention against the coup government in Niger.
 
 ### AF 2023-08-09 1199
-(00:11:56) The conflict in Niger may involve [[Russia]] on the side of the coup government and potentially [[Government of France|France]] and the [[United States]] on the side of [[Nigeria]] and the [[ECOWAS]].
+(00:11:56) The conflict in Niger may involve [[Russia]] on the side of the coup government and potentially [[France]] and the [[United States]] on the side of [[Nigeria]] and the [[ECOWAS]].
 
 ### AF 2023-08-09 1199
 (00:12:33) [[Victoria Nuland]] warned leaders in Niger that the [[United States]] would legally have to cut off most assistance, particularly military aid, if constitutional order was not restored.
@@ -39,7 +39,7 @@
 (00:17:40) The [[Wagner Group]] and the [[Russian]] state are involved in coordinating arms trafficking and providing security assistance to coup governments in [[Kanye West|West]] African states like Niger, [[Mali]], and [[Burkina Faso]].
 
 ### AF 2023-08-09 1199
-(00:19:34) [[Russia]]'s involvement in Niger is part of a broader geopolitical struggle against [[Government of France|France]] and [[North Atlantic Treaty Organization|NATO]], centered on control of resources like uranium and a gas pipeline from [[Nigeria]] through Niger to [[Algeria]].
+(00:19:34) [[Russia]]'s involvement in Niger is part of a broader geopolitical struggle against [[France]] and [[North Atlantic Treaty Organization|NATO]], centered on control of resources like uranium and a gas pipeline from [[Nigeria]] through Niger to [[Algeria]].
 
 ### AF 2023-08-09 1199
 (00:27:07) For the first [[time]] in four decades, the [[United States]] is confronting [[Russia]] directly or indirectly on three continents simultaneously: in [[Syria]], [[Ukraine]], and Niger.

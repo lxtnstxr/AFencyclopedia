@@ -69,7 +69,7 @@
 (00:19:30) [[Nicholas J. Fuentes]] argued that comedian [[Dave Chappelle]] avoided cancellation for jokes about transgender people in his Netflix special specifically because he is [[black]].
 
 ### AF 2021-08-04 0854
-(02:12:26) Major corporations including [[Google]], [[Facebook]], Netflix, and [[Disney|Disney]] announced vaccine requirements for their employees.
+(02:12:26) Major corporations including [[Google]], [[Facebook]], Netflix, and [[Disney]] announced vaccine requirements for their employees.
 
 ### AF 2021-06-26 0838
 (08:40:48) [[Nicholas J. Fuentes]] commented on a new Netflix western about a posse of [[black]] bandits killing white people, arguing it incites a race war and represents a double standard, as a film glorifying white people killing [[black]] people would not be tolerated.
@@ -148,3 +148,33 @@
 
 ### AF 2017-10-30 0042
 (00:41:33) Netflix canceled *[[House]] of Cards* and announced its upcoming sixth season would be its last following the allegations against [[Kevin Spacey]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:22:25) Netflix came in with a substantial offer for [[Warner Bros. Discovery|Warner Brothers]], and the board approved that offer.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:09:16) Netflix inked a deal with [[Warner Bros. Discovery|Warner Brothers]] for $72 billion to buy out the entire company minus [[Warner Bros. Discovery|CNN]] and one other property.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(03:28:45) [[Nicholas J. Fuentes]] identified the original image as being related to a boy named Johnny Ghosh, [[who]] was kidnapped in the 1990s and whose story is documented in a Netflix documentary.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:22:50) [[Nicholas J. Fuentes]] stated that a bidding war is ongoing between Netflix and [[Skydance Media|Skydance Paramount]] for [[Warner Bros. Discovery|Warner Bros.]], with Netflix likely to acquire it.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:44:23) [[Nicholas J. Fuentes]] stated that Netflix and [[Skydance Media|Skydance Paramount]] are both seeking control of [[Warner Bros. Discovery|Warner Bros.]] as part of a larger competition among new streaming media companies.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:01:04) [[Nicholas J. Fuentes]] explained that [[Warner Bros. Discovery|Warner Bros.]] put itself up for sale after receiving interest from [[Skydance Media|Skydance Paramount]], and Netflix entered the bidding.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:01:41) [[Nicholas J. Fuentes]] reported that Netflix and [[Warner Bros. Discovery|Warner Bros.]] have inked a deal for $72 billion, and [[Skydance Media|Skydance Paramount]] is attempting a "hostile takeover."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:02:01) [[Nicholas J. Fuentes]] quoted an [[National Public Radio|NPR]] report stating that [[Paramount Global]] sweetened its offer with an all-cash deal valued at $108 billion to take over [[Warner Bros. Discovery|Warner Bros.]], outperforming Netflix's offer.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:06:29) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] faces a choice between Netflix acquiring [[Warner Bros. Discovery|Warner Bros.]] or [[Skydance Media|Skydance Paramount]] acquiring it, with [[Oracle Corporation|Larry Ellison]] being a pro-[[Israel]] [[Republican Party|Republican]] booster.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:05:48) [[Nicholas J. Fuentes]] stated that Netflix attempted to acquire [[Warner Bros. Discovery|Warner Bros.]], but the [[Donald Trump]] administration blocked the deal, leading [[Skydance Media]] to make a bid for a hostile takeover.

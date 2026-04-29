@@ -305,7 +305,7 @@
 (01:18:40) [[John Bolton]]'s sanctions against [[Venezuela]], intended to cause a refugee crisis to overthrow [[Nicolás Maduro]], instead led millions of Venezuelans to flee to neighboring countries and the [[United States]], with many arriving in cities like [[City of Chicago]].
 
 ### AF 2024-07-31 1364
-(45:24:75) During the [[Black Lives Matter]] riots, [[Hispanic]] neighborhoods in [[City of Chicago|Chicago]] remained peaceful because [[Hispanic]] residents patrolled the streets with guns.
+(45:24:75) During the [[Black Lives Matter]] riots, [[Hispanic]] neighborhoods in [[Chicago]] remained peaceful because [[Hispanic]] residents patrolled the streets with guns.
 
 ### AF 2024-08-01 1365
 (00:40:01) [[Oded Yonan]] argued that the only way for [[Israel]] to be safe was to destroy its neighbors and make them a mosaic of tribes, a strategy reflected in the dismemberment of [[Libya]], [[Sudan]], [[Syria]], and [[Iraq]].
@@ -502,7 +502,7 @@
 (01:23:03) [[Seth Meyers]]'s comedy show is indistinguishable from the news commentary of [[Chris Cuomo]] and [[Don Lemon]] on CNN, reflecting a perceived loss of humor in mainstream media.
 
 ### AF 2020-08-31 0671
-(00:02:30) [[City of Portland|Portland]] experienced 90 days of continuous unrest involving [[Antifa]] and [[Black Lives Matter]], including an attempt to explode a federal courthouse with explosives and fireworks. (00:03:06) A caravan of approximately 600 [[Donald Trump|Trump]] supporters with trucks and flags entered [[City of Portland|Portland]], leading to a major clash with left-wing protesters. (00:03:19) [[Jay Bishop]], a member of the group [[Patriot Prayer]], was shot and killed by an [[Antifa]] member during the clashes in [[City of Portland|Portland]]. (00:04:02) Major media outlets like the [[Associated Press]] and the [[The New York Times|New York Times]] did not report that an [[Antifa]] member killed a [[Donald Trump|Trump]] supporter in [[City of Portland|Portland]]. (00:04:43) [[Nicholas J. Fuentes]] covered three days of the [[Republican Party|RNC]], specifically Monday, Wednesday, and Thursday. (00:05:50) [[Nicholas J. Fuentes]] hosted [[Patrick]], [[Jaden]], [[Beardson]], and [[Jake Lloyd]] in [[City of Chicago|Chicago]] after plans to attend the [[Republican Party|RNC]] in [[Jacksonville]] were canceled. (00:07:29) [[Donald Trump]]'s speech at the [[Republican Party|RNC]] was distinct from the mainstream establishment performances of other speakers. (00:08:54) [[Mike Pence]] delivered a strong performance at the [[Republican Party|RNC]], and [[Donald Trump]]'s speech was also considered strong despite some expected "cringe" elements. (00:09:11) The final night of the [[Republican Party|RNC]] featured a fireworks display, an opera singer, and [[Donald Trump]]'s family in front of the [[White House]], which was considered a great success. (00:09:48) [[Donald Trump]]'s speech at the [[Republican Party|RNC]] drew 23.4 million television viewers, while [[Joe Biden]]'s drew 24.6 million, according to [[Nielsen]]. (00:10:00) The [[DNC]] averaged 21.6 million viewers across four nights, while the [[Republican Party|RNC]] averaged 19.4 million. (00:10:21) [[Donald Trump]] publicly disputed the [[Nielsen]] ratings on [[Twitter]], claiming the [[Republican Party|RNC]] had 147.9 million viewers when digital viewership was included. (00:11:56) Major cable news channels like [[MSNBC]] and CNN carried wall-to-wall coverage of the [[DNC]] but did not carry the first nights of the [[Republican Party|RNC]]. (00:12:30) The [[Republican Party|RNC]] featured a noticeable number of [[black]] speakers, with 12 appearing over the course of the convention. (00:14:16) [[Tim Scott]] invoked [[George Floyd]] and [[Breonna Taylor]] during his speech at the [[Republican Party|RNC]]. (00:14:28) [[Nikki Haley]] spoke of her [[India|Indian]] roots and alluded to her decision to take down the Confederate flag during her [[Republican Party|RNC]] speech. (00:14:33) [[Herschel Walker]] stated he had seen racism up close and that [[Donald Trump]] was not racist during his [[Republican Party|RNC]] speech. (00:15:14) [[Mark]] and [[Patricia McCloskey]], the couple [[who]] pointed guns at [[Black Lives Matter]] protesters in [[City of St. Louis|St. Louis]], spoke at the [[Republican Party|RNC]] about suburban safety. (00:16:48) Speeches at the [[Republican Party|RNC]] played to white anxiety about crime, immigration, and demographic change, with [[Donald Trump]] specifically talking about illegal immigration and the wall. (00:17:32) The [[Republican Party|RNC]] included speeches about rioting and looting from figures like the [[McCloskeys]] and a police chief, alongside messages from [[Mike Pence]] and [[Donald Trump]]. (00:19:16) [[Donald Trump]]'s 2016 victory involved flipping [[Wisconsin]], [[State of Michigan|Michigan]], and [[Commonwealth of Pennsylvania|Pennsylvania]] by tapping into the white working class, a realignment [[Republican Party|Republicans]] needed to double down on. (00:21:00) The [[Republican Party]] was losing or had lost states like [[State of California|California]], [[State of New Mexico|New Mexico]], [[State of Nevada|Nevada]], [[State of Colorado|Colorado]], [[Arizona]], and [[State of Virginia|Virginia]], making the Midwestern states crucial for future elections. (00:23:27) The [[Republican Party|RNC]]'s production value, including a giant fireworks display on the [[National Mall]] and an opera singer, was considered far superior to the [[DNC]]'s remote, audience-less presentation. (00:24:01) [[Joe Biden]] gave a 25-minute speech to an empty convention room during the [[DNC]], followed by a finale featuring video call grids of supporters. (00:27:08) The [[DNC]] featured a musical performance by [[Billy Porter]], while the [[Republican Party|RNC]] featured an Italian opera singer performing "Ave Maria" on a [[White House]] balcony. (00:31:38) [[City of Kenosha|Kenosha]], [[Wisconsin]], experienced widespread destruction including looting, arson, and a car lot fire causing $2.5 million in damage, following the police shooting of [[Jacob Blake]]. (00:32:11) [[Kyle Rittenhouse]], a 17-year-old [[Donald Trump|Trump]] supporter from [[Illinois]], shot and killed two people in [[City of Kenosha|Kenosha]] during the unrest. (00:36:46) The unrest in [[City of Kenosha|Kenosha]] began after [[Jacob Blake]] was shot seven times by [[City of Kenosha|Kenosha]] police officer [[Rustin Shesky]] while being taken into custody. (00:38:18) [[Jacob Blake]] was charged with sexual assault, trespassing, and disorderly conduct in connection with domestic abuse on July 6, and an arrest warrant was issued on July 7. (00:39:02) According to the [[Kenosha Professional Police Association]], [[Jacob Blake]] was armed with a knife, fought with officers, and put one in a headlock before being shot. (00:45:46) Following the looting of the Magnificent Mile in [[City of Chicago|Chicago]], the [[city]] deployed a significant police presence, public works trucks, and implemented a curfew. (00:47:51) [[City of Portland|Portland]] and [[Washington D.C.|Washington, D.C.]] were among the worst-affected cities by prolonged unrest, largely due to the persistent presence of [[Antifa]]. (00:48:51) A caravan of about 600 vehicles carrying [[Donald Trump|Trump]] supporters arrived in downtown [[City of Portland|Portland]] and was confronted by protesters, leading to several arrests and a fatal shooting. (00:49:30) [[Donald Trump]] invoked [[City of Portland|Portland]] as a liberal [[city]] overrun with violence in a speech at the [[Republican Party|RNC]] as part of his law and order campaign theme. (00:50:07) [[Donald Trump|Trump]] supporters and [[Black Lives Matter]]/[[Antifa]] protesters directly engaged in [[City of Portland|Portland]], using non-lethal weapons like paintball guns, [[mace]], pepper spray, skateboards, and bricks. (00:52:53) [[Jay Bishop]] (also identified as Aaron Danielson), a supporter of the [[Patriot Prayer]] group, was shot and killed on a street in [[City of Portland|Portland]] around 8:45 PM local [[time]]. (00:53:28) [[Donald Trump]] praised [[Jay Bishop]] with a post on [[Twitter]] that read "Rest in Peace Jay." (00:54:48) [[Kyle Rittenhouse]] shot and killed two [[Antifa]] or [[Black Lives Matter]] protesters in [[City of Kenosha|Kenosha]], which he claimed was in self-defense. (00:57:50) [[James Fields]] was sentenced to life in prison plus 419 years for his actions during the [[City of Charlottesville|Charlottesville]] rally. (01:00:39) In [[Louisville]], [[State of Kentucky|Kentucky]], charges were dropped against 92 protesters [[who]] demonstrated in front of the attorney general's home over the [[Breonna Taylor]] case. (01:01:17) [[Laura Trump]] said [[Donald Trump]] was going to meet with [[Jacob Blake]]'s family to talk about criminal justice reform. (01:01:58) [[Jared Kushner]] said he was going to talk to [[LeBron James]] about issues. (01:05:20) [[Kyle Rittenhouse]] was facing state charges in [[Wisconsin]] and could not receive a presidential pardon. (01:13:49) [[John Podesta]] discussed within the [[Democratic Party]] elite what would happen if [[Donald Trump]] won and [[Joe Biden]] refused to concede the election. (01:14:49) The components for a potential revolution or coup against [[Donald Trump]] existed, including media control, mobilizable protesters, hostile elements within the [[Republican Party]] and [[White House]], and a deep state willing to sabotage [[Donald Trump|the president]]. (01:15:50) A scenario was outlined where media and social media could propagate a narrative of election illegitimacy, mobilize protesters, and create a constitutional crisis to install [[Joe Biden]] and [[Kamala Harris]]. (01:19:35) [[Black Lives Matter]]'s approval rating among white people had turned negative after initially being positive following the death of [[George Floyd]], while remaining unchanged for [[black]] and [[Hispanic]] people. (02:00:39) [[Elijah Schaffer]] responded to criticism by [[Nicholas J. Fuentes]], calling him a "[[State of California|California]] conservative" while claiming to be "risking my life and shaping the narrative." (02:01:01) [[Elijah Schaffer]] deleted an interview he conducted with [[Nicholas J. Fuentes]] a couple of years prior and later smeared him. (02:02:05) [[Destiny]] debated [[Hasan Piker|Vaush]] on the [[Kyle Rittenhouse]] case, arguing it was okay to defend oneself from a violent mob, which led to significant criticism from [[the left]]. (02:03:50) During a debate, [[Hasan Piker|Vaush]] cited events from Marvel movies as a data point in an argument about real-life police encounters, which [[Destiny]] dismissed. (02:06:08) [[Salim]] asked [[Nicholas J. Fuentes]] if it was [[time]] for his "[[Washington D.C.|DC]] buddy" to "reign in the QAnon thing," suggesting it could mislead well-meaning [[Donald Trump|Trump]] supporters. (02:07:56) Two of the three people shot by [[Kyle Rittenhouse]] in [[City of Kenosha|Kenosha]] were reported to be [[Jews|Jewish]]. (02:13:20) [[Donald Trump]] claimed on [[Laura Ingraham]]'s show that "people in dark shadows [[who]] control the streets" and "planes of men in [[black]] uniforms" were controlling the riots and traveling the [[United States]]. (02:17:20) [[Kevin Brow]] suggested that if [[Donald Trump]] used [[COINTELPRO]]-style tactics against [[Black Lives Matter]] and [[Antifa]] by tracing and seizing their funding, the movement would cannibalize itself.
+(00:02:30) [[Portland]] experienced 90 days of continuous unrest involving [[Antifa]] and [[Black Lives Matter]], including an attempt to explode a federal courthouse with explosives and fireworks. (00:03:06) A caravan of approximately 600 [[Donald Trump|Trump]] supporters with trucks and flags entered [[Portland]], leading to a major clash with left-wing protesters. (00:03:19) [[Jay Bishop]], a member of the group [[Patriot Prayer]], was shot and killed by an [[Antifa]] member during the clashes in [[Portland]]. (00:04:02) Major media outlets like the [[Associated Press]] and the [[The New York Times|New York Times]] did not report that an [[Antifa]] member killed a [[Donald Trump|Trump]] supporter in [[Portland]]. (00:04:43) [[Nicholas J. Fuentes]] covered three days of the [[Republican Party|RNC]], specifically Monday, Wednesday, and Thursday. (00:05:50) [[Nicholas J. Fuentes]] hosted [[Patrick]], [[Jaden]], [[Beardson]], and [[Jake Lloyd]] in [[Chicago]] after plans to attend the [[Republican Party|RNC]] in [[Jacksonville]] were canceled. (00:07:29) [[Donald Trump]]'s speech at the [[Republican Party|RNC]] was distinct from the mainstream establishment performances of other speakers. (00:08:54) [[Mike Pence]] delivered a strong performance at the [[Republican Party|RNC]], and [[Donald Trump]]'s speech was also considered strong despite some expected "cringe" elements. (00:09:11) The final night of the [[Republican Party|RNC]] featured a fireworks display, an opera singer, and [[Donald Trump]]'s family in front of the [[White House]], which was considered a great success. (00:09:48) [[Donald Trump]]'s speech at the [[Republican Party|RNC]] drew 23.4 million television viewers, while [[Joe Biden]]'s drew 24.6 million, according to [[Nielsen]]. (00:10:00) The [[DNC]] averaged 21.6 million viewers across four nights, while the [[Republican Party|RNC]] averaged 19.4 million. (00:10:21) [[Donald Trump]] publicly disputed the [[Nielsen]] ratings on [[Twitter]], claiming the [[Republican Party|RNC]] had 147.9 million viewers when digital viewership was included. (00:11:56) Major cable news channels like [[MSNBC]] and CNN carried wall-to-wall coverage of the [[DNC]] but did not carry the first nights of the [[Republican Party|RNC]]. (00:12:30) The [[Republican Party|RNC]] featured a noticeable number of [[black]] speakers, with 12 appearing over the course of the convention. (00:14:16) [[Tim Scott]] invoked [[George Floyd]] and [[Breonna Taylor]] during his speech at the [[Republican Party|RNC]]. (00:14:28) [[Nikki Haley]] spoke of her [[India|Indian]] roots and alluded to her decision to take down the Confederate flag during her [[Republican Party|RNC]] speech. (00:14:33) [[Herschel Walker]] stated he had seen racism up close and that [[Donald Trump]] was not racist during his [[Republican Party|RNC]] speech. (00:15:14) [[Mark]] and [[Patricia McCloskey]], the couple [[who]] pointed guns at [[Black Lives Matter]] protesters in [[St. Louis]], spoke at the [[Republican Party|RNC]] about suburban safety. (00:16:48) Speeches at the [[Republican Party|RNC]] played to white anxiety about crime, immigration, and demographic change, with [[Donald Trump]] specifically talking about illegal immigration and the wall. (00:17:32) The [[Republican Party|RNC]] included speeches about rioting and looting from figures like the [[McCloskeys]] and a police chief, alongside messages from [[Mike Pence]] and [[Donald Trump]]. (00:19:16) [[Donald Trump]]'s 2016 victory involved flipping [[Wisconsin]], [[State of Michigan|Michigan]], and [[Commonwealth of Pennsylvania|Pennsylvania]] by tapping into the white working class, a realignment [[Republican Party|Republicans]] needed to double down on. (00:21:00) The [[Republican Party]] was losing or had lost states like [[State of California|California]], [[State of New Mexico|New Mexico]], [[State of Nevada|Nevada]], [[State of Colorado|Colorado]], [[Arizona]], and [[State of Virginia|Virginia]], making the Midwestern states crucial for future elections. (00:23:27) The [[Republican Party|RNC]]'s production value, including a giant fireworks display on the [[National Mall]] and an opera singer, was considered far superior to the [[DNC]]'s remote, audience-less presentation. (00:24:01) [[Joe Biden]] gave a 25-minute speech to an empty convention room during the [[DNC]], followed by a finale featuring video call grids of supporters. (00:27:08) The [[DNC]] featured a musical performance by [[Billy Porter]], while the [[Republican Party|RNC]] featured an Italian opera singer performing "Ave Maria" on a [[White House]] balcony. (00:31:38) [[Kenosha]], [[Wisconsin]], experienced widespread destruction including looting, arson, and a car lot fire causing $2.5 million in damage, following the police shooting of [[Jacob Blake]]. (00:32:11) [[Kyle Rittenhouse]], a 17-year-old [[Donald Trump|Trump]] supporter from [[Illinois]], shot and killed two people in [[Kenosha]] during the unrest. (00:36:46) The unrest in [[Kenosha]] began after [[Jacob Blake]] was shot seven times by [[Kenosha]] police officer [[Rustin Shesky]] while being taken into custody. (00:38:18) [[Jacob Blake]] was charged with sexual assault, trespassing, and disorderly conduct in connection with domestic abuse on July 6, and an arrest warrant was issued on July 7. (00:39:02) According to the [[Kenosha Professional Police Association]], [[Jacob Blake]] was armed with a knife, fought with officers, and put one in a headlock before being shot. (00:45:46) Following the looting of the Magnificent Mile in [[Chicago]], the [[city]] deployed a significant police presence, public works trucks, and implemented a curfew. (00:47:51) [[Portland]] and [[Washington D.C.|Washington, D.C.]] were among the worst-affected cities by prolonged unrest, largely due to the persistent presence of [[Antifa]]. (00:48:51) A caravan of about 600 vehicles carrying [[Donald Trump|Trump]] supporters arrived in downtown [[Portland]] and was confronted by protesters, leading to several arrests and a fatal shooting. (00:49:30) [[Donald Trump]] invoked [[Portland]] as a liberal [[city]] overrun with violence in a speech at the [[Republican Party|RNC]] as part of his law and order campaign theme. (00:50:07) [[Donald Trump|Trump]] supporters and [[Black Lives Matter]]/[[Antifa]] protesters directly engaged in [[Portland]], using non-lethal weapons like paintball guns, [[mace]], pepper spray, skateboards, and bricks. (00:52:53) [[Jay Bishop]] (also identified as Aaron Danielson), a supporter of the [[Patriot Prayer]] group, was shot and killed on a street in [[Portland]] around 8:45 PM local [[time]]. (00:53:28) [[Donald Trump]] praised [[Jay Bishop]] with a post on [[Twitter]] that read "Rest in Peace Jay." (00:54:48) [[Kyle Rittenhouse]] shot and killed two [[Antifa]] or [[Black Lives Matter]] protesters in [[Kenosha]], which he claimed was in self-defense. (00:57:50) [[James Fields]] was sentenced to life in prison plus 419 years for his actions during the [[Charlottesville]] rally. (01:00:39) In [[Louisville]], [[State of Kentucky|Kentucky]], charges were dropped against 92 protesters [[who]] demonstrated in front of the attorney general's home over the [[Breonna Taylor]] case. (01:01:17) [[Laura Trump]] said [[Donald Trump]] was going to meet with [[Jacob Blake]]'s family to talk about criminal justice reform. (01:01:58) [[Jared Kushner]] said he was going to talk to [[LeBron James]] about issues. (01:05:20) [[Kyle Rittenhouse]] was facing state charges in [[Wisconsin]] and could not receive a presidential pardon. (01:13:49) [[John Podesta]] discussed within the [[Democratic Party]] elite what would happen if [[Donald Trump]] won and [[Joe Biden]] refused to concede the election. (01:14:49) The components for a potential revolution or coup against [[Donald Trump]] existed, including media control, mobilizable protesters, hostile elements within the [[Republican Party]] and [[White House]], and a deep state willing to sabotage [[the president]]. (01:15:50) A scenario was outlined where media and social media could propagate a narrative of election illegitimacy, mobilize protesters, and create a constitutional crisis to install [[Joe Biden]] and [[Kamala Harris]]. (01:19:35) [[Black Lives Matter]]'s approval rating among white people had turned negative after initially being positive following the death of [[George Floyd]], while remaining unchanged for [[black]] and [[Hispanic]] people. (02:00:39) [[Elijah Schaffer]] responded to criticism by [[Nicholas J. Fuentes]], calling him a "[[State of California|California]] conservative" while claiming to be "risking my life and shaping the narrative." (02:01:01) [[Elijah Schaffer]] deleted an interview he conducted with [[Nicholas J. Fuentes]] a couple of years prior and later smeared him. (02:02:05) [[Destiny]] debated [[Hasan Piker|Vaush]] on the [[Kyle Rittenhouse]] case, arguing it was okay to defend oneself from a violent mob, which led to significant criticism from [[the left]]. (02:03:50) During a debate, [[Hasan Piker|Vaush]] cited events from Marvel movies as a data point in an argument about real-life police encounters, which [[Destiny]] dismissed. (02:06:08) [[Salim]] asked [[Nicholas J. Fuentes]] if it was [[time]] for his "[[Washington D.C.|DC]] buddy" to "reign in the QAnon thing," suggesting it could mislead well-meaning [[Donald Trump|Trump]] supporters. (02:07:56) Two of the three people shot by [[Kyle Rittenhouse]] in [[Kenosha]] were reported to be [[Jews|Jewish]]. (02:13:20) [[Donald Trump]] claimed on [[Laura Ingraham]]'s show that "people in dark shadows [[who]] control the streets" and "planes of men in [[black]] uniforms" were controlling the riots and traveling the [[United States]]. (02:17:20) [[Kevin Brow]] suggested that if [[Donald Trump]] used [[COINTELPRO]]-style tactics against [[Black Lives Matter]] and [[Antifa]] by tracing and seizing their funding, the movement would cannibalize itself.
 
 ### AF 2020-08-27 0670
 (03:35:15) [[Nicholas J. Fuentes]] agreed that the [[Republican Party|RNC]]' copying of progressive "minority fetish" was as cringe and disappointing as DC Comics copying [[Marvel]].
@@ -577,7 +577,7 @@
 (00:27:02) A CNN report stated the hack of [[Twitter|Jack Dorsey]]'s [[Twitter]] account likely exploited a [[known]] vulnerability in the platform's systems that allowed tweets to be sent via text message.
 
 ### AF 2019-08-01 0432
-(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after CNN reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steven Crowder|Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[City of Kabul|Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
+(00:59:40) The [[United States]] government was negotiating a potential peace deal with the [[Afghanistan|Taliban]] that could lead to a withdrawal of [[United States|American]] troops from [[Afghanistan]]. (01:51:28) A proposed agreement would reduce [[United States|U.S]]. troop levels in [[Afghanistan]] from 14,000 to between 8,000 and 9,000. (02:14:44) When [[Donald Trump]] took office, there were approximately 7,000 [[United States|American]] troops in [[Afghanistan]]. (03:24:28) [[Donald Trump]] announced via [[Twitter]] that he was considering imposing an additional 10% tariff on $300 billion worth of [[China|Chinese]] imports, effective September 1st. (03:54:72) [[North Korea]] conducted its third missile test in two weeks, an action linked to the broader trade calculus with [[China]]. (04:19:16) [[Darren Beattie]], a former [[White House]] speechwriter, was fired after CNN reported on his attendance at the H.L. Mencken Club conference, which had previously hosted figures like [[Richard Spencer]] and [[Peter Brimelow]]. (05:05:96) [[Darren Beattie]] gave a speech at a symposium for a privately funded border wall project where [[Steve Bannon]] was also present. (05:20:72) In a 2018 song, rapper [[ASAP Rocky]] included lyrics calling [[Donald Trump]] an "a-hole," saying "F him," and expressing a desire for his assassination similar to [[John F. Kennedy|JFK]]. (05:37:04) [[ASAP Rocky]], a [[black]] rapper, was being held in [[Sweden]] on trial for assault. (05:49:44) [[Donald Trump]] sent the top hostage negotiator from the [[United States]] [[U.S. Department of State|State Department]] to [[Sweden]] to negotiate [[ASAP Rocky]]'s release. (06:13:20) [[Donald Trump]] and supporters like [[Jack Posobiec]] and [[Wilt Chamberlain|Will Chamberlain]] advocated for [[ASAP Rocky]]'s release in an effort to curry favor with [[black]] voters. (12:45:40) [[Donald Trump]] sent an envoy to monitor [[ASAP Rocky]]'s court case in [[Sweden]] and had previously spoken with Sweden's prime minister about securing his release. (13:08:82) [[Donald Trump]] had been tweeting about the [[ASAP Rocky]] case. (21:57:18) In a tweet, [[Donald Trump]] stated that [[China]] had not stopped the sale of fentanyl to the [[United States]] as promised by President [[Xi Jinping]]. (22:21:32) [[Donald Trump]]'s proposed tariffs would not include the $250 billion in [[China|Chinese]] goods already subject to a 25% tariff. (23:37:14) [[Ben Shapiro]] was among the free-market commentators [[who]] argued that tariffs are bad for the economy because costs are passed on to consumers. (30:49:70) In 2017 or early 2018, [[Donald Trump]] eased trade pressure on [[China]] with the expectation that [[China]] would help the [[United States]] with the [[North Korea]] threat. (32:57:90) [[Donald Trump]] downplayed [[North Korea]]'s recent short-range missile tests, calling them "very standard." (33:52:88) [[Charles Krauthammer]] advocated for a foreign policy of [[democratic]] realism, which involved invading countries to make them democracies. (37:32:10) [[William Jefferson Clinton|Bill Clinton]]'s administration ignored the nuclear proliferation of countries like [[North Korea]], [[Pakistan]], [[India]], and [[Iran]]. (37:35:64) [[George W. Bush]] invaded countries on false pretenses, an action described as being in the service of [[Israel]]. (37:43:88) The [[Barack Obama]] administration's nuclear deal with [[Iran]] was criticized for allowing [[Iran]] to eventually obtain a nuclear arsenal and providing economic stimulus that strengthened its regional influence. (38:52:38) The [[Donald Trump|Trump administration]] had undertaken eight rounds of negotiations with the [[Afghanistan|Taliban]], led by envoy [[Zalmay Khalilzad]], the former [[United States|U.S]]. ambassador to [[Kabul]]. (39:59:30) A proposed agreement with the [[Afghanistan|Taliban]] would require the group to broker a peace deal directly with the [[Afghanistan|Afghan]] government and give assurances that [[Afghanistan]] would not be used as a launch pad for international terror attacks. (40:30:32) The [[United States]] had lost more than 2,400 soldiers and spent over $900 billion during the war in [[Afghanistan]]. (46:40:90) In December, [[Donald Trump]] announced the withdrawal of all [[United States|U.S]]. troops from [[Syria]] within 30 days, but seven months later, troops remained. (47:14:18) During the [[Democratic Party|Democratic]] primary debates, candidates frequently stated a need to end the "forever wars" and bring troops home from [[Afghanistan]] and [[Iraq]].
 
 ### AF 2019-07-30 0430
 (00:00:00) [[Nicholas J. Fuentes]] announced the start of his show, [[United States|America]] First, and stated he would be reacting live to the second [[Democratic Party|Democratic]] presidential primary debate that had just concluded on CNN.
@@ -610,7 +610,7 @@
 (00:07:55) [[Nicholas J. Fuentes]] highlighted a series of articles from CNN, [[Time]], and [[The Economist]] promoting insects like crickets, worms, and maggots as a future food source to address global population growth and resource constraints.
 
 ### AF 2019-05-01 0378
-(01:46:180) A disgruntled individual [[who]] watched CNN and was active on [[Reddit]] and [[Facebook]] attempted to assassinate [[Steve Scalise]] and other [[Republican Party|Republican]] politicians at the [[City of Alexandria|Alexandria]] baseball diamond practice.
+(01:46:180) A disgruntled individual [[who]] watched CNN and was active on [[Reddit]] and [[Facebook]] attempted to assassinate [[Steve Scalise]] and other [[Republican Party|Republican]] politicians at the [[Alexandria]] baseball diamond practice.
 
 ### AF 2019-04-09 0363
 (12:31:22) Major media outlets like [[NBC News|NBC]] and CNN reported on racist and anti-Semitic comments in the [[Google|YouTube]] live chat of the [[House]] Judiciary Committee's white nationalism hearing, rather than on the substance of the hearing itself.
@@ -622,13 +622,13 @@
 (01:05:00) CNN reported, citing sources [[who]] had spoken directly with [[Donald Trump]], that [[the President]] intended to sign the border security deal to avoid another partial government shutdown.
 
 ### AF 2019-01-25 0318
-(00:21:40) CNN reported that the government shutdown caused flight delays at major airports in [[New York]], [[State of New Jersey|New Jersey]], [[City of Philadelphia|Philadelphia]], [[City of Orlando|Orlando]], and [[Atlanta]] due to staffing shortages at air traffic control centers.
+(00:21:40) CNN reported that the government shutdown caused flight delays at major airports in [[New York]], [[State of New Jersey|New Jersey]], [[Philadelphia]], [[Orlando]], and [[Atlanta]] due to staffing shortages at air traffic control centers.
 
 ### AF 2019-01-24 0317
 (00:15:02) CNN reported that [[Donald Trump]] was preparing to declare a national emergency using the National Emergencies Act of 1976 to allocate $7 billion for a border wall.
 
 ### AF 2018-12-06 0290
-(00:01:56) [[Marc Lamont Hill]] was fired from CNN after making comments about [[Gaza Strip|Palestine]] and [[Israel]] during a [[United Nations]] address.
+(00:01:56) [[Marc Lamont Hill]] was fired from CNN after making comments about [[Palestine]] and [[Israel]] during a [[United Nations]] address.
 
 ### AF 2018-12-06 0290
 (00:32:21) [[Marc Lamont Hill]], a commentator for CNN, addressed a [[United Nations]] commemoration of the International Day of Solidarity with the [[Palestinian]] People.
@@ -649,7 +649,7 @@
 (00:06:00) [[Fox News]], alongside CNN, [[CBS News|CBS]], [[ABC News|ABC]], [[Associated Press|AP]], and [[Russia Today|USA Today]], filed an amicus brief in support of CNN's lawsuit against the [[White House]] over the revocation of [[Jim Acosta]]'s press pass.
 
 ### AF 2018-11-14 0282
-(00:09:20) [[Chris Wallace]] of [[Fox News]] stated the network supported CNN's legal effort to regain [[Jim Acosta]]'s [[White House]] press credential, condemning the "growing antagonistic tone" between [[Donald Trump|the president]] and the press.
+(00:09:20) [[Chris Wallace]] of [[Fox News]] stated the network supported CNN's legal effort to regain [[Jim Acosta]]'s [[White House]] press credential, condemning the "growing antagonistic tone" between [[the president]] and the press.
 
 ### AF 2018-11-13 0281
 (00:29:06) CNN filed a lawsuit against the [[White House]] after the administration revoked the press credentials of correspondent [[Jim Acosta]], arguing the action violated [[Jim Acosta]]'s First and Fifth Amendment rights.
@@ -670,13 +670,13 @@
 (19:57:42) [[Nicholas J. Fuentes]] argued that media outlets like [[NBC News|NBC]], CNN, and the [[The New York Times|New York Times]] would run headlines stating "[[Brett Kavanaugh|Kavanaugh]] denies sexual assault," which was sufficient to damage his reputation regardless of the allegations' veracity.
 
 ### AF 2018-09-06 0234
-(00:22:56) [[Nicholas J. Fuentes]] corrected the [[Media Matters]] article, stating his split with [[Right Side Broadcasting Network|RSBN]] was mutual and occurred in August after the [[City of Charlottesville|Charlottesville]] rally, not in April after comments about CNN.
+(00:22:56) [[Nicholas J. Fuentes]] corrected the [[Media Matters]] article, stating his split with [[Right Side Broadcasting Network|RSBN]] was mutual and occurred in August after the [[Charlottesville]] rally, not in April after comments about CNN.
 
 ### AF 2018-09-06 0234
 (00:39:22) [[Nicholas J. Fuentes]] reported that [[Twitter]] and [[Twitter|Jack Dorsey]] permanently suspended [[Alex Jones]] and [[Alex Jones|InfoWars]] for "excessively aggressive insults" after [[Alex Jones|Jones]] confronted CNN reporter [[Oliver Darcy]] at the [[Senate]] hearing.
 
 ### AF 2018-09-05 0233
-(00:50:23) [[Nicholas J. Fuentes]] cited the firing of [[Daryl Cooper|Darren Beattie]] from the [[Donald Trump]] administration after CNN reported his attendance at a conference with [[Richard Spencer]] as an example of competent [[Donald Trump|Trump]] loyalists being purged while NeverTrumpers remained.
+(00:50:23) [[Nicholas J. Fuentes]] cited the firing of [[Darren Beattie]] from the [[Donald Trump]] administration after CNN reported his attendance at a conference with [[Richard Spencer]] as an example of competent [[Donald Trump|Trump]] loyalists being purged while NeverTrumpers remained.
 
 ### AF 2018-08-30 0230
 (18:03:00) The [[Washington Post]], the [[The New York Times|New York Times]], CNN, and [[NBC News|NBC]] were characterized as being routinely on the side of immigration lawbreakers in opposition to the executive branch's constitutional mandate to enforce the law.
@@ -694,7 +694,7 @@
 (00:24:18) [[John Brennan]] frequently appeared on CNN and [[MSNBC]] to criticize [[Donald Trump]] after leaving the [[Central Intelligence Agency|CIA]].
 
 ### AF 2018-08-20 0222
-(00:55:42) [[Daryl Cooper|Darren Beattie]], a [[Donald Trump]] speechwriter [[who]] worked with [[Stephen Miller]], was fired from [[the White House]] after CNN reported his attendance at the H.L. Mencken Club conference where [[Richard Spencer]] was also present.
+(00:55:42) [[Darren Beattie]], a [[Donald Trump]] speechwriter [[who]] worked with [[Stephen Miller]], was fired from [[the White House]] after CNN reported his attendance at the H.L. Mencken Club conference where [[Richard Spencer]] was also present.
 
 ### AF 2018-08-20 0222
 (01:13:48) [[Nicholas J. Fuentes]] compared [[Patrick Little]]'s radicalization to the CNN-inspired shooter [[who]] attacked [[Steve Scalise]], where a kernel of truth leads to violent, insane conclusions.
@@ -712,7 +712,7 @@
 (00:04:40) [[Nicholas J. Fuentes]] argued that online anonymity was crucial for effective political messaging and memetic propaganda during the 2016 election, protecting individuals from retaliation by entities like CNN.
 
 ### AF 2018-07-24 0206
-(01:25:00) [[Nicholas J. Fuentes]] cited the case of an engineer [[who]] attended the [[City of Charlottesville|Charlottesville rally]] and later died by suicide after media harassment, and the case of [[Millennial Matt]] [[who]] was doxed on CNN and fled to [[State of Japan|Japan]], as examples of severe consequences for political speech.
+(01:25:00) [[Nicholas J. Fuentes]] cited the case of an engineer [[who]] attended the [[Charlottesville rally]] and later died by suicide after media harassment, and the case of [[Millennial Matt]] [[who]] was doxed on CNN and fled to [[State of Japan|Japan]], as examples of severe consequences for political speech.
 
 ### AF 2018-07-10 0197
 (00:49:58) CNN commentators and verified [[Twitter]] users questioned the number of [[Catholic Church|Catholic]] justices on the [[Supreme Court of the United States|Supreme Court]].
@@ -727,7 +727,7 @@
 (01:17:34) [[J.F. Gariepy]] asserted that CNN published an article claiming [[Donald Trump]] had tied himself in knots on immigration within a week, a framing he disputed.
 
 ### AF 2018-04-05 0139
-(00:13:06) A viral tweet from "[[Millennial Matt]]" featuring a high school photo of [[Nicholas J. Fuentes]] was retweeted by [[Greta Van Susteren]] of [[Fox News]], [[Jake Tapper]] of CNN, and commented on by [[City of Parkland|Parkland]] survivor [[Kyle Kashuv]].
+(00:13:06) A viral tweet from "[[Millennial Matt]]" featuring a high school photo of [[Nicholas J. Fuentes]] was retweeted by [[Greta Van Susteren]] of [[Fox News]], [[Jake Tapper]] of CNN, and commented on by [[Parkland]] survivor [[Kyle Kashuv]].
 
 ### AF 2018-03-20 0128
 (00:08:40) [[Nicholas J. Fuentes]] argued that media outlets like [[British Broadcasting Corporation|BBC]], [[The New York Times]], CNN, and [[Washington Post|The Washington Post]] were not covering the Great Mills High School shooting because it did not advance a gun control legislative agenda focused on semi-automatic rifles.
@@ -739,7 +739,7 @@
 (00:50:40) [[Nicholas J. Fuentes]] argued that support for free trade among think tanks like the [[American Enterprise Institute]] and [[Cato Institute]], media like CNN, and politicians like [[Paul Ryan]] is driven by funding from globalist interests.
 
 ### AF 2018-02-19 0111
-(00:10:52) [[Nicholas J. Fuentes]] accused media outlets like CNN of coaching student witnesses from the [[City of Parkland|Parkland]] shooting during interviews to push a specific political message on gun control.
+(00:10:52) [[Nicholas J. Fuentes]] accused media outlets like CNN of coaching student witnesses from the [[Parkland]] shooting during interviews to push a specific political message on gun control.
 
 ### AF 2018-02-08 0104
 (00:48:50) [[Nicholas J. Fuentes]] stated that his arguments in the debate with [[Halsey English]] were based on empirical facts from sources like [[Peter Schaefer]] of [[Princeton University]], the General Social Survey, and publicly available data on CNN employees, not extremist literature.
@@ -800,3 +800,189 @@
 
 ### AF 2017-08-29 0004
 (00:03:30) The media, including [[Fox News]], CNN, [[ABC News|ABC]], and [[CBS News|CBS]], coordinated a narrative framing [[Hurricane Harvey]] as the first major leadership test for [[Donald Trump|President Trump]] in an effort to assign him responsibility for the storm's devastation.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:50:46.780) [[Donald Trump]] noted that "fake new CNN," *[[The New York Times]]*, and other "radical left news organizations" were giving positive press to these pundits for the first [[time]] in their lives.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:15:06) [[JD Vance|Vance]] advisor [[Andrew Serabian]] stated on [[X]] that a CNN report about [[Iran]] wanting to negotiate was evidence of a foreign propaganda op.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(03:22:11) CNN and the [[The New York Post|New York Post]] reported that unnamed [[Iran|Iranian]] sources requested [[JD Vance]] specifically to negotiate the end to the war, rejecting [[Steve Wittkoff|Steve Witkoff]] and [[Jared Kushner]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:16:46) CNN and the [[The New York Post|New York Post]] published a story that an unnamed [[Iran|Iranian]] source claimed [[Iran]] wanted [[JD Vance]] to be the negotiator because they did not trust [[Jared Kushner]] or [[Steve Wittkoff|Steve Witkoff]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:33:21) [[Larry Ellison]] put [[Bari Weiss]] in charge of CBS News, turning it into a pro-[[Israel]] propaganda outlet.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(02:58:10) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] consistently chooses the wrong people and makes the wrong decisions, and that his dream is to be beloved by [[New York|New York City]], [[The New York Times]], and CNN.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:23:01) [[Nicholas J. Fuentes]] reported that the military had identified a sleeper cell activation code emitted by an [[Iran|Iranian]] intelligence source, according to CBS News or [[ABC News]].
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:29:30) [[Nicholas J. Fuentes]] argued that the media supports the war in [[Iran]] because the people [[who]] own the media, such as [[Rupert Murdoch]] ([[Fox News|Fox]]) and [[Larry Ellison]] ([[Paramount Global|Paramount]], Warner Brothers, [[Skydance Media|Skydance]], [[TikTok Inc.|TikTok]]), support it.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:34:20) [[Nicholas J. Fuentes]] stated that [[Larry Ellison]], a friend of [[Benjamin Netanyahu]], controls [[Skydance Media|Skydance]], [[Paramount Global]], Warner Bros., and [[TikTok Inc.|TikTok]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:21:50) [[Skydance Media|Skydance Paramount]] acquired CBS, CBS News, and a number of television stations.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:22:06) [[Skydance Media|Skydance Paramount]] made a bid for Warner Brothers, which triggered an open bid.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:22:25) [[Netflix]] came in with a substantial offer for Warner Brothers, and the board approved that offer.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:22:45) [[Skydance Media|Skydance Paramount]] came back with a better offer for Warner Brothers at the last minute.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:23:00) Warner Brothers accepted the offer from [[Skydance Media|Skydance Paramount]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:23:13) [[Skydance Media|Skydance]], [[Paramount Global|Paramount]], and Warner Brothers will all be under the [[Larry Ellison]] empire.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:37:36) [[Nicholas J. Fuentes]] read a CNN poll conducted by [[SSRS]] showing that nearly two-thirds of speech watchers had a positive reaction to [[Donald Trump]]'s [[Concept|State of the Union]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:23:12) [[Nicholas J. Fuentes]] argued that the war in [[Iran]], the acquisition of Warner Bros. by [[Paramount Global]], and the acquisition of [[TikTok Inc.|TikTok]] by [[Larry Ellison]] are all for [[Israel]].
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:08:24) [[David Ellison]]'s studio [[Skydance Media|Skydance]] acquired [[Paramount Global|Paramount Pictures]], which includes [[Paramount Global|Paramount Plus]], CBS News, and other properties, in 2025.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:08:57) [[Skydance Media|Skydance]] set its sights on acquiring Warner Brothers Studios, which includes HBO, HBO Max, and CNN, triggering a bidding process.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:09:16) [[Netflix]] inked a deal with Warner Brothers for $72 billion to buy out the entire company minus CNN and one other property.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:19:55) [[Nicholas J. Fuentes]] stated that [[JD Vance]] was a Never Trumper [[who]] called [[Donald Trump|Trump]] a [[Germany|Nazi]] on CNN before needing his endorsement.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:29:12) [[Joe Lonsdale]] is an investor in [[Bari Weiss]], [[who]] became the head of CBS under [[Larry Ellison]] through [[David Ellison|Ellison]]'s connections to [[Donald Trump]].
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(04:04:42) [[The New York Times]], CNN, and [[NBC News|NBC]] ran daily coverage of the "kids in cages" narrative.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:17:05) The federal government stated that they were looking into federal charges for the protesters [[who]] invaded the church in [[Minneapolis]], including former CNN host [[Don Lemon]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:19:46) [[Nicholas J. Fuentes]] described a pro-[[Israel]] coup occurring across society since [[October 7th Attack|October 7th]], affecting the [[White House]], [[Harvard University]], [[TikTok Inc.|TikTok]], and now ongoing at CBS News, [[Paramount Global]], and potentially at Warner Bros..
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:09:26) [[Nicholas J. Fuentes]] cited a report from [[Bari Weiss]]'s CBS News claiming that between 12,000 and 20,000 protesters have been killed in [[Iran]], which he dismissed as atrocity propaganda.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:21:20) [[Nicholas J. Fuentes]] stated that the featured story is a "hostile takeover" of Warner Bros. by [[Skydance Media|Skydance Paramount]], otherwise [[known]] as [[David Ellison]]'s media company, which he characterized as "[[Jews]] are buying the media again."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:22:26) [[Nicholas J. Fuentes]] identified Warner Bros. as a major media conglomerate owning the Warner Bros. studio, HBO, HBO Max, and CNN.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:22:50) [[Nicholas J. Fuentes]] stated that a bidding war is ongoing between [[Netflix]] and [[Skydance Media|Skydance Paramount]] for Warner Bros., with [[Netflix]] likely to acquire it.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:23:22) [[Nicholas J. Fuentes]] alleged that the "Ellisons" are pulling strings to mount a hostile takeover of Warner Bros. by any means necessary.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:24:17) [[Nicholas J. Fuentes]] stated that [[Skydance Media|Skydance Paramount]] was created in August 2025 from the merger of [[Skydance Media]] and [[Paramount Global]], which controls CBS.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:24:56) [[Nicholas J. Fuentes]] reported that [[Bari Weiss]] was put in charge of CBS News as editor-in-chief by [[David Ellison]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:25:22) [[Nicholas J. Fuentes]] reported that [[Bari Weiss]] appointed Tony Dokoupil as the new nightly news anchor for CBS News.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:26:04) [[Nicholas J. Fuentes]] noted that [[Skydance Media|Sheri Redstone]], described as the "[[Jews|Jewish]] owner of CBS," defended Dokoupil after he was admonished for his interview style.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:40:52) [[Nicholas J. Fuentes]] claimed that for generations, almost all major media conglomerates have been owned and managed by people [[who]] are "ethnically [[Jews|Jewish]]," citing [[Bob Iger]] at [[Disney]], Zucker at CNN, and [[Skydance Media|Sumner Redstone]] at CBS.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:43:15) [[Nicholas J. Fuentes]] set the stage for the news story about the fate of Warner Bros., a major media conglomerate owning the studio, film library, HBO, HBO Max, and CNN.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:44:23) [[Nicholas J. Fuentes]] stated that [[Netflix]] and [[Skydance Media|Skydance Paramount]] are both seeking control of Warner Bros. as part of a larger competition among new streaming media companies.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:47:10) [[Nicholas J. Fuentes]] listed the assets of [[Paramount Global]]: the CBS television station, CBS News, [[Paramount Global|Nickelodeon]], [[Paramount Global|MTV]], [[Comedy Central]], [[Paramount Global|Paramount+]], and [[Paramount Global|Showtime]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:59:08) [[Nicholas J. Fuentes]] explained that [[Skydance Media|Skydance Paramount]] made an offer to buy Warner Bros. earlier in the year because it is considered the "crown jewel of [[Los Angeles|Hollywood]]."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:59:58) [[Nicholas J. Fuentes]] stated that after acquiring [[Paramount Global|Paramount]], [[Skydance Media|Skydance]] immediately made an offer for Warner Bros.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:01:04) [[Nicholas J. Fuentes]] explained that Warner Bros. put itself up for sale after receiving interest from [[Skydance Media|Skydance Paramount]], and [[Netflix]] entered the bidding.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:01:41) [[Nicholas J. Fuentes]] reported that [[Netflix]] and Warner Bros. have inked a deal for $72 billion, and [[Skydance Media|Skydance Paramount]] is attempting a "hostile takeover."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:02:01) [[Nicholas J. Fuentes]] quoted an [[National Public Radio|NPR]] report stating that [[Paramount Global]] sweetened its offer with an all-cash deal valued at $108 billion to take over Warner Bros., outperforming [[Netflix]]'s offer.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:03:01) [[Nicholas J. Fuentes]] quoted that [[Oracle Corporation|Larry Ellison]] is a donor, informal advisor, and friend of the [[president]], and that [[David Ellison]] made key hires at CBS to ensure the network is perceived as less adversarial to [[Donald Trump|Trump]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:03:39) [[Nicholas J. Fuentes]] quoted that [[Bari Weiss]], founder of [[Bari Weiss|The Free Press]], has taken over the news division of CBS as editor-in-chief.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:04:15) [[Nicholas J. Fuentes]] stated that [[Skydance Media|Skydance Paramount]]'s takeover of Warner Bros. would give them "absolute" control over [[Los Angeles|Hollywood]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:05:36) [[Nicholas J. Fuentes]] reported that the first thing the Ellisons did after acquiring CBS was to hire [[Bari Weiss]] as editor-in-chief.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:06:12) [[Nicholas J. Fuentes]] claimed that [[Oracle Corporation|Larry Ellison]] called [[Donald Trump]] and told him that if [[Skydance Media|Skydance Paramount]] acquires CNN, they will make it more [[Donald Trump|Trump]]-friendly and conservative.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:06:29) [[Nicholas J. Fuentes]] stated that [[Donald Trump]] faces a choice between [[Netflix]] acquiring Warner Bros. or [[Skydance Media|Skydance Paramount]] acquiring it, with [[Oracle Corporation|Larry Ellison]] being a pro-[[Israel]] [[Republican Party|Republican]] booster.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:07:16) [[Nicholas J. Fuentes]] reported that [[Oracle Corporation|Larry Ellison]] is making an appeal to the shareholders of Warner Bros. to vote in favor of the [[Skydance Media|Skydance]] deal.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:07:46) [[Nicholas J. Fuentes]] listed the properties the Ellisons would own if successful: [[Skydance Media|Skydance]] Production, [[Paramount Global]], CBS, Warner Bros. studios, HBO, HBO Max, CNN, and [[TikTok Inc.|TikTok]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:14:21) [[Nicholas J. Fuentes]] traced the ownership of CBS from [[Jews|Jewish]] gangsters to [[Skydance Media|Sumner Redstone]] to Sherry Redstone to [[Oracle Corporation|Larry Ellison]], describing it as a "[[Jews|Jewish]] oligarchy."
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:15:46) [[Nicholas J. Fuentes]] stated that the first move by the Ellisons at CBS was to put [[Bari Weiss]] in charge as editor-in-chief.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:17:38) [[Nicholas J. Fuentes]] described [[Bari Weiss]] as a "self-described fanatical [[Jews|Zionist]]" [[who]] is now the editor-in-chief of CBS News.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:17:52) [[Nicholas J. Fuentes]] reported that [[Bari Weiss]] selected Tony Dokoupil as the new nighttime news anchor for CBS News.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:18:11) [[Nicholas J. Fuentes]] quoted ''[[The New York Times|The Independent]]'' that staffers at CBS News are not thrilled with the decision.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:18:52) [[Nicholas J. Fuentes]] reminded viewers of the interview where Tony Dokoupil aggressively interrogated [[Ta-Nehisi Coates]] about his book on [[Palestine]] and [[Israel]], leading to a reprimand from CBS News executives.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:20:07) [[Nicholas J. Fuentes]] cited a CBS News reporter [[who]] said Tony Dokoupil's "pro-[[Israel]] slant is exactly what Barry wants."
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:37:13:76) [[Nicholas J. Fuentes]] reported that [[David Ellison]] acquired [[Bari Weiss]]'s publication, [[Bari Weiss|The Free Press]], for over $100 million and then made her the editor-in-chief of CBS.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(02:37:25:06) [[Nicholas J. Fuentes]] claimed that CBS news reporting about [[Israel]] is now extremely pro-[[Israel]] as a result of [[Bari Weiss]]'s leadership.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:05:48) [[Nicholas J. Fuentes]] stated that [[Netflix]] attempted to acquire Warner Bros., but the [[Donald Trump]] administration blocked the deal, leading [[Skydance Media]] to make a bid for a hostile takeover.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(04:06:01) The hostile takeover bid for Warner Bros. by [[Skydance Media]] is being financed by [[Bank of America Corporation|Bank of America]], [[Apollo Global Management]] (owned by [[William Ackman|Bill Ackman]]), the [[David Ellison|Ellison]] family, and [[Jared Kushner]]'s private equity firm.

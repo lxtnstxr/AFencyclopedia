@@ -21,7 +21,7 @@
 (01:06:06:70) Steve Franssen was banned from [[Twitter]], and [[Nicholas J. Fuentes]] encouraged viewers to follow him on [[Telegram]].
 
 ### AF 2020-02-03 0538
-(01:53:19) While in [[City of Miami|Miami]], [[Nicholas J. Fuentes]] and Steve Franssen attempted to "red pill" [[Kathy Zhu]] on race during a conversation.
+(01:53:19) While in [[Miami]], [[Nicholas J. Fuentes]] and Steve Franssen attempted to "red pill" [[Kathy Zhu]] on race during a conversation.
 
 ### AF 2019-09-04 0454
 (01:14:15) [[Nicholas J. Fuentes]] operates a Telegram channel at t.me/NickJFuentes1 and recommended channels run by [[Patrick Casey]], [[Faith Goldy]], Steve Franssen, [[Carl Benjamin|Sargon of Akkad]], and [[Ali Alexander]].

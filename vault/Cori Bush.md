@@ -21,10 +21,10 @@
 (00:23:22) Representatives like [[Ilhan Omar]], [[Rashida Tlaib]], [[Alexandria Ocasio-Cortez]], and Cori Bush were characterized as spokespeople for their respective ethnic enclaves rather than for [[United States|America]] as a whole.
 
 ### AF 2020-08-05 0655
-(00:02:11) Cori Bush, a [[Black Lives Matter]] protester from the 2014 [[City of St. Louis|Ferguson]] demonstrations following the killing of [[Michael Brown]], won her [[Democratic Party|Democratic]] primary in [[State of Missouri|Missouri]].
+(00:02:11) Cori Bush, a [[Black Lives Matter]] protester from the 2014 [[Ferguson]] demonstrations following the killing of [[Michael Brown]], won her [[Democratic Party|Democratic]] primary in [[State of Missouri|Missouri]].
 
 ### AF 2020-08-05 0655
 (00:44:45) Cori Bush, a progressive activist, defeated Representative [[William Lacy Clay Jr.]] in a [[Democratic Party|Democratic]] primary in [[State of Missouri|Missouri]], which the [[The New York Times|New York Times]] described as part of a string of upsets against the party establishment.
 
 ### AF 2020-08-05 0655
-(00:47:04) Cori Bush built her campaign around her personal story as a working-class [[black]] woman drawn into public life after the police killing of [[Michael Brown]] in [[City of St. Louis|Ferguson]], [[State of Missouri|Missouri]] in 2014.
+(00:47:04) Cori Bush built her campaign around her personal story as a working-class [[black]] woman drawn into public life after the police killing of [[Michael Brown]] in [[Ferguson]], [[State of Missouri|Missouri]] in 2014.

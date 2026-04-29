@@ -42,7 +42,7 @@
 (31:36:66) [[Twitter]] closed its offices, and an attendee at an Uber headquarters meeting tested positive for the virus, leading to a quarantine.
 
 ### AF 2018-08-06 0215
-(02:22:28) Following the [[City of Charlottesville|Charlottesville rally]], figures like [[James Allsup|James Alsup]] ([[Timothy Gionet|Baked Alaska]]) and [[Millennial Matt]] were removed from services like Uber and [[Airbnb]].
+(02:22:28) Following the [[Charlottesville rally]], figures like [[James Allsup|James Alsup]] ([[Timothy Gionet|Baked Alaska]]) and [[Millennial Matt]] were removed from services like Uber and [[Airbnb]].
 
 ### AF 2018-08-02 0213
 (04:43:00) Some "[[Donald Trump|MAGA]] moms" and an Uber driver showed support for the [[American Identity Movement|Identity Europa]] demonstration by pumping their fists and giving a thumbs up.

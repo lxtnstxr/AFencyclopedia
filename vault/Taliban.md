@@ -49,10 +49,10 @@
 (54:54:85) [[Nicholas J. Fuentes]] celebrated the Taliban's victory in [[Afghanistan]] as the end of a 20-year colonial war driven by neoconservatives and the [[Israel lobby]].
 
 ### AF 2022-04-25 0983
-(00:46:14) [[Nicholas J. Fuentes]] celebrated a chain of events including [[Brexit]], the election of [[Donald Trump]], the [[City of Charlottesville|Charlottesville]] rally, the [[Groyper]] war, the Taliban victory in [[Afghanistan]], and [[Russia]]'s invasion of [[Ukraine]].
+(00:46:14) [[Nicholas J. Fuentes]] celebrated a chain of events including [[Brexit]], the election of [[Donald Trump]], the [[Charlottesville]] rally, the [[Groyper]] war, the Taliban victory in [[Afghanistan]], and [[Russia]]'s invasion of [[Ukraine]].
 
 ### AF 2022-03-24 0965
-(00:02:50) [[Nicholas J. Fuentes]] compared the current narrative-building to the prelude of the [[United States]] withdrawal from [[Afghanistan]], where warnings about the Taliban and [[Islamic State of Iraq and Syria|ISIS-K]] preceded a terrorist attack at [[City of Kabul|Kabul]] airport.
+(00:02:50) [[Nicholas J. Fuentes]] compared the current narrative-building to the prelude of the [[United States]] withdrawal from [[Afghanistan]], where warnings about the Taliban and [[Islamic State of Iraq and Syria|ISIS-K]] preceded a terrorist attack at [[Kabul]] airport.
 
 ### AF 2022-03-02 0951
 (02:24:30) [[Joe Biden]]'s administration committed an unforgivable failure in [[Afghanistan]], abandoning [[United States|Americans]], arming the Taliban, and costing the lives of 13 [[United States|American]] soldiers.

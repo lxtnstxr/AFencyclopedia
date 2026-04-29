@@ -14,7 +14,7 @@
 (01:04:40) Each [[time]] [[Donald Trump]] made an overture to [[Russian Federation|Russia]], [[Volodymyr Zelenskyy]] would come to the [[White House]] with a cadre of [[Europe|European]] diplomats, the NATO Secretary General, [[Emmanuel Macron]], the [[United Kingdom|British]] PM, the [[Germany|German]] Chancellor, and the Italian PM, to pressure [[Donald Trump|Trump]] to take a harder line against [[Russian Federation|Russia]].
 
 ### AF 2025-08-20 1552
-(00:45:40) [[Volodymyr Zelenskyy]] traveled to [[Washington D.C.]] accompanied by the heads of state of major [[Europe|European]] NATO allies, including [[Donald Trump|the president]] of [[France]], the prime minister of the [[United Kingdom]], the prime minister of [[Italian Republic|Italy]], [[Donald Trump|the president]] of [[Finland]], the head of the [[European Commission]], and the general secretary of NATO.
+(00:45:40) [[Volodymyr Zelenskyy]] traveled to [[Washington D.C.]] accompanied by the heads of state of major [[Europe|European]] NATO allies, including [[the president]] of [[France]], the prime minister of the [[United Kingdom]], the prime minister of [[Italian Republic|Italy]], [[the president]] of [[Finland]], the head of the [[European Commission]], and the general secretary of NATO.
 
 ### AF 2025-08-20 1552
 (00:51:40) The multilateral summit at the [[White House]] concerning the war in [[Ukraine]] failed to produce any agreement on the two major issues: territorial concessions involving four [[Ukraine|Ukrainian]] oblasts and post-war security guarantees involving NATO troops on the ground.

@@ -4,7 +4,7 @@
 ### AF 2025-08-15 1551
 (00:45:460) [[Donald Trump]] and [[Vladimir Putin]] held a summit at Joint Base Elmendorf-Richardson in Alaska, which was cut short after a single three-hour session and a press conference, with no agreement or framework announced.
 
-(01:42:940) [[Steve Wittkoff]] secured an agreement for the Alaska summit just days before [[Donald Trump]]'s deadline, which [[Donald Trump|the president]] did not want to enforce.
+(01:42:940) [[Steve Wittkoff]] secured an agreement for the Alaska summit just days before [[Donald Trump]]'s deadline, which [[the president]] did not want to enforce.
 
 ### AF 2025-08-14 1550
 (00:00:59) [[Donald Trump]] and [[Vladimir Putin]] are scheduled to hold their first summit of [[Donald Trump|Trump's]] second term in Alaska the following day, a meeting arranged within one week after negotiations by [[Steve Wittkoff]].
@@ -67,7 +67,7 @@
 (00:21:55) [[State of New Mexico|New Mexico]] Governor [[Michelle Lujan Grisham]] signed legislation abolishing Columbus Day and replacing it with Indigenous Peoples' Day, joining five other states including [[Vermont]], [[Hawaii]], and Alaska.
 
 ### AF 2019-02-08 0328
-(01:09:40) [[Nicholas J. Fuentes]] listed policy achievements of the [[Donald Trump|Trump]] administration that benefited the [[Republican Party|GOP]] establishment, including tax cuts, deregulation, approval of the Keystone pipeline, drilling in Alaska, and moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[City of Jerusalem|Jerusalem]].
+(01:09:40) [[Nicholas J. Fuentes]] listed policy achievements of the [[Donald Trump|Trump]] administration that benefited the [[Republican Party|GOP]] establishment, including tax cuts, deregulation, approval of the Keystone pipeline, drilling in Alaska, and moving the [[United States|U.S.]] [[United States Embassy in Jerusalem|embassy]] in [[Israel]] to [[Jerusalem]].
 
 ### AF 2018-10-04 0254
 (00:19:31) [[Republican Party|Republican]] Senator [[Lisa Murkowski]] of Alaska told [[Michael Bloomberg|Bloomberg]] she did not believe [[Brett Kavanaugh]] would overturn *Roe v. Wade* if confirmed.
@@ -80,3 +80,6 @@
 
 ### AF 2018-06-27 0189
 (12:38:10) [[Nicholas J. Fuentes]] identified [[Susan Collins]] and the senator from Alaska as potentially problematic votes for confirming a new [[Supreme Court of the United States|Supreme Court]] justice.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:02:46) [[Tucker Carlson]] hosted a guest [[who]] claimed the [[Central Intelligence Agency|CIA]] hired a psychic to use remote viewing to see aliens working with the military inside an Alaska base, and that the psychic was killed by a [[Central Intelligence Agency|CIA]] heart attack gun.

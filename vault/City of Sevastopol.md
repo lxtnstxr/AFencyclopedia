@@ -57,7 +57,7 @@
 (52:46:80) [[Nicholas J. Fuentes]] concluded that [[Volodymyr Zelenskyy|Zelensky]] was unwilling to accept in principle any of [[Vladimir Putin|Putin]]'s terms for surrender, including on Crimea, [[Donetsk|Donbass]], [[North Atlantic Treaty Organization|NATO]] membership, disarmament, or denazification.
 
 ### AF 2022-03-21 0962
-(01:36:92) [[Russia]] was engaged in a siege of the coastal [[city]] of [[City of Mariupol|Mariupol]] on the [[Sea of Azov]], aiming to connect forces from Crimea and [[Donetsk|Donbass]].
+(01:36:92) [[Russia]] was engaged in a siege of the coastal [[city]] of [[Mariupol]] on the [[Sea of Azov]], aiming to connect forces from Crimea and [[Donetsk|Donbass]].
 
 ### AF 2022-03-21 0962
 (02:36:08) [[Russia]]'s demands for [[Ukraine]] included recognizing the annexation of Crimea, allowing [[Donetsk|Donbass]] to break away, amending its constitution to declare neutrality and forswear [[North Atlantic Treaty Organization|NATO]] membership, and demilitarizing.
@@ -141,10 +141,10 @@
 (02:03:07) [[Nicholas J. Fuentes]] stated his favorite [[United Nations|Model UN]] topics were broad economics issues, as well as recurring security crises involving [[Islamic State of Iraq and Syria|ISIS]], the militarization of the [[Southern United States|South]] [[China]] Sea, and the [[Russian]] incursion in Crimea and the [[Donbas]].
 
 ### AF 2019-02-01 0323
-(00:57:40) [[Nicholas J. Fuentes]] argued that [[Vladimir Putin|Putin]]'s actions in [[Ukraine]], including the annexation of Crimea and support for rebels in [[Donetsk|Donbass]], were primarily to prevent [[Ukraine]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[Europe|European Union]], and that the [[United States]] should respect [[Russia]]'s sphere of influence.
+(00:57:40) [[Nicholas J. Fuentes]] argued that [[Vladimir Putin|Putin]]'s actions in [[Ukraine]], including the annexation of Crimea and support for rebels in [[Donetsk|Donbass]], were primarily to prevent [[Ukraine]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[European Union]], and that the [[United States]] should respect [[Russia]]'s sphere of influence.
 
 ### AF 2018-09-25 0247
-(08:55:00) Following the 2014 ousting of pro-[[Russian]] President [[Viktor Yanukovych]], [[Russia]] annexed Crimea and fomented rebellion in eastern [[Ukraine]] to prevent the [[country]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[Europe|European Union]], according to [[Nicholas J. Fuentes]].
+(08:55:00) Following the 2014 ousting of pro-[[Russian]] President [[Viktor Yanukovych]], [[Russia]] annexed Crimea and fomented rebellion in eastern [[Ukraine]] to prevent the [[country]] from joining [[North Atlantic Treaty Organization|NATO]] and the [[European Union]], according to [[Nicholas J. Fuentes]].
 
 ### AF 2018-07-18 0203
 (00:13:40) Tensions between the [[United States]] and [[Russia]] escalated significantly after [[Vladimir Putin]]'s military incursions into [[Country of Georgia|Georgia]] in 2008 and Crimea in 2014, followed by [[Russian]] involvement in [[Syria]] and an arms race over ballistic missile systems.

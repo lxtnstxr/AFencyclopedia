@@ -22,3 +22,6 @@
 
 ### AF 2018-02-05 0101
 (47:09:84) [[Russia]] maintained military bases in [[Kyrgyzstan]] and either Tajikistan or [[Uzbekistan]], its only bases outside of [[Russia]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:35:50) [[Nicholas J. Fuentes]] stated to [[Sneeko]] that the [[United States]] is a "[[Christianity|Christian]] nation," and that [[Islam|Muslims]] are welcome to be [[Islam|Muslim]] in [[Islam|Muslim]] countries like [[Morocco]], [[Algeria]], [[State of Libya|Libya]], [[Arab Republic of Egypt|Egypt]], [[Yemen]], [[Oman]], [[Saudi Arabia]], Tajikistan, and [[Iran]].

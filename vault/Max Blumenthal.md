@@ -99,7 +99,7 @@
 (00:57:28) [[Nicholas J. Fuentes]] identified [[Sidney Blumenthal]] as a "hatchet man for [[Bill Clinton]]" and noted that his son, Max Blumenthal, got an apology and retraction from the [[Southern Poverty Law Center]], which has a $500 million endowment and rarely issues retractions.
 
 ### AF 2023-04-18 1148
-(00:08:53) [[Nicholas J. Fuentes]] listed a series of past attacks against him, including for his involvement in the [[City of Charlottesville|Charlottesville rally]] in August 2017, a leaked video where he said "race mixing is bad" and "the [[Jews]] are out to get me," his support for DACA amnesty in October 2017, a feud about money with [[James Allsup]] and [[Matt Kuehnel]] in January 2018, a cookie joke denying the Holocaust, a livestream with "Catboy Cammie," and more recent claims from Max Blumenthal that he lied about how he got on the no-fly list.
+(00:08:53) [[Nicholas J. Fuentes]] listed a series of past attacks against him, including for his involvement in the [[Charlottesville rally]] in August 2017, a leaked video where he said "race mixing is bad" and "the [[Jews]] are out to get me," his support for DACA amnesty in October 2017, a feud about money with [[James Allsup]] and [[Matt Kuehnel]] in January 2018, a cookie joke denying the Holocaust, a livestream with "Catboy Cammie," and more recent claims from Max Blumenthal that he lied about how he got on the no-fly list.
 
 ### AF 2023-04-18 1148
 (00:34:45) [[Nicholas J. Fuentes]] stated that when Max Blumenthal, the son of [[Hillary Clinton|Clinton]] operative [[Sidney Blumenthal]], published a report attacking him for being put on the no-fly list, [[Marjorie Taylor Greene]] put out a tweet attacking [[Laura Loomer]] and accusing [[Fuentes]] of being a federal informant.
@@ -121,3 +121,66 @@
 
 ### AF 2018-01-04 0079
 (00:42:34) [[Laura Loomer]] argued that some of the most anti-Semitic people are left-wing [[Jews]] themselves, citing Max Blumenthal's criticism of [[Elie Wiesel]] which was so severe that [[Hillary Clinton]] had to denounce it.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:31:36) [[Tucker Carlson]] retaliated against [[Nicholas J. Fuentes]] with Max Blumenthal because [[Nicholas J. Fuentes]] and “the Gropers” made [[Joe Kent]] lose his election.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:50:18) [[Nicholas J. Fuentes]] argued that left-wing anti-[[Israel]] figures like [[Ryan Grimm]], [[Ilhan Omar]], Max Blumenthal, [[Hasan Piker]], and [[The Young Turks|Cenk Uygur]] are not allies of the nationalist movement, as they hate white people and want to bring in more immigrants.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(02:13:27:44) [[Nicholas J. Fuentes]] claimed that left-wing circles like Max Blumenthal promote the idea that [[Israel]] is a settler colonialist project by white people, and that [[Benjamin Netanyahu|Netanyahu]] is just some white [[person]] from [[Europe]] [[who]] doesn't belong there.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:49:21.410) [[Nicholas J. Fuentes]] named [[Ryan Grim]], [[Hasan Piker]], [[The Young Turks|Cenk Uygur]], [[Glenn Greenwald]], and Max Blumenthal as leftists [[who]] use a similar "third worldist" ideology.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(03:55:31.660) [[Nicholas J. Fuentes]] questioned why [[Tucker Carlson]] interviewed [[Kevin Spacey]] and is best friends with Max Blumenthal.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:07:11:40) Max Blumenthal described the [[U.S. Immigration and Customs Enforcement|ICE]] shooting of Renee Good as "terror capitalism" imposed by a class of [[Jews|Zionist]] tech plutocrats.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:07:56:91) [[Nicholas J. Fuentes]] argued that left-wing figures like [[Hasan Piker]], [[The Young Turks|Cenk Uygur]], and Max Blumenthal are tying criticism of [[Israel]] to support for open borders to trick normies into supporting white genocide.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:20:08:05) [[Nicholas J. Fuentes]] stated that Max Blumenthal's publication [[The Grayzone|The Gray Zone]] originated the false theory that [[Israel]] killed [[Charlie Kirk]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:28:30:95) Max Blumenthal claimed [[Charlie Kirk]] was killed by [[Israel]], based on allegations that [[William Ackman|Bill Ackman]] pressured [[Charlie Kirk]] and that [[Benjamin Netanyahu|Bibi Netanyahu]] bribed him with $200 million, both of which were debunked.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:29:40:69) Max Blumenthal previously worked for the [[Southern Poverty Law Center]] and in 2004 produced a hit piece on [[United States Holocaust Memorial Museum|Holocaust]] revisionist [[David Irving]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:29:50:53) Max Blumenthal is an open borders advocate [[who]] believes [[Barack Obama]] was too radical on immigration.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(18:12:000) [[Nicholas J. Fuentes]] criticized critics like [[Ian Carroll]] and Max Blumenthal [[who]] he argued would characterize a [[United States|U.S]]. invasion of [[Country of Greenland|Greenland]] as "another war for [[Israel]]."
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:33:42) [[Nicholas J. Fuentes]] argued that [[the left]] is not anti-[[Israel]] but anti-[[Benjamin Netanyahu|Netanyahu]], and that [[George Soros]] and Max Blumenthal are not anti-[[Israel]] but are very pro-[[Jews|Jewish]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:04:31) [[Jeffrey Sachs]] and Max Blumenthal make appearances on [[Judge Napolitano]] and [[Tucker Carlson]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:04:45) [[Jeffrey Sachs]] and Max Blumenthal are left-wing [[Jews]].
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:04:48) Max Blumenthal said that when [[U.S. Immigration and Customs Enforcement|ICE]] arrests illegal immigrants, it is "terror capitalism."
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:05:07) Max Blumenthal’s first exposure to [[Nicholas J. Fuentes]] was when he did a hit piece about [[David Irving]] for the [[Southern Poverty Law Center]] ([[Southern Poverty Law Center|SPLC]]) 20 years ago.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:05:36) Max Blumenthal called [[David Irving]] a [[Germany|Nazi]] for the [[Southern Poverty Law Center|SPLC]] 20 years ago.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:56:20) [[Nicholas J. Fuentes]] stated that the "[[fed]]" accusation against him originated from an article written by [[Anya Parampil]], wife of Max Blumenthal, in [[The Grayzone]] in 2023.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:57:20) Max Blumenthal attacked [[David Irving]] for the [[Southern Poverty Law Center]] ([[Southern Poverty Law Center|SPLC]]), and his father [[Sidney Blumenthal]] was an intelligence mercenary for [[Bill Clinton]] and [[Hillary Clinton]].
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:58:01) [[Anya Parampil]] and Max Blumenthal raised $100,000 to pay people to post links to [[The Grayzone]] article with the hashtag "[[Federal Reserve|Fed]] [[Nicholas J. Fuentes|Fuentes]]."

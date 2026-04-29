@@ -9,10 +9,10 @@
 (01:10:10) [[Nicholas J. Fuentes]] argued that Zionists have infiltrated the global right wing, citing pro-[[Israel]] shifts by figures like [[Giorgia Meloni]] in [[Italian Republic|Italy]], [[Javier Milei]] in [[Argentina]], and Geert Wilders in the [[Kingdom of the Netherlands|Netherlands]].
 
 ### AF 2024-07-11 1353
-(01:18:00) [[Nicholas J. Fuentes]] cited [[Giorgia Meloni]] in [[Italian Republic|Italy]], Geert Wilders in the [[Kingdom of the Netherlands|Netherlands]], [[Marine Le Pen]] in [[Government of France|France]], and [[Nigel Farage]] in the [[United Kingdom]] as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
+(01:18:00) [[Nicholas J. Fuentes]] cited [[Giorgia Meloni]] in [[Italian Republic|Italy]], Geert Wilders in the [[Kingdom of the Netherlands|Netherlands]], [[Marine Le Pen]] in [[France]], and [[Nigel Farage]] in the [[United Kingdom]] as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
 
 ### AF 2024-07-10 1352
-(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like Geert Wilders of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[Government of France|France]] all maintain conspicuous connections to the state of [[Israel]].
+(00:03:38) [[Nicholas J. Fuentes]] claimed that nationalist leaders like Geert Wilders of the [[Kingdom of the Netherlands|Netherlands]], [[Jair Bolsonaro]] of [[Brazil]], [[Javier Milei]] of [[Argentina]], [[Viktor Orbán]] of [[Hungary]], the [[Vox]] party in [[Spain]], and [[Marine Le Pen]] in [[France]] all maintain conspicuous connections to the state of [[Israel]].
 
 ### AF 2024-06-25 1345
 (36:59:05) Geert Wilders, an immigration restrictionist and anti-Muslim politician, won a plurality of seats in the parliament of the [[Kingdom of the Netherlands]].

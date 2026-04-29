@@ -63,3 +63,9 @@
 
 ### AF 2020-08-03 0653
 (00:08:45) [[Microsoft Corporation|Microsoft]] entered talks to purchase [[TikTok Inc.|TikTok]] from its parent company ByteDance, amid [[United States|U.S]]. national security concerns regarding data storage in [[Hong Kong]] and potential access by the [[China|Chinese]] government.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:34:55) [[Nicholas J. Fuentes]] reported that the [[United States]] has brokered the sale of [[TikTok Inc.|TikTok]] from its [[China|Chinese]] parent company ByteDance to a new [[United States|U.S]]. entity, with [[Larry Ellison]] of [[Oracle Corporation|Oracle]] as one of the most influential interests.
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(02:19:00) The [[United States|U.S]]. side of [[TikTok Inc.|TikTok]]'s business will be owned by a newly created private entity, with stakes held by ByteDance, [[Oracle Corporation|Oracle]], and a bank from the [[Gulf]].

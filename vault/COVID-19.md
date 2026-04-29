@@ -72,7 +72,7 @@
 (02:08:00) [[Nicholas J. Fuentes]] connected [[Google|YouTube]]'s censorship to earlier campaigns against "harmful" ideas like [[Holocaust denial]], [[September 11 attacks|9/11]] truth, and COVID-19 misinformation, which paved the way for labeling dissent as dangerous.
 
 ### AF 2020-09-16 0682
-(35:51:600) [[Nicholas J. Fuentes]] extrapolated that the 80% drop in traffic stops from May, combined with reduced enforcement during the initial COVID-19 lockdowns, likely meant policing in [[City of Minneapolis|Minneapolis]] had decreased by 90-95% compared to normal levels.
+(35:51:600) [[Nicholas J. Fuentes]] extrapolated that the 80% drop in traffic stops from May, combined with reduced enforcement during the initial COVID-19 lockdowns, likely meant policing in [[Minneapolis]] had decreased by 90-95% compared to normal levels.
 
 ### AF 2020-09-02 0673
 (00:29:51) [[Nicholas J. Fuentes]] argued that the COVID-19 lockdowns disproportionately benefited the [[Democratic Party]] by sinking the economy ahead of an election, and billionaires, specifically naming [[Jeff Bezos]], [[Apple Inc.|Apple]], [[Facebook]], [[Google]], and [[Amazon Inc.|Amazon]] as having grown exponentially richer.
@@ -177,13 +177,13 @@
 (01:04:48) [[Nicholas J. Fuentes]] contrasted the initial "flatten the curve" goal of two-week COVID-19 lockdowns in March with the current messaging from health officials that the pandemic may last forever, which he called a prescription for permanent lockdown.
 
 ### AF 2020-05-13 0604
-(01:30:48) [[Nicholas J. Fuentes]] recounted a poor dining experience with [[Papa John's]] pizza during the COVID-19 lockdown, after his preferred [[City of Chicago|Chicago]] deep-dish restaurants were closed.
+(01:30:48) [[Nicholas J. Fuentes]] recounted a poor dining experience with [[Papa John's]] pizza during the COVID-19 lockdown, after his preferred [[Chicago]] deep-dish restaurants were closed.
 
 ### AF 2020-05-13 0604
-(01:31:40) [[Nicholas J. Fuentes]] mentioned that his father used his hand instead of a thermometer to check for COVID-19 symptoms after returning from [[City of Las Vegas|Las Vegas]], which he considered irresponsible.
+(01:31:40) [[Nicholas J. Fuentes]] mentioned that his father used his hand instead of a thermometer to check for COVID-19 symptoms after returning from [[Las Vegas]], which he considered irresponsible.
 
 ### AF 2020-05-13 0604
-(01:33:00) [[Nicholas J. Fuentes]] discussed potentially moving from [[Illinois]] to [[State of Florida|Florida]], citing [[State of Florida|Florida]]'s lower taxes, open economy during COVID-19, and warmer climate, but expressed attachment to [[City of Chicago|Chicago]].
+(01:33:00) [[Nicholas J. Fuentes]] discussed potentially moving from [[Illinois]] to [[State of Florida|Florida]], citing [[State of Florida|Florida]]'s lower taxes, open economy during COVID-19, and warmer climate, but expressed attachment to [[Chicago]].
 
 ### AF 2021-07-29 0850
 (22:06:88) Public officials previously stated that COVID-19 measures would be complete by the end of summer 2020.

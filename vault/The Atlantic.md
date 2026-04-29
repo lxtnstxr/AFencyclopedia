@@ -33,10 +33,13 @@
 (00:58:55) [[Nicholas J. Fuentes]] criticized [[The Daily Caller]] for disavowing writer [[Scott Greer]] after The Atlantic exposed his pseudonymous writings, contrasting it with the media's defense of [[Sarah Jeong]]'s anti-white tweets.
 
 ### AF 2018-02-16 0110
-(00:29:56) Caller Simon reported that at a [[City of Gainesville|Gainesville]] event, [[Richard Spencer]] was accompanied by an Atlantic journalist [[who]] was the son of an [[Israel|Israeli]] politician and had filmed the "Hale Gate" incident involving [[Mike Cernovich|Mike Enoch]].
+(00:29:56) Caller Simon reported that at a [[Gainesville]] event, [[Richard Spencer]] was accompanied by an Atlantic journalist [[who]] was the son of an [[Israel|Israeli]] politician and had filmed the "Hale Gate" incident involving [[Mike Cernovich|Mike Enoch]].
 
 ### AF 2018-02-16 0110
 (00:31:07) [[Nicholas J. Fuentes]] characterized the presence of an [[Israel|Israeli]] politician's son and Atlantic journalist with [[Richard Spencer]] as "fishy" and "not good," arguing that movement leaders must avoid being liabilities and maintain transparency if they claim to lead.
 
 ### AF 2018-01-24 0093
 (00:27:39) [[Nicholas J. Fuentes]] questioned why [[Paul Nealon]] was banned for his infographic while commentators like [[Jake Tapper]] and publications like The Atlantic can criticize the racial composition of [[Donald Trump]]'s cabinet.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:46:51) [[David Frum]] wrote a tell-all for The Atlantic stating that he told [[JD Vance]] he would one day become [[president]].

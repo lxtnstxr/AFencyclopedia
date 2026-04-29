@@ -8,7 +8,7 @@
 (41:41:15) [[Nicholas J. Fuentes]] stated that without the political victories of [[Donald Trump]] and [[Ron DeSantis]], the political landscape would be dominated by figures like [[Marco Rubio]], [[Jeb Bush]], and Andrew Gillum.
 
 ### AF 2021-05-20 0814
-(00:19:32) [[Nicholas J. Fuentes]] argued that politicians like [[Lori Lightfoot]] in [[City of Chicago|Chicago]], [[Stacey Abrams]] in [[Country of Georgia|Georgia]], and Andrew Gillum in [[State of Florida|Florida]] represent a demographic future where non-white politicians gain power and wield it against white people.
+(00:19:32) [[Nicholas J. Fuentes]] argued that politicians like [[Lori Lightfoot]] in [[Chicago]], [[Stacey Abrams]] in [[Country of Georgia|Georgia]], and Andrew Gillum in [[State of Florida|Florida]] represent a demographic future where non-white politicians gain power and wield it against white people.
 
 ### AF 2020-12-09 0731
 (01:27:00) [[Nicholas J. Fuentes]] argued that figures like [[Cynthia Johnson]], [[Stacey Abrams]], and Andrew Gillum represented a future where more non-white officials, feeling "uppity" and "protected," would make threats against political opponents with increasing impunity.

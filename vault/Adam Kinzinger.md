@@ -6,7 +6,7 @@
 
 
 ### AF 2024-03-26 1308
-(05:23:660) [[Nicholas J. Fuentes]] participated in a [[Twitter]] Space about the controversy with [[Lauren Boebert|Lauren Chen]], [[Sovereign Bra]], [[Chase]], Adam King, [[Andrew Klavan|Andrew Meyer]], [[Karlyn Borysenko]], [[Laura Loomer]], and [[Donald Trump|Chief Trumpster]].
+(05:23:660) [[Nicholas J. Fuentes]] participated in a [[Twitter]] Space about the controversy with [[Lauren Boebert|Lauren Chen]], [[Sovereign Bra]], [[Chase]], Adam King, [[Andrew Klavan|Andrew Meyer]], [[Karlyn Borysenko]], [[Laura Loomer]], and [[Chief Trumpster]].
 
 ### AF 2024-02-14 1292
 (00:21:16) [[Nicholas J. Fuentes]] debated Adam King on [[Elijah Schaffer]]'s show, where he baited Adam King into attacking [[Christianity]], leading Adam King to repeatedly state that "[[Catholic Church|Catholics]] have been oppressing [[us]] for two thousand years."
@@ -99,7 +99,7 @@
 (01:54:00) Adam King referred to the [[Israel|Israeli government]] as "my government" during an [[Alex Jones|InfoWars]] broadcast, as highlighted by [[Nicholas J. Fuentes]].
 
 ### AF 2022-03-29 0968
-(00:22:44) Following [[Marjorie Taylor Greene]]'s [[AFPAC]] speech, media outlets including [[Microsoft National Broadcasting Company|MSNBC]], [[Warner Bros. Discovery|CNN]], the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]], as well as politicians like [[Mitch McCarthy]], [[Mitt Romney]], [[Liz Cheney]], [[Dan Crenshaw]], and Adam Kinzinger, condemned the event.
+(00:22:44) Following [[Marjorie Taylor Greene]]'s [[AFPAC]] speech, media outlets including [[MSNBC]], [[Warner Bros. Discovery|CNN]], the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]], as well as politicians like [[Mitch McCarthy]], [[Mitt Romney]], [[Liz Cheney]], [[Dan Crenshaw]], and Adam Kinzinger, condemned the event.
 
 ### AF 2022-03-23 0963
 (01:25:14) [[Nicholas J. Fuentes]] argued that the problem with simping was not modern [[United States|American]] women, but women inherently, citing the biblical story of Eve tricking Adam.
@@ -129,7 +129,7 @@
 (27:02:90) [[Nicholas J. Fuentes]] listed Adam Kinzinger among other [[Republican Party|Republicans]] in the [[House]] and [[Senate]] who did not support [[Donald Trump]] when it mattered and continued to criticize him during the impeachment trial.
 
 ### AF 2021-02-04 0755
-(01:03:09) [[Nicholas J. Fuentes]] listed [[Ted Cruz]], [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], Adam Kinzinger, and [[Liz Cheney]] as examples of [[Republican Party]] figures who had turned against [[Donald Trump]] and his supporters.(01:04:55) The [[Zionist Organization of America|ZOA]] called for [[Nicholas J. Fuentes]] to be banned from all platforms.
+(01:03:09) [[Nicholas J. Fuentes]] listed [[Ted Cruz]], [[Mitch McConnell]], [[Kevin McCarthy]], Adam Kinzinger, and [[Liz Cheney]] as examples of [[Republican Party]] figures who had turned against [[Donald Trump]] and his supporters.(01:04:55) The [[Zionist Organization of America|ZOA]] called for [[Nicholas J. Fuentes]] to be banned from all platforms.
 
 ### AF 2020-04-28 0594
 (01:25:16) [[Nicholas J. Fuentes]] attributed the fall of mankind to a woman, referencing the biblical story of Eve.

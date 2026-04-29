@@ -9,13 +9,13 @@
 (00:06:50) [[Donald Trump]] began a [[state]] visit to the [[United Kingdom]], meeting with the [[Queen]] and facing protests from figures like Sadiq Khan.
 
 ### AF 2019-06-03 0399
-(00:16:18) Sadiq Khan, the Mayor of [[City of London|London]], released a video for [[Elle]] magazine stating that [[Donald Trump|Trump]]'s values were the "complete opposite of [[City of London|London]]'s values," citing diversity, women's equality, and reproductive rights.
+(00:16:18) Sadiq Khan, the Mayor of [[London]], released a video for [[Elle]] magazine stating that [[Donald Trump|Trump]]'s values were the "complete opposite of [[London]]'s values," citing diversity, women's equality, and reproductive rights.
 
 ### AF 2019-06-03 0399
-(00:17:04) Sadiq Khan led large protests in [[City of London|London]] against [[Donald Trump|President Trump]]'s [[state]] visit, comparing him to [[Adolf Hitler]] and [[Benito Mussolini]].
+(00:17:04) Sadiq Khan led large protests in [[London]] against [[Donald Trump|President Trump]]'s [[state]] visit, comparing him to [[Adolf Hitler]] and [[Benito Mussolini]].
 
 ### AF 2019-06-03 0399
-(00:19:12) Sadiq Khan, the five-foot-six [[Islam|Muslim]] Mayor of [[City of London|London]], criticized [[Donald Trump|Trump]] while holding a sign that read "Only weak men fear strong women."
+(00:19:12) Sadiq Khan, the five-foot-six [[Islam|Muslim]] Mayor of [[London]], criticized [[Donald Trump|Trump]] while holding a sign that read "Only weak men fear strong women."
 
 ### AF 2017-09-15 0011
-(00:03:11) Mayor of [[City of London|London]] Sadiq Khan stated that terrorism is "part and parcel of living in a great global [[city]]."
+(00:03:11) Mayor of [[London]] Sadiq Khan stated that terrorism is "part and parcel of living in a great global [[city]]."

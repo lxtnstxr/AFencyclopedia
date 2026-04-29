@@ -55,3 +55,6 @@
 
 ### AF 2017-10-31 0043
 (01:04:01) [[Nicholas J. Fuentes]] cited Thomas Sowell as a major influence, praising his prolific and accessible writing on economics, race, and intellectuals, though noted he had fallen out of favor with Sowell's neoliberal thinking after Sowell became a never-[[Donald Trump|Trump]] figure.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:48:25) [[Nicholas J. Fuentes]] asserted that he got into politics at age 12, reading Thomas Sowell's "Basic Economics" and other works in study hall, while others like [[Ian Carroll]] get into it "when the iron is hot."

@@ -9,7 +9,7 @@
 (48:18:370) [[Nicholas J. Fuentes]] expressed doubt that the [[Donald Trump]] administration would genuinely remove [[Somalia|Somalians]] from [[Minneapolis]], Minnesota, or [[Haiti|Haitians]] from [[Springfield]], [[Ohio]].
 
 ### AF 2025-08-26 1557
-(00:02:50) [[Shiloh Hendrix]], a white woman from the suburbs of [[City of Minneapolis|Minneapolis]], Minnesota, was reportedly harassed by a group of [[Somalia|Somalian]] males at a park while with her daughter.
+(00:02:50) [[Shiloh Hendrix]], a white woman from the suburbs of [[Minneapolis]], Minnesota, was reportedly harassed by a group of [[Somalia|Somalian]] males at a park while with her daughter.
 
 (01:11:06) The high quality of life in Minnesota, including high happiness rates, excellent healthcare, and top education, was negatively impacted by the influx of [[Somalia|Somalians]].
 (01:11:40) The introduction of clannish, low-IQ, violent [[Somalia|Somalians]] who practice Islam into Minnesota is deemed undesirable.
@@ -36,13 +36,13 @@
 (00:53:08) Minnesota Governor [[Tim Walz]] acknowledged during a news conference that there were conversations about respecting the nature of [[George Floyd]] Square while also reopening public infrastructure.
 
 ### AF 2021-04-12 0790
-(00:09:46) [[Nicholas J. Fuentes]] noted that looting occurred on [[City of Chicago|Chicago]]'s Magnificent Mile in response to the riots in Minnesota.
+(00:09:46) [[Nicholas J. Fuentes]] noted that looting occurred on [[Chicago]]'s Magnificent Mile in response to the riots in Minnesota.
 
 ### AF 2021-04-12 0790
 (00:31:51) [[Nicholas J. Fuentes]] transitioned to discussing the police shooting and riots in Minnesota, framing it as a fresh take on a familiar story due to the involvement of a female officer.
 
 ### AF 2021-03-24 0779
-(01:47:05) A [[Republican Party|GOP]] campaign chair from Minnesota advocated for running more minority candidates, a strategy correlated with the election of [[Ilhan Omar]] and the growth of a [[Somalia|Somali]] refugee population in [[City of Minneapolis|Minneapolis]].
+(01:47:05) A [[Republican Party|GOP]] campaign chair from Minnesota advocated for running more minority candidates, a strategy correlated with the election of [[Ilhan Omar]] and the growth of a [[Somalia|Somali]] refugee population in [[Minneapolis]].
 
 ### AF 2020-11-06 0718
 (41:25:96) The vote-counting software that glitched in Antrim County, [[State of Michigan|Michigan]], was also used in [[Arizona]], [[State of Nevada|Nevada]], [[Country of Georgia|Georgia]], Minnesota, [[Wisconsin]], and [[Commonwealth of Pennsylvania|Pennsylvania]].
@@ -84,7 +84,7 @@
 (02:31:52) The 2020 presidential election was predicted to come down to the swing states of [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Michigan|Michigan]], [[Wisconsin]], Minnesota, [[State of Florida|Florida]], [[Arizona]], and [[State of Nevada|Nevada]].
 
 ### AF 2020-09-28 0690
-(00:51:00) [[Nicholas J. Fuentes]] cited a report by [[James O'Keefe]] and [[Project Veritas]] alleging a ballot harvesting operation in Minnesota linked to [[Ilhan Omar]]'s brother, [[Liban Mohamed]], and [[City of Minneapolis|Minneapolis]] [[city]] council member [[Jamal Osman]].
+(00:51:00) [[Nicholas J. Fuentes]] cited a report by [[James O'Keefe]] and [[Project Veritas]] alleging a ballot harvesting operation in Minnesota linked to [[Ilhan Omar]]'s brother, [[Liban Mohamed]], and [[Minneapolis]] [[city]] council member [[Jamal Osman]].
 
 ### AF 2020-09-28 0690
 (00:57:00) [[Nicholas J. Fuentes]] argued that mainstream media and social media platforms had claimed there was no evidence of mail-in ballot fraud, contrasting this with the [[Project Veritas]] report from Minnesota.
@@ -99,7 +99,7 @@
 (01:52:00) [[Nicholas J. Fuentes]] criticized immigrants, specifically [[Somalia|Somali]] immigrants in Minnesota, for participating in the alleged ballot harvesting scheme, arguing they held contempt for [[United States|American]] rules and sovereignty.
 
 ### AF 2020-09-09 0677
-(03:36:50) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] should allow riots in cities like [[City of Minneapolis|Minneapolis]] and [[City of Kenosha|Kenosha]] to continue through the election to improve his chances in swing states like [[Wisconsin]] and Minnesota.
+(03:36:50) [[Nicholas J. Fuentes]] argued that [[Donald Trump]] should allow riots in cities like [[Minneapolis]] and [[Kenosha]] to continue through the election to improve his chances in swing states like [[Wisconsin]] and Minnesota.
 
 ### AF 2020-08-21 0667
 (00:15:10) In the 2016 election, the margin of victory in swing states like [[State of Michigan|Michigan]], [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Florida|Florida]], [[New Hampshire]], and Minnesota was less than 1%.
@@ -123,7 +123,7 @@
 (40:29:56) In [[St. Paul]], Minnesota, protesters used ropes to pull down a 10-foot bronze sculpture of [[Christopher Columbus]] outside the state [[capitol]].
 
 ### AF 2020-05-27 0614
-(00:00:00) [[Nicholas J. Fuentes]] announced the show would cover ongoing riots in [[City of Minneapolis|Minneapolis]], Minnesota in response to the death of [[George Floyd]], marking the latest in a series of recent interracial incidents.
+(00:00:00) [[Nicholas J. Fuentes]] announced the show would cover ongoing riots in [[Minneapolis]], Minnesota in response to the death of [[George Floyd]], marking the latest in a series of recent interracial incidents.
 
 ### AF 2020-03-17 0566
 (00:40:20) Twenty-four [[United States|U.S]]. states, including [[State of Colorado|Colorado]], [[State of Connecticut|Connecticut]], [[Delaware]], [[Illinois]], [[India|Indiana]], [[State of Kentucky|Kentucky]], [[State of Missouri|Missouri]], [[Massachusetts]], [[State of Michigan|Michigan]], Minnesota, [[State of New Jersey|New Jersey]], [[New York]], [[State of Ohio|Ohio]], [[Oregon]], [[Commonwealth of Pennsylvania|Pennsylvania]], [[Rhode Island]], [[Vermont]], and [[Washington D.C.|Washington]], ordered all restaurants and bars closed.
@@ -186,7 +186,7 @@
 (00:19:53) A police investigation in [[Eden Prairie]], Minnesota, centered on an incident where a man allegedly pulled a gun on a group of [[black]] teenagers at a [[McDonald's]].
 
 ### AF 2018-11-20 0285
-(00:20:21) A [[Twitter]] user named [[Masood Ali]] posted a video from a [[Chipotle]] in [[City of St. Paul|St. Paul]], Minnesota, accusing a manager of racism for refusing service unless his group paid upfront due to alleged habitual dine-and-dashing.
+(00:20:21) A [[Twitter]] user named [[Masood Ali]] posted a video from a [[Chipotle]] in [[St. Paul]], Minnesota, accusing a manager of racism for refusing service unless his group paid upfront due to alleged habitual dine-and-dashing.
 
 ### AF 2018-11-05 0276
 (00:08:27) [[Nicholas J. Fuentes]] analyzed the [[Senate]] map, identifying Minnesota and [[Commonwealth of Pennsylvania|Pennsylvania]] as the only "likely [[Democratic Party|Democrat]]" seats among 45 safe or likely [[Democratic Party|Democratic]] holds.
@@ -208,3 +208,54 @@
 
 ### AF 2017-10-24 0038
 (00:05:44) [[Nicholas J. Fuentes]] argued that a key political litmus test should be whether a policy or message would be palatable to a blue-collar [[Catholic]] white voter in [[Wisconsin]], a demographic he identified as the most significant electoral bloc for future nationalist growth in states like [[State of Michigan|Michigan]], [[Commonwealth of Pennsylvania|Pennsylvania]], [[State of Ohio|Ohio]], [[Iowa]], and Minnesota.
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(22:18:30) [[Donald Trump]] announced a "war on fraud" targeting the [[Somalia|Somali]] community in Minnesota, [[who]] he claimed had stolen an estimated $19 billion from taxpayers.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(02:28:55) [[Nicholas J. Fuentes]] read from the [[Washington Post]] that [[Tom Homan]] declared an end to "Operation Metro Surge" in Minnesota following protests against immigration raids that led to the fatal shooting of two [[United States|American]] citizens.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(03:01:00) [[Nicholas J. Fuentes]] stated that the [[Democratic Party|Democrat]] political machine in Minnesota funnels taxpayer money to the illegal alien population.
+
+### 2026-01-28 TRUMP SURRENDERS TERRORISTS WIN, ICE WITHDRAWS FROM MINNEAPOLIS  America First Ep. 1629
+(03:19:28) [[Nicholas J. Fuentes]] stated that [[Somalia|Somali]] refugees in [[Minneapolis]] stole $8 billion from the [[state]] of Minnesota, which he characterized as taxpayer money.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:50:05:76) Federal prosecutors have convicted 59 people in welfare fraud schemes in Minnesota, totaling over $1 billion in stolen taxpayer money.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:51:04:75) [[Merrick Garland]], Attorney General under [[Joe Biden]], said the pandemic relief fraud in Minnesota was the largest in the [[country]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:52:04:16) The non-profit group "Feeding Our Future" sued the [[state]] of Minnesota for racism when its fraudulent applications for pandemic relief funds were questioned.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:53:02:32) The [[Somalia|Somali]]-[[United States|American]] community in Minnesota used accusations of racism to blackmail the [[state]] government into approving fraudulent claims.
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(02:55:40:61) [[Nicholas J. Fuentes]] stated that [[Somalia|Somali]] immigrants in Minnesota are stealing $8 billion by claiming the money is for charity, then buying luxury cars and sending the money to relatives in [[Somalia]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:06:01:09) [[Hasan Piker]], a pro-[[Palestine]] commentator, stated that the situation in Minnesota mirrors "[[Gaza Strip|West Bank]] occupation tactics" on [[United States|U.S]]. soil.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:25:00) [[Nicholas J. Fuentes]] began his featured story about Renee Good, a 37-year-old activist shot and killed in [[Minneapolis]], Minnesota.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:48:11) [[Nicholas J. Fuentes]] began his main story about Renee Good, a 37-year-old woman at an [[U.S. Immigration and Customs Enforcement|ICE]] protest in [[Minneapolis]], Minnesota.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:57:33) [[Nicholas J. Fuentes]] described the situation in [[Minneapolis]] as one where people from [[Somalia]] are being resettled in Minnesota, one of the best states with high human development, and that they then start stealing.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:58:22) [[Nicholas J. Fuentes]] referenced a news report that Secretary of [[U.S. Department of Homeland Security|Homeland Security]] [[Kristi Noem]] cited a major welfare fraud scandal linked to Minnesota's [[Somalia|Somali]] community as the reason for dispatching more agents, and called [[Minneapolis]] “ground zero for stealing taxpayer dollars.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:00:00) [[Nicholas J. Fuentes]] quoted Wikipedia, stating that acting [[U.S. Attorney]] for Minnesota Joe Thompson estimated the total fraud could be as high as $9 billion.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:01:19) [[Nicholas J. Fuentes]] described [[Somalia]] as a [[country]] that is not even a real [[state]], run by clans and controlled by [[Islamic State of Iraq and Syria|ISIS]], and criticized bringing “the worst of the worst” from there to a well-run white [[state]] like Minnesota.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(02:05:28) [[Nicholas J. Fuentes]] stated that Renee Good was not from Minnesota but moved there from [[Colorado Springs]] and then [[State of Missouri|Missouri]].

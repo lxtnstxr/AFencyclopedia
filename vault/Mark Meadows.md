@@ -33,7 +33,7 @@
 (00:02:15) [[Donald Trump]] had also considered [[Chris Christie]], [[Nick Ayers]], and Mark Meadows for the Chief of Staff position before selecting [[Mick Mulvaney]].
 
 ### AF 2018-12-14 0296
-(00:03:40) [[Nicholas J. Fuentes]] stated that sources close to [[Donald Trump|the president]] had informed him that [[Hope Hicks]], Mark Meadows, or [[Bob Lighthizer]] would have been preferable Chief of Staff selections to [[Mick Mulvaney]].
+(00:03:40) [[Nicholas J. Fuentes]] stated that sources close to [[the president]] had informed him that [[Hope Hicks]], Mark Meadows, or [[Bob Lighthizer]] would have been preferable Chief of Staff selections to [[Mick Mulvaney]].
 
 ### AF 2018-12-10 0292
 (00:36:00) With [[Bill Barr|William Barr]] as Attorney General, [[Nicholas J. Fuentes]] argued the next critical personnel decision was the replacement for Chief of Staff [[James Mattis|John Kelly]], with candidates including [[Nick Ayers]], [[Mick Mulvaney]], [[Hope Hicks]], and Mark Meadows.

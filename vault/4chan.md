@@ -9,7 +9,7 @@
 (00:38:21) [[Nicholas J. Fuentes]] argued that despite censorship, sites like [[The Daily Stormer]] and 4chan could be more profitable than [[BuzzFeed News]] if they had equal access to platforms and banking.
 
 ### AF 2022-05-17 0995
-(00:37:44) The [[City of Buffalo|Buffalo]] shooter claimed in his manifesto that he was radicalized on 4chan in early 2020 during the coronavirus pandemic.
+(00:37:44) The [[Buffalo]] shooter claimed in his manifesto that he was radicalized on 4chan in early 2020 during the coronavirus pandemic.
 
 ### AF 2021-04-19 0794
 (01:29:43) [[Nicholas J. Fuentes]] recounted discovering the vaporwave music subculture and internet aesthetics on 4chan during his college years, describing it as a cool and esoteric experience.

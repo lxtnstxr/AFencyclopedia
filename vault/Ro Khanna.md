@@ -22,3 +22,9 @@
 
 ### AF 2020-01-29 0535
 (00:22:21) [[Nicholas J. Fuentes]] identified [[State of California|California]] [[Democratic Party|Democratic]] Representative Ro Khanna as the introducer of the measure to prohibit funds for offensive military action against [[Iran]] without congressional approval.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:03:28.840) [[Nicholas J. Fuentes]] reported that [[Thomas Massie]] and Ro Khanna have pushed the [[U.S. Department of Justice|DOJ]] to release unredacted files, leading to a concession where members of [[U.S. Congress|Congress]] can view the files unredacted but under supervision, without electronic devices, and with 24-hour notice.
+
+### 2026-02-10 SPANISH SUPERBOWL Latino DEGENERATE SOILS Sacred HALFTIME TRADITION  America First Ep. 1637
+(03:04:27.270) [[Nicholas J. Fuentes]] reported that [[Thomas Massie]] and Ro Khanna have said that one of the six unnamed accomplices is a "very prominent [[person]]" and another is a "high ranking member of a foreign government."

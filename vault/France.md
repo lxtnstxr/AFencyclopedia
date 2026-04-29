@@ -2,7 +2,7 @@
 #country
 
 ### AF 2025-09-09 1563
-(08:08:00) France, the [[United Kingdom]], [[Canada]], [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Gaza Strip|Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
+(08:08:00) France, the [[United Kingdom]], [[Canada]], [[Spain]], [[Belgium]], and the [[Netherlands]] had threatened to recognize [[Palestine]] at the [[United Nations]] General Assembly in September, a move intended to create a diplomatic red line against [[Israel]]'s annexation plans.
 ### AF 2025-09-19 1568
 (01:20:00) [[Charles Kushner]], father of [[Jared Kushner]], serves as the [[U.S]]. ambassador to France.
 ### AF 2025-09-25 1571
@@ -13,7 +13,7 @@
 (01:06:54:67) These recognitions by major powers like France and the [[United Kingdom]] defy both [[Israel]] and the [[United States]].
 (01:07:06:79) At the [[United Nations]] last week, ten countries, including France, the [[United Kingdom]], [[Canada]], and [[Australia]], followed through and recognized a [[Palestinian]] state.
 ### AF 2025-09-26 1572
-(00:04:49) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu]]'s speech directly addressed efforts by France, the [[United Kingdom]], [[Canada]], and other countries to recognize [[Gaza Strip|Palestine]].
+(00:04:49) [[Nicholas J. Fuentes]] noted that [[Benjamin Netanyahu]]'s speech directly addressed efforts by France, the [[United Kingdom]], [[Canada]], and other countries to recognize [[Palestine]].
 (00:33:34) [[Nicholas J. Fuentes]] stated that the E3 countries—[[Germany]], France, and the [[United Kingdom]]—convened with the [[International Atomic Energy Agency]] and determined [[Iran]] was not in compliance with the [[Joint Comprehensive Plan of Action]].
 ### AF 2025-09-29 1573
 (01:55:18) [[George Farmer]] is facing a 500 billion dollar defamation lawsuit from the French government.
@@ -48,7 +48,7 @@
 (00:40:20) France recognizes a [[Palestinian]] state because [[Israel]] is making a [[Palestinian]] state impossible.
 
 ### AF 2025-08-26 1557
-(00:40:48) [[Emmanuel Macron]], the French President, stated that if France does not intervene and declare its recognition of [[Gaza Strip|Palestine]], there will be no [[Gaza Strip|Palestine]] [[left]] to recognize because [[Benjamin Netanyahu]] is "wiping it off the map."
+(00:40:48) [[Emmanuel Macron]], the French President, stated that if France does not intervene and declare its recognition of [[Palestine]], there will be no [[Palestine]] [[left]] to recognize because [[Benjamin Netanyahu]] is "wiping it off the map."
 
 ### AF 2025-08-26 1557
 (00:41:05) The [[United Kingdom]] and then [[Dominion of Canada|Canada]] followed France's lead, moving to recognize a [[Palestinian]] state in a rebuke of [[Benjamin Netanyahu]] and the ongoing war in the [[Gaza Strip]].
@@ -60,7 +60,7 @@
 (00:41:41) [[Charles Kushner]], the [[United States]] ambassador to France, is the father of [[Jared Kushner]], who is [[Donald Trump]]'s son-in-law and married to [[Ivanka Trump]], who converted to Judaism.
 
 ### AF 2025-08-26 1557
-(00:42:43) [[Charles Kushner]] sent a letter to [[Emmanuel Macron]], the French President, on behalf of the [[United States]], accusing France of insufficient action against anti-Semitism and condemning France's recognition of [[Gaza Strip|Palestine]].
+(00:42:43) [[Charles Kushner]] sent a letter to [[Emmanuel Macron]], the French President, on behalf of the [[United States]], accusing France of insufficient action against anti-Semitism and condemning France's recognition of [[Palestine]].
 
 ### AF 2025-08-26 1557
 (00:44:30) France retorted that the allegations made by [[Charles Kushner]] were "unacceptable."
@@ -75,10 +75,10 @@
 (00:45:05) [[Benjamin Netanyahu]] criticized [[Emmanuel Macron]] and issued a written ultimatum demanding that he take a firmer stance against anti-Semitism in France by Rosh Hashanah in late September.
 
 ### AF 2025-08-26 1557
-(00:45:29) In a letter to [[Emmanuel Macron]] released to the news media, [[Charles Kushner]] alleged that gestures like recognizing [[Gaza Strip|Palestine]] embolden extremists, fuel violence, and endanger [[Jewish]] life in France.
+(00:45:29) In a letter to [[Emmanuel Macron]] released to the news media, [[Charles Kushner]] alleged that gestures like recognizing [[Palestine]] embolden extremists, fuel violence, and endanger [[Jewish]] life in France.
 
 ### AF 2025-08-26 1557
-(00:47:45) France is intervening to prevent [[Israel]] from erasing [[Gaza Strip|Palestine]] from the map, for which the [[United States]] is condemning France.
+(00:47:45) France is intervening to prevent [[Israel]] from erasing [[Palestine]] from the map, for which the [[United States]] is condemning France.
 
 ### AF 2025-08-26 1557
 (00:48:40) The [[United States]] ambassador to France is [[Charles Kushner]], a person with clear loyalty to [[Israel]].
@@ -111,7 +111,7 @@
 (00:08:10) The [[United States]] ambassador to France attacked [[Emmanuel Macron]] for anti-Semitism.
 
 ### AF 2025-08-20 1552
-(00:45:40) [[Volodymyr Zelenskyy]] traveled to [[Washington D.C.]] accompanied by the heads of state of major [[Europe|European]] [[NATO]] allies, including [[Donald Trump|the president]] of France, the prime minister of the [[United Kingdom]], the prime minister of [[Italian Republic|Italy]], [[Donald Trump|the president]] of [[Finland]], the head of the [[European Commission]], and the general secretary of [[NATO]].
+(00:45:40) [[Volodymyr Zelenskyy]] traveled to [[Washington D.C.]] accompanied by the heads of state of major [[Europe|European]] [[NATO]] allies, including [[the president]] of France, the prime minister of the [[United Kingdom]], the prime minister of [[Italian Republic|Italy]], [[the president]] of [[Finland]], the head of the [[European Commission]], and the general secretary of [[NATO]].
 
 ### AF 2025-08-20 1552
 (04:56:40) [[Nicholas J. Fuentes]] challenged [[Candace Owens]] to investigate [[JD Vance]] and his connections to [[Palantir Technologies]] and [[San Francisco Bay Area|Silicon Valley]], rather than focusing her reporting on [[Emmanuel Macron]] of France.(01:39:19) [[Nicholas J. Fuentes]] criticized [[Gavin Newsom]] for engaging in political attacks while claiming to be a serious journalist and then retreating behind a maternal identity when criticized.
@@ -120,10 +120,10 @@
 (01:43:56) In 2015, [[Barack Obama]] brokered the [[Joint Comprehensive Plan of Action|Iran nuclear deal]] with [[Iran]], involving France, the [[United Kingdom]], [[Germany]], [[Russian Federation|Russia]], and [[China]], which included [[International Atomic Energy Agency|IAEA]] monitoring and snapback sanctions.
 
 ### AF 2025-08-05 1545
-(02:46:66) France, the [[United Kingdom]], and [[Dominion of Canada|Canada]] moved to recognize [[Gaza Strip|Palestine]] at the next month's [[United Nations]] General Assembly, accelerating the timeline for a two-state solution.
+(02:46:66) France, the [[United Kingdom]], and [[Dominion of Canada|Canada]] moved to recognize [[Palestine]] at the next month's [[United Nations]] General Assembly, accelerating the timeline for a two-state solution.
 
 ### AF 2025-08-05 1545
-(46:57:37) France, the [[United Kingdom]], and [[Dominion of Canada|Canada]]'s move to recognize [[Gaza Strip|Palestine]] was meant to impose a diplomatic red line and heap consequences on [[Israel]] if it followed through with annexation plans.
+(46:57:37) France, the [[United Kingdom]], and [[Dominion of Canada|Canada]]'s move to recognize [[Palestine]] was meant to impose a diplomatic red line and heap consequences on [[Israel]] if it followed through with annexation plans.
 
 ### AF 2025-08-05 1545
 (47:54:37) [[Germany]], France, and the [[United Kingdom]] gave [[Iran]] until August 31st to make a nuclear deal or face renewed sanctions, with the original [[Joint Comprehensive Plan of Action|JCPOA]] deadline set for October 1st.
@@ -138,19 +138,19 @@
 (00:30:40) At the September meeting of the [[United Nations]] General Assembly, the [[United Kingdom]] pledged to recognize [[Palestinian]] statehood, following a similar announcement by France the previous week.
 
 ### AF 2025-07-29 1541
-(00:54:00) [[Emmanuel Macron]] announced that France would move to recognize the statehood of [[Gaza Strip|Palestine]] in September at the [[United Nations]] General Assembly.
+(00:54:00) [[Emmanuel Macron]] announced that France would move to recognize the statehood of [[Palestine]] in September at the [[United Nations]] General Assembly.
 
 ### AF 2025-07-25 1539
-(00:01:02) [[Emmanuel Macron]] announced his intention as President of France to recognize [[Gaza Strip|Palestine]] as a state, with plans to make a formal announcement at the [[United Nations]] General Assembly in September.
+(00:01:02) [[Emmanuel Macron]] announced his intention as President of France to recognize [[Palestine]] as a state, with plans to make a formal announcement at the [[United Nations]] General Assembly in September.
 
 ### AF 2025-07-25 1539
-(00:05:56) In response to France's move to recognize [[Gaza Strip|Palestine]], [[Israel]] stated it must expedite the annexation of the [[Gaza Strip|West Bank]], arguing it cannot tolerate a hostile [[Palestinian]] state on its borders.
+(00:05:56) In response to France's move to recognize [[Palestine]], [[Israel]] stated it must expedite the annexation of the [[Gaza Strip|West Bank]], arguing it cannot tolerate a hostile [[Palestinian]] state on its borders.
 
 ### AF 2025-07-25 1539
-(00:56:52) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s long-term goal, accelerated by France's recognition of [[Gaza Strip|Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating [[Hezbollah]], [[Iran]], and other enemies.
+(00:56:52) [[Nicholas J. Fuentes]] claimed that [[Israel]]'s long-term goal, accelerated by France's recognition of [[Palestine]], is to annex the [[Gaza Strip]], the [[Gaza Strip|West Bank]], southern [[Lebanon]], and parts of [[Syria]], while defeating [[Hezbollah]], [[Iran]], and other enemies.
 
 ### AF 2025-07-25 1539
-(01:04:50) [[Emmanuel Macron]] wrote in a statement on [[Twitter]] that France would recognize the state of [[Gaza Strip|Palestine]] as part of its commitment to peace in the [[Middle East]], becoming the first [[Group of Seven|G7]] nation to do so.
+(01:04:50) [[Emmanuel Macron]] wrote in a statement on [[Twitter]] that France would recognize the state of [[Palestine]] as part of its commitment to peace in the [[Middle East]], becoming the first [[Group of Seven|G7]] nation to do so.
 
 ### AF 2025-07-25 1539
 (01:06:16) [[Benjamin Netanyahu]] reacted angrily to France's move, stating, "We strongly condemn Mr. [[Emmanuel Macron|Macron]]'s decision to recognize a [[Palestinian]] state next to [[Tel Aviv]] in the wake of [[October 7th Attack|October 7th]]," adding that a [[Palestinian]] state could become a launch pad to annihilate [[Israel]].
@@ -159,7 +159,7 @@
 (01:07:51) [[Nicholas J. Fuentes]] pointed out that the official policy of every [[U.S.]] president since [[Harry S. Truman]] has been to seek a two-state solution, but it was [[Emmanuel Macron]] of France who acted on it first among major Western powers.
 
 ### AF 2025-07-25 1539
-(01:09:49) [[Spain]], [[Ireland]], and [[Norway]] recognized [[Gaza Strip|Palestine]] in 2024, but France's decision is of a different order due to its status as a nuclear power, a permanent member of the [[United Nations Security Council]], and home to the largest [[Jewish]] and [[Muslim]] populations in Western [[Europe]].
+(01:09:49) [[Spain]], [[Ireland]], and [[Norway]] recognized [[Palestine]] in 2024, but France's decision is of a different order due to its status as a nuclear power, a permanent member of the [[United Nations Security Council]], and home to the largest [[Jewish]] and [[Muslim]] populations in Western [[Europe]].
 
 ### AF 2025-07-24 1538
 (00:05:23) [[Germany]], France, and the [[United Kingdom]] (the E3) were scheduled to meet with [[Iran]] on Friday to discuss its nuclear program.
@@ -306,7 +306,7 @@
 (35:17:94) [[Nicholas J. Fuentes]] reported the following confirmed coronavirus case counts: [[Germany]] at 16,666, the [[United States]] at 15,777, France at 10,995, and [[South Korea]] at 8,652.
 
 ### AF 2020-03-20 0569
-(56:30:26) [[Nicholas J. Fuentes]] pointed to videos of [[United States]] military Humvees being shipped to cities like [[Baltimore]], [[City of Chicago|Chicago]], and [[New York]] as evidence that the declaration of martial law and a mandatory lockdown, following the pattern seen in [[Italian Republic|Italy]] and France, was a likely next step.
+(56:30:26) [[Nicholas J. Fuentes]] pointed to videos of [[United States]] military Humvees being shipped to cities like [[Baltimore]], [[Chicago]], and [[New York]] as evidence that the declaration of martial law and a mandatory lockdown, following the pattern seen in [[Italian Republic|Italy]] and France, was a likely next step.
 
 ### AF 2020-03-19 0568
 (00:01:40) [[Nicholas J. Fuentes]] announced the main story for the show would be about the coronavirus pandemic and related economic stimulus proposals. (00:01:40) [[Senate]] [[Republican Party|Republicans]] unveiled a draft proposal to provide $1,200 cash payments to individuals earning under $75,000 and $2,400 to couples earning under $150,000, with amounts tapering for higher incomes and reduced payments for those with low taxable income. (00:03:06) The [[United States Senate]] passed the first phase of a coronavirus relief package, which included free coronavirus testing and paid sick leave. (00:04:18) [[Italian Republic|Italy]] surpassed [[China]] in official confirmed deaths from coronavirus, with [[Italian Republic|Italy]] reporting 41,000 cases compared to [[China]]'s 80,000. (00:05:07) [[Richard Burr]], a [[Senator]] from [[North Carolina]] and member of the [[Senate Intelligence Committee]], sold his [[stock]] holdings in late February while publicly stating the [[United States]] had the coronavirus under control. (00:06:57) [[Tulsi Gabbard]] dropped out of the [[Democratic presidential primary]] and endorsed [[Joe Biden]]. (00:07:37) [[Tulsi Gabbard]]'s presidential campaign was primarily focused on opposing foreign regime change wars. (00:08:38) [[Joe Biden]] voted for the [[Iraq War]] in 2003 and, as [[Vice President]] under [[Barack Obama]], supported the [[NATO intervention in Libya]] that deposed [[Muammar Gaddafi]] and backed funding for the [[Syria|Syrian]] opposition against [[Bashar al-Assad]]. (00:11:43) [[Nicholas J. Fuentes]] stated his opposition to regime change in [[Syria]], the wars in [[Iraq]] and [[Afghanistan]], war with [[Iran]], and expressed skepticism of alliances with [[Saudi Arabia]], [[Qatar]], and [[Israel]]. (00:12:27) [[Tulsi Gabbard]] was a member of the [[Council on Foreign Relations]]. (00:16:50) [[Tulsi Gabbard]] was a frequent guest on [[Tucker Carlson]]'s show. (00:20:09) [[Donald Trump]] opposed unnecessary regime change wars. (00:20:57) [[Donald Trump]] worked to reduce illegal immigration, build a wall, restrict asylum seekers, and reduce levels of legal immigration. (00:21:32) [[Donald Trump]] opposed [[China]] and free trade, worked to bring troops home from [[Syria]], and negotiated an end to the war in [[Afghanistan]]. (00:22:19) [[Donald Trump]] authorized three rounds of missile strikes on [[Syria]] in 2017 and 2018. (00:22:52) The [[Donald Trump]] administration abandoned the [[Barack Obama]] administration's goal of regime change in [[Syria]] and announced a near-total withdrawal of [[U.S. Department of Defense|U.S. forces]] from [[Syria]] in August 2019. (00:27:26) The number of confirmed coronavirus cases in the [[United States]] increased from approximately 9,000 to nearly 14,000 in 24 hours. (00:28:04) Global confirmed coronavirus cases reached 246,328, with [[China]] reporting 80,928, [[Italian Republic|Italy]] at 41,035, [[Iran]] at 18,407, [[Spain]] at 18,077, [[Germany]] at 15,320, the [[United States]] at nearly 14,000, France at 10,995, and [[South Korea]] at 8,565. (00:30:53) The [[United States]] conducted 22,000 coronavirus tests in a single day, a significant increase from an estimated maximum capacity of 15,000-20,000 tests per day the previous week. (00:32:23) Drive-through coronavirus testing centers were established in [[Washington state]] and [[New York]]. (00:32:50) [[South Korea]] conducted an average of 15,000 coronavirus tests per day, which helped control its outbreak. (00:39:09) The [[The New York Times|New York Times]] reported that [[Senate]] [[Republican Party|Republicans]] unveiled an economic rescue plan providing hundreds of billions in loans to corporations and small businesses, corporate tax cuts, and $1,200 checks for taxpayers earning up to $75,000, with amounts tapering to zero for those earning over $99,000. (00:40:45) [[Mitch McConnell]], the [[Senate Majority Leader]], introduced the economic relief proposal after private talks with [[Republican Party|Republicans]] in the [[White House]]. (00:41:49) The [[Republican Party|Republican]] relief proposal included an additional $500 per child for eligible individuals and couples. (00:45:07) The [[Republican Party|Republican]] relief plan proposed moving the income tax filing deadline from April 15 to July 15. (00:45:56) The [[Republican Party|Republican]] plan authorized over $200 billion in support for hard-hit industries, including $50 billion for commercial airlines and $8 billion for air cargo carriers. (00:55:09) [[ProPublica]] reported that [[Richard Burr]], as chair of the [[Senate Intelligence Committee]], sold between $600,000 and $1.72 million in stocks in 33 transactions a week before the market declined by 30%, after receiving daily coronavirus briefings. (00:56:44) [[National Public Radio|NPR]] obtained a recording from February 27 in which [[Richard Burr]] gave a dire preview of the coronavirus's economic impact to a VIP group at the [[Capitol Hill Club]], whose members paid up to $10,000 for access. (00:57:55) In a February 7 op-ed, [[Richard Burr]] assured the public the [[United States]] was better prepared than ever for public health threats like the coronavirus. (00:58:18) [[Richard Burr]] sold up to $150,000 in shares of [[Wyndham Hotels & Resorts]] and up to $100,000 in shares of [[Extended Stay America]], companies whose values later plummeted.
@@ -333,22 +333,22 @@
 (00:34:23) [[Nicholas J. Fuentes]] listed international locations with confirmed coronavirus cases, including [[Thailand]], [[Singapore]], [[Hong Kong]], [[Macau]], [[Australia]], [[Taiwan]], [[Germany]], [[Nepal]], [[Dominion of Canada|Canada]], [[Cambodia]], [[Vietnam]], France, [[South Korea]], [[Malaysia]], [[Sri Lanka]], the [[United Arab Emirates]], and [[State of Japan|Japan]].
 
 ### AF 2020-01-24 0532
-(00:09:40) The first cases of the coronavirus were reported in France and a second case was reported in [[City of Chicago|Chicago]], [[United States]].
+(00:09:40) The first cases of the coronavirus were reported in France and a second case was reported in [[Chicago]], [[United States]].
 
 ### AF 2020-01-24 0532
 (00:53:40) [[Nicholas J. Fuentes]] reported that the coronavirus had spread to [[State of Japan|Japan]], [[Macau]], [[Hong Kong]], [[Thailand]], [[Vietnam]], [[Singapore]], the [[United States]], [[Saudi Arabia]], and France.
 
 ### AF 2020-01-24 0532
-(03:38:20) [[Agnes Buzyn]], the French health minister, confirmed three cases of coronavirus in France, including a 48-year-old man of [[China|Chinese]] origin hospitalized in [[Bordeaux]] [[who]] had visited [[City of Wuhan|Wuhan]].
+(03:38:20) [[Agnes Buzyn]], the French health minister, confirmed three cases of coronavirus in France, including a 48-year-old man of [[China|Chinese]] origin hospitalized in [[Bordeaux]] [[who]] had visited [[Wuhan]].
 
 ### AF 2020-01-08 0521
 (00:29:29) [[Donald Trump]] announced the [[United States]] would "immediately impose additional punishing economic sanctions" on [[Iran]] and called for the [[United Kingdom]], [[Germany]], France, [[Russia]], and [[China]] to abandon the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Joint Comprehensive Plan of Action|Iran nuclear deal]]).
 
 ### AF 2020-01-06 0519
-(00:18:51) In July 2015, [[Barack Obama]] concluded the [[Joint Comprehensive Plan of Action]], an agreement with [[Iran]], [[China]], France, [[Germany]], [[Russia]], the [[United Kingdom]], the [[United States]], and the [[Europe|European Union]] that limited [[Iran]]'s nuclear activities in exchange for reduced sanctions.
+(00:18:51) In July 2015, [[Barack Obama]] concluded the [[Joint Comprehensive Plan of Action]], an agreement with [[Iran]], [[China]], France, [[Germany]], [[Russia]], the [[United Kingdom]], the [[United States]], and the [[European Union]] that limited [[Iran]]'s nuclear activities in exchange for reduced sanctions.
 
 ### AF 2019-12-18 0516
-(02:10:29) [[Nicholas J. Fuentes]] listed the countries he represented in [[United Nations|Model UN]], including [[Peru]], the [[United States]], France, the [[United Kingdom]], [[Denmark]], [[Iraq]], [[Iran]], [[Gaza Strip|Palestine]], [[Saudi Arabia]], [[China]], [[Russia]], and [[South Korea]].
+(02:10:29) [[Nicholas J. Fuentes]] listed the countries he represented in [[United Nations|Model UN]], including [[Peru]], the [[United States]], France, the [[United Kingdom]], [[Denmark]], [[Iraq]], [[Iran]], [[Palestine]], [[Saudi Arabia]], [[China]], [[Russia]], and [[South Korea]].
 
 ### AF 2019-09-18 0464
 (00:04:48) [[State of Japan|Japan]] and France stated they had seen no evidence that [[Iran]] was responsible for the missile attack on [[Saudi Arabia]].
@@ -372,7 +372,7 @@
 (01:31:33:380) A viewer named "[[Julius Caesar|Caesar]]" commented that journalists had nothing to lose writing articles and suggested that [[Islam|Muslims]] "figured out how to get around them" in reference to the Charlie Hebdo shooting in France.
 
 ### AF 2019-05-27 0395
-(00:02:00) [[Nicholas J. Fuentes]] stated that nationalist parties in France, [[Italian Republic|Italy]], [[Hungary]], and the [[United Kingdom]] performed well in the [[Europe|European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
+(00:02:00) [[Nicholas J. Fuentes]] stated that nationalist parties in France, [[Italian Republic|Italy]], [[Hungary]], and the [[United Kingdom]] performed well in the [[European Union]] Parliament elections, but the results were more nuanced than initial appearances suggested.
 
 ### AF 2019-05-27 0395
 (00:35:00) [[Nicholas J. Fuentes]] reported that in France, [[Marine Le Pen]]'s [[National Rally]] party narrowly beat President [[Emmanuel Macron]]'s coalition by 23% to 22%, a victory he considered modest given [[Emmanuel Macron|Macron]]'s deep unpopularity.
@@ -426,10 +426,10 @@
 (06:18:00) [[Emmanuel Macron]], [[the President]] of France, used his own [[United Nations]] address to denounce nationalism, positioning it in direct opposition to [[Donald Trump]]'s advocacy for patriotism.
 
 ### AF 2018-09-13 0239
-(11:09:00) A clash within the [[Europe|European Union]] existed between Eastern and Central [[Europe|European]] countries like [[Hungary]], [[Austria]], and [[Czech Republic|Czechia]], and dominant liberal countries like [[Germany]] and France, primarily over immigration policy.
+(11:09:00) A clash within the [[European Union]] existed between Eastern and Central [[Europe|European]] countries like [[Hungary]], [[Austria]], and [[Czech Republic|Czechia]], and dominant liberal countries like [[Germany]] and France, primarily over immigration policy.
 
 ### AF 2018-09-13 0239
-(14:42:00) The [[Schengen Agreement]] allowed free movement of people within the [[Europe|European Union]], enabling migrants [[who]] entered coastal countries like [[Italian Republic|Italy]] to travel to nations like [[Sweden]], [[Denmark]], or France.
+(14:42:00) The [[Schengen Agreement]] allowed free movement of people within the [[European Union]], enabling migrants [[who]] entered coastal countries like [[Italian Republic|Italy]] to travel to nations like [[Sweden]], [[Denmark]], or France.
 
 ### AF 2018-08-24 0226
 (00:12:05) [[Nicholas J. Fuentes]] argued that the political right in [[United States|America]], France, the [[United Kingdom]], and [[Italian Republic|Italy]] is characterized by internal turmoil between insurgent factions and their own establishments, citing the [[Conservatives]] not implementing Brexit and [[Marian Le Pen]] fighting center-right candidates as examples.
@@ -468,7 +468,7 @@
 (00:11:22) The signatories to the 2015 [[Joint Comprehensive Plan of Action|Iran nuclear deal]], the [[Joint Comprehensive Plan of Action]], included the P5 nations—[[United States]], [[Russia]], [[China]], France, and the [[United Kingdom]]—as well as [[Germany]] and [[Iran]].
 
 ### AF 2018-05-08 0160
-(00:19:58) The [[United Kingdom]], France, the [[Europe|European Union]], and [[Germany]] issued a joint statement expressing regret and disappointment over the [[United States]]'s decision to withdraw from the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
+(00:19:58) The [[United Kingdom]], France, the [[European Union]], and [[Germany]] issued a joint statement expressing regret and disappointment over the [[United States]]'s decision to withdraw from the [[Joint Comprehensive Plan of Action|Iran nuclear deal]].
 
 ### AF 2018-04-18 0148
 (00:37:00) [[John F. Kennedy|J.F.]] reiterated that the long-term problem was determined by demographics, with expanding [[Islam|Muslim]] populations through both birth rates and immigration into countries like [[Dominion of Canada|Canada]], France, and [[Sweden]].
@@ -489,7 +489,7 @@
 (00:30:54) [[Donald Trump]] committed to a joint military response in [[Syria]] with [[Theresa May]] of the [[United Kingdom]] and [[Emmanuel Macron]] of France.
 
 ### AF 2018-04-10 0142
-(06:09:42) [[Russia]]'s strategic need to control [[Ukraine]] stemmed from the lack of a western natural land barrier, specifically the North [[Europe|European]] Plain, which historically left [[City of Moscow|Moscow]] vulnerable to invasion from France or [[Germany]].
+(06:09:42) [[Russia]]'s strategic need to control [[Ukraine]] stemmed from the lack of a western natural land barrier, specifically the North [[Europe|European]] Plain, which historically left [[Moscow]] vulnerable to invasion from France or [[Germany]].
 
 ### AF 2018-04-09 0141
 (00:22:24) Following the [[Israel|Israeli]] airstrike, [[Donald Trump]] promised a coordinated response with French [[White House|President]] [[Emmanuel Macron]] to the alleged chemical attack in Douma.
@@ -534,7 +534,7 @@
 (00:08:06) [[Nicholas J. Fuentes]] contrasted [[Israel]]'s policy of labeling migrants as "infiltrators" and deporting them with the immigration approaches of [[Germany]], France, the [[United Kingdom]], and the [[United States]].
 
 ### AF 2017-12-05 0064
-(01:20:48) [[Nicholas J. Fuentes]] noted that the foreign ministers of [[Germany]], the [[Europe|European Union]], and France all criticized [[Donald Trump]]'s move to recognize [[City of Jerusalem|Jerusalem]] as [[Israel|Israel's]] capital as counterproductive.
+(01:20:48) [[Nicholas J. Fuentes]] noted that the foreign ministers of [[Germany]], the [[European Union]], and France all criticized [[Donald Trump]]'s move to recognize [[Jerusalem]] as [[Israel|Israel's]] capital as counterproductive.
 
 ### AF 2017-12-05 0064
 (01:22:05) [[Nicholas J. Fuentes]] questioned whether alienating allies like [[Saudi Arabia]], [[Arab Republic of Egypt|Egypt]], [[Jim Jordan|Jordan]], [[Turkey]], France, and [[Germany]] over a symbolic gesture for [[Israel]] constituted putting [[America First]].
@@ -546,7 +546,7 @@
 (00:33:50) [[Nicholas J. Fuentes]] noted that in France, it is illegal to deny the [[United States Holocaust Memorial Museum|Holocaust]] but legal to deny the Armenian genocide, as courts struck down a law against the latter on free expression grounds.
 
 ### AF 2017-10-04 0024
-(02:32:68) The [[Europe|European Union]], along with leaders like [[Emmanuel Macron]] of France and [[Angela Merkel]] of [[Germany]], offered no comment or intervention in the Catalan independence crisis, which [[Nicholas J. Fuentes]] argued contradicted the [[EU]]'s founding principle of self-determination.
+(02:32:68) The [[European Union]], along with leaders like [[Emmanuel Macron]] of France and [[Angela Merkel]] of [[Germany]], offered no comment or intervention in the Catalan independence crisis, which [[Nicholas J. Fuentes]] argued contradicted the [[EU]]'s founding principle of self-determination.
 
 ### AF 2017-09-25 0017
 (01:05:25) [[Nicholas J. Fuentes]] stated that [[United States|America]]'s founders came from the wealthiest, most advanced [[Europe|European]] countries ([[Germany]], [[United Kingdom|Britain]], [[Spain]], France) and built a prosperous nation.
@@ -556,3 +556,129 @@
 
 ### AF 2017-09-14 0010
 (01:04:28) [[Nicholas J. Fuentes]] criticizes [[Ben Shapiro]] and [[Dave Rubin]] as hypocrites on free speech, noting they do not defend figures like [[Richard Spencer]], [[Jared Taylor]], or [[Theodore Robert Beale|Vox Day]], or speak against laws criminalizing [[United States Holocaust Memorial Museum|Holocaust]] denial in countries like France.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(01:00:15.760) The [[United States]], under [[Barack Obama]], collaborated with [[China]], [[Russian Federation|Russia]], [[Germany]], France, and the [[United Kingdom]], along with the [[European Union]], to implement a nuclear deal that restricted [[Iran]]'s uranium enrichment.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:40:07.840) [[Donald Trump]] humorously suggested that [[Brigitte Macron]] was "far prettier" than [[Candace Owens]], after [[Candace Owens]] allegedly claimed the First Lady of France was a man.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:48:53.610) [[Donald Trump]] criticized "crazy [[Candace Owens]]" for falsely accusing the "highly respected First Lady of France" (referring to [[Brigitte Macron]]) of being a man, and suggested that [[Brigitte Macron]] was "far more beautiful" than [[Candace Owens]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:31:53.070) The presidents of France and [[Spain]], along with other heads of [[state]], are demanding that [[Israel]] cease its war in [[Lebanon]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(01:00:01) [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, and the [[United Kingdom]] to enforce the nuclear deal that restricts [[Iran|Iran's]] enrichment of uranium.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:58:55) If the [[United States]] lost the island operation and suffered 1,000 casualties, the response would be to escalate further, potentially involving a large coalition war with the [[United Kingdom]], France, [[Kurdistan|Kurds]], [[Saudi Arabia]], and the [[United Arab Emirates]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:09:50) The [[Royal Navy]] from the [[United Kingdom]] wanted to get involved in opening the [[Strait of Hormuz]], and France was considering involvement.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:10:26) [[Nicholas J. Fuentes]] speculated that the [[United States]] might solicit the [[United Kingdom]] and France to forcibly reopen the strait, allowing a small special forces unit to take over an island, thereby reestablishing [[United States|U.S]]. control and allowing an honorable withdrawal.
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(01:00:01) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:59:54.980) [[Nicholas J. Fuentes]] traced the origins of the conflict with [[Iran]] to [[Barack Obama]]'s creation of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(00:59:57.940) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]] to enforce the [[Joint Comprehensive Plan of Action|JCPOA]].
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:08:18:870) [[Nicholas J. Fuentes]] again stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]], bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[United States]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(59:53:87) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, and brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, and the [[United Kingdom]] to enforce it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:08:11:15) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal) by bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], France, and the [[United Kingdom]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:59:59) [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[United States]] and the [[European Union]] to enforce a nuclear deal that restricts [[Iran]]'s enrichment of uranium.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:07:23) [[Nicholas J. Fuentes]] presented a timeline of [[United States|US]]-[[Iran]] relations, stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] with [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(59:53:64) [[Nicholas J. Fuentes]] stated that before the 2016 election, [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal), bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[United States]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(02:08:27.930) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]] to enforce a nuclear deal restricting [[Iran]]'s uranium enrichment.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(01:00:06) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] Nuclear Deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(00:58:28) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] ([[Iran|Iranian]] Nuclear Deal), bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[United States]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-13 TOTAL ICE SURRENDER Trump WITHDRAWS ICE From Minneapolis  America First Ep. 1640
+(00:58:02) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran|Iranian]] Nuclear Deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-12 DOJ-EPSTEIN COVERUP Pam Bondi FOLDS In Senate Hearing  America First Ep. 1639
+(59:57:00) [[Nicholas J. Fuentes]] claimed that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(59:53:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran]] Nuclear Deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(02:08:11:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), or the [[Iran]] Nuclear Deal, which brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(00:59:53) [[Nicholas J. Fuentes]] described a timeline of events leading to the [[United States|US]]-[[Iran]] conflict, beginning with [[Barack Obama]] creating the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(02:08:11) [[Nicholas J. Fuentes]] described the timeline beginning with [[Barack Obama]] creating the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:10:30.000) [[Nicholas J. Fuentes]] named [[Barack Obama]] as the creator of the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[Iran]], [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[European Union]], and the [[United States]].
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(01:00:01) [[Nicholas J. Fuentes]] said that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(59:53:74) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, bringing together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]].
+
+### 2026-01-23 DON LEMON FREE Trump Admin FAILS To Prosecute Don Lemon  America First Ep. 1626
+(01:00:10) [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]] to enforce a nuclear deal restricting [[Iran]]'s enrichment of uranium.
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(02:48:40:010) [[Nicholas J. Fuentes]] stated that [[Jews]] say [[Israel]] has a right to exist as a [[Jews|Jewish]] [[country]], but believe white people are not entitled to a [[country]] such as France, [[Italian Republic|Italy]], [[Germany]], [[United Kingdom|England]], or [[United States|America]].
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(20:04:800) [[Nicholas J. Fuentes]] noted that troops from France, [[Germany]], [[Sweden]], and [[Norway]] deployed to [[Country of Greenland|Greenland]] for a two-day mission to demonstrate [[North Atlantic Treaty Organization|NATO]]'s ability to deploy into the Arctic.
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:00:16) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought together [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], the [[United States]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium, which made the [[Israel|Israelis]] “furious.”
+
+### 2026-01-15 ICE EXECUTES PROTESTER Renee Good KILLED In Battle By ICE Agent  America First Ep. 1621
+(01:44:31) [[Nicholas J. Fuentes]] traced the evolution of the conspiracy: it started with someone embezzling money at [[Turning Point USA]], then turned into [[Israel]] killing him for turning against them, then [[Israel]], France, [[Arab Republic of Egypt|Egypt]], and the [[United States]] all working together, and finally the idea that he was an indigo child groomed by extraterrestrials to break the “space-[[time]] continuum.”
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(01:00:00) [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) alongside [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s enrichment of uranium.
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(00:59:42) [[Nicholas J. Fuentes]] provided a timeline of events leading to the conflict with [[Iran]], stating that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]].
+
+### 2025-12-24 AMFEST CALLED ME OUT RESPONDING TO MY ENEMIES  America First Ep. 1617
+(00:59:49) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]), the [[Iran|Iranian]] nuclear deal, with [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]] to restrict [[Iran]]'s uranium enrichment.
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(00:59:45) [[Nicholas J. Fuentes]] asserted that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action]] ([[Joint Comprehensive Plan of Action|JCPOA]]) with [[China]], [[Russian Federation|Russia]], [[Germany]], France, and the [[United Kingdom]] to restrict [[Iran]]'s uranium enrichment, and that "the [[Israel|Israelis]] were furious."
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(03:25:16) [[Nicholas J. Fuentes]] stated that the conspiracy started as [[Israel]] being responsible for [[Charlie Kirk]]'s death, then widened to include the [[Federal Bureau of Investigation|FBI]], the [[Donald Trump|Trump]] administration, France, and [[Arab Republic of Egypt|Egypt]], and now implicates [[Charlie Kirk]]'s family and wife.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:03:06) [[Nicholas J. Fuentes]] questioned [[Candace Owens]]'s obsession with France and her husband from the [[United Kingdom]], and [[Tucker Carlson]]'s statements that [[Russian Federation|Russia]] is the [[United States|U.S]].'s closest ally.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(01:00:10) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] brought [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]] together to enforce a nuclear deal restricting [[Iran]]'s uranium enrichment.
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(02:08:11) [[Nicholas J. Fuentes]] stated that [[Barack Obama]] created the [[Joint Comprehensive Plan of Action|JCPOA]] to restrict [[Iran]]'s uranium enrichment, bringing in [[China]], [[Russian Federation|Russia]], [[Germany]], France, the [[United Kingdom]], and the [[European Union]].

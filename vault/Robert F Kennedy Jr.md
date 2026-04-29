@@ -3,8 +3,8 @@
 
 
 ### AF 2024-11-08 1420
-(02:12:120) [[Howard Lutnick]], who leads [[Donald Trump]]'s transition team, stated to [[Warner Bros. Discovery|CNN]] that Robert F. Kennedy Jr. would not be Secretary of [[Health and Human Services|HHS]].
-(02:22:900) [[Nicholas J. Fuentes]] recalled [[Donald Trump]]'s pledge to appoint Robert F. Kennedy Jr. as head of [[Health and Human Services|HHS]] to ban vaccines and fluoride, making [[United States|America]] "healthy again."
+(02:12:120) [[Howard Lutnick]], who leads [[Donald Trump]]'s transition team, stated to [[Warner Bros. Discovery|CNN]] that Robert F. Kennedy Jr. would not be Secretary of [[HHS]].
+(02:22:900) [[Nicholas J. Fuentes]] recalled [[Donald Trump]]'s pledge to appoint Robert F. Kennedy Jr. as head of [[HHS]] to ban vaccines and fluoride, making [[United States|America]] "healthy again."
 (02:28:630) [[Howard Lutnick]] confirmed that Robert F. Kennedy Jr. would not lead a federal department but would be granted access to "the vaccine data."
 
 ### AF 2024-10-25 1413
@@ -126,3 +126,6 @@
 
 ### AF 2022-02-15 0947
 (00:18:14) [[Nicholas J. Fuentes]] compared the government's targeting of him to its historical targeting of figures like [[Malcolm X]], RFK, [[JFK]], and [[MLK]].
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:44:12) [[Nicholas J. Fuentes]] said "I told you so," claiming he warned that [[Tulsi Gabbard]] was not on their side, along with [[JD Vance]], RFK Jr., [[Pete Hegseth]], and [[Marco Rubio]], [[who]] he said all "suck."

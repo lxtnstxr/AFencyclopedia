@@ -17,3 +17,12 @@
 
 (01:34:07) [[Tucker Carlson]] stated that Randy Fine, a [[Jewish]] congressman from Florida, had "said far worse things" than [[Nicholas J. Fuentes]].
 (51:06:91) [[Tucker Carlson]] stated that Congressman Randy Fine had "said far worse things" than [[Nicholas J. Fuentes]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(03:39:30.960) The only remaining supporters of [[Donald Trump|MAGA]], according to [[Nicholas J. Fuentes]], are individuals like [[Mark Levin]], Randy Fine, and [[Lindsey Graham]].
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:26:14) [[Nicholas J. Fuentes]] criticized a tweet by Randy Fine (a [[Jews|Jewish]] politician) saying "we would rather have dogs than [[Islam|Muslims]]," stating that Fine sees white people as "dogs" because he is "a [[Jews|Jew]]."
+
+### 2026-01-21 BANNED FROM THE CLUB Redpill Avengers SHUT DOWN Miami Beach With HITLER ANTHEM  America First Ep. 1624
+(03:45:50) [[Nicholas J. Fuentes]] stated that [[Brett Cooper]] told Randy Fine he would be more comfortable in [[Israel]].

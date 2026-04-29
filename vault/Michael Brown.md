@@ -15,10 +15,10 @@
 (01:50:53) Police officers, following high-profile incidents like the deaths of Michael Brown and [[Laquan McDonald]], face public vilification and policy changes that discourage proactive law enforcement.
 
 ### AF 2020-08-05 0655
-(00:02:11) [[Cori Bush]], a [[Black Lives Matter]] protester from the 2014 [[City of St. Louis|Ferguson]] demonstrations following the killing of Michael Brown, won her [[Democratic Party|Democratic]] primary in [[State of Missouri|Missouri]].
+(00:02:11) [[Cori Bush]], a [[Black Lives Matter]] protester from the 2014 [[Ferguson]] demonstrations following the killing of Michael Brown, won her [[Democratic Party|Democratic]] primary in [[State of Missouri|Missouri]].
 
 ### AF 2020-08-05 0655
-(00:47:04) [[Cori Bush]] built her campaign around her personal story as a working-class [[black]] woman drawn into public life after the police killing of Michael Brown in [[City of St. Louis|Ferguson]], [[State of Missouri|Missouri]] in 2014.
+(00:47:04) [[Cori Bush]] built her campaign around her personal story as a working-class [[black]] woman drawn into public life after the police killing of Michael Brown in [[Ferguson]], [[State of Missouri|Missouri]] in 2014.
 
 ### AF 2020-08-03 0653
 (00:31:33) [[Nicholas J. Fuentes]] referenced [[Ahmaud Arbery]], [[who]] was shot while allegedly burglarizing a home under construction, and Michael Brown, [[who]] was shot after robbing a convenience store and grappling with an officer.

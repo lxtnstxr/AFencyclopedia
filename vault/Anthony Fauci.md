@@ -262,3 +262,6 @@
 
 ### AF 2020-02-03 0538
 (36:49:48) [[Nicholas J. Fuentes]] referenced Dr. Anthony Fauci of the [[National Institute of Allergy and Infectious Diseases]], [[who]] estimated the real number of coronavirus cases could be 100,000 or more.
+
+### 2026-01-17 TRUMP CHICKENS OUT Trump Admin SECOND GUESSING ICE Raids  America First Ep. 1623
+(01:58:28) [[Nicholas J. Fuentes]] stated that the [[United States]] is approaching one year into [[Donald Trump]]'s second term and that the administration has not crushed protests in [[Los Angeles]] or [[Minneapolis]] and has not arrested a single politician, including [[Barack Obama]], Anthony Fauci, or [[Hillary Clinton]].

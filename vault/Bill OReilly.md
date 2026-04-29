@@ -70,4 +70,7 @@
 (00:30:56) Bill O'Reilly tweeted that he had scolded [[Donald Trump]] during the election for doubting [[John McCain]]'s service.
 
 ### AF 2017-09-14 0010
-(00:23:15) [[Nicholas J. Fuentes]] mentions that [[Fox News]] chose [[Laura Ingraham]] to replace Bill O'Reilly, which he interprets as a move to counter [[Steven Crowder|Steve Bannon]]'s potential media network.
+(00:23:15) [[Nicholas J. Fuentes]] mentions that [[Fox News]] chose [[Laura Ingraham]] to replace Bill O'Reilly, which he interprets as a move to counter [[Steve Bannon]]'s potential media network.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(03:55:30) [[Nicholas J. Fuentes]] listed his broadcast influences: Bill O'Reilly, [[Greg Gutfeld]], [[John Stossel]], [[Samuel J. Hyde|Sam Hyde]], [[Donald Trump]], [[Alex Jones]], [[Gavin McInnes]], and [[Milton Friedman]].

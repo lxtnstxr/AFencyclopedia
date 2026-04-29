@@ -15,7 +15,7 @@
 (00:04:56) [[Nicholas J. Fuentes]] announced his show would cover the death of [[Daniel Prude]] in Rochester, [[New York]], a case from March 2020 involving a man high on PCP [[who]] died after police placed a spit hood on him and restrained him on the ground.
 
 ### AF 2020-09-02 0673
-(00:41:37) [[Nicholas J. Fuentes]] described [[Daniel Prude]] as a [[black]] man from [[City of Chicago|Chicago]] [[who]] was high on PCP, ran naked through Rochester streets, spat at police while claiming to have coronavirus, and died after being kneeled on by officers before [[George Floyd]]'s death.
+(00:41:37) [[Nicholas J. Fuentes]] described [[Daniel Prude]] as a [[black]] man from [[Chicago]] [[who]] was high on PCP, ran naked through Rochester streets, spat at police while claiming to have coronavirus, and died after being kneeled on by officers before [[George Floyd]]'s death.
 
 ### AF 2020-09-02 0673
 (00:42:15) [[Nicholas J. Fuentes]] read a news report stating protesters in Rochester gathered after allegations surfaced against police officers in [[Daniel Prude]]'s death, with community advocates calling for charges.

@@ -13,7 +13,7 @@
 (01:14:39) [[Nicholas J. Fuentes]] stated that Marco Rubio recently visited [[Israel]], where [[Israel|Israeli]] officials told an [[American]] delegation they wanted regime change in [[Iran]].
 (04:50:50) [[Nicholas J. Fuentes]] noted that [[Pam Bondi]] warned that anti-Semitic speech would bring prosecution and that Marco Rubio tried to advance a bill to revoke passports over criticism of [[Israel]].
 ### AF 2025-09-24 1570
-(00:24:10) Marco Rubio, a pawn of the [[American Israel Public Affairs Committee|Israel lobby]], controls the [[U.S. Department of State]] and the [[U.S. National Security Council]], which synthesizes intelligence and provides military options to [[Donald Trump|the president]].
+(00:24:10) Marco Rubio, a pawn of the [[American Israel Public Affairs Committee|Israel lobby]], controls the [[U.S. Department of State]] and the [[U.S. National Security Council]], which synthesizes intelligence and provides military options to [[the president]].
 ### AF 2025-09-26 1572
 (01:04:31) [[Nicholas J. Fuentes]] reported that Marco Rubio and other [[U.S]]. politicians were told by [[Israel]]i officials two weeks prior that [[Israel]] still seeks regime change in [[Iran]].
 ### AF 2025-09-30 1574
@@ -175,7 +175,7 @@
 (01:50:58) Marco Rubio presented himself as a [[Tea Party]] supporter during his 2010 [[U.S. Congress|Senate]] campaign, but later supported the [[Gang of Eight]] immigration bill, which included amnesty for millions of illegal immigrants.
 
 ### AF 2024-11-19 1421
-(01:52:05) Marco Rubio was known to have close ties with [[Sheldon Adelson|Miriam Adelson]], a pro-[[Israel]] casino magnate.
+(01:52:05) Marco Rubio was known to have close ties with [[Miriam Adelson]], a pro-[[Israel]] casino magnate.
 
 ### AF 2024-11-19 1421
 (01:52:35) [[Donald Trump]] planned to name Marco Rubio as [[U.S. Department of State|Secretary of State]] and [[Michael Waltz|Mike Waltz]] as [[U.S. National Security Council|National Security Advisor]], both described as pro-[[Israel]] hawks favoring "maximum pressure" on [[Iran]].
@@ -208,7 +208,7 @@
 (00:35:45) [[Donald Trump]]'s shortlist for vice president consisted of [[JD Vance]], Marco Rubio, and [[Doug Burgum]].
 
 ### AF 2024-07-13 1355
-(00:39:33) [[Nicholas J. Fuentes]] argued that [[Sheldon Adelson|Miriam Adelson]] was a close personal friend and supporter of [[Nikki Haley]], [[Ron DeSantis]], and Marco Rubio, and that [[JD Vance]] had recently expressed strong support for [[Israel]].
+(00:39:33) [[Nicholas J. Fuentes]] argued that [[Miriam Adelson]] was a close personal friend and supporter of [[Nikki Haley]], [[Ron DeSantis]], and Marco Rubio, and that [[JD Vance]] had recently expressed strong support for [[Israel]].
 
 ### AF 2024-07-13 1355
 (00:51:12) [[Nicholas J. Fuentes]] listed [[Benjamin Netanyahu]], [[North Atlantic Treaty Organization|NATO]], the [[Central Intelligence Agency|CIA]], defense contractors, [[Nikki Haley]], [[Ron DeSantis]], Marco Rubio, [[JD Vance]], and [[Peter Thiel]] as entities that would have benefited from a successful assassination of [[Donald Trump]].
@@ -220,7 +220,7 @@
 (00:32:04) [[Nicholas J. Fuentes]] argued that when considering a second [[Donald Trump]] administration, the key questions are about personnel and what comes after [[Donald Trump|Trump]], with politicians like [[JD Vance|Vance]], [[Josh Hawley|Hawley]], Marco Rubio, and [[Ron DeSantis|DeSantis]] being floated.
 
 ### AF 2024-07-05 1349
-(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Sheldon Adelson|Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and Marco Rubio were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
+(00:18:26) The [[Heritage Foundation]] created [[Project 2025]], a personnel database and policy agenda intended for a future [[Republican Party]] administration. (00:30:56) [[Donald Trump]] formally disavowed [[Project 2025]], stating he had nothing to do with the project and disagreed with some of its proposals. (00:32:52) A senior advisor to the [[Donald Trump]] campaign stated the campaign would not hire personnel from the [[Project 2025]] database. (00:37:48) [[John McEntee]], a former director of the [[White House]] Presidential Personnel Office in the [[Donald Trump]] administration, served as a senior advisor for [[Project 2025]]. (00:39:21) [[Chris LaCivita]], a campaign advisor to [[Donald Trump]] who had previously called for [[Donald Trump|Trump's]] removal via the 25th Amendment, was reportedly involved in the internal attack on [[Project 2025]]. (00:43:08) The [[Joe Biden]] campaign and left-wing activists began targeting [[Project 2025]] as a political boogeyman, focusing their attacks on it rather than on [[Donald Trump]] directly. (00:43:26) Major donors including [[William Ackman|Bill Ackman]], Jacob Helberg, Ken Griffin, and [[Miriam Adelson]] coalesced behind [[Donald Trump]]'s 2024 campaign. (00:51:53) [[William Ackman|Bill Ackman]], a lifelong [[Democratic Party|Democrat]] and Zionist, publicly stated he would be influencing personnel selections for the [[Donald Trump]] campaign. (00:52:56) [[Donald Trump]]'s campaign awarded a large contract to the influencer marketing firm Influenceable to pay micro-celebrities to post pro-[[Donald Trump|Trump]] content. (01:00:02) Influenceable, under contract from the [[Donald Trump]] campaign, paid influencers to post talking points stating "[[Project 2025]] has nothing to do with [[Donald Trump|Trump]]" and promoting "Agenda 47." (01:04:33) [[Rick Grenell]], a gay former ambassador, [[Lindsey Graham]], [[Tim Scott]], and [[Nikki Haley]] were cited as examples of the establishment figures running the [[Donald Trump]] campaign. (01:05:16) [[JD Vance]], [[Doug Burgum]], and Marco Rubio were listed as potential vice presidential picks for [[Donald Trump]], each characterized as a bad option. (01:14:50) [[Costin Alamariu|Bronze Age Pervert]] ([[Costin Alamariu]]) was revealed to be [[Jewish]] and his publication worked with [[Edward Luttwak]], a member of the [[American Israel Public Affairs Committee|Israel lobby]]. (01:22:18) The [[Claremont Institute]] was founded by [[Harry V. Jaffa]], who stated its project was to "save the [[Kanye West|West]]," which was interpreted as creating a safe place for [[Jews]]. (01:28:26) [[Carson Wolf]], [[Graham Allen]], [[Rogan O'Handley]], [[DC Draino]], [[CJ Pearson]], and [[Elijah Schaffer]] were listed as conservative influencers featured on the Influenceable website, indicating they were paid for campaigns. (01:35:38) [[Saurabh Sharma]], the editor of the [[The New York Post|New York Post]], wrote an article for the [[Jewish]] publication Commentary titled "Why This [[Catholic Church|Catholic]] Loves the [[Jews]]." (01:36:00) A [[Jewish]] journalist from the [[The New York Post|New York Post]] contacted [[Nicholas J. Fuentes]] seeking a story about him hating [[Donald Trump]], but did not publish it after [[Nicholas J. Fuentes|Fuentes]] refused to criticize [[Donald Trump|Trump]]. (01:42:14) [[Lucas Gage]] was swatted and harassed with food deliveries by a [[Jews|Jewish Zionist]] group called Rippertgott GC, owned by Yacos Stillerman and James Juju. (01:44:50) [[Laura Loomer]] produced a show discussing [[Adolf Hitler]] and flat [[earth]] theory but had not fully aligned with the Groypers, possibly due to ongoing litigation with [[The Daily Wire]]. (01:45:10) [[Stefan Molyneux]], a [[Jewish]] philosopher, refused to support [[Nicholas J. Fuentes]] during the "[[Nicholas J. Fuentes|Groyper]] War" because [[Nicholas J. Fuentes|Fuentes]] questioned the Holocaust. (02:10:20) [[Keir Starmer]], the new Prime Minister of the [[United Kingdom]], was known for rooting anti-Semitism out of the [[Labour Party]] and was a staunch Zionist. (02:18:30) A [[Democratic Party|Democrat]] congressman from [[State of Maine|Maine]] stated that [[Donald Trump]] would win the election and "it's fine," a statement considered unthinkable in previous election cycles. (02:22:18) The [[Claremont Institute]] network, including figures like [[Costin Alamariu|Bronze Age Pervert]], [[Raw Egg Nationalist]], and [[Jonathan Pollard]], was described as creating intellectual content but serving a Straussian, pro-Zionist agenda. (02:28:26) [[Saurabh Sharma]] of [[American Moment]] was cited as an example of a conservative influencer with a rustic aesthetic whose analysis ultimately served Zionist goals. (02:39:50) [[Robert Kadlec]], a leading bio-warfare advocate whose department ran the "Crimson Contagion" pandemic simulation, was reportedly hired by the [[Donald Trump]] campaign. (02:45:10) [[Ron Unz]] posited the theory that COVID-19 was a [[United States|U.S]]. bioweapon that accidentally leaked from a lab, first affecting [[China]] and [[Iran]].
 
 ### AF 2024-06-06 1340
 (00:50:01) [[Nicholas J. Fuentes]] recalled that in 2015, [[Donald Trump]] mocked Marco Rubio for taking money from the [[Adelsons]], saying Rubio was their puppet.
@@ -286,7 +286,7 @@
 (00:36:25) [[Nicholas J. Fuentes]] stated that Marco Rubio would have given a [[Republican Party|Republican]] response similar to the one delivered by [[Sarah Huckabee Sanders]] during the [[Barack Obama|Obama]] administration.
 
 ### AF 2023-02-09 1119
-(00:44:41) [[Nicholas J. Fuentes]] characterized [[Ron DeSantis]] as a "[[Jewish]] [[Israel|Israeli]] shill" who was a [[Republican Party|GOP]] establishment figure in [[Congress]], unsuccessful in his culture war against [[Disney|Disney]], and comparable to Marco Rubio or [[Ted Cruz]].
+(00:44:41) [[Nicholas J. Fuentes]] characterized [[Ron DeSantis]] as a "[[Jewish]] [[Israel|Israeli]] shill" who was a [[Republican Party|GOP]] establishment figure in [[Congress]], unsuccessful in his culture war against [[Disney]], and comparable to Marco Rubio or [[Ted Cruz]].
 
 ### AF 2022-11-11 1096
 (00:53:21) Marco Rubio also won his 2022 [[U.S. Senate]] race in [[State of Florida|Florida]] by a 20-point margin, which [[Nicholas J. Fuentes]] used to argue that a large victory in [[State of Florida|Florida]] is not uniquely indicative of [[Ron DeSantis|DeSantis]]'s strength.
@@ -334,10 +334,10 @@
 (00:36:30) Marco Rubio, endorsed by [[Donald Trump]], stated that there was no significant voter fraud in the 2020 election.
 
 ### AF 2021-06-08 0825
-(00:21:29) [[Nicholas J. Fuentes]] cited [[Donald Trump|Trump]]'s endorsements of Marco Rubio, [[Tim Scott]], and [[Greg Abbott]], and his support for [[Mike Johnson|Kevin McCarthy]] as [[Mike Johnson|Speaker of the House]], as evidence the former president was acting against the [[United States|America]] First agenda.
+(00:21:29) [[Nicholas J. Fuentes]] cited [[Donald Trump|Trump]]'s endorsements of Marco Rubio, [[Tim Scott]], and [[Greg Abbott]], and his support for [[Kevin McCarthy]] as [[Mike Johnson|Speaker of the House]], as evidence the former president was acting against the [[United States|America]] First agenda.
 
 ### AF 2021-05-28 0819
-(42:24:46) [[Nicholas J. Fuentes]] lists [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Tim Scott]], and Marco Rubio as examples of [[Republican Party|Republicans]] who have been endorsed by [[Donald Trump]] but are compromised and do not fully represent the Trumpist message.
+(42:24:46) [[Nicholas J. Fuentes]] lists [[Kevin McCarthy]], [[Mitch McConnell]], [[Tim Scott]], and Marco Rubio as examples of [[Republican Party|Republicans]] who have been endorsed by [[Donald Trump]] but are compromised and do not fully represent the Trumpist message.
 
 ### AF 2021-05-28 0819
 (49:54:58) [[Nicholas J. Fuentes]] criticizes the [[Republican Party]] for trying to return to pre-2016 norms after [[Donald Trump]]'s presidency, endorsing candidates like Marco Rubio and [[Tim Scott]] instead of pushing the agenda further.
@@ -355,7 +355,7 @@
 (00:53:00) [[Nicholas J. Fuentes]] stated that the future of right-wing politics involved a [[civil war]] over who would succeed and inherit the legacy of [[Donald Trump]], a battle he said was currently leaning towards "[[Donald Trump|Trump]] imposters" like [[Tim Scott]] and Marco Rubio.
 
 ### AF 2021-05-10 0808
-(00:58:00) [[Nicholas J. Fuentes]] expressed concern that [[Donald Trump]], by endorsing candidates like [[Tim Scott]] and Marco Rubio and trying to secure a majority for [[Mike Johnson|Kevin McCarthy]], was engaging in counterrevolutionary behavior that bolstered the establishment.
+(00:58:00) [[Nicholas J. Fuentes]] expressed concern that [[Donald Trump]], by endorsing candidates like [[Tim Scott]] and Marco Rubio and trying to secure a majority for [[Kevin McCarthy]], was engaging in counterrevolutionary behavior that bolstered the establishment.
 
 ### AF 2021-05-10 0808
 (01:00:00) [[Nicholas J. Fuentes]] stated that, if necessary, he and his supporters would refuse to vote for candidates like [[Tim Scott]] and Marco Rubio, just as they withheld votes from [[Kelly Loeffler]] and [[David Perdue]] in the [[Country of Georgia|Georgia]] [[Senate]] runoffs, despite [[Donald Trump]]'s pleas.
@@ -490,7 +490,7 @@
 (00:43:48) [[Nicholas J. Fuentes]] argued that [[Donald Trump]]'s failure stems from delegating [[White House]] staffing to the [[Republican Party|RNC]], which filled positions with people from the campaigns of Marco Rubio, [[Ted Cruz]], and [[George W. Bush|Jeb Bush]] instead of [[Donald Trump|Trump]] loyalists.
 
 ### AF 2019-08-29 0451
-(00:30:59) [[Jeffrey Epstein]] was indicted for child sex trafficking before his death in jail on August 10th, 2019, a death officially ruled a suicide by the medical examiner. (00:33:04) [[Jeffrey Epstein]] was [[Jews|Jewish]]. (00:33:50) [[Jeffrey Epstein]]'s criminal case was officially dismissed by Judge [[Richard Berman]] on August 29th, 2019, citing his death. (00:34:24) Judge [[Richard Berman]] allowed accusers of [[Jeffrey Epstein]] to deliver victim impact statements in court on August 27th, 2019, even though the accused was not present. (00:35:04) [[State of Florida|Florida]] prosecutors previously offered [[Jeffrey Epstein]] a plea deal without input from his accusers years prior to the 2019 case. (00:35:57) [[Jeffrey Epstein]]'s private plane was [[known]] as the "Lolita Express." (00:57:55) [[Kim Kardashian]] announced a new album by [[Kanye West]] titled "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," scheduled for release on September 27th, 2019. (01:07:06) A comprehensive new study published in *Science* magazine concluded there is no single "gay gene," with same-sex sexual behavior influenced by many genetic variants and environmental factors. (01:18:11) Only ten [[Democratic Party|Democratic]] candidates qualified for the third 2020 presidential primary debate on September 12th in [[City|Houston]]: [[Joe Biden]], [[Bernie Sanders]], [[Elizabeth Warren]], [[Kamala Harris]], [[Peter Buttigieg|Pete Buttigieg]], [[Andrew Yang]], [[Cory Booker]], [[Beto O'Rourke]], [[Julian Castro]], and [[Amy Klobuchar]]. (01:18:59) [[Tulsi Gabbard]] and billionaire activist [[Tom Steyer]] failed to qualify for the September 2019 [[Democratic Party|Democratic]] debate, with Gabbard needing two more qualifying polls and [[Tom Steyer|Steyer]] needing one. (01:21:04) [[Democratic Party|Democratic]] candidates [[Kirsten Gillibrand]], [[John Hickenlooper]], [[Jay Inslee]], [[Seth Moulton]], and [[Eric Swalwell]] dropped out of the 2020 presidential race by late August 2019. (01:22:28) [[Joe Biden]] maintained a double-digit lead in most national and state polls for the [[Democratic Party|Democratic]] nomination through August 2019, despite attacks from rivals and personal scandals. (01:25:58) [[Elizabeth Warren]] was rising in the polls as the main competitor to [[Joe Biden]] for the [[Democratic Party|Democratic]] nomination by late August 2019, while [[Kamala Harris]]'s support was fading and [[Peter Buttigieg|Pete Buttigieg]] had failed to surge. (01:26:37) [[Nicholas J. Fuentes]] predicted that if [[Joe Biden]] won the [[Democratic Party|Democratic]] nomination, the contest for his running mate would likely be between [[Kamala Harris]] and [[Elizabeth Warren]]. (01:29:12) [[Donald Trump]] was co-opted by the deep state within two years of his presidency, according to [[Nicholas J. Fuentes]], transforming from an unconventional outsider into a figure virtually indistinguishable from establishment [[Republican Party|Republicans]] like [[Mitt Romney]], [[Ted Cruz]], and Marco Rubio. (01:31:14) [[Barack Obama]]'s presidency failed to end the forever wars or stop deficit spending, despite his anti-establishment "hope and change" rhetoric, paralleling [[Donald Trump]]'s experience according to [[Nicholas J. Fuentes]]. (01:33:04) [[Jeffrey Epstein]] was about to give up information on the [[United Kingdom|British]] Royal Family, the [[Israel|Israeli government]], [[Los Angeles|Hollywood]] celebrities, and [[Bill Clinton]] before he was murdered in jail, according to [[Nicholas J. Fuentes]]. (01:34:36) [[Nicholas J. Fuentes]] argued that the powers that be killed [[Jeffrey Epstein]] in a transparent manner to send a message of intimidation and demonstrate their capability to silence anyone, even with public knowledge. (01:39:27) The media's ability to distract the public from major events like the [[Jeffrey Epstein]] case or the [[City of Las Vegas|Las Vegas]] mass shooting demonstrates a population that lacks the agency to achieve reform, according to [[Nicholas J. Fuentes]]. (01:48:55) [[Nicholas J. Fuentes]] argued that the only enduring "white pill" or source of hope is the belief that "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," transcending the temporal power of figures like [[Jeffrey Epstein]].
+(00:30:59) [[Jeffrey Epstein]] was indicted for child sex trafficking before his death in jail on August 10th, 2019, a death officially ruled a suicide by the medical examiner. (00:33:04) [[Jeffrey Epstein]] was [[Jews|Jewish]]. (00:33:50) [[Jeffrey Epstein]]'s criminal case was officially dismissed by Judge [[Richard Berman]] on August 29th, 2019, citing his death. (00:34:24) Judge [[Richard Berman]] allowed accusers of [[Jeffrey Epstein]] to deliver victim impact statements in court on August 27th, 2019, even though the accused was not present. (00:35:04) [[State of Florida|Florida]] prosecutors previously offered [[Jeffrey Epstein]] a plea deal without input from his accusers years prior to the 2019 case. (00:35:57) [[Jeffrey Epstein]]'s private plane was [[known]] as the "Lolita Express." (00:57:55) [[Kim Kardashian]] announced a new album by [[Kanye West]] titled "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," scheduled for release on September 27th, 2019. (01:07:06) A comprehensive new study published in *Science* magazine concluded there is no single "gay gene," with same-sex sexual behavior influenced by many genetic variants and environmental factors. (01:18:11) Only ten [[Democratic Party|Democratic]] candidates qualified for the third 2020 presidential primary debate on September 12th in [[City|Houston]]: [[Joe Biden]], [[Bernie Sanders]], [[Elizabeth Warren]], [[Kamala Harris]], [[Peter Buttigieg|Pete Buttigieg]], [[Andrew Yang]], [[Cory Booker]], [[Beto O'Rourke]], [[Julian Castro]], and [[Amy Klobuchar]]. (01:18:59) [[Tulsi Gabbard]] and billionaire activist [[Tom Steyer]] failed to qualify for the September 2019 [[Democratic Party|Democratic]] debate, with Gabbard needing two more qualifying polls and [[Tom Steyer|Steyer]] needing one. (01:21:04) [[Democratic Party|Democratic]] candidates [[Kirsten Gillibrand]], [[John Hickenlooper]], [[Jay Inslee]], [[Seth Moulton]], and [[Eric Swalwell]] dropped out of the 2020 presidential race by late August 2019. (01:22:28) [[Joe Biden]] maintained a double-digit lead in most national and state polls for the [[Democratic Party|Democratic]] nomination through August 2019, despite attacks from rivals and personal scandals. (01:25:58) [[Elizabeth Warren]] was rising in the polls as the main competitor to [[Joe Biden]] for the [[Democratic Party|Democratic]] nomination by late August 2019, while [[Kamala Harris]]'s support was fading and [[Peter Buttigieg|Pete Buttigieg]] had failed to surge. (01:26:37) [[Nicholas J. Fuentes]] predicted that if [[Joe Biden]] won the [[Democratic Party|Democratic]] nomination, the contest for his running mate would likely be between [[Kamala Harris]] and [[Elizabeth Warren]]. (01:29:12) [[Donald Trump]] was co-opted by the deep state within two years of his presidency, according to [[Nicholas J. Fuentes]], transforming from an unconventional outsider into a figure virtually indistinguishable from establishment [[Republican Party|Republicans]] like [[Mitt Romney]], [[Ted Cruz]], and Marco Rubio. (01:31:14) [[Barack Obama]]'s presidency failed to end the forever wars or stop deficit spending, despite his anti-establishment "hope and change" rhetoric, paralleling [[Donald Trump]]'s experience according to [[Nicholas J. Fuentes]]. (01:33:04) [[Jeffrey Epstein]] was about to give up information on the [[United Kingdom|British]] Royal Family, the [[Israel|Israeli government]], [[Los Angeles|Hollywood]] celebrities, and [[Bill Clinton]] before he was murdered in jail, according to [[Nicholas J. Fuentes]]. (01:34:36) [[Nicholas J. Fuentes]] argued that the powers that be killed [[Jeffrey Epstein]] in a transparent manner to send a message of intimidation and demonstrate their capability to silence anyone, even with public knowledge. (01:39:27) The media's ability to distract the public from major events like the [[Jeffrey Epstein]] case or the [[Las Vegas]] mass shooting demonstrates a population that lacks the agency to achieve reform, according to [[Nicholas J. Fuentes]]. (01:48:55) [[Nicholas J. Fuentes]] argued that the only enduring "white pill" or source of hope is the belief that "[[Jesus Christ|Jesus]] is [[Martin Luther King Jr.|King]]," transcending the temporal power of figures like [[Jeffrey Epstein]].
 
 ### AF 2019-07-30 0430
 (00:21:00) [[Nicholas J. Fuentes]] concluded that on major issues like immigration and foreign policy, there was little practical difference between [[Democratic Party|Democrats]] like [[Elizabeth Warren]] and [[Republican Party|Republicans]] like Marco Rubio, calling it a "globalist mono party."
@@ -514,7 +514,7 @@
 (01:19:39) [[Nicholas J. Fuentes]] stated that the main accomplishments of [[Donald Trump]]'s first two years with a [[Republican Party|Republican]] [[Congress]] were a corporate tax cut and eliminating the individual mandate, policies he argued would have also occurred under Presidents Marco Rubio or [[Ted Cruz]].
 
 ### AF 2019-06-18 0409
-(02:20:32) [[Nicholas J. Fuentes]] noted that [[Donald Trump]] praised Marco Rubio and [[Lindsey Graham]] during his rally, which he considered evidence of [[Donald Trump|the president's]] alignment with neoconservative figures.
+(02:20:32) [[Nicholas J. Fuentes]] noted that [[Donald Trump]] praised Marco Rubio and [[Lindsey Graham]] during his rally, which he considered evidence of [[the president's]] alignment with neoconservative figures.
 
 ### AF 2019-06-13 0406
 (25:33:00) [[Ted Cruz]], Marco Rubio, and [[Hillary Clinton]] were described by [[Nicholas J. Fuentes]] as "totally neocons" in their foreign policy approaches.
@@ -526,7 +526,7 @@
 (01:13:22) Politicians like Marco Rubio and pundits like [[Ben Shapiro]] were criticized for being more concerned with defending [[Israel]]'s sovereignty than addressing [[United States|U.S]]. border security.
 
 ### AF 2019-04-15 0366
-(00:30:29) [[Nicholas J. Fuentes]] recalled that mainstream right-wing figures like [[Nikki Haley]] and Marco Rubio had characterized Confederate monuments as racist and deserving of removal during the [[City of Charlottesville|Charlottesville]] controversy.
+(00:30:29) [[Nicholas J. Fuentes]] recalled that mainstream right-wing figures like [[Nikki Haley]] and Marco Rubio had characterized Confederate monuments as racist and deserving of removal during the [[Charlottesville]] controversy.
 
 ### AF 2019-03-21 0352
 (00:36:36) [[Nicholas J. Fuentes]] argued that if any other [[Republican Party|Republican]] like [[Ted Cruz]], Marco Rubio, or [[George W. Bush|Jeb Bush]] had been elected, policy outcomes would have been largely similar, with the possible exception of diplomatic engagement with [[North Korea]].
@@ -559,13 +559,13 @@
 (01:15:40) Marco Rubio compared [[Ilhan Omar]]'s tweets about money and political influence to the anti-Semitic conspiracy theories in the "Protocols of the Elders of Zion."
 
 ### AF 2019-02-11 0329
-(01:28:40) [[Nicholas J. Fuentes]] stated that two-thirds of the [[United States Capitol|U.S. Congress]] attends the annual [[AIPAC]] conference in [[Washington D.C.|Washington, D.C.]], with speakers including [[Nancy Pelosi]], [[Chuck Schumer]], [[Mitch McConnell]], and Marco Rubio.
+(01:28:40) [[Nicholas J. Fuentes]] stated that two-thirds of the [[U.S. Congress]] attends the annual [[AIPAC]] conference in [[Washington D.C.|Washington, D.C.]], with speakers including [[Nancy Pelosi]], [[Chuck Schumer]], [[Mitch McConnell]], and Marco Rubio.
 
 ### AF 2019-01-31 0322
 (09:21:30) Marco Rubio voted for the [[Senate]] resolution against troop withdrawals, arguing it undermined pillars of [[United States|U.S]]. foreign strategy by opposing a "precipitous withdrawal" from [[Syria]] and [[Afghanistan]].
 
 ### AF 2019-01-28 0319
-(00:44:20) [[Nicholas J. Fuentes]] stated that while achievements like tax cuts and moving the [[United States Embassy in Jerusalem|U.S. Embassy]] to [[City of Jerusalem|Jerusalem]] could have been done by a generic [[Republican Party|Republican]] president like [[Ted Cruz]] or Marco Rubio, the core "[[United States|America]] First" promises on issues like immigration remained unfulfilled.
+(00:44:20) [[Nicholas J. Fuentes]] stated that while achievements like tax cuts and moving the [[United States Embassy in Jerusalem|U.S. Embassy]] to [[Jerusalem]] could have been done by a generic [[Republican Party|Republican]] president like [[Ted Cruz]] or Marco Rubio, the core "[[United States|America]] First" promises on issues like immigration remained unfulfilled.
 
 ### AF 2019-01-25 0318
 (01:00:20) [[Nicholas J. Fuentes]] claimed that [[Donald Trump]]'s ideology aligns closely with that of [[Tucker Carlson]], making him the best available political option despite setbacks, as alternatives like [[Mike Pence]], [[George W. Bush|Jeb Bush]], Marco Rubio, or [[Ted Cruz]] would be worse.
@@ -644,3 +644,180 @@
 
 ### AF 2017-08-28 0003
 (02:44:76) [[Nicholas J. Fuentes]] alleged that [[Benny Policek]] was a [[Chabad|Hasidic]] [[person]] [[who]] had worked with the Marco Rubio campaign and was implicated, along with [[Rick Wilson]] and several individuals named Goldstein, in operating [[Reagan Battalion]].
+
+### 2026-04-09 IRAN WAR DAY 40 TRUMP SURRENDERS, CEASEFIRE COLLAPSES  America First Ep. 1670
+(02:33:25) Pro-[[Israel]] figures from [[State of Florida|Florida]], including [[Susie Wiles]], Marco Rubio, [[Michael Waltz|Mike Waltz]], and [[Pam Bondi]], are closely associated with [[Donald Trump]].
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(02:43:03) [[Nicholas J. Fuentes]] emphasized the importance of rejecting "not good enough" policies, such as those from [[Miriam Adelson]] and Marco Rubio, war with [[Iran]], and stapling green cards to diplomas, prioritizing the long-term vision of 2036 or 2040.
+
+### 2026-04-01 IRAN WAR DAY 32 Trump To Announce SURRENDER IMMINENTLY  America First Ep. 1666
+(03:23:57) [[Nicholas J. Fuentes]] cited Marco Rubio as saying the conflict may end without liberating the [[Strait of Hormuz]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:23:00) Marco Rubio, speaking to [[Al Jazeera]], said that after the current military campaign, the issue of the Strait of Hormuz will be resolved by a coalition of nations or directly by [[Iran]].
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(03:25:53) Marco Rubio said that [[Israel]] was planning yet another preemptive attack on [[Iran]], and if they attacked their missiles, those missiles would be used against [[United States|U.S]]. positions, forcing the [[United States|U.S]]. to go in.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:48:39) Marco Rubio told [[United States|US]] allies at the [[Group of Seven|G7]] summit in [[Europe]] that the [[United States]] would be at war with [[Iran]] for two to four more weeks.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:33) [[The Israelis]] were said to wonder if [[JD Vance]] was in their pocket, and saw Marco Rubio as the safe option.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:08:53) [[The Israelis]] and Zionists were said to be moving their support to Marco Rubio to replace [[[[JD Vance]] in the administration.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:16:51) Marco Rubio, as [[secretary of state]], was predicted not to serve the full four years, but would be credited for the "Southern Spear" operation, the takeover in [[Venezuela]], and the forthcoming operation in [[Cuba]], not the debacle in the [[Middle East]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:17:14) Marco Rubio was identified as the new favorite of the [[Israel|Israelis]] and pro-[[Israel]] [[Jews]] because of [[Tucker Carlson]]'s general anti-Semitism and his alliance with [[Nicholas J. Fuentes]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:19:24) [[Jews|Jewish]] money had quietly been moving to Marco Rubio since late October.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:19:45) At a [[White House]] meeting, 25 [[The Wall Street Journal|Wall Street]] donors raised their hands to indicate their support for Marco Rubio.
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:19:51) [[World Jewry]] was described as moving against [[JD Vance]] and in favor of Marco Rubio, and the [[Iran|Iranian]] war was said to be the event that would bury [[JD Vance|Vance]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:27:16) [[Nicholas J. Fuentes]] argued that Marco Rubio was distancing himself from the war to position himself for the 2028 presidential race, noting that Rubio’s statement that “[[Israel]] forced our hand” was an attempt to pass responsibility.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:28:10) Twenty-five [[The Wall Street Journal|Wall Street]] donors told [[Donald Trump]] in a closed-door meeting at the [[White House]] a week prior that they wanted Marco Rubio and not [[JD Vance]] for the 2028 nomination.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:28:40) [[Nicholas J. Fuentes]] argued that Marco Rubio had a “golden parachute” because he would be associated with successes in [[Venezuela]], [[Cuba]], and [[Nicaragua]], while [[JD Vance]] would be left to burn politically, associated with the war in [[Iran]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:43:37) [[Nicholas J. Fuentes]] stated that [[The Wall Street Journal|Wall Street]] donors want Marco Rubio to be the [[Republican Party|Republican]] nominee in 2028, choosing him over [[JD Vance]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:47:15) [[Nicholas J. Fuentes]] described a proxy war within the [[White House]] between "organized [[Jews|Jewry]]" behind Marco Rubio and the team of [[JD Vance]], [[who]] are trying to salvage his candidacy.
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:44:12) [[Nicholas J. Fuentes]] said "I told you so," claiming he warned that [[Tulsi Gabbard]] was not on their side, along with [[JD Vance]], [[Robert F. Kennedy Jr.|RFK Jr.]], [[Pete Hegseth]], and Marco Rubio, [[who]] he said all "suck."
+
+### 2026-03-19 IRAN WAR DAY 19 Israel Strikes IRANIAN OIL, Iran RETALIATES  America First Ep. 1660
+(02:45:11) [[Nicholas J. Fuentes]] characterized Marco Rubio as a "puppet of the Adelsons."
+
+### 2026-03-12 IRAN WAR DAY 12 Strait of Hormuz CRISIS, NO END IN SIGHT  America First Ep. 1655
+(16:03:85) [[Nicholas J. Fuentes]] stated that [[Condoleezza Rice]], [[Chris LaCivita]], and [[Jared Kushner]] are back in [[the White House]], and Marco Rubio is the [[secretary of state]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:24:45.460) [[Nicholas J. Fuentes]] described Marco Rubio as someone [[who]] "skin-suited" the Tea Party movement by running against establishment [[Republican Party|Republican]] [[Charlie Crist]] in the 2012 primary, and then immediately betraying them.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:25:50.160) [[Nicholas J. Fuentes]] stated that Marco Rubio's 2016 campaign slogan was "New [[United States|American]] Century," and that he later became a "[[national conservative]]" and is now [[U.S. Department of State|Secretary of State]].
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:25:57.700) [[Nicholas J. Fuentes]] claimed that Marco Rubio is increasingly likely to be the [[Republican Party|Republican]] nominee in 2028.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:44:08.760) [[Nicholas J. Fuentes]] stated that the 2028 [[Republican Party|Republican]] nominee will be either [[JD Vance]] or Marco Rubio, [[who]] he described as a "New [[United States|American]] Century" and "Mary Madelson's puppet."
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:57:12.000) [[Nicholas J. Fuentes]] reported that Marco Rubio has articulated a more limited set of goals for the war in [[Iran]], including setting back nuclear and missile programs.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(03:08:40) [[Nicholas J. Fuentes]] reported that Marco Rubio said [[Israel]] was going to attack [[Iran]] anyway, so the [[United States]] joined them, but [[Donald Trump]] later said the [[United States]] was going to attack and had to get [[Israel]] in on it.
+
+### 2026-03-06 IRAN WAR DAY 6 CENTCOM Prepares For 100 DAY WAR  America First Ep. 1652
+(02:40:36:680) [[Nicholas J. Fuentes]] argued that everyone [[who]] has been a part of the [[Donald Trump|Trump]] administration, such as [[JD Vance]], Marco Rubio, [[Pete Hegseth]], and [[Kristi Noem]], is disqualified from running for [[president]] in 2028.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:55:34:57) [[Nicholas J. Fuentes]] called [[Pam Bondi]], [[Kash Patel]], [[Kristi Noem]], [[Pete Hegseth]], and Marco Rubio "puppets of [[Israel]]."
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(02:57:01:41) [[Nicholas J. Fuentes]] stated he will vote for anyone [[who]] opposes [[Israel]], specifically ruling out [[JD Vance]] and Marco Rubio.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:08:56:96) [[Nicholas J. Fuentes]] said he wants the [[Donald Trump|Trump]] administration to fail and for [[JD Vance]] and Marco Rubio to "go down with the ship" so they cannot run in 2028.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:28:44:85) Marco Rubio is a [[U.S. Department of State|Secretary of State]] from [[State of Florida|Florida]] whose benefactors are the [[Adelson family]].
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:30:43:46) [[Nicholas J. Fuentes]] characterized the [[Donald Trump|Trump]] administration as "the new [[George W. Bush]]" and "the new Neocons," including [[Pete Hegseth]], Marco Rubio, and others.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:48:17) [[Nicholas J. Fuentes]] said he will not vote for [[JD Vance]] or Marco Rubio because they "brought [[us]] this."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:41:33) Marco Rubio, serving as [[U.S. Department of State|Secretary of State]], informed the press that the [[United States]] went to war with [[Iran]] because [[Israel]] was preparing to strike [[Iran]] regardless of [[United States|American]] intervention.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(01:41:59) Marco Rubio stated that the decision for the [[United States]] to join the war was made because if [[Israel]] struck [[Iran]] without the [[United States]], [[Iran]] would retaliate against [[United States|American]] forces regardless.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:07:52) Marco Rubio stated that [[Israel]] was planning an attack on [[Iran]] and that [[Iran]] would retaliate against [[United States|US]] interests, so [[United States|US]] forces struck preemptively.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:08:52) Marco Rubio told reporters that the [[United States]] knew there would be an [[Israel|Israeli]] action, which would precipitate an attack against [[United States|American]] forces.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:01:37) [[Nicholas J. Fuentes]] stated that Marco Rubio and [[JD Vance]] are pushing for the war and that they "killed [[United States|Americans]] for [[Israel]]."
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:05:04) [[Nicholas J. Fuentes]] said he is off the [[Donald Trump|Trump]] train and will not vote in 2026, and that he would vote for a [[Democratic Party|Democrat]] in 2028 if Marco Rubio or [[JD Vance]] are on the ticket.
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:09:07) [[Nicholas J. Fuentes]] stated that he will "play both sides" and that [[Donald Trump]], [[JD Vance]], and Marco Rubio are "fuck[ing] these people" with a war in [[Iran]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:10:33) [[Nicholas J. Fuentes]] stated that he got on board with [[Donald Trump]] when [[Donald Trump|Trump]] said Marco Rubio is a puppet of the [[American Israel Public Affairs Committee|AIPAC]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(03:11:04) [[Nicholas J. Fuentes]] said [[Donald Trump]], [[JD Vance]], and Marco Rubio betrayed him by starting a war with [[Iran]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:20:57) [[Nicholas J. Fuentes]] reported that two other [[Donald Trump|Trump]] administration officials, Marco Rubio and [[JD Vance]], had given statements complicating the diplomatic situation with [[Iran]].
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:21:04) [[Nicholas J. Fuentes]] reported that [[U.S. Department of State|Secretary of State]] Marco Rubio said it would be a "big problem" if [[Iran]] is unwilling to discuss its ballistic missiles, a move [[Nicholas J. Fuentes]] said would scuttle diplomacy because [[Iran]] has stated its ballistic missile program is a non-starter for negotiations.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(16:59:53) [[Nicholas J. Fuentes]] reported that [[U.S. Department of State|Secretary of State]] Marco Rubio warned that a failure by [[Iran]] to negotiate its ballistic missile program would be a "big problem," a comment that contradicted the framework of the talks and could scuttle them.
+
+### 2026-02-26 TRUMP CRUSHES SOTU Democrats ANNIHILATED By TRUMP  America First Ep. 1647
+(17:00:28) [[Nicholas J. Fuentes]] suggested that Marco Rubio's and [[JD Vance]]'s statements might be a way for the [[Donald Trump|Trump]] administration to "finesse its own red line" and create an off-ramp by asking [[Iran]] to promise not to pursue an ICBM or a nuclear bomb, instead of demanding zero enrichment.
+
+### 2026-02-24 TUCKER EXPOSES HUCKABEE Israel Ambassador CONDEMNED By Middle East  America First Ep. 1645
+(24:41:22:00) [[Nicholas J. Fuentes]] asked what the point of [[Donald Trump|MAGA]] was if it led to the same foreign wars as [[George W. Bush|Jeb Bush]] or Marco Rubio.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:37:02) [[Donald Trump]], Marco Rubio, and [[Steve Wittkoff|Steve Witkoff]] told [[Iran]] that war can be avoided if they give up nuclear enrichment, forfeit their stockpile of enriched uranium, and give up their ballistic missile program.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(02:39:10) The press secretary, spokesman for the [[U.S. Department of State|State Department]], Marco Rubio, the [[Vice Media|Vice]] [[White House|President]], and [[Donald Trump]] all stated that if [[Iran]] does not come to their position, the [[United States]] will go to war.
+
+### 2026-02-19 IRAN WAR WATCH US Assembles Largest Force Since Iraq War  America First Ep. 1643
+(03:55:57) Marco Rubio is preparing to visit [[Israel]] at the end of the month.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:16:39) [[Nicholas J. Fuentes]] called for the [[Republican Party|GOP]] to be fired and the "[[house]]" to be burned down to send a message that [[JD Vance]] and Marco Rubio will not be tolerated in 2028.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:44:02) Marco Rubio said expectations for a deal with [[Iran]] were not high.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:28:34) Marco Rubio, [[who]] receives patronage from [[Miriam Adelson]] and [[Howard Lutnick]], is on the board of the [[Development Finance Corporation]].
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(01:18:43) [[Nicholas J. Fuentes]] stated that [[Iran]] had not changed its position and refused to negotiate on missiles, proxies, or stop enriching uranium, while Marco Rubio insisted the [[United States|US]] would still try to negotiate on those points.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(03:31:02) [[Lindsey Graham]] and Marco Rubio were members of the "Gang of Eight" that proposed amnesty for illegal immigrants.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(17:54:000) [[Nicholas J. Fuentes]] reported that Marco Rubio, the [[U.S. Department of State|Secretary of State]], is preparing a $700 billion offer to purchase [[Country of Greenland|Greenland]] from [[Denmark]].
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:15:20) [[The New York Times]] reported that [[Donald Trump]] told [[Iran|Iranian]] protesters that "help is on the way," and that [[JD Vance]], Marco Rubio, and other top advisors presented him with options for action ranging from diplomacy to military strikes.
+
+### 2026-01-13 VENEZUELAN WAR Trump KIDNAPS Maduro, SEIZES Oil  America First Ep. 1619
+(03:49:13) Marco Rubio is the [[U.S. Department of State|Secretary of State]], [[John Ratcliffe|Ratcliffe]] is the [[Central Intelligence Agency|CIA]] director, and [[Michael Waltz|Waltz]] is the [[NSA]].

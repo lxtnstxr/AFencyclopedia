@@ -33,31 +33,31 @@
 (02:18:08) [[Donald Trump]] congratulated Ronna McDaniel on her re-election as [[Republican Party|Republican National Committee]] chair and posted on Truth Social that [[Mike Pence]] is a "good man."
 
 ### AF 2023-01-28 1114
-(02:20:98) [[Donald Trump]] formed an alliance with establishment [[Republican Party]] figures like [[Mike Johnson|Kevin McCarthy]] and Ronna McDaniel following the 2020 election.
+(02:20:98) [[Donald Trump]] formed an alliance with establishment [[Republican Party]] figures like [[Kevin McCarthy]] and Ronna McDaniel following the 2020 election.
 
 ### AF 2023-01-28 1114
-(44:50:96) [[Nicholas J. Fuentes]] condemns the [[Republican Party|Republican National Committee]], Ronna McDaniel, [[Mike Johnson|Kevin McCarthy]], and the [[Republican Party]] for supporting abortion, gay marriage, mass migration, war, and big business.
+(44:50:96) [[Nicholas J. Fuentes]] condemns the [[Republican Party|Republican National Committee]], Ronna McDaniel, [[Kevin McCarthy]], and the [[Republican Party]] for supporting abortion, gay marriage, mass migration, war, and big business.
 
 ### AF 2023-01-14 1107
-(00:33:16) [[Nicholas J. Fuentes]] blamed the failed "red wave" in the 2022 midterms on the leadership of Ronna McDaniel, [[Mitch McConnell]], and [[Mike Johnson|Kevin McCarthy]], citing their funding of primary opponents, inadequate campaign spending, and failure to address election fraud.
+(00:33:16) [[Nicholas J. Fuentes]] blamed the failed "red wave" in the 2022 midterms on the leadership of Ronna McDaniel, [[Mitch McConnell]], and [[Kevin McCarthy]], citing their funding of primary opponents, inadequate campaign spending, and failure to address election fraud.
 
 ### AF 2023-01-09 1104
 (01:02:52) [[Nicholas J. Fuentes]] identified [[Joel Pollak]] and [[Alex Marlow]] as being among those who run [[Breitbart News|Breitbart]], which he characterized as the "flying monkeys" of Ronna McDaniel and the [[Republican Party]] establishment.
 
 ### AF 2022-03-08 0953
-(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], Ronna McDaniel, and [[Mitt Romney]].
+(00:39:23) [[Nicholas J. Fuentes]] stated that [[Marjorie Taylor Greene]] attended [[AFPAC|AFPAC 3]] and did not disavow the event despite pressure from [[Warner Bros. Discovery|CNN]], [[Jake Tapper]], the [[Daily Beast]], [[The Huffington Post|Huffington Post]], the [[Anti-Defamation League|ADL]], the [[Southern Poverty Law Center|SPLC]], [[Kevin McCarthy]], [[Mitch McConnell]], [[Liz Cheney]], Ronna McDaniel, and [[Mitt Romney]].
 
 ### AF 2022-03-01 0952
-(02:45:53) [[Nicholas J. Fuentes]] argued that the [[Republican Party]]'s base and platform are behind figures like [[Marjorie Taylor Greene]], [[Paul Gosar]], [[Louie Gohmert]], and [[Donald Trump]], and the [[America First]] agenda, rather than behind [[Mike Johnson|Kevin McCarthy]], [[Mitch McConnell]], Ronna McDaniel, [[Mitt Romney]], or [[Liz Cheney]].
+(02:45:53) [[Nicholas J. Fuentes]] argued that the [[Republican Party]]'s base and platform are behind figures like [[Marjorie Taylor Greene]], [[Paul Gosar]], [[Louie Gohmert]], and [[Donald Trump]], and the [[America First]] agenda, rather than behind [[Kevin McCarthy]], [[Mitch McConnell]], Ronna McDaniel, [[Mitt Romney]], or [[Liz Cheney]].
 
 ### AF 2021-12-13 0921
-(01:04:20) [[Nicholas J. Fuentes]] stated that [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], [[Matt Schlapp]], Ronna McDaniel, [[Dan Crenshaw]], [[Ben Shapiro]], [[Brett Kavanaugh]], and [[Amy Coney Barrett]] are not allies of white [[Christianity|Christian]] [[United States|Americans]].
+(01:04:20) [[Nicholas J. Fuentes]] stated that [[Mitch McConnell]], [[Kevin McCarthy]], [[Matt Schlapp]], Ronna McDaniel, [[Dan Crenshaw]], [[Ben Shapiro]], [[Brett Kavanaugh]], and [[Amy Coney Barrett]] are not allies of white [[Christianity|Christian]] [[United States|Americans]].
 
 ### AF 2021-05-10 0808
-(00:50:00) [[Nicholas J. Fuentes]] argued that the [[Republican Party]], through figures like Ronna McDaniel, [[Mike Johnson|Kevin McCarthy]], and donors like the late [[Sheldon Adelson]], had retaken control of the party using a "Trojan horse" strategy of dressing up establishment policies with MAGA branding.
+(00:50:00) [[Nicholas J. Fuentes]] argued that the [[Republican Party]], through figures like Ronna McDaniel, [[Kevin McCarthy]], and donors like the late [[Sheldon Adelson]], had retaken control of the party using a "Trojan horse" strategy of dressing up establishment policies with MAGA branding.
 
 ### AF 2021-02-15 0761
-(57:06:56) [[Nicholas J. Fuentes]] framed the battle for the [[Republican Party]]'s future as between the establishment ([[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], Ronna McDaniel, [[Nikki Haley]]) and the [[United States|America]] First insurgency ([[Marjorie Taylor Greene]], [[Paul Gosar]], [[Donald Trump]]).
+(57:06:56) [[Nicholas J. Fuentes]] framed the battle for the [[Republican Party]]'s future as between the establishment ([[Mitch McConnell]], [[Kevin McCarthy]], Ronna McDaniel, [[Nikki Haley]]) and the [[United States|America]] First insurgency ([[Marjorie Taylor Greene]], [[Paul Gosar]], [[Donald Trump]]).
 
 ### AF 2020-12-01 0726
 (02:20:11) [[Nicholas J. Fuentes]] listed [[Brian Kemp]], [[Doug Ducey]], [[Mitch McConnell]], Ronna McDaniel, [[Marco Rubio]], [[Nikki Haley]], and [[Bill Barr]] as [[Republican Party|Republicans]] [[who]] were complicit in an "illegitimate election coup" against [[Donald Trump]].

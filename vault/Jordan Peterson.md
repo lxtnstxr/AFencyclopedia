@@ -343,10 +343,10 @@
 (01:01:14) [[Nicholas J. Fuentes]] stated he watched content from [[Theodore Robert Beale|Vox Day]] and Jordan Peterson but aimed to fill a different intellectual niche with his own show.
 
 ### AF 2017-09-21 0015
-(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[City of Berkeley|Berkeley]] event that included [[Steven Crowder|Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[Katie Hopkins]], [[Lucian Wintrich]], [[Mike Cernovich]], and Jordan Peterson.
+(00:42:57) [[Milo Yiannopoulos]] released a list of speakers for his [[Berkeley]] event that included [[Steve Bannon]], [[Ann Coulter]], [[Charles Murray]], [[Heather Mac Donald]], [[Katie Hopkins]], [[Lucian Wintrich]], [[Mike Cernovich]], and Jordan Peterson.
 
 ### AF 2017-09-21 0015
-(01:32:23) [[Milo Yiannopoulos]]'s failed [[City of Berkeley|Berkeley]] event placed [[Ann Coulter]], [[Steven Crowder|Steve Bannon]], Jordan Peterson, and [[Lucian Wintrich]] in a bad position by listing them as speakers without their confirmation, generating negative press for them.
+(01:32:23) [[Milo Yiannopoulos]]'s failed [[Berkeley]] event placed [[Ann Coulter]], [[Steve Bannon]], Jordan Peterson, and [[Lucian Wintrich]] in a bad position by listing them as speakers without their confirmation, generating negative press for them.
 
 ### AF 2017-09-18 0012
 (00:48:02) Jordan Peterson popularized discussions about the death of God and nihilism, but [[Nicholas J. Fuentes]] stated he does not believe Peterson has the right answers.

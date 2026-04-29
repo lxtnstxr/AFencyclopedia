@@ -118,3 +118,18 @@
 
 ### AF 2017-10-09 0027
 (18:45:35) [[Christopher Columbus]] was a Genoan explorer sponsored by the Crown of [[Castile]] to find new trade routes to Asia.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:27.800) [[Israel]] is now viewed as the cause of global economic distress because the Strait closure affects not only the [[United States]] but also [[Europe]] (facing jet fuel shortages) and Asia (facing diesel shortages).
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(04:35:53.090) Many countries, including those in [[Europe]], Asia, and [[Islam|Muslim]] nations, are pressuring [[Israel]] to halt its bombing in [[Lebanon]] so that [[Iran]] will allow oil to flow through the Strait.
+
+### 2026-03-31 IRAN WAR DAY 31 Trump Signals END OF WAR IMMINENT  America First Ep. 1665
+(02:26:21) The economic pain from the closure of the Strait of Hormuz will be felt first by Asia ([[India]], [[China]], [[South Korea]], [[Taiwan]], [[State of Japan|Japan]], [[Malaysia]], [[Philippines]]) and then by [[Europe]].
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:07:16) Multiple [[Terminal High Altitude Area Defense|THAAD]] systems and other missile batteries were moving into the [[Middle East]] from Asia.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:07:43) [[Nicholas J. Fuentes]] argued that the [[United States]] is spread thin in the [[Middle East]], with systems also deployed in Asia and [[Europe]].

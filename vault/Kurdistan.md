@@ -76,3 +76,96 @@
 
 ### AF 2017-09-27 0019
 (02:41:00) [[Nicholas J. Fuentes]] stated that ethnostates like Kurdistan, [[Israel]], [[China]], and [[Iran]] were accepted, while the desire for white-majority countries in [[Europe]] and [[United States|America]] was condemned as racist by a pervasive "anti-white cabal."
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:18:43) [[Nicholas J. Fuentes]] recalled that the [[United States]] supplied [[Iran|Iranian]] protesters with weapons through the Kurds, which he had previously identified as a [[Central Intelligence Agency|CIA]], [[Israel Defense Forces|Mossad]], or [[U.S. Department of Defense|Department of Defense]] invasion by proxy.
+
+### 2026-04-07 IRAN WAR DAY 38 Trump Threatens TO DESTROY IRAN... AGAIN  America First Ep. 1668
+(03:19:34) [[Nicholas J. Fuentes]] stated that the war in [[Iran]] is also an [[Iraq]] war due to the involvement of the Kurds in northern [[Iraq]] and western [[Iran]], and the [[Shiite|Shiites]] from the PMF in the rest of [[Iraq]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(03:58:55) If the [[United States]] lost the island operation and suffered 1,000 casualties, the response would be to escalate further, potentially involving a large coalition war with the [[United Kingdom]], [[France]], Kurds, [[Saudi Arabia]], and the [[United Arab Emirates]].
+
+### 2026-03-24 IRAN WAR DAY 24 Trump TACOs On Iran Ultimatum, FAKEOUT  America First Ep. 1662
+(03:37:28) [[Nicholas J. Fuentes]] claimed the [[United States]] is on the ground in [[Iran]] building an anti-government coalition, preparing the Kurds and other secessionist elements to take power after the [[Iran|Islamic Revolutionary Guard Corps]] is weakened.
+
+### 2026-03-11 IRAN WAR DAY 11 US CONDEMNS ISRAEL Over Oil Attack  America First Ep. 1654
+(01:52:29.000) [[Nicholas J. Fuentes]] stated that the [[Israel|Israelis]] are "pressing for escalation" and talking to the Kurds, while the [[United States]] is looking for an exit.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:36:26) [[Nicholas J. Fuentes]] said that a third option is to use a regional tribal force like the Kurds.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:36:32) [[Nicholas J. Fuentes]] reported that the [[Donald Trump|Trump administration]] spoke with two [[Iraq|Iraqi]] Kurdish groups in [[Northern Iraq]] a week before the operation began, expecting them to cross into [[Iran]] as a ground force.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:36:50) [[Nicholas J. Fuentes]] argued that the Kurds are "not enough" to take over all of [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:16:27) [[Nicholas J. Fuentes]] identified the Kurds as an "already on the ground force" that the [[United States]] might use.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:16:46) [[Nicholas J. Fuentes]] reported that [[Donald Trump]] and [[Benjamin Netanyahu|Netanyahu]] spoke to Kurdish leaders a week before the war started about them being an invasion force.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:16:59) [[Nicholas J. Fuentes]] said that the idea was that [[Iraq|Iraqi]] Kurds, armed and supported with [[United States|US]] air power, would cross the border with [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:11) [[Nicholas J. Fuentes]] quoted an [[Axios]] report stating that [[Donald Trump]] spoke by phone with Kurdish leaders in [[Iraq]] on Sunday after the bombing campaign began.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:31) [[Nicholas J. Fuentes]] stated that [[Israel]] has had close security, military, and intelligence ties with the Kurds in [[Syria]], [[Iraq]], and [[Turkey]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:17:52) [[Nicholas J. Fuentes]] reported that six days before the war began, five dissident Kurdish groups sheltering in [[Iraq]] announced the formation of a coalition to fight [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:18:05) [[Nicholas J. Fuentes]] noted that [[United States|US]] policymakers believe [[Benjamin Netanyahu]] might have overestimated the number of Kurds [[who]] would take up arms against [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:18:28) [[Nicholas J. Fuentes]] stated that [[Iraq|Iraqi]] Kurdistan is effectively autonomous and that the Kurds are huge allies of [[Israel]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:18:43) [[Nicholas J. Fuentes]] described the Kurds as a destabilizing force and the largest ethnic group in the world without a [[country]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:19:00) [[Nicholas J. Fuentes]] said that [[Israel]] and to some extent the [[United States]] use the Kurds against various governments, treating diversity as a secret weapon.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:19:20) [[Nicholas J. Fuentes]] described the strategy as using the Kurds as an invasion force that would cross from [[Iraq]] into [[Iran]], liberating Kurds living there and creating a beachhead.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:20:41) [[Nicholas J. Fuentes]] said that for this plan to work, the Kurds need to be backed by a [[United States|US]] ground presence.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:21:13) [[Nicholas J. Fuentes]] argued that the Kurds do not have the numbers they need, as there are not as many Kurds as [[Persians]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:23:08) [[Nicholas J. Fuentes]] argued that if [[Iran]] does not surrender, a ground force, likely the Kurds, will have to go in, but that they are not enough.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:26:31) [[Nicholas J. Fuentes]] argued that the "protest" was a Kurdish invasion from [[Iraq]] into [[Iran]] that failed and was repelled.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:27:41) [[Nicholas J. Fuentes]] said that when the Kurdish invasion failed, it was laundered by the propaganda machine as a humanitarian disaster.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:28:04) [[Nicholas J. Fuentes]] noted that six days before the war began, all the Kurdish anti-[[Iran|Iranian]] groups got together, and he argued this was not a coincidence.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:28:44) [[Nicholas J. Fuentes]] said that the Kurds will likely be the "missing ingredient" for the plan B ground invasion, but that they cannot do it on their own, implying [[United States|US]] forces will join.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:30:56) [[Nicholas J. Fuentes]] said the last option involves an [[United States|American]]-backed hybrid force of Kurds and anti-government forces within [[Iran]] to swiftly bring down the government.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:35:43) [[Nicholas J. Fuentes]] said that the greatest allies of the "evil outside force" in [[Iran]] are women, students, liberals, and racial and ethnic minorities, specifically citing the Kurds.
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(02:35:54) [[Nicholas J. Fuentes]] referred to the Kurds as "an army of knuckle-dragging mudslimes" and described them as "the most primitive people in the [[Middle East]]."
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:04:50) [[Nicholas J. Fuentes]] speculated that [[Israel]] wants Kurdistan to become its own [[country]] and become [[Israel]]'s closest ally.
+
+### 2026-01-14 IRAN WAR IMMINENT Trump Vows To SAVE Iranian Protesters  America First Ep. 1620
+(02:10:11) [[Nicholas J. Fuentes]] pointed out that the worst protests in [[Iran]] are occurring in Kurdish-majority areas in the [[west]] of the [[country]], suggesting that the Kurds ethnically motivated aspirations for statehood are responsible for a disproportionate amount of the violence.

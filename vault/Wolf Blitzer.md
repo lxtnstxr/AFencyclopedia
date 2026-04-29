@@ -15,7 +15,7 @@
 (46:31:07) [[Warner Bros. Discovery|CNN]] leadership, including figures like [[Jeff Zucker]], [[Anderson Cooper]], Wolf Blitzer, and [[Jake Tapper]], are not [[Palestinian]].
 
 ### AF 2023-11-02 1242
-(01:31:34) [[MSNBC]] fired three commentators for being too pro-[[Gaza Strip|Palestine]] during the [[Gaza Strip|Gaza]] war coverage, and the only people on screen for a period were ethnic [[Jews]] like Wolf Blitzer and [[Jake Tapper]].
+(01:31:34) [[MSNBC]] fired three commentators for being too pro-[[Palestine]] during the [[Gaza Strip|Gaza]] war coverage, and the only people on screen for a period were ethnic [[Jews]] like Wolf Blitzer and [[Jake Tapper]].
 
 ### AF 2021-01-29 0751
 (04:37:40) [[Nicholas J. Fuentes]] pointed to [[Sheldon Adelson]] giving $100 million to [[Donald Trump]] and [[Jews|Jewish]] figures in media like [[Jeff Zucker]], Wolf Blitzer, and [[Jake Tapper]] as evidence of a collective reality about [[Jews|Jewish]] influence that society is forced to ignore or lie about.

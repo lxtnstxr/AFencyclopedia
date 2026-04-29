@@ -12,7 +12,7 @@
 (23:37:88) [[John Catanzara]], President of the Chicago Police Union, called on all officers to not report their vaccine status and to instead claim conscientious objector status.
 
 ### AF 2021-10-15 0894
-(25:15:86) The Chicago Police Union filed a labor grievance against the [[city]] of [[City of Chicago|Chicago]] and planned to pursue legal action to fight the vaccine mandate.
+(25:15:86) The Chicago Police Union filed a labor grievance against the [[city]] of [[Chicago]] and planned to pursue legal action to fight the vaccine mandate.
 
 ### AF 2021-10-15 0894
 (25:25:88) [[Mayor Lori Lightfoot]] responded to the Chicago Police Union's threat of litigation by stating, "He's threatening litigation. I say bring it."

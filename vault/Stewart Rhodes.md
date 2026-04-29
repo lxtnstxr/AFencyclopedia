@@ -13,3 +13,6 @@
 
 ### AF 2021-07-23 0846.1
 (58:12:00) Stewart Rhodes, founder of the [[Oath Keepers]], discussed storming the [[United States Capitol|Capitol]] prior to [[January 6th Attack|January 6th]] according to [[Federal Bureau of Investigation|FBI]] criminal complaints, yet remained unindicted for months afterward.
+
+### 2026-02-06 RETREAT FROM MINNEAPOLIS Trump Initiates FULL WITHDRAWAL From Minneapolis  America First Ep. 1635
+(04:05:15) [[Nicholas J. Fuentes]] described Stewart Rhodes as "insane," stating that every episode of his show promotes violence.

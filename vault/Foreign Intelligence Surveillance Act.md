@@ -49,7 +49,7 @@
 (00:14:11) In June 2016, [[Barack Obama]] applied for a FISA warrant to spy on the [[Donald Trump|Trump]] campaign, but the [[FISA court]] denied the request due to a lack of reasonable suspicion.
 
 ### AF 2017-12-01 0062
-(00:15:32) Using the FISA warrant, the [[Obama]] administration spied on campaign officials including [[Steven Crowder|Steve Bannon]], [[Paul Manafort]], and [[Michael Flynn]].
+(00:15:32) Using the FISA warrant, the [[Obama]] administration spied on campaign officials including [[Steve Bannon]], [[Paul Manafort]], and [[Michael Flynn]].
 
 ### AF 2017-12-01 0062
 (00:16:07) As of December 22, 2016, [[Michael Flynn]] was a private citizen, yet the [[Obama]] administration spied on him with a FISA warrant and subsequently unmasked his identity to the press.

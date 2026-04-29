@@ -15,7 +15,7 @@
 (00:45:38) J.F. Gariepy revealed he had discussed [[Donald Trump]]'s political approach with [[Mark Collett]] just prior to appearing on the show.
 
 ### AF 2018-06-22 0186
-(01:11:58) J.F. Gariepy characterized [[Donald Trump]] as a businessman [[who]] values his personal brand and is highly sensitive to negative press, which he believed explained [[Donald Trump|the president's]] reaction to the family separation controversy.
+(01:11:58) J.F. Gariepy characterized [[Donald Trump]] as a businessman [[who]] values his personal brand and is highly sensitive to negative press, which he believed explained [[the president's]] reaction to the family separation controversy.
 
 ### AF 2018-06-22 0186
 (01:17:34) J.F. Gariepy asserted that [[Warner Bros. Discovery|CNN]] published an article claiming [[Donald Trump]] had tied himself in knots on immigration within a week, a framing he disputed.

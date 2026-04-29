@@ -96,7 +96,7 @@
 (00:18:14) [[Nicholas J. Fuentes]] compared the government's targeting of him to its historical targeting of figures like [[Malcolm X]], [[RFK]], [[JFK]], and MLK.
 
 ### AF 2022-02-04 0942
-(02:12:06) [[Nicholas J. Fuentes]] stated that his grandfather was deployed as part of military forces to help quell riots in [[City of Chicago|Chicago]] following the assassination of Martin Luther King Jr..
+(02:12:06) [[Nicholas J. Fuentes]] stated that his grandfather was deployed as part of military forces to help quell riots in [[Chicago]] following the assassination of Martin Luther King Jr..
 
 ### AF 2022-02-04 0942
 (02:17:05) [[Nicholas J. Fuentes]] said he would consider doing a live reaction to a video about Martin Luther King Jr. by commentator [[John Doyle]], whom he likes.
@@ -186,7 +186,7 @@
 (00:31:45) [[Nicholas J. Fuentes]] argued that the removal of statues of figures like [[Robert E. Lee]], [[Thomas Jefferson]], and [[George Washington]] was part of a deliberate effort to redefine the [[United States]] with new "founding fathers" like Martin Luther King Jr., [[Rosa Parks]], and [[Malcolm X]].
 
 ### AF 2019-05-24 0394
-(00:17:56) [[E. Michael Jones]] cited Martin Luther King's 1966 march in [[City of Chicago|Chicago]]'s [[Marquette Park]] as an iconic moment where Lithuanians and [[Catholic Church|Catholics]] were redefined as "white" and thus as racists.
+(00:17:56) [[E. Michael Jones]] cited Martin Luther King's 1966 march in [[Chicago]]'s [[Marquette Park]] as an iconic moment where Lithuanians and [[Catholic Church|Catholics]] were redefined as "white" and thus as racists.
 
 ### AF 2019-05-24 0394
 (00:55:14) [[E. Michael Jones]] characterized Martin Luther King as being paid to promote integration, which led to a loss of [[black]] ethnic identity and the destruction of local [[black]] establishments in favor of a national one.
@@ -220,3 +220,6 @@
 
 ### AF 2017-10-06 0026
 (01:41:59) When asked if [[Malcolm X]] was better than Martin Luther King Jr., [[Nicholas J. Fuentes]] was tempted to say Malcolm [[Twitter|X]] because he was "basically honest," whereas King was a plagiarist, philanderer, and Marxist.
+
+### 2025-12-09 PIERS MORGAN DESTROYED LIBERAL BOOMER DESTROYED BY GENERATIONAL RUN  America First Ep. 1610
+(03:09:03:44) [[Nicholas J. Fuentes]] argued that in 1968, Martin Luther King Jr. was shot, race riots destroyed the cities, whites fled, and then immigrants were poured in.

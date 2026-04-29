@@ -30,7 +30,7 @@
 (00:05:23) Ian Fletcher argued that libertarian free trade ideology lacks a framework for prioritizing the good of the [[United States]] over global abstractions.
 
 ### AF 2018-10-17 0263
-(00:05:51) Ian Fletcher stated that libertarians were defending the right of the dictatorship in [[City of Beijing|Beijing]] to grow rich and arm itself at the expense of the [[United States]].
+(00:05:51) Ian Fletcher stated that libertarians were defending the right of the dictatorship in [[Beijing]] to grow rich and arm itself at the expense of the [[United States]].
 
 ### AF 2018-10-17 0263
 (00:07:27) Ian Fletcher argued that unilateral [[United States|U.S]]. free trade is ineffective when trading partners like [[China]] maintain systems of subsidies and market distortions.
@@ -93,7 +93,7 @@
 (00:29:41) Ian Fletcher identified fixing the overvalued [[United States|U.S]]. dollar as a critical unaddressed issue for [[Donald Trump|Trump]]'s trade policy, as it makes exports too expensive and imports too cheap.
 
 ### AF 2018-10-17 0263
-(00:30:15) Ian Fletcher revealed he has an indirect relationship with the [[Donald Trump|Trump]] administration and knows people [[who]] have spoken to [[Donald Trump|the president]].
+(00:30:15) Ian Fletcher revealed he has an indirect relationship with the [[Donald Trump|Trump]] administration and knows people [[who]] have spoken to [[the president]].
 
 ### AF 2018-10-17 0263
 (00:31:05) Ian Fletcher explained that the post-World War II system of fixed exchange rates was preferable to the current system of manipulated rates by trading partners like [[China]] and [[Germany]].

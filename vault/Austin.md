@@ -15,7 +15,7 @@
 (00:16:50) [[Nicholas J. Fuentes]] revealed he conducted the debate with [[Alex Jones]] from [[Dick Masterson]]'s studio after missing a flight to Austin, and thanked [[Dick Masterson]] for the use of his setup.
 
 ### AF 2022-10-20 1082
-(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[City of Chicago|Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], Austin, [[San Francisco Bay Area|San Francisco]], [[City of Miami|Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[City of Philadelphia|Philadelphia]], and [[City of Minneapolis|Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
+(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], Austin, [[San Francisco Bay Area|San Francisco]], [[Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], [[Philadelphia]], and [[Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
 
 ### AF 2022-04-21 0982
 (00:46:47) [[Nicholas J. Fuentes]] reported that [[China|Chinese]] Defense Minister [[Wei Fenghe]] told [[United States|US]] Defense Secretary [[Lloyd Austin]] that [[Taiwan]] is part of [[China]] and warned that mishandling the issue would damage Sino-[[United States|US]] relations, with Austin reiterating the [[United States|US]] commitment to the One [[China]] policy.

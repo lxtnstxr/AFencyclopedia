@@ -177,7 +177,7 @@
 (00:50:16) Ali Akbar expressed anger that moderate [[Republican Party|Republicans]], not conservative ones, had put [[blacks]] "in the back of the bus," while the Tea Party and [[Donald Trump|Trump]] coalition had attracted more [[black]] success and approval.
 
 ### AF 2018-07-26 0208
-(00:50:46) Ali Akbar argued that [[Hillary Clinton]] lost because she could not turn out the [[black]] vote in key cities like [[City of Philadelphia|Philadelphia]], [[[[Detroit]]
+(00:50:46) Ali Akbar argued that [[Hillary Clinton]] lost because she could not turn out the [[black]] vote in key cities like [[Philadelphia]], [[[[Detroit]]
 
 ### AF 2018-07-24 0206
 (00:35:00) [[Nicholas J. Fuentes]] scheduled interviews with [[Mr. Mediker]] for Wednesday, Ali Akbar for Thursday, and [[Mike Ma]] for Friday to discuss [[Mike Ma]]'s recent suspension from [[Twitter]] and the book *The Bronze Age Mindset*.
@@ -201,7 +201,7 @@
 (01:03:38) [[Nicholas J. Fuentes]] invited Ali Akbar to appear on his podcast for a two-hour discussion to debate issues like free speech for the alt-right and immigration from non-white countries, but Akbar declined.
 
 ### AF 2017-09-22 0016
-(00:04:32) [[Lucian Wintrich]], appearing on a livestream with Ali Akbar, argued that [[Milo Yiannopoulos]] had been bluffing about the viability of his [[Berkeley]] event, using the names of [[Steven Crowder|Steve Bannon]] and [[Ann Coulter]] to generate publicity without their confirmed participation.
+(00:04:32) [[Lucian Wintrich]], appearing on a livestream with Ali Akbar, argued that [[Milo Yiannopoulos]] had been bluffing about the viability of his [[Berkeley]] event, using the names of [[Steve Bannon]] and [[Ann Coulter]] to generate publicity without their confirmed participation.
 
 ### AF 2017-09-22 0016
 (00:07:55) Ali Akbar criticized [[Nicholas J. Fuentes]]'s podcast and his friend [[James Allsup|James Alsup]] during a livestream with [[Lucian Wintrich]], [[who]] defended [[Nicholas J. Fuentes]].

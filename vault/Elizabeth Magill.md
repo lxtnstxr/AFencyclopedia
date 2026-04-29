@@ -18,10 +18,10 @@
 (01:54:46) The pressure campaign successfully forced the resignations of [[University of Pennsylvania]] president Elizabeth Magill and [[Harvard University]] president [[Claudine Gay]].
 
 ### AF 2024-01-03 1271
-(00:59:23) Elizabeth Magill, [[Donald Trump|the president]] of [[University of Pennsylvania]], was forced to resign and was replaced by a [[Jewish]] chairman of the board.
+(00:59:23) Elizabeth Magill, [[the president]] of [[University of Pennsylvania]], was forced to resign and was replaced by a [[Jewish]] chairman of the board.
 
 ### AF 2024-01-03 1271
-(01:01:05) [[Sally Kornbluth]], [[Donald Trump|the president]] of [[Massachusetts Institute of Technology|MIT]], also faced calls for her resignation after the congressional hearing alongside [[Claudine Gay]] and Elizabeth Magill.
+(01:01:05) [[Sally Kornbluth]], [[the president]] of [[Massachusetts Institute of Technology|MIT]], also faced calls for her resignation after the congressional hearing alongside [[Claudine Gay]] and Elizabeth Magill.
 
 ### AF 2023-12-13 1262
 (55:30:80) [[Nicholas J. Fuentes]] argued that the firing of [[University of Pennsylvania]] president Liz Magill was a victory for pro-[[Israel]] forces that must not be repeated with [[Claudine Gay]] at [[Harvard University]].

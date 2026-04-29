@@ -12,16 +12,16 @@
 (14:27:60) [[Nicholas J. Fuentes]] mentioned that [[Paul Gosar]] and Dan Crenshaw engaged with [[Kari Lake]]'s tweet about the balloon, which he characterized as lame and unoriginal.
 
 ### AF 2023-01-14 1107
-(00:42:35) The rules package that secured [[Mike Johnson|Kevin McCarthy]]'s speakership passed the [[House]] by a vote of 220-213, with [[Republican Party|Republican]] [[Tony Gonzales]] of [[State of Texas|Texas]] voting against it and Dan Crenshaw not voting.
+(00:42:35) The rules package that secured [[Kevin McCarthy]]'s speakership passed the [[House]] by a vote of 220-213, with [[Republican Party|Republican]] [[Tony Gonzales]] of [[State of Texas|Texas]] voting against it and Dan Crenshaw not voting.
 
 ### AF 2022-07-20 1034
 (00:14:42) [[Alex Stein]]'s comedy frequently targets [[Alexandria Ocasio-Cortez]] and Dan Crenshaw.
 
 ### AF 2022-03-29 0968
-(00:02:48) [[Marjorie Taylor Greene]] spoke at the [[AFPAC]] conference approximately a month prior and faced criticism from figures including Dan Crenshaw, [[Liz Cheney]], [[Mike Johnson|Kevin McCarthy]], and [[Mitch McConnell]].
+(00:02:48) [[Marjorie Taylor Greene]] spoke at the [[AFPAC]] conference approximately a month prior and faced criticism from figures including Dan Crenshaw, [[Liz Cheney]], [[Kevin McCarthy]], and [[Mitch McConnell]].
 
 ### AF 2022-03-29 0968
-(00:22:44) Following [[Marjorie Taylor Greene]]'s [[AFPAC]] speech, media outlets including [[Microsoft National Broadcasting Company|MSNBC]], [[Warner Bros. Discovery|CNN]], the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]], as well as politicians like [[Mitch McCarthy]], [[Mitt Romney]], [[Liz Cheney]], Dan Crenshaw, and [[Adam Kinzinger]], condemned the event.
+(00:22:44) Following [[Marjorie Taylor Greene]]'s [[AFPAC]] speech, media outlets including [[MSNBC]], [[Warner Bros. Discovery|CNN]], the [[Anti-Defamation League|ADL]], and the [[Southern Poverty Law Center|SPLC]], as well as politicians like [[Mitch McCarthy]], [[Mitt Romney]], [[Liz Cheney]], Dan Crenshaw, and [[Adam Kinzinger]], condemned the event.
 
 ### AF 2022-03-29 0968
 (00:27:12) [[Nicholas J. Fuentes]] characterized [[JD Vance]]'s refusal to disavow [[Marjorie Taylor Greene]] as a major game-changer, contrasting it with the typical disavowals from figures like Dan Crenshaw and [[Joe Kent]].
@@ -30,7 +30,7 @@
 (00:20:29) [[Nicholas J. Fuentes]] played a clip of [[Michelle Malkin]] on [[Stu Peters]]' show where she praised "brave young men" for challenging "Zio-shill Dan Crenshaw" over his support for [[Israel]].
 
 ### AF 2021-12-13 0921
-(01:04:20) [[Nicholas J. Fuentes]] stated that [[Mitch McConnell]], [[Mike Johnson|Kevin McCarthy]], [[Matt Schlapp]], [[Ronna McDaniel]], Dan Crenshaw, [[Ben Shapiro]], [[Brett Kavanaugh]], and [[Amy Coney Barrett]] are not allies of white [[Christianity|Christian]] [[United States|Americans]].
+(01:04:20) [[Nicholas J. Fuentes]] stated that [[Mitch McConnell]], [[Kevin McCarthy]], [[Matt Schlapp]], [[Ronna McDaniel]], Dan Crenshaw, [[Ben Shapiro]], [[Brett Kavanaugh]], and [[Amy Coney Barrett]] are not allies of white [[Christianity|Christian]] [[United States|Americans]].
 
 ### AF 2021-09-25 0884
 (05:15:00) [[Republican Party|Republican]] representatives [[Matt Gaetz]], [[Madison Cawthorn]], and Dan Crenshaw voted for the National Defense Authorization Act containing the red flag law.
@@ -156,7 +156,7 @@
 (02:15:31) [[Nicholas J. Fuentes]] described a video where [[Charlie Kirk]] and Dan Crenshaw lined up [[Turning Point USA]] brand ambassadors and chapter heads, including [[Jaden McNeil]] and [[Bryson Gray]], and played the [[United States|America]] First intro to see [[who]] would sing along.
 
 ### AF 2020-05-21 0610
-(01:21:28) [[Mona Charen]]'s article in [[The Bulwark]] described [[Nicholas J. Fuentes]] as a [[United States Holocaust Memorial Museum|Holocaust]]-denying figure [[who]] marched at the 2017 Unite the Right rally in [[City of Charlottesville|Charlottesville]] and whose group heckled speakers like [[Ben Shapiro]], Dan Crenshaw, and [[Donald Trump Jr.]].
+(01:21:28) [[Mona Charen]]'s article in [[The Bulwark]] described [[Nicholas J. Fuentes]] as a [[United States Holocaust Memorial Museum|Holocaust]]-denying figure [[who]] marched at the 2017 Unite the Right rally in [[Charlottesville]] and whose group heckled speakers like [[Ben Shapiro]], Dan Crenshaw, and [[Donald Trump Jr.]].
 
 ### AF 2020-05-18 0607
 (00:29:48) [[Nicholas J. Fuentes]] identified [[Ben Shapiro]], Dan Crenshaw, and [[Charlie Kirk]] as figures within establishment conservatism [[who]] dictate which voices and ideas are permissible.
@@ -177,7 +177,7 @@
 (00:12:35) [[Nicholas J. Fuentes]] accused Dan Crenshaw of "shameless [[Israel]] shilling" and being an ignorant puppet controlled by donors and lobbyists, citing his lack of knowledge on immigration law as evidence.
 
 ### AF 2020-05-14 0605
-(00:13:55) Dan Crenshaw stated during his Zoom call that he did not believe immigration was a high priority compared to issues like the carried interest provision, foreign aid, and the [[United States Embassy in Jerusalem|U.S. embassy]] in [[City of Jerusalem|Jerusalem]], [[Israel]].
+(00:13:55) Dan Crenshaw stated during his Zoom call that he did not believe immigration was a high priority compared to issues like the carried interest provision, foreign aid, and the [[United States Embassy in Jerusalem|U.S. embassy]] in [[Jerusalem]], [[Israel]].
 
 ### AF 2020-05-14 0605
 (00:15:47) [[Nicholas J. Fuentes]] listed [[Charlie Kirk]], Dan Crenshaw, [[Ben Shapiro]], and [[Matt Walsh]] as dishonorable, ignorant, and cowardly adversaries, claiming they lacked the respectable character of historical [[United States|American]] conflict.
@@ -186,7 +186,7 @@
 (00:17:32) [[Nicholas J. Fuentes]] sarcastically requested to see a picture of Dan Crenshaw "taking the money from [[Israel]]," contrasting it with the congressman's public macho image.
 
 ### AF 2020-05-14 0605
-(00:18:18) Dan Crenshaw stated publicly that "our morality comes from [[City of Jerusalem|Jerusalem]]," a claim [[Nicholas J. Fuentes]] rejected, asserting his own morality came from [[Jesus Christ]], not the [[Israel|Jewish state]].
+(00:18:18) Dan Crenshaw stated publicly that "our morality comes from [[Jerusalem]]," a claim [[Nicholas J. Fuentes]] rejected, asserting his own morality came from [[Jesus Christ]], not the [[Israel|Jewish state]].
 
 ### AF 2020-05-14 0605
 (00:22:26) [[Nicholas J. Fuentes]] speculated that Dan Crenshaw could run for [[the White House]] based solely on his "G.I. Joe with the eyepatch" caricature, despite the congressman's alleged ignorance and shifting political allegiances.
@@ -402,7 +402,7 @@
 (01:43:27) [[Nicholas J. Fuentes]] argued that Dan Crenshaw's status as a veteran [[who]] served in [[Iraq]] did not excuse his neoconservative advocacy for endless wars.
 
 ### AF 2019-10-30 0488
-(02:10:58) [[Nicholas J. Fuentes]] cited a quote attributed to Dan Crenshaw by [[Christians United for Israel]]: "Our morality doesn't come from government. It comes from [[City of Jerusalem|Jerusalem]]."
+(02:10:58) [[Nicholas J. Fuentes]] cited a quote attributed to Dan Crenshaw by [[Christians United for Israel]]: "Our morality doesn't come from government. It comes from [[Jerusalem]]."
 
 ### AF 2019-10-29 0487
 (07:16:20) The next scheduled [[Turning Point USA]] event featured Dan Crenshaw at [[Arizona State University]].

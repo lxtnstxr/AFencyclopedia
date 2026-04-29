@@ -60,3 +60,30 @@
 
 ### AF 2017-10-27 0041
 (00:08:00) [[Nicholas J. Fuentes]] contended that if [[Richard Spencer]] created a public list of anti-white professors and students, it would be denounced across major news outlets, but Canary Mission receives [[little]] attention because it is a [[Jews|Jewish]] and [[Israel|Israeli]] operation.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:56:49.960) The Canary Mission, an [[organization]] funded by [[Israel]], has been confirmed since July 2025 as being used by the [[Donald Trump]] administration to identify and [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:57:02.120) The [[concept]] behind the Canary Mission is part of an initiative developed by the [[Heritage Foundation]].
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:57:33.660) The Canary Mission functions as a mechanism to bypass constitutional protections, enabling the federal government to conduct intelligence-gathering activities that would otherwise be deemed illegal.
+
+### 2026-04-10 IRAN WAR DAY 41 Netanyahu SABOTAGES Iran Ceasefire  America First Ep. 1671
+(00:58:00.170) [[Nicholas J. Fuentes]] raised concerns about the prominent influence of [[Jews|Jewish]] groups within increasingly powerful organizations, such as [[Palantir Technologies|Palantir]] and the Canary Mission, stating this warrants careful examination, even though government contracting with the private sector is a long-standing practice.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:56:49) The Canary Mission is an [[Israel|Israeli]]-funded blacklist used since July 2025 by the [[Donald Trump|Trump administration]] to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:57:04) The Canary Mission initiative was created by the [[Heritage Foundation]], the group responsible for [[Project 2025]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(00:57:33) The Canary Mission serves as a means to circumvent constitutional protections, allowing the [[United States]] federal government to engage in intelligence-gathering activities that would otherwise be considered unlawful.
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:16:00.000) [[Nicholas J. Fuentes]] argued that the Canary Mission is an [[Israel|Israeli]]-funded blacklist used by the [[Donald Trump|Trump administration]] since July 2025 to [[target]] students, professors, and professionals in the [[United States]] [[who]] oppose [[Israel]].
+
+### 2026-01-31 EPSTEIN FILE DUMP WILD New Allegations In LEAKED EPSTEIN FILES  America First Ep. 1632
+(05:16:30.000) [[Nicholas J. Fuentes]] stated that the Canary Mission initiative was created by the [[Heritage Foundation]] as part of Project Esther, which labels pro-[[Palestine|Palestinian]] activists as supporters of [[Hamas]].

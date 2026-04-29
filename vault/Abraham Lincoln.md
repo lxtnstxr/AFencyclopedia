@@ -45,7 +45,7 @@
 (27:36:30) [[Nicholas J. Fuentes]] noted that Abraham Lincoln said he would win the [[Civil War|American Civil War]] without freeing a single slave if he could, questioning whether his core principle was political equality for [[black]] people or holding the union together.
 
 ### AF 2021-06-14 0828
-(01:01:03:00) [[Nicholas J. Fuentes]] claimed the legacy of [[City of Charlottesville|Charlottesville]] is that the protesters were right, and the cultural revolution they opposed has led to the removal of statues of Abraham Lincoln, [[Thomas Jefferson]], and [[George Washington]].
+(01:01:03:00) [[Nicholas J. Fuentes]] claimed the legacy of [[Charlottesville]] is that the protesters were right, and the cultural revolution they opposed has led to the removal of statues of Abraham Lincoln, [[Thomas Jefferson]], and [[George Washington]].
 
 ### AF 2020-10-22 0707
 (02:01:43) When questioned about race, [[Donald Trump]] frequently cited low [[black]] unemployment and claimed he had done more for the [[black]] community than any president except possibly Abraham Lincoln.
@@ -118,3 +118,6 @@
 
 ### AF 2017-11-08 0049
 (01:14:30) [[Nicholas J. Fuentes]] cited [[Thomas Jefferson]]'s belief that whites and [[blacks]] could not live in the same government, and that [[Thomas Jefferson|Jefferson]], [[James Madison]], [[Henry Clay]], [[John Randolph]], and Abraham Lincoln supported colonizing Africans back to [[African continent|Africa]].
+
+### 2025-12-27 2025 YEAR IN REVIEW  America First Ep. 1618
+(03:31:51) [[Nicholas J. Fuentes]] named [[George Washington]], [[Henry Ford]], [[Charles Lindbergh]], [[Thomas Jefferson]], Abraham Lincoln, and [[Frank Sinatra]] as examples of the "flesh and blood" people that constitute the [[United States]] of [[United States|America]].

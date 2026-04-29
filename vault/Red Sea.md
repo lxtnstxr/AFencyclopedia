@@ -60,4 +60,10 @@
 (00:48:53) [[Nicholas J. Fuentes]] reported that [[Israel]] began a series of provocations, including air strikes and missile attacks in [[Syria]], [[Iran]], the Red Sea, and the [[Persian Gulf]] in November and December 2020, aiming to scuttle potential [[United States|U.S]].-[[Iran]] diplomacy.
 
 ### AF 2021-04-07 0787
-(00:49:49) [[Nicholas J. Fuentes]] stated that on the day the [[Joe Biden|Biden administration]] sent a delegation to [[City of Vienna|Vienna]] to negotiate re-entering the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], [[Israel]] bombed an [[Iran|Iranian]] vessel in the Red Sea and conducted air strikes in [[Syria]].
+(00:49:49) [[Nicholas J. Fuentes]] stated that on the day the [[Joe Biden|Biden administration]] sent a delegation to [[Vienna]] to negotiate re-entering the [[Joint Comprehensive Plan of Action|Iran nuclear deal]], [[Israel]] bombed an [[Iran|Iranian]] vessel in the Red Sea and conducted air strikes in [[Syria]].
+
+### 2026-03-28 IRAN WAR DAY 28 GROUND INVASION IMMINENT  America First Ep. 1664
+(04:29:22) [[Nicholas J. Fuentes|Fuentes]] speculated that [[Israel]] wants to control the Red Sea, [[Persian Gulf]], [[Bosporus Strait]], [[Aegean Sea]], [[Mediterranean Sea|Eastern Mediterranean]], and the [[Caspian Sea]].
+
+### 2026-03-20 IRAN WAR DAY 20 Strait of Hormuz INVASION IMMINENT  America First Ep. 1661
+(03:30:17) [[Nicholas J. Fuentes]] compared the operation to the previous year's bombing of [[Yemen]] by the [[Houthis]], which failed to stop them from bombing the Red Sea, and concluded that stopping [[Iran]] from bombing a much smaller [[target]] is impossible.

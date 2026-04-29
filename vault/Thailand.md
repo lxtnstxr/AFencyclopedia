@@ -19,3 +19,9 @@
 
 ### AF 2019-09-20 0466
 (00:34:50) [[Nicholas J. Fuentes]] reported that millions of people globally participated in climate strikes inspired by activist [[Greta Thunberg]], with protests occurring in countries including [[Australia]], [[Ghana]], Thailand, [[India]], [[Germany]], and the [[United Kingdom]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], Thailand, [[Pakistan]], [[India]], [[Kosovo]], [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].
+
+### 2025-12-18 TRUMPS PRIMETIME FLOP Trump Announces NOTHING, Wastes Everyone's Time  America First Ep. 1616
+(02:21:47) [[Nicholas J. Fuentes]] claimed that in the minds of [[Donald Trump|Trump]] supporters, "3 million people have been deported and [[Donald Trump|Trump]] has ended eight wars," referencing wars like those between Thailand and [[Cambodia]], [[Rwanda]] and [[Republic of Congo|Congo]], and a skirmish between [[India]] and [[Pakistan]].

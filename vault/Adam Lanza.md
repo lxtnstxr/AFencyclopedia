@@ -2,7 +2,7 @@
 #person
 
 ### AF 2018-02-14 0108
-(20:00:12) [[Nicholas J. Fuentes]] referenced the case of Adam Lanza, the shooter at [[City of Newtown|Sandy Hook]] Elementary School, [[who]] obtained his firearms from his mother's gun safe.
+(20:00:12) [[Nicholas J. Fuentes]] referenced the case of Adam Lanza, the shooter at [[Sandy Hook]] Elementary School, [[who]] obtained his firearms from his mother's gun safe.
 
 
 ### AF 2017-10-05 0025

@@ -17,3 +17,6 @@
 
 ### AF 2019-02-19 0334
 (00:04:10) [[Rick Grenell|Richard Grenell]], the [[United States|U.S]]. Ambassador to [[Germany]] and the highest-profile openly gay [[person]] in the [[Donald Trump|Trump]] administration, led the global decriminalization effort, which began with a strategy dinner at the [[United States Embassy in Jerusalem|U.S. embassy]] in Berlin with LGBT activists from across [[Europe]].
+
+### 2026-01-27 ALEX PRETTI KILLED Left Wing Nutjob ICED By DHS, JUSTIFIED  America First Ep. 1628
+(03:44:17) [[Nicholas J. Fuentes]] stated that ethnic enclaves in major cities will continue to grow "until there's nothing left," citing [[London]], [[Paris]], Berlin, [[Rome]], [[Madrid]], [[New York]], [[Chicago]], and [[Los Angeles]] as already lost.

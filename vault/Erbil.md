@@ -25,3 +25,6 @@
 
 ### AF 2019-05-15 0388
 (01:47:00) [[Nicholas J. Fuentes]] cited a report from the [[The Los Angeles Times|Los Angeles Times]] stating the [[U.S. Department of State|State Department]] ordered the evacuation of non-essential personnel from the [[United States Embassy in Jerusalem|U.S. Embassy]] in [[Baghdad]] and a consulate in Erbil, [[Iraq]], due to threats from [[Iran]].
+
+### 2026-03-04 IRAN WAR DAY 4 Boots on the Ground IMMINENT  America First Ep. 1650
+(01:48:36) [[Nicholas J. Fuentes]] said that [[Iran]] was retaliating with ballistic missiles against [[United States|US]] bases in the [[Persian Gulf]], Erbil, [[Jim Jordan|Jordan]], and against military and government targets in [[Israel]], as well as civilian targets in the Gulf countries.

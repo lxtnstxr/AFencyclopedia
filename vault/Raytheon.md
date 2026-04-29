@@ -27,7 +27,7 @@
 (15:15:660) [[Jared Holt]], a former researcher for [[Right Wing Watch]], later worked for the [[Atlantic Council]], an [[organization]] [[Nicholas J. Fuentes]] claimed is funded by [[North Atlantic Treaty Organization|NATO]], the [[United States]] military, defense contractors like Raytheon and [[Lockheed Martin]], pharmaceutical companies like [[Pfizer]] and [[Moderna]], and banks like [[J.P. Morgan]] and [[Goldman Sachs]].
 
 ### AF 2021-04-29 0802
-(00:43:40) [[Nicholas J. Fuentes]] argued that [[Joe Biden]] is not "[[City of Beijing|Beijing]] [[Joe Biden|Biden]]" but is instead [[Donald Trump|the president]] of the "[[United States|American]] regime," representing the interests of the national security apparatus, intelligence community, defense contractors like [[Lockheed Martin]] and Raytheon, and multilateral alliances like [[North Atlantic Treaty Organization|NATO]].
+(00:43:40) [[Nicholas J. Fuentes]] argued that [[Joe Biden]] is not "[[Beijing]] [[Joe Biden|Biden]]" but is instead [[the president]] of the "[[United States|American]] regime," representing the interests of the national security apparatus, intelligence community, defense contractors like [[Lockheed Martin]] and Raytheon, and multilateral alliances like [[North Atlantic Treaty Organization|NATO]].
 
 ### AF 2021-04-26 0799
 (01:01:11:71) [[Nicholas J. Fuentes]] stated [[Joe Biden]]'s [[U.S. Department of Defense|Secretary of Defense]], [[Lloyd Austin]], came from the defense contractor Raytheon, and his Chief of Staff, [[Ron Klain]], came from [[Google]].

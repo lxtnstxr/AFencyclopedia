@@ -24,3 +24,6 @@
 
 ### AF 2018-08-27 0227
 (00:11:31) [[John McCain]] advocated for [[U.S. Department of Defense|U.S. military]] intervention in [[Syria]], [[Iraq]], [[Afghanistan]], [[Libya]], Kosovo, [[Nigeria]], [[Bosnia and Herzegovina|Bosnia]], [[North Korea]], [[Iran]], [[Russia]], [[Republic of the Sudan|Sudan]], [[Mali]], and [[China]].
+
+### 2026-02-25 State of the Union Address  America First Ep. 1646
+(24:01:05) [[Donald Trump]] claimed to have ended eight wars, including in [[Cambodia]], [[Thailand]], [[Pakistan]], [[India]], Kosovo, [[Serbia]], [[Israel]], [[Iran]], [[Arab Republic of Egypt|Egypt]], [[Ethiopia]], [[Armenia]], [[Azerbaijan]], [[Republic of Congo|Congo]], [[Rwanda]].

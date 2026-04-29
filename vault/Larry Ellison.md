@@ -62,7 +62,7 @@
 (32:32:940) Larry Ellison and [[David Ellison]] are [[Jewish]] billionaires who have purchased media companies to influence foreign policy, according to [[Nicholas J. Fuentes]].
 (48:07:300) [[David Ellison]] and Larry Ellison are [[Jewish]] billionaires, and [[Bari Weiss]], [[Ben Shapiro]], [[Laura Loomer]], [[Josh Hammer]], and [[Mark Levin]] are part of a [[Jewish]] elite that occupies positions of power, according to [[Nicholas J. Fuentes]].
 ### AF 2025-10-29 1588
-(00:23:40) [[Nicholas J. Fuentes]] characterized [[United States|American]] politics as a debate between pro-[[Israel]] [[Jews]] on the [[Republican Party|Republican]] side, like [[Sheldon Adelson|Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], Larry Ellison, [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and [[Michael Bloomberg]].
+(00:23:40) [[Nicholas J. Fuentes]] characterized [[United States|American]] politics as a debate between pro-[[Israel]] [[Jews]] on the [[Republican Party|Republican]] side, like [[Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], Larry Ellison, [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and [[Michael Bloomberg]].
 ### AF 2025-10-30 1589
 (00:10:31) [[Nicholas J. Fuentes]] attributed his rise in popularity over the past seven months to his vocal opposition to the war in [[Gaza Strip|Gaza]], war with [[Iran]], and the influence of the [[American Israel Public Affairs Committee|AIPAC]] lobby, as well as discussing [[Jeffrey Epstein]], [[Bari Weiss]], Larry Ellison, and [[Peter Thiel]].
 (00:33:41) [[Nicholas J. Fuentes]] stated that Larry Ellison and [[David Ellison]] bought [[TikTok]], [[Paramount Global]], [[Warner Brothers]], and [[CBS News]] in a partnership with [[Benjamin Netanyahu]] to censor criticism of [[Israel]] on those platforms.
@@ -75,3 +75,51 @@
 
 ### AF 2023-05-12 1161
 (00:08:00) [[Nicholas J. Fuentes]] stated that [[David Ellison]] acquired [[Paramount Global]] in a purchase subsidized by his father, Larry Ellison.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:33:21) Larry Ellison put [[Bari Weiss]] in charge of [[CBS News]], turning it into a pro-[[Israel]] propaganda outlet.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:29:30) [[Nicholas J. Fuentes]] argued that the media supports the war in [[Iran]] because the people [[who]] own the media, such as [[Rupert Murdoch]] ([[Fox News|Fox]]) and Larry Ellison ([[Paramount Global|Paramount]], [[Warner Bros. Discovery|Warner Brothers]], [[Skydance Media|Skydance]], [[TikTok Inc.|TikTok]]), support it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:31:59:44) Larry Ellison controls the [[TikTok Inc.|TikTok]] algorithm and owns a 19% stake in the [[TikTok Inc.|TikTok]] [[United States|US]] entity through [[Oracle Corporation|Oracle]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:34:20) [[Nicholas J. Fuentes]] stated that Larry Ellison, a friend of [[Benjamin Netanyahu]], controls [[Skydance Media|Skydance]], [[Paramount Global]], [[Warner Bros. Discovery|Warner Bros.]], and [[TikTok Inc.|TikTok]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:21:01) Larry Ellison, the [[Jews|Jewish]] billionaire CEO and chairman of [[Oracle Corporation|Oracle]], is building a media empire to become the number one media conglomerate in the world.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:23:13) [[Skydance Media|Skydance]], [[Paramount Global|Paramount]], and [[Warner Bros. Discovery|Warner Brothers]] will all be under the Larry Ellison empire.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:23:20) Larry Ellison holds a significant percentage of [[TikTok Inc.|TikTok]], owns the algorithm, and all the data of the company.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:24:08) Larry Ellison is a close personal friend of [[Benjamin Netanyahu]] and a huge supporter of [[Israel]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:25:02) The [[United States]] government forced the sale of [[TikTok Inc.|TikTok]] to Larry Ellison.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:23:12) [[Nicholas J. Fuentes]] argued that the war in [[Iran]], the acquisition of [[Warner Bros. Discovery|Warner Bros.]] by [[Paramount Global]], and the acquisition of [[TikTok Inc.|TikTok]] by Larry Ellison are all for [[Israel]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:35:19) [[Nicholas J. Fuentes]] argued that Larry Ellison is in control of [[TikTok Inc.|TikTok]] with a new [[Jews|Jewish]] CEO.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:10:52) [[Paramount Global|Paramount]]/[[Skydance Media|Skydance]], owned by Larry Ellison's [[Oracle Corporation|Oracle]], is an eighth-front, pro-[[Israel]] project.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:29:12) [[Joe Lonsdale]] is an investor in [[Bari Weiss]], [[who]] became the head of [[CBS]] under Larry Ellison through [[David Ellison|Ellison]]'s connections to [[Donald Trump]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:07:14) [[Nicholas J. Fuentes]] argued that [[Jews|Jewish people]] cannot be allowed at the highest level of society because they will get "their guy in the club" for [[Israel]], citing Larry Ellison, [[Les Wexner]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[Larry Fink]] as examples.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:34:55) [[Nicholas J. Fuentes]] reported that the [[United States]] has brokered the sale of [[TikTok Inc.|TikTok]] from its [[China|Chinese]] parent company [[ByteDance]] to a new [[United States|U.S]]. entity, with Larry Ellison of [[Oracle Corporation|Oracle]] as one of the most influential interests.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:18:55) [[Nicholas J. Fuentes]] stated that his [[Rumble Inc.|Rumble]] channel for the past three months has been about [[Venezuela]], [[Jeffrey Epstein|Epstein]], [[Marjorie Taylor Greene]], Larry Ellison, and the [[Heritage Foundation]].

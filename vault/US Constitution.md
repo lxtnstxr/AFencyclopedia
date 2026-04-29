@@ -15,7 +15,7 @@
 (00:48:54) [[Joe Biden]] argued that repealing the liability shield for gun manufacturers, which he compared to what was done for tobacco manufacturers, would save lives and not infringe on the Second Amendment.
 
 ### AF 2021-08-04 0854
-(01:49:50) [[Nicholas J. Fuentes]] used the example of [[Mark]] and [[Patricia McCloskey]], who were charged after brandishing guns at [[Black Lives Matter]] protesters in [[City of St. Louis|St. Louis]], to argue that individual Second Amendment rights are insufficient protection against mobs or [[state]] overreach.
+(01:49:50) [[Nicholas J. Fuentes]] used the example of [[Mark]] and [[Patricia McCloskey]], who were charged after brandishing guns at [[Black Lives Matter]] protesters in [[St. Louis]], to argue that individual Second Amendment rights are insufficient protection against mobs or [[state]] overreach.
 
 ### AF 2021-08-04 0848
 (48:06:01) [[Nicholas J. Fuentes]] referenced [[Ibram X. Kendi]]'s proposed "anti-racist amendment" to the U.S. Constitution, which would allow racial discrimination to achieve equity.
@@ -54,13 +54,13 @@
 (00:56:07) [[Donald Trump]] warned that if [[the left]] gains power, they will demolish the suburbs, confiscate guns, and appoint justices [[who]] will wipe away the Second Amendment.
 
 ### AF 2020-08-27 0670
-(01:12:18) [[Donald Trump]] vowed to uphold religious liberty, defend the Second Amendment, protect [[Health and Human Services|Medicare]] and [[Social Security]], and always protect patients with pre-existing conditions.
+(01:12:18) [[Donald Trump]] vowed to uphold religious liberty, defend the Second Amendment, protect [[Medicare]] and [[Social Security]], and always protect patients with pre-existing conditions.
 
 ### AF 2020-06-24 0628
 (00:26:04) [[Madison Cawthorn]]'s campaign website listed opposition to sanctuary cities and illegal immigration, support for the Second Amendment, a pro-life stance, and opposition to socialized medicine as key issues.
 
 ### AF 2020-05-28 0615
-(01:24:38) [[Nicholas J. Fuentes]] stated that the Second Amendment and [[Concept|First Amendment]] are essential tools for self-defense and open discourse needed to address the root causes of societal problems like the [[City of Minneapolis|Minneapolis]] riots.
+(01:24:38) [[Nicholas J. Fuentes]] stated that the Second Amendment and [[Concept|First Amendment]] are essential tools for self-defense and open discourse needed to address the root causes of societal problems like the [[Minneapolis]] riots.
 
 ### AF 2020-04-27 0593
 (03:14:20) [[Nicholas J. Fuentes]] presented polling data showing a racial divide on political principles: 72% of white [[United States|Americans]] versus 57% of non-white [[United States|Americans]] believe people should be able to say things offensive to minorities in public; 54% of whites versus 66% of [[blacks]] and 75% of [[Hispanic|Hispanics]] prioritize gun rights over gun control; and 53% of whites versus 63% of [[blacks]] believe the U.S. Constitution should be interpreted as originally written.
@@ -75,7 +75,7 @@
 (00:21:39) [[Nicholas J. Fuentes]] explained that [[White House National Security Advisor Jake Sullivan|White House National Security Advisor]] [[Robert O'Brien]] cited the 2002 AUMF as legal authority for the [[Qasem Soleimani|Soleimani]] strike, while [[Mark Esper|United States Secretary of Defense]] [[Mark Esper]] cited Article Two of the United States Constitution.
 
 ### AF 2019-11-04 0491
-(02:52:53) [[Nicholas J. Fuentes]] stated he had a contentious personal and ideological relationship with [[Richard Spencer]], citing [[Richard Spencer|Spencer]]'s past statements against [[Christianity]], [[United States|America]], the Second Amendment, and his support for the [[Europe|European Union]].
+(02:52:53) [[Nicholas J. Fuentes]] stated he had a contentious personal and ideological relationship with [[Richard Spencer]], citing [[Richard Spencer|Spencer]]'s past statements against [[Christianity]], [[United States|America]], the Second Amendment, and his support for the [[European Union]].
 
 ### AF 2019-09-04 0454
 (01:49:06) [[Nicholas J. Fuentes]] saw no urgent need to repeal the Third Amendment to the U.S. Constitution, which prohibits the quartering of soldiers.
@@ -150,13 +150,13 @@
 (00:32:32) [[Nicholas J. Fuentes]] quoted the Preamble to the Constitution, emphasizing the phrase "secure the blessings of liberty to ourselves and our posterity."
 
 ### AF 2017-09-25 0017
-(00:33:24) [[Destiny|Destiny]] argued the Constitution was meant to be amended, and through that process, values have changed from the original Euro-centric intent.
+(00:33:24) [[Destiny]] argued the Constitution was meant to be amended, and through that process, values have changed from the original Euro-centric intent.
 
 ### AF 2017-09-25 0017
-(00:34:52) [[Destiny|Destiny]] argued the Constitution limits what government can do, and since it doesn't explicitly forbid bringing in immigrants, that power is delegated.
+(00:34:52) [[Destiny]] argued the Constitution limits what government can do, and since it doesn't explicitly forbid bringing in immigrants, that power is delegated.
 
 ### AF 2017-09-25 0017
-(00:35:12) [[Nicholas J. Fuentes]] countered that Article 2 of the Constitution gives [[Donald Trump|the president]] power over foreign affairs, including immigration, making it a federal issue.
+(00:35:12) [[Nicholas J. Fuentes]] countered that Article 2 of the Constitution gives [[the president]] power over foreign affairs, including immigration, making it a federal issue.
 
 ### AF 2017-09-25 0017
 (00:38:06) [[Nicholas J. Fuentes]] argued that treating the Constitution as a living document sets a dangerous precedent, allowing a transient [[Congress]] to make drastic reforms like re-instituting slavery without a proper amendment process.
@@ -168,4 +168,4 @@
 (00:45:12) [[Nicholas J. Fuentes]] argued there is interpretive wiggle room in the Constitution on fiscal matters like the ACA, but no such wiggle room exists on the immigration mandate stated in the Preamble.
 
 ### AF 2017-09-13 0009
-(00:07:24) [[Nicholas J. Fuentes]] countered that Article 1, Section 8 of the United States Constitution authorizes spending taxpayer money to enforce laws, including border laws, which he argued should be a higher priority than [[Health and Human Services|Medicare]] or [[Social Security]].
+(00:07:24) [[Nicholas J. Fuentes]] countered that Article 1, Section 8 of the United States Constitution authorizes spending taxpayer money to enforce laws, including border laws, which he argued should be a higher priority than [[Medicare]] or [[Social Security]].

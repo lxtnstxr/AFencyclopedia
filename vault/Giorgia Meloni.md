@@ -9,10 +9,10 @@
 (01:10:10) [[Nicholas J. Fuentes]] argued that Zionists have infiltrated the global right wing, citing pro-[[Israel]] shifts by figures like Giorgia Meloni in [[Italian Republic|Italy]], [[Javier Milei]] in [[Argentina]], and [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]].
 
 ### AF 2024-07-11 1353
-(01:18:00) [[Nicholas J. Fuentes]] cited Giorgia Meloni in [[Italian Republic|Italy]], [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]], [[Marine Le Pen]] in [[Government of France|France]], and [[Nigel Farage]] in the [[United Kingdom]] as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
+(01:18:00) [[Nicholas J. Fuentes]] cited Giorgia Meloni in [[Italian Republic|Italy]], [[Geert Wilders]] in the [[Kingdom of the Netherlands|Netherlands]], [[Marine Le Pen]] in [[France]], and [[Nigel Farage]] in the [[United Kingdom]] as examples of "far-right" leaders who moderated their positions on immigration and support for [[Israel]] after gaining political influence.
 
 ### AF 2024-06-10 1341
-(00:28:00) The [[Europe|European Union]] held parliamentary elections, with results showing gains for right-wing parties including the [[Alternative for Germany]], the [[National Rally]] in [[Government of France|France]], and the party of Italian Prime Minister Giorgia Meloni.
+(00:28:00) The [[European Union]] held parliamentary elections, with results showing gains for right-wing parties including the [[Alternative for Germany]], the [[National Rally]] in [[France]], and the party of Italian Prime Minister Giorgia Meloni.
 
 ### AF 2024-06-10 1341
 (01:19:00) [[Nicholas J. Fuentes]] stated that under Prime Minister Giorgia Meloni, [[Italian Republic|Italy]] has experienced more immigration from [[African continent|Africa]] than ever before, despite her platform opposing immigration.

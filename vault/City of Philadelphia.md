@@ -6,7 +6,7 @@
 
 
 ### AF 2023-09-29 1226
-(01:35:40) [[Nicholas J. Fuentes]] observed that videos depicting [[black]] crime in cities like Philadelphia and [[City of Chicago|Chicago]] appear primarily on [[Twitter]] and [[TikTok]], owned by [[Elon Musk]] and a [[China|Chinese]] company respectively, but not on [[Instagram]], [[Google|YouTube]], or [[Facebook]].
+(01:35:40) [[Nicholas J. Fuentes]] observed that videos depicting [[black]] crime in cities like Philadelphia and [[Chicago]] appear primarily on [[Twitter]] and [[TikTok]], owned by [[Elon Musk]] and a [[China|Chinese]] company respectively, but not on [[Instagram]], [[Google|YouTube]], or [[Facebook]].
 
 ### AF 2023-09-27 1225
 (00:27:56) A moderator asked [[Chris Christie]] about using [[United States|U.S.]] attorneys to prosecute crimes in cities where local prosecutors won't, citing looters taking over the streets of Philadelphia.
@@ -15,7 +15,7 @@
 (46:07:74) [[Nicholas J. Fuentes]] referenced a speech [[Joe Biden]] gave a year prior in Philadelphia where he said "enemies of democracy" would be "hunted down and defeated," which [[Nicholas J. Fuentes]] characterized as "fascistic."
 
 ### AF 2022-10-20 1082
-(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[City of Chicago|Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[City of Miami|Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], Philadelphia, and [[City of Minneapolis|Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
+(00:44:04) [[Nicholas J. Fuentes]] claimed that every major [[United States|American]] [[city]]—including [[Atlanta]], [[Chicago]], [[New York]], [[Washington D.C.|Washington, D.C.]], [[Los Angeles]], [[Houston]], [[Dallas]], [[Austin]], [[San Francisco Bay Area|San Francisco]], [[Miami]], [[Baltimore]], [[Boston]], [[St. Louis]], [[Cleveland]], Philadelphia, and [[Minneapolis]]—was plagued by homelessness, disease, drugs, crime, and gangs.
 
 ### AF 2022-10-20 1082
 (00:51:54) The [[Chicago Police Department]] reported its lowest number of employees in recent history, the [[Seattle Police Department]] reached a 30-year staffing low, and the Philadelphia police union warned the department would lose 800 officers in the next four years.
@@ -30,7 +30,7 @@
 (01:04:50) [[Nicholas J. Fuentes]] called for full forensic ballot audits in [[Milwaukee]], Philadelphia, [[Atlanta]], and [[Detroit]].
 
 ### AF 2021-02-04 0755
-(00:41:50) [[Nicholas J. Fuentes]] contrasted the prosecution of [[Kyle Rittenhouse]] and [[United States Capitol|Capitol]] rioters with the lack of serious charges against [[Antifa]] and [[Black Lives Matter]] rioters in cities like [[City of Minneapolis|Minneapolis]], [[City of Kenosha|Kenosha]], Philadelphia, [[Washington D.C.|Washington, D.C.]], [[Atlanta]], [[Los Angeles]], and [[City of Chicago|Chicago]] throughout 2020.
+(00:41:50) [[Nicholas J. Fuentes]] contrasted the prosecution of [[Kyle Rittenhouse]] and [[United States Capitol|Capitol]] rioters with the lack of serious charges against [[Antifa]] and [[Black Lives Matter]] rioters in cities like [[Minneapolis]], [[Kenosha]], Philadelphia, [[Washington D.C.|Washington, D.C.]], [[Atlanta]], [[Los Angeles]], and [[Chicago]] throughout 2020.
 
 ### AF 2020-12-07 0729
 (00:13:25) After being removed from the flight, [[Nicholas J. Fuentes]] took an Uber from Midway Airport to O'Hare International Airport to book another flight to Philadelphia.
@@ -39,7 +39,7 @@
 (00:13:54) [[Nicholas J. Fuentes]] arrived in [[Harrisburg]] at approximately 3 or 4 a.m. after a delayed flight and a two-hour drive from Philadelphia.
 
 ### AF 2020-11-06 0718
-(03:03:48) [[Nicholas J. Fuentes]] claimed that efforts to steal the election for [[Joe Biden]] were concentrated in vote counting in major cities like [[Milwaukee]], [[City|Detroit]], Philadelphia, [[Atlanta]], and [[City of Phoenix|Phoenix]], as well as through media and social media censorship.
+(03:03:48) [[Nicholas J. Fuentes]] claimed that efforts to steal the election for [[Joe Biden]] were concentrated in vote counting in major cities like [[Milwaukee]], [[City|Detroit]], Philadelphia, [[Atlanta]], and [[Phoenix]], as well as through media and social media censorship.
 
 ### AF 2020-11-04 0716
 (01:43:14) A tweet from [[FiveThirtyEight]] reported that a batch of 23,277 votes from Philadelphia, [[Commonwealth of Pennsylvania|Pennsylvania]] were all for [[Joe Biden]], with zero votes for [[Donald Trump]].
@@ -99,7 +99,7 @@
 (01:29:01) [[Barack Obama]], speaking from Philadelphia at the [[Democratic National Convention]], framed the 2020 election as a pivotal moment for [[United States|America]]'s democracy, criticizing [[Donald Trump]] for failing to take the presidency seriously.
 
 ### AF 2020-07-20 0644
-(01:27:52) [[Donald Trump|President Trump]] threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[City of Chicago|Chicago]], [[New York|New York City]], Philadelphia, [[City|Detroit]], [[Baltimore]], and [[Oakland]] to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[City of Portland|Portland]], [[Oregon]].
+(01:27:52) [[Donald Trump|President Trump]] threatened to send federal law enforcement officers to major [[United States|U.S]]. cities including [[Chicago]], [[New York|New York City]], Philadelphia, [[City|Detroit]], [[Baltimore]], and [[Oakland]] to control ongoing protests, following the deployment of a [[U.S. Department of Homeland Security|DHS]] unit to [[Portland]], [[Oregon]].
 
 ### AF 2020-02-04 0539
 (40:09:07) [[Donald Trump]] announced that fourth-grader Janiyah [[Pearl Davis|Davis]] from Philadelphia would receive an opportunity scholarship to attend the school of her choice.
@@ -123,7 +123,7 @@
 (00:06:23) [[Nicholas J. Fuentes]] stated the episode would cover a flash mob robbery at a [[Walgreens]] in Philadelphia and an [[National Football League|NFL]] superstar arrested in a convenience store incident.
 
 ### AF 2019-07-10 0422
-(00:24:13) [[Nicholas J. Fuentes]] connected the [[City of Chicago|Chicago]] violence to other incidents, including a "flash mob" robbery at a [[Walgreens]] in Philadelphia and a brawl at [[Disney|Disneyland]].
+(00:24:13) [[Nicholas J. Fuentes]] connected the [[Chicago]] violence to other incidents, including a "flash mob" robbery at a [[Walgreens]] in Philadelphia and a brawl at [[Disney|Disneyland]].
 
 ### AF 2019-07-10 0422
 (00:24:60) A group of approximately 60 people rushed into a [[Walgreens]] on [[Southern United States|South]] Street in Philadelphia, grabbed merchandise, and ran out without paying.
@@ -135,7 +135,7 @@
 (00:11:43) [[Brian Sims]], the first openly gay [[state]] legislator in [[Commonwealth of Pennsylvania|Pennsylvania]] history, harassed a group of teenage girls and their mother [[who]] were praying outside a [[Planned Parenthood]] clinic in Philadelphia.
 
 ### AF 2019-01-25 0318
-(00:21:40) [[Warner Bros. Discovery|CNN]] reported that the government shutdown caused flight delays at major airports in [[New York]], [[State of New Jersey|New Jersey]], Philadelphia, [[City of Orlando|Orlando]], and [[Atlanta]] due to staffing shortages at air traffic control centers.
+(00:21:40) [[Warner Bros. Discovery|CNN]] reported that the government shutdown caused flight delays at major airports in [[New York]], [[State of New Jersey|New Jersey]], Philadelphia, [[Orlando]], and [[Atlanta]] due to staffing shortages at air traffic control centers.
 
 ### AF 2018-08-28 0228
 (00:32:41) [[Nicholas J. Fuentes]] referenced a recent scandal in the [[Commonwealth of Pennsylvania|Pennsylvania]] diocese of Philadelphia, where a grand jury report documented over a thousand cases of sexual abuse by 301 priests over 70 years.
@@ -153,7 +153,7 @@
 (33:36:34) [[Starbucks]] announced a new bathroom policy allowing anyone, including non-paying individuals, to use their facilities and spaces as a customer, in response to public outcry over the arrest of two [[black]] men at a Philadelphia location.
 
 ### AF 2018-04-25 0152
-(51:08:49) [[Nicholas J. Fuentes]] noted destabilizing global events, including airplane crashes in [[City of Moscow|Moscow]], [[Tehran]], and Philadelphia, earthquakes, and tensions in [[Israel]], [[Syria]], and [[Saudi Arabia]], as part of a broader transformative period.
+(51:08:49) [[Nicholas J. Fuentes]] noted destabilizing global events, including airplane crashes in [[Moscow]], [[Tehran]], and Philadelphia, earthquakes, and tensions in [[Israel]], [[Syria]], and [[Saudi Arabia]], as part of a broader transformative period.
 
 ### AF 2018-02-05 0101
 (01:02:16) The [[Philadelphia Eagles]] defeated the [[New England Patriots]] in the Super Bowl, a game followed by riots in Philadelphia.
@@ -162,4 +162,4 @@
 (06:24:22) Riots occurred in Philadelphia following the [[Philadelphia Eagles]]' Super Bowl victory, involving climbing [[city]] structures, tipping cars, setting fires, and looting stores.
 
 ### AF 2017-08-30 0005
-(01:00:47:51) [[Nicholas J. Fuentes]] pointed out that young conservatives like [[Cabot Phillips]], [[Alex Acosta|Alex Sears]], and [[Kassy Dillon]] are often sent to [[Israel]], questioning why they aren't sent to cities like [[Athens]], [[Rome]], [[City of London|London]], or Philadelphia which he claimed built [[United States|America]].
+(01:00:47:51) [[Nicholas J. Fuentes]] pointed out that young conservatives like [[Cabot Phillips]], [[Alex Acosta|Alex Sears]], and [[Kassy Dillon]] are often sent to [[Israel]], questioning why they aren't sent to cities like [[Athens]], [[Rome]], [[London]], or Philadelphia which he claimed built [[United States|America]].

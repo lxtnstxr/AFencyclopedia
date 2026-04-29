@@ -75,7 +75,7 @@
 (15:21:920) In October, Paul Manafort and his business partner [[Rick Gates]] pleaded not guilty to 12 criminal charges related to financial dealings in [[Ukraine]].
 
 ### AF 2017-12-01 0062
-(00:15:32) Using the [[Foreign Intelligence Surveillance Act|FISA]] warrant, the [[Obama]] administration spied on campaign officials including [[Steven Crowder|Steve Bannon]], Paul Manafort, and [[Michael Flynn]].
+(00:15:32) Using the [[Foreign Intelligence Surveillance Act|FISA]] warrant, the [[Obama]] administration spied on campaign officials including [[Steve Bannon]], Paul Manafort, and [[Michael Flynn]].
 
 ### AF 2017-12-01 0062
 (00:19:14) Paul Manafort and [[Rick Gates]] were indicted for suspicious financial transactions from 2012 related to their lobbying efforts for [[Ukraine]], which had no connection to [[Donald Trump]], [[Russia]], or the 2016 election.

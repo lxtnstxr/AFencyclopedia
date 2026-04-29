@@ -39,7 +39,7 @@
 (01:02:06) [[Nicholas J. Fuentes]] referenced Project Veritas catching someone switching a vote from [[Donald Trump]] to [[Joe Biden]] in [[Country of Georgia|Georgia]], which he said occurred in the fewer than 10% of ballots being witnessed.
 
 ### AF 2020-09-28 0690
-(00:51:00) [[Nicholas J. Fuentes]] cited a report by [[James O'Keefe]] and Project Veritas alleging a ballot harvesting operation in [[Minnesota]] linked to [[Ilhan Omar]]'s brother, [[Liban Mohamed]], and [[City of Minneapolis|Minneapolis]] [[city]] council member [[Jamal Osman]].
+(00:51:00) [[Nicholas J. Fuentes]] cited a report by [[James O'Keefe]] and Project Veritas alleging a ballot harvesting operation in [[Minnesota]] linked to [[Ilhan Omar]]'s brother, [[Liban Mohamed]], and [[Minneapolis]] [[city]] council member [[Jamal Osman]].
 
 ### AF 2020-09-28 0690
 (00:57:00) [[Nicholas J. Fuentes]] argued that mainstream media and social media platforms had claimed there was no evidence of mail-in ballot fraud, contrasting this with the Project Veritas report from [[Minnesota]].

@@ -18,3 +18,15 @@
 
 ### AF 2023-11-11 1248
 (00:48:35) [[Nicholas J. Fuentes]] argued that wealthy [[Jewish]] alumni like Mark Rowan, [[Larry Summers]], [[William Ackman|Bill Ackman]], and [[|Larry Fink]] exert pressure on their alma maters to combat anti-Semitism, directly influencing university policies.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:35:15:00) Mark Rowan, a [[Jews|Jewish]] business partner of [[Leon Black]], is a huge supporter of the [[Donald Trump]] administration.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:37:12:00) Mark Rowan, [[Leon Black]]'s business partner, gave the [[Donald Trump]] campaign a million dollars and [[Donald Trump]] pardoned [[Michael Milken]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(03:38:00:00) Mark Rowan is on the board of the "[[Gaza Strip|Gaza]] Peace Board," which was created in October to create a "smart [[city]]" in the ruins of the [[Gaza Strip]].
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:32:00) Mark Rowan, [[Leon Black]]'s partner, is with [[Jared Kushner]] on the "[[Gaza Strip|Gaza]] Peace Board."

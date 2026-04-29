@@ -10,3 +10,6 @@
 (27:58:640) Anne-Marie Forsconnelly at [[Umea University]] in [[Sweden]] and her colleagues investigated the risk of DVT, pulmonary embolism, and various types of bleeding in over 1 million confirmed COVID cases and over 4 million uninfected individuals, but their research did not account for vaccination status.
 (30:34:340) [[Nicholas J. Fuentes]] referenced a [[United Kingdom]] report from late last year that found millions of young people suffered from undiagnosed heart disease, which the report attributed to "pandemic fatigue" and COVID-related stress, but [[Nicholas J. Fuentes]] interpreted as evidence consistent with a deadly vaccine.
 (34:01:820) [[Nicholas J. Fuentes]] argued that the interplay between COVID and vaccines creates a "bad feedback loop," where vaccine side effects are attributed to COVID, prompting more interventions and resulting in an immunocompromised population, which then justifies further vaccinations and interventions, making it difficult to escape this cycle without transparent data on the vaccine's impact.
+
+### 2026-02-17 MIDTERM DESTRUCTION Why The GOP Is FINISHED After 2026 Midterms  America First Ep. 1641
+(04:12:47) [[Nicholas J. Fuentes]] defended [[Sneeko]] against criticism, stating that [[Sneeko]] "never snaked me" and sacrificed a lot for his views on COVID, the [[Jews]], and [[Israel]].

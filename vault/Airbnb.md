@@ -101,7 +101,7 @@
 (00:46:33) [[Nicholas J. Fuentes]] noted that his friend [[Faith Goldy]] had been banned from platforms like Airbnb, [[Google|YouTube]], [[Twitter]], and [[Facebook]] for her views.
 
 ### AF 2018-08-06 0215
-(02:22:28) Following the [[City of Charlottesville|Charlottesville rally]], figures like [[James Allsup|James Alsup]] ([[Timothy Gionet|Baked Alaska]]) and [[Millennial Matt]] were removed from services like [[Uber]] and Airbnb.
+(02:22:28) Following the [[Charlottesville rally]], figures like [[James Allsup|James Alsup]] ([[Timothy Gionet|Baked Alaska]]) and [[Millennial Matt]] were removed from services like [[Uber]] and Airbnb.
 
 ### AF 2017-10-04 0024
 (03:24:83) [[Milton Friedman]]'s theory that free markets would disincentivize racial discrimination was contradicted, according to [[Nicholas J. Fuentes]], by modern corporations like [[Starbucks]], Airbnb, and [[Uber]] which he claimed actively discriminate against pro-white activists.

@@ -64,7 +64,7 @@
 (01:16:33) [[Nicholas J. Fuentes]] claimed that [[Israel]] was responsible for the 9/11 attacks, the wars in [[Iraq]] and [[Afghanistan]], spying on [[United States|America]], and the refugee crisis in [[Europe]].
 
 ### AF 2022-10-22 1084
-(02:09:09) [[Kanye West|Ye]] defended raising questions, comparing them to 9/11 theories, and stated he was "jealous" of the media attention given to [[Uvalde]] compared to the weekly killings in [[City of Chicago|Chicago]], which receive no similar push.
+(02:09:09) [[Kanye West|Ye]] defended raising questions, comparing them to 9/11 theories, and stated he was "jealous" of the media attention given to [[Uvalde]] compared to the weekly killings in [[Chicago]], which receive no similar push.
 
 ### AF 2022-08-16 1048
 (00:00:00) [[Nicholas J. Fuentes]] stated that public skepticism of the government stems from historical events like the assassination of [[JFK]], the false flag leading to the [[Vietnam War]], and the cover-up of 9/11, which was done by [[Israel]] or the [[United States|U.S. government]].
@@ -76,7 +76,7 @@
 (17:00:58) The influence regime that brought about the wars in [[Iraq]] and [[Afghanistan]], 9/11, [[Los Angeles|Hollywood]], [[Paramount Global|MTV]], pornography, [[OnlyFans]], and smartphones is the same one [[Donald Trump]] threatened to upset.
 
 ### AF 2022-05-17 0995
-(00:38:10) [[Nicholas J. Fuentes]] expressed skepticism about the official narrative of the [[City of Buffalo|Buffalo]] shooting, citing historical deception around events like the 9/11 attacks and the [[2017 Las Vegas shooting]].
+(00:38:10) [[Nicholas J. Fuentes]] expressed skepticism about the official narrative of the [[Buffalo]] shooting, citing historical deception around events like the 9/11 attacks and the [[2017 Las Vegas shooting]].
 
 ### AF 2022-05-17 0995
 (00:40:01) [[Nicholas J. Fuentes]] stated he believes the 9/11 attacks and the [[2017 Las Vegas shooting]] were "fake" or not as they seemed, eroding his trust in government and media accounts of mass shootings.
@@ -118,7 +118,10 @@
 (00:15:12) [[Nicholas J. Fuentes]] stated there had been 30,000 terror attacks by radical [[Islam|Muslims]] since the 9/11 attacks.
 
 ### AF 2017-10-03 0023
-(00:17:40) [[Alex Jones]] faced criticism for his commentary on the [[City of Newtown|Sandy Hook]] shooting and the September 11 attacks.
+(00:17:40) [[Alex Jones]] faced criticism for his commentary on the [[Sandy Hook]] shooting and the September 11 attacks.
 
 ### AF 2017-10-03 0023
 (00:29:10) [[Nicholas J. Fuentes]] argued that the primary argument against alternative explanations for events like the September 11 attacks was the perceived impossibility of such a large-scale conspiracy.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:27:14) [[Nicholas J. Fuentes]] questioned the point of killing [[Charlie Kirk]], noting that unlike the JFK assassination or 9/11, there have been no major policy changes as a result.
