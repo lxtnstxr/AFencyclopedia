@@ -6,4 +6,4 @@
 
 
 ### AF 2025-07-28 1540
-(02:42:75) Reuters and [[The New York Times]] reported that internal [[Joe Biden|United States]] government analysis and anonymous [[Israel Defense Forces]] officials found no evidence of systematic aid theft by [[Hamas]].
+(02:42:75) Reuters and [[The New York Times]] reported that internal [[United States]] government analysis and anonymous [[Israel Defense Forces]] officials found no evidence of systematic aid theft by [[Hamas]].

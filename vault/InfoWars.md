@@ -26,3 +26,15 @@
 
 ### AF 2025-07-28 1540
 (01:13:77) [[Nicholas J. Fuentes]] announced a debate with [[Alex Jones]] on InfoWars and [[Rumble Inc.|Rumble]] regarding [[Jeffrey Epstein]] and [[Donald Trump]].
+
+### AF 2024-10-28 1414
+(01:30:06) [[Alex Jones]] publicly challenged [[Nicholas J. Fuentes]] to a debate, extending an invitation for him to appear on InfoWars.
+
+### AF 2024-08-06 1368
+(04:01:10) [[Nicholas J. Fuentes]] appeared on InfoWars for an interview with [[Alex Jones]] the previous day, where he discussed the alleged [[Iran|Iranian]] assassination plot.
+
+### AF 2024-07-13 1355
+(00:11:36) [[Nicholas J. Fuentes]] stated he had previously discussed the threat of assassination against [[Donald Trump]] during an interview with [[Alex Jones]] on InfoWars approximately a month and a half prior.
+
+### AF 2024-06-03 1339
+(07:38:22) [[Nicholas J. Fuentes]] appeared on InfoWars for an interview with [[Alex Jones]].

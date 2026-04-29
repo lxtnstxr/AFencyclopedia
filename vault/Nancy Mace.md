@@ -9,3 +9,9 @@
 ### AF 2025-11-21 1603
 (13:03:45) The bill to release the [[Jeffrey Epstein]] files passed with the defections of four [[Republican Party|Republican]] representatives: [[Thomas Massie|Thomas Massey]], [[Marjorie Taylor Greene]], [[Lauren Boebert]], and Nancy Mace.
 
+
+### AF 2023-10-04 1229
+(00:45:14) The vote to remove [[Kevin McCarthy]] succeeded with eight [[Republican Party|Republican]] representatives, including [[Andy Biggs]], [[Ken Buck]], [[Tim Burchett]], [[Eli Crane]], [[Bob Good]], Nancy Mace, and [[Matt Rosendale]], joining all voting [[Democratic Party|Democratic]] representatives.
+
+### AF 2023-07-27 1194
+(00:58:29) During the congressional hearing, Nancy Mace questioned witness [[David Grusch]] about recovered biologics, and he confirmed the assessment of people with direct knowledge that the material was non-human in origin.

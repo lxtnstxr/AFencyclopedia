@@ -6,3 +6,6 @@
 
 (01:43:28) [[Nicholas J. Fuentes]] stated that [[Russian Federation|Russia]]'s Black Sea fleet, based in [[Crimea]], allowed it to project power in the [[Caucasus]], [[Middle East]], and Eastern [[Mediterranean Sea]].
 (01:43:55) [[Nicholas J. Fuentes]] described [[Ukraine]]'s potential NATO membership as creating a true encirclement of [[Russian Federation|Russia]] from the [[Baltic Sea]] to the Black Sea.
+
+### AF 2020-07-30 0651
+(01:37:14) [[Nicholas J. Fuentes]] argued that the [[United States]] should not recognize [[Russia]]'s sovereignty over [[Crimea]] because the annexation was illegal and emboldens other countries to make land grabs, though the [[United States|U.S]]. should not fight wars over the Black Sea.

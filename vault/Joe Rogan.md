@@ -14,3 +14,21 @@
 
 ### AF 2025-07-22 1536
 (31:02:72) During a discussion about [[Nicholas J. Fuentes]], Joe Rogan questioned whether [[Nicholas J. Fuentes]] denied or disputed the numbers of the [[Holocaust]].
+
+### AF 2024-10-25 1413
+(00:28:46) Joe Rogan told [[Donald Trump]] that his unfiltered, comedic style and willingness to say "wild shit" distinguished him from rehearsed politicians and was amplified by [[Warner Bros. Discovery|CNN]], boosting his popularity.
+
+### AF 2024-10-25 1413
+(01:01:15) [[Donald Trump]] and Joe Rogan discussed the historical Tulare Lake in [[State of California|California]]'s Central Valley, which was one of the largest freshwater lakes [[west]] of the Mississippi before being drained, primarily by 1983.
+
+### AF 2024-10-25 1413
+(01:16:16) [[Donald Trump]] showed Joe Rogan the scar on his ear from a recent assassination attempt, joking that it makes him a tougher guy like the [[Ultimate Fighting Championship|UFC]] fighters he admires.
+
+### AF 2024-10-25 1413
+(01:36:50) Joe Rogan told [[Donald Trump]] that his unfiltered comedic style and diverse interests in stand-up comedy and the [[Ultimate Fighting Championship|UFC]] contributed to the success of his podcast.
+
+### AF 2024-10-25 1413
+(01:37:10) Joe Rogan stated he worked for the [[Ultimate Fighting Championship|UFC]] in 1997 before its purchase by Zuffa, when the sport was banned from cable by [[Budweiser]] and Senator [[John McCain]], and only available on DirecTV.(01:37:29) [[Donald Trump]] provided the first two or three sites for the [[Ultimate Fighting Championship|UFC]] when it could not secure a location due to safety concerns and licensing issues.
+
+### AF 2024-10-25 1413
+(01:45:15) Joe Rogan stated his interest in [[MMA]] commentary is authentic and not manufactured.

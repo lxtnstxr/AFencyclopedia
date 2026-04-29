@@ -19,19 +19,19 @@
 (39:27:51) [[Nicholas J. Fuentes]] speculated that members of Tyler Robinson's Discord chat who expressed horror at the murder might have been engaging in "ass covering" or felt instant regret.
 (41:42:29) [[Nicholas J. Fuentes]] stated that surveillance video showed the alleged gunman, believed to be Tyler Robinson, jumping off the roof to escape after shooting [[Charlie Kirk]].
 (46:29:49) [[Nicholas J. Fuentes]] questioned why a 22-year-old like Tyler Robinson with a high ACT score, 4.0 GPA, full scholarship, and no criminal record would carry out a premeditated political assassination.
-(49:50:87) [[Nicholas J. Fuentes]] reported that a neighbor claimed to have seen cars with out-of-state license plates at Tyler Robinson's [[Republican Party|house]] prior to the shooting, giving them a "bad vibe."
-(50:45:99) [[Nicholas J. Fuentes]] suggested the people with out-of-state plates at Tyler Robinson's [[Republican Party|house]] could have been members of an online transgender or furry community from Discord, or other "bad actors."
-(52:00:39) [[Nicholas J. Fuentes]] cited an eyewitness saying Tyler Robinson and his transgender boyfriend [[Lance Twiggs]] were live-in partners, and that a crowd had gathered at their [[Republican Party|house]] before the shooting.
-(56:08:17) [[Nicholas J. Fuentes]] found it conspicuous that Tyler Robinson allegedly had no public digital footprint of political extremism on platforms like [[ByteDance|TikTok]], [[Facebook|Instagram]], or [[Twitter]] prior to murdering [[Charlie Kirk]].
+(49:50:87) [[Nicholas J. Fuentes]] reported that a neighbor claimed to have seen cars with out-of-state license plates at Tyler Robinson's [[house]] prior to the shooting, giving them a "bad vibe."
+(50:45:99) [[Nicholas J. Fuentes]] suggested the people with out-of-state plates at Tyler Robinson's [[house]] could have been members of an online transgender or furry community from Discord, or other "bad actors."
+(52:00:39) [[Nicholas J. Fuentes]] cited an eyewitness saying Tyler Robinson and his transgender boyfriend [[Lance Twiggs]] were live-in partners, and that a crowd had gathered at their [[house]] before the shooting.
+(56:08:17) [[Nicholas J. Fuentes]] found it conspicuous that Tyler Robinson allegedly had no public digital footprint of political extremism on platforms like [[TikTok]], [[Instagram]], or [[Twitter]] prior to murdering [[Charlie Kirk]].
 (57:53:01) [[Nicholas J. Fuentes]] compared Tyler Robinson's lack of digital footprint to [[Thomas Crooks]], the shooter who attempted to assassinate [[Donald Trump]] in [[Butler, Pennsylvania]].
 (58:53:11) [[Nicholas J. Fuentes]] characterized Tyler Robinson as an "autistic loser" and extremely online "zoomer" obsessed with video games, which could explain his discrete online presence.
-(01:01:20) [[Nicholas J. Fuentes]] reported that [[Steven Crowder]] claimed Tyler Robinson was involved in communist far-[[Democratic Party|left]] servers on Discord in [[Utah]].
+(01:01:20) [[Nicholas J. Fuentes]] reported that [[Steven Crowder]] claimed Tyler Robinson was involved in communist far-[[left]] servers on Discord in [[Utah]].
 (01:03:39) [[Nicholas J. Fuentes]] summarized the official narrative as a scenario where Tyler Robinson's online transgender community bragged about the planned attack, he carried it out, felt remorse, confessed on Discord, turned himself in, and then stopped cooperating upon learning of the death penalty.
 ### AF 2025-09-16 1565
 (00:08:48) [[Nicholas J. Fuentes]] announced he would discuss the transcript of messages between the suspected killer of [[Charlie Kirk]], Tyler Robinson, and his transgender boyfriend.
 (00:10:20) [[Nicholas J. Fuentes]] noted that people were blaming [[Israel]] for [[Charlie Kirk]]'s death, but he had laid out the case for the official [[Federal Bureau of Investigation]] narrative involving Tyler Robinson.
 (00:35:50) [[Nicholas J. Fuentes]] intended to work through the transcript of the conversation between the suspected killer, Tyler Robinson, and his lover.
-(00:36:02) The suspected assassin of [[Charlie Kirk]] was identified as Tyler Robinson, a 22-year-old, extremely online, [[Democratic Party|left]]-wing Redditor and gamer who was gay and had a boyfriend.
+(00:36:02) The suspected assassin of [[Charlie Kirk]] was identified as Tyler Robinson, a 22-year-old, extremely online, [[left]]-wing Redditor and gamer who was gay and had a boyfriend.
 (00:36:34) [[Nicholas J. Fuentes]] found it curious that Tyler Robinson had no digital footprint or social profile, unlike other political radicals who leave a trail.
 (00:38:06) [[Thomas Crooks]], the shooter from last year, and Tyler Robinson both lacked the typical digital footprint found in other mass killers, which [[Nicholas J. Fuentes]] found interesting.
 (00:38:24) Tyler Robinson had no history of mental illness, no criminal record, and came from a good, intact family, raising questions for [[Nicholas J. Fuentes]] about how he became deranged enough to plot a political assassination.
@@ -42,7 +42,7 @@
 (00:41:46) Law enforcement discovered private messages between Tyler Robinson and his roommate, which [[Nicholas J. Fuentes]] read aloud, showing Tyler Robinson confessing to the murder and detailing his escape.
 (00:42:42) In the messages, Tyler Robinson told his roommate that law enforcement had grabbed "some crazy old dude" in similar clothing, not him, after the shooting.
 (00:43:04) Tyler Robinson explained his motive to his roommate, stating, "I had enough of his hatred. Some hate can't be negotiated out."
-(00:43:39) Tyler Robinson expressed concern in the messages about fingerprints on the rifle he [[Democratic Party|left]] wrapped in a blue towel in the woods where he changed outfits.
+(00:43:39) Tyler Robinson expressed concern in the messages about fingerprints on the rifle he [[left]] wrapped in a blue towel in the woods where he changed outfits.
 (00:44:31) [[Nicholas J. Fuentes]] noted that Tyler Robinson's messages seemed to narrate his escape, explaining details like the change of clothes and the planted weapon that were discrepancies in the official story.
 (00:44:57) Discrepancies in the official story of [[Charlie Kirk]]'s assassination included Tyler Robinson's change of clothes and how the weapon got from his person to the woods.
 (00:45:37) [[Nicholas J. Fuentes]] found it suspicious that Tyler Robinson's messages provided an expository narration that resolved inconsistencies, as if written to be discovered.
@@ -55,8 +55,8 @@
 (00:49:08) [[Nicholas J. Fuentes]] noted that people found the language in Tyler Robinson's messages stilted and unnatural, with excessive detail that seemed expository rather than organic.
 (00:50:03) [[Nicholas J. Fuentes]] considered the possibility that Tyler Robinson fabricated the conversation with his roommate for law enforcement to discover, perhaps to exonerate the partner or any accomplices.
 (00:51:24) Tyler Robinson asking his roommate if he remembered him engraving bullets would warrant attention from law enforcement, undermining the idea the script was to exonerate the partner, according to [[Nicholas J. Fuentes]].
-(00:52:49) [[Nicholas J. Fuentes]] argued the assassination was amateurish, noting [[Charlie Kirk]] was shot in the neck, not the center of mass, and Tyler Robinson [[Democratic Party|left]] DNA evidence and was captured on camera.
-(00:53:31) Tyler Robinson did not account for bullet drop, likely aiming for the head but hitting the neck, and [[Democratic Party|left]] DNA evidence on the gun, according to [[Nicholas J. Fuentes]].
+(00:52:49) [[Nicholas J. Fuentes]] argued the assassination was amateurish, noting [[Charlie Kirk]] was shot in the neck, not the center of mass, and Tyler Robinson [[left]] DNA evidence and was captured on camera.
+(00:53:31) Tyler Robinson did not account for bullet drop, likely aiming for the head but hitting the neck, and [[left]] DNA evidence on the gun, according to [[Nicholas J. Fuentes]].
 (00:54:34) [[Nicholas J. Fuentes]] believed Tyler Robinson was the trigger man but suspected a larger conspiracy involving his social circle, possibly including his partner who witnessed him engraving bullets.
 (00:55:48) [[Nicholas J. Fuentes]] was curious about which Discord servers Tyler Robinson was in, who his partner was, and who else might have had advanced knowledge of the plot.
 (00:56:19) [[Nicholas J. Fuentes]] dismissed theories that [[Charlie Kirk]] was killed with a palm pistol from the side or that a video camera was a gun, stating he believed Tyler Robinson was the trigger man from the perch.
@@ -65,7 +65,22 @@
 (00:59:47) The only evidence about Tyler Robinson's ideology was markings on the bullets, which included two furry transgender memes and two political memes calling [[Charlie Kirk]] a fascist and referencing an anti-fascist anthem.
 (01:03:50) Proponents of the Groyper narrative pointed to Tyler Robinson dressing as the "
 ### AF 2025-09-17 1566
-(01:31:21) [[Nicholas J. Fuentes]] stated that based on information from law enforcement in [[Utah]], the primary suspect in the killing of [[Charlie Kirk]] was Tyler Robinson, a [[Democratic Party|left]]-wing individual.
+(01:31:21) [[Nicholas J. Fuentes]] stated that based on information from law enforcement in [[Utah]], the primary suspect in the killing of [[Charlie Kirk]] was Tyler Robinson, a [[left]]-wing individual.
 ### AF 2025-09-29 1573
 (02:35:28) Official evidence in the [[Charlie Kirk]] shooting case included Tyler Robinson's DNA on the roof, his fingerprints on the gun, and his grandfather's gun found near the scene.
 
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:34:10) All the evidence about [[Charlie Kirk]]'s assassination points to Tyler Robinson.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:34:24) Tyler Robinson's evidence includes discord logs, the murder weapon, security camera footage, and he turned himself in.
+
+### 2026-01-16 TRUMP INVADES GREENLAND Rubio Prepares $700 Billion Bid For Greenland  America First Ep. 1622
+(03:51:03) [[Nicholas J. Fuentes]] referenced the joke that [[Charlie Kirk]] was an "indigo child" or an "[[Twitter|X]]-Man" [[who]] could read minds but was prevented from using his power Tyler Robinson's electromagnetic helmet.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(04:13:49) [[Nicholas J. Fuentes]] stated that without [[Candace Owens]]'s influence, the public would be focused on the evidence against Tyler Robinson, rather than on theories involving [[Brigitte Macron]], Egyptian planes, and [[Erika Frantz Kirk|Erica Kirk]].
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:19:14) [[Nicholas J. Fuentes]] sarcastically noted his surprise that a 21-year-old amateur Tyler Robinson was less professional in his operation than a conspirator would be.

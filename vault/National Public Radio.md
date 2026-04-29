@@ -1,0 +1,54 @@
+# National Public Radio
+#Unknown
+
+### AF 2024-01-17 1278
+(00:18:32) According to NPR, [[Donald Trump]]'s margin of victory in [[Iowa]] surpassed the previous record set by [[Bob Dole]] in 1988.
+
+
+### AF 2023-04-25 1152
+(00:34:05) [[Nicholas J. Fuentes]] reported that from 1992 to 1997, [[Dick Carlson]] was [[the president]] and CEO of the [[Corporation for Public Broadcasting]], the parent company for [[PBS]] and NPR.
+
+### AF 2022-05-25 1001
+(00:18:29) [[Nicholas J. Fuentes]] cited an NPR analysis finding that many school shooters experienced childhood trauma, unstable families, or significant loss.
+
+### AF 2022-04-01 0971
+(00:13:28) NPR produced a podcast about the [[American right wing]]'s affinity for [[Russia]], which [[Nicholas J. Fuentes]] stated was largely about him.
+
+### AF 2021-08-12 0859
+(00:21:18) [[Nicholas J. Fuentes]] mocked critics like [[Megan Squire]] and outlets like the [[The New York Times|New York Times]], [[The Wall Street Journal|Wall Street Journal]], and NPR for their efforts to deplatform him.
+
+### AF 2021-04-23 0798
+(00:30:46) An NPR report stated that [[Caitlyn Jenner]] announced her run for Governor of [[State of California|California]], criticizing [[Gavin Newsom]]'s handling of the coronavirus pandemic and lockdowns.
+
+### AF 2021-04-06 0786
+(00:39:10) NPR published an article quoting [[Asa Hutchinson]] stating the [[Kansas|Arkansas]] legislature had gone "a step way too far" by overriding his veto on a bill banning gender-affirming treatments for transgender minors.
+
+### AF 2021-03-24 0779
+(01:28:25) [[Nicholas J. Fuentes]] reported receiving media requests from NPR, the [[The Wall Street Journal|Wall Street Journal]], and the [[Southern Poverty Law Center|SPLC]] seeking comment for articles aimed at getting him banned from [[Twitter]].
+
+### AF 2021-03-12 0771
+(00:33:76) [[Nicholas J. Fuentes]] reported that [[The Chicago Tribune]], NPR, and the [[Atlantic Council]]'s Digital Forensic Lab, run by [[Jared Holt]], were also preparing articles calling for his removal from [[Twitter]].
+
+### AF 2020-09-17 0683
+(01:32:26) [[Dennis Prager]] recounted meeting [[Thomas Friedman]] at Dulles Airport and inviting him on his radio show, only to be told Friedman "doesn't do radio," and then hearing Friedman on NPR the following week.
+
+### AF 2020-03-19 0568
+(00:01:40) [[Nicholas J. Fuentes]] announced the main story for the show would be about the coronavirus pandemic and related economic stimulus proposals. (00:01:40) [[Senate]] [[Republican Party|Republicans]] unveiled a draft proposal to provide $1,200 cash payments to individuals earning under $75,000 and $2,400 to couples earning under $150,000, with amounts tapering for higher incomes and reduced payments for those with low taxable income. (00:03:06) The [[United States Senate]] passed the first phase of a coronavirus relief package, which included free coronavirus testing and paid sick leave. (00:04:18) [[Italian Republic|Italy]] surpassed [[China]] in official confirmed deaths from coronavirus, with [[Italian Republic|Italy]] reporting 41,000 cases compared to [[China]]'s 80,000. (00:05:07) [[Richard Burr]], a [[Senator]] from [[North Carolina]] and member of the [[Senate Intelligence Committee]], sold his [[stock]] holdings in late February while publicly stating the [[United States]] had the coronavirus under control. (00:06:57) [[Tulsi Gabbard]] dropped out of the [[Democratic presidential primary]] and endorsed [[Joe Biden]]. (00:07:37) [[Tulsi Gabbard]]'s presidential campaign was primarily focused on opposing foreign regime change wars. (00:08:38) [[Joe Biden]] voted for the [[Iraq War]] in 2003 and, as [[Vice President]] under [[Barack Obama]], supported the [[NATO intervention in Libya]] that deposed [[Muammar Gaddafi]] and backed funding for the [[Syria|Syrian]] opposition against [[Bashar al-Assad]]. (00:11:43) [[Nicholas J. Fuentes]] stated his opposition to regime change in [[Syria]], the wars in [[Iraq]] and [[Afghanistan]], war with [[Iran]], and expressed skepticism of alliances with [[Saudi Arabia]], [[Qatar]], and [[Israel]]. (00:12:27) [[Tulsi Gabbard]] was a member of the [[Council on Foreign Relations]]. (00:16:50) [[Tulsi Gabbard]] was a frequent guest on [[Tucker Carlson]]'s show. (00:20:09) [[Donald Trump]] opposed unnecessary regime change wars. (00:20:57) [[Donald Trump]] worked to reduce illegal immigration, build a wall, restrict asylum seekers, and reduce levels of legal immigration. (00:21:32) [[Donald Trump]] opposed [[China]] and free trade, worked to bring troops home from [[Syria]], and negotiated an end to the war in [[Afghanistan]]. (00:22:19) [[Donald Trump]] authorized three rounds of missile strikes on [[Syria]] in 2017 and 2018. (00:22:52) The [[Donald Trump]] administration abandoned the [[Barack Obama]] administration's goal of regime change in [[Syria]] and announced a near-total withdrawal of [[U.S. Department of Defense|U.S. forces]] from [[Syria]] in August 2019. (00:27:26) The number of confirmed coronavirus cases in the [[United States]] increased from approximately 9,000 to nearly 14,000 in 24 hours. (00:28:04) Global confirmed coronavirus cases reached 246,328, with [[China]] reporting 80,928, [[Italian Republic|Italy]] at 41,035, [[Iran]] at 18,407, [[Spain]] at 18,077, [[Germany]] at 15,320, the [[United States]] at nearly 14,000, [[France]] at 10,995, and [[South Korea]] at 8,565. (00:30:53) The [[United States]] conducted 22,000 coronavirus tests in a single day, a significant increase from an estimated maximum capacity of 15,000-20,000 tests per day the previous week. (00:32:23) Drive-through coronavirus testing centers were established in [[Washington state]] and [[New York]]. (00:32:50) [[South Korea]] conducted an average of 15,000 coronavirus tests per day, which helped control its outbreak. (00:39:09) The [[The New York Times|New York Times]] reported that [[Senate]] [[Republican Party|Republicans]] unveiled an economic rescue plan providing hundreds of billions in loans to corporations and small businesses, corporate tax cuts, and $1,200 checks for taxpayers earning up to $75,000, with amounts tapering to zero for those earning over $99,000. (00:40:45) [[Mitch McConnell]], the [[Senate Majority Leader]], introduced the economic relief proposal after private talks with [[Republican Party|Republicans]] in the [[White House]]. (00:41:49) The [[Republican Party|Republican]] relief proposal included an additional $500 per child for eligible individuals and couples. (00:45:07) The [[Republican Party|Republican]] relief plan proposed moving the income tax filing deadline from April 15 to July 15. (00:45:56) The [[Republican Party|Republican]] plan authorized over $200 billion in support for hard-hit industries, including $50 billion for commercial airlines and $8 billion for air cargo carriers. (00:55:09) [[ProPublica]] reported that [[Richard Burr]], as chair of the [[Senate Intelligence Committee]], sold between $600,000 and $1.72 million in stocks in 33 transactions a week before the market declined by 30%, after receiving daily coronavirus briefings. (00:56:44) NPR obtained a recording from February 27 in which [[Richard Burr]] gave a dire preview of the coronavirus's economic impact to a VIP group at the [[Capitol Hill Club]], whose members paid up to $10,000 for access. (00:57:55) In a February 7 op-ed, [[Richard Burr]] assured the public the [[United States]] was better prepared than ever for public health threats like the coronavirus. (00:58:18) [[Richard Burr]] sold up to $150,000 in shares of [[Wyndham Hotels & Resorts]] and up to $100,000 in shares of [[Extended Stay America]], companies whose values later plummeted.
+
+### AF 2020-02-12 0545
+(00:45:49) [[Nicholas J. Fuentes]] cited an NPR report quoting a [[World Health Organization]] chief scientist [[who]] expressed optimism that the spread of COVID-19 was slowing and could be contained, and that a vaccine could be available in 18 months.
+
+### AF 2019-10-22 0482
+(02:02:30) [[Jessica Hawkins]] had been profiled as a community role model by [[NBC 4 News]], NPR, and [[Metro Weekly]] prior to the misconduct reports.
+
+### AF 2019-03-26 0354
+(23:01:91) NPR reported that the [[United States]] [[U.S. Department of Defense|Department of Defense]] shifted one billion dollars from a military personnel account to build border fencing, citing unmet recruiting goals as the source of the funds.
+
+### AF 2018-10-03 0253
+(01:21:24) Polling from NPR indicated that [[Republican Party|Republican]] enthusiasm for the midterm elections surged, with the percentage of [[Republican Party|Republicans]] saying the elections were "very important" jumping from 68% to 80%, erasing a prior [[Democratic Party|Democratic]] advantage.
+
+### AF 2018-09-17 0241
+(30:02:58) Media outlets like [[Vox]], the [[The Huffington Post|Huffington Post]], the [[Washington Post]], NPR, and [[NBC News]] published articles scrutinizing [[Mark Judge]]'s past writings about sex following his denial of the allegations against [[Brett Kavanaugh]].
+
+### 2025-12-10 JEWS BUY HOLLYWOOD Ellison's HOSTILE TAKEOVER Of Warner Bros Explained  America First Ep. 1611
+(03:02:01) [[Nicholas J. Fuentes]] quoted an NPR report stating that [[Paramount Global]] sweetened its offer with an all-cash deal valued at $108 billion to take over [[Warner Bros. Discovery|Warner Bros.]], outperforming [[Netflix]]'s offer.

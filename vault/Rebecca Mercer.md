@@ -22,3 +22,6 @@
 
 ### AF 2025-08-11 1548
 (02:13:44) Rebecca Mercer's investment firm, 1789 Capital, which operates under [[JD Vance|J.D. Vance]]'s Rockbridge Network, gave [[Tucker Carlson]] $15 million; Mercer also selected [[Candace Owens]]'s husband, [[George Farmer]], to run Parler in 2021.
+
+### AF 2021-02-12 0760
+(00:27:05) [[John Matze]] revealed in an interview that he was fired from [[Parler]] because he wanted more content moderation, including banning domestic terrorists, white supremacists, and QAnon supporters, while owner Rebecca Mercer of the [[Mercer family]] wanted the platform to remain a free speech haven.

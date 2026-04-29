@@ -16,3 +16,9 @@
 
 ### AF 2025-07-24 1538
 (00:28:56) Dan Bilzerian showed [[Nicholas J. Fuentes]] that his posts criticizing [[Israel]] were being hidden from timelines on social media platforms.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:45:13:78) [[Nicholas J. Fuentes]] said he would consider doing an interview with Dan Bilzerian.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:46:51:59) [[Nicholas J. Fuentes]] reacted to a clip of Dan Bilzerian saying the only [[country]] to go to war with is [[Israel]], and that he wants a gun to "wipe him off the fucking map," calling it too extreme.

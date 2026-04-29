@@ -2,27 +2,27 @@
 #person
 
 ### AF 2025-09-18 1567
-(00:04:27) Under the tentative framework agreement, [[Oracle]], owned by Larry Ellison, was set to hold the lion's share of an 80% stake in [[ByteDance|TikTok]].
+(00:04:27) Under the tentative framework agreement, [[Oracle]], owned by Larry Ellison, was set to hold the lion's share of an 80% stake in [[TikTok]].
 (00:04:43) Larry Ellison was a personal friend of [[Benjamin Netanyahu|Bibi]] and had historically given tens of millions of dollars in private contributions directly to the [[Israel Defense Forces]].
 ### AF 2025-09-19 1568
-(00:05:00) [[Oracle]] is owned by Larry Ellison, a [[Jews|Jewish]] billionaire and major donor to the [[Israel Defense Forces]].
+(00:05:00) [[Oracle]] is owned by Larry Ellison, a [[Jewish]] billionaire and major donor to the [[Israel Defense Forces]].
 (01:10:00) Larry Ellison is the single largest private benefactor of the [[Israel Defense Forces]] in history and is a close personal friend of [[Benjamin Netanyahu]].
 (01:10:00) Larry Ellison once offered [[Benjamin Netanyahu]] a seat on the board of [[Oracle]].
 ### AF 2025-09-30 1574
-(01:45:53) Larry Ellison took a significant role in a consortium of [[Joe Biden|U.S.]] companies that acquired [[ByteDance|TikTok]]'s [[Joe Biden|American]] business.
-(02:22:49) Larry Ellison was backing the acquisition of [[CBS News|Paramount Global]] and potentially [[Warner Bros. Discovery]] by his son [[David Ellison]].
+(01:45:53) Larry Ellison took a significant role in a consortium of [[U.S.]] companies that acquired [[TikTok]]'s [[American]] business.
+(02:22:49) Larry Ellison was backing the acquisition of [[Paramount Global]] and potentially [[Warner Bros. Discovery]] by his son [[David Ellison]].
 (03:33:25) Larry Ellison maintained a very close personal relationship with [[Benjamin Netanyahu]].
-(39:52:23) [[Oracle]], led by Larry Ellison, took a 45% stake in [[ByteDance|TikTok]]'s [[Joe Biden|American]] business as part of the forced sale.
+(39:52:23) [[Oracle]], led by Larry Ellison, took a 45% stake in [[TikTok]]'s [[American]] business as part of the forced sale.
 (40:53:43) Larry Ellison is a [[Jews|Jewish Zionist]] and the largest private donor to the [[Israel Defense Forces]] in history.
 (41:19:09) Larry Ellison is a personal friend of [[Benjamin Netanyahu]], having hosted the [[Benjamin Netanyahu|Netanyahu]] family on his private Hawaiian island and offered [[Benjamin Netanyahu|Netanyahu]] a spot on [[Oracle]]'s board.
-(43:21:45) [[Benjamin Netanyahu]] expressed hope that the sale of [[ByteDance|TikTok]] to a joint venture partially owned by Larry Ellison would be completed, calling social media an important battlefield and the sale "the most important purchase happening."
-(50:04:23) [[Donald Trump]] facilitated the sale of [[ByteDance|TikTok]] to Larry Ellison, preventing the app from being banned in the [[Joe Biden|United States]].
-(51:35:81) Larry Ellison, the [[Anti-Defamation League|ADL]], the [[JFNA|Jewish Federations of North America]], [[American Israel Public Affairs Committee|AIPAC]], and the [[Republican Jewish Coalition]] are [[Joe Biden|American]]-born people and institutions that work on behalf of [[Israel]].
-(56:04:13) [[Donald Trump]]'s administration brokered the [[ByteDance|TikTok]] sale to Larry Ellison, a deal that would not have happened if [[Donald Trump|Trump]] were not president.
+(43:21:45) [[Benjamin Netanyahu]] expressed hope that the sale of [[TikTok]] to a joint venture partially owned by Larry Ellison would be completed, calling social media an important battlefield and the sale "the most important purchase happening."
+(50:04:23) [[Donald Trump]] facilitated the sale of [[TikTok]] to Larry Ellison, preventing the app from being banned in the [[United States]].
+(51:35:81) Larry Ellison, the [[Anti-Defamation League|ADL]], the [[JFNA|Jewish Federations of North America]], [[American Israel Public Affairs Committee|AIPAC]], and the [[Republican Jewish Coalition]] are [[American]]-born people and institutions that work on behalf of [[Israel]].
+(56:04:13) [[Donald Trump]]'s administration brokered the [[TikTok]] sale to Larry Ellison, a deal that would not have happened if [[Donald Trump|Trump]] were not president.
 (01:09:22:59) Larry Ellison helped [[Benjamin Netanyahu]] find lawyers for his legal defense and buy out rival daily news websites.
-(01:18:32:21) [[Mark Zuckerberg]] runs [[Facebook|Meta]] ([[Facebook]] and [[Facebook|Instagram]]), [[Larry Page]] and [[Sergey Brin]] run [[Google|Alphabet]] ([[Google]] and [[Google|YouTube]]), and Larry Ellison owns [[ByteDance|TikTok]], giving [[Jews|Jewish]] executives control over major social platforms.
+(01:18:32:21) [[Mark Zuckerberg]] runs [[Facebook|Meta]] ([[Facebook]] and [[Instagram]]), [[Larry Page]] and [[Sergey Brin]] run [[Google|Alphabet]] ([[Google]] and [[Google|YouTube]]), and Larry Ellison owns [[TikTok]], giving [[Jewish]] executives control over major social platforms.
 ### AF 2025-10-01 1575
-(19:06:58) Larry Ellison, the second-richest man in the world and a non-religious [[Jews|Jew]] born in [[Joe Biden|America]], has a special friendship with [[Israel]] and manipulates the [[Joe Biden|United States]] on [[Israel]]'s behalf.
+(19:06:58) Larry Ellison, the second-richest man in the world and a non-religious [[Jews|Jew]] born in [[America]], has a special friendship with [[Israel]] and manipulates the [[United States]] on [[Israel]]'s behalf.
 ### AF 2025-10-02 1576
 (03:09:20) [[DropSite News]] published a report containing leaked emails from ten years prior between billionaire Larry Ellison and then-Senator [[Marco Rubio]].
 (03:16:34) Larry Ellison, the founder and CEO of [[Oracle]], became the second richest man in the world the previous week.
@@ -31,16 +31,16 @@
 (04:42:64) Leaked emails obtained by hackers allegedly from [[Iran]] and reported by [[DropSite News]] showed Larry Ellison vetting [[Marco Rubio]] in 2015 to see if he would support [[Marco Rubio|Rubio]]'s presidential bid.
 (04:56:02) In 2015, Larry Ellison asked his political ally whether [[Marco Rubio]] supported [[Israel]] as a primary question during the vetting process.
 (05:42:66) [[Marco Rubio]] had backing from the [[American Israel Public Affairs Committee|Israel lobby]] for years and also from Larry Ellison, with the basis of that support being [[Marco Rubio|Rubio]]'s status as an ally of [[Israel]].
-(30:27:69) Larry Ellison was leading the charge for [[Israel]] to increase market share over [[American Israel Public Affairs Committee|American media]], using his political might and money to facilitate acquisitions of social and conventional media companies.
+(30:27:69) Larry Ellison was leading the charge for [[Israel]] to increase market share over [[American media]], using his political might and money to facilitate acquisitions of social and conventional media companies.
 (31:08:19) Larry Ellison was one of the richest men in the world, with a net worth in the hundreds of billions, and owned the Silicon Valley tech giant [[Oracle]], a major data hosting provider.
-(31:33:17) Larry Ellison was a secular [[Jews|Jew]] with a powerful [[Jews|Jewish]] identity, extremely pro-[[Israel]], having given tens of millions to the [[Israel Defense Forces]] and being a personal friend of [[Benjamin Netanyahu]].
+(31:33:17) Larry Ellison was a secular [[Jews|Jew]] with a powerful [[Jewish]] identity, extremely pro-[[Israel]], having given tens of millions to the [[Israel Defense Forces]] and being a personal friend of [[Benjamin Netanyahu]].
 (32:12:03) Larry Ellison offered [[Benjamin Netanyahu]] a position on the board of his company, invited the [[Benjamin Netanyahu|Netanyahu]] family to vacation on his private island in [[Hawaii]], and tried to help [[Benjamin Netanyahu|Netanyahu]] with legal and political problems.
 (32:59:09) Larry Ellison called up Hollywood producer [[Arnon Milchan]] to ask him to fire his attorney so that [[Benjamin Netanyahu]] could hire him, and was being questioned in [[Israel]] in connection with [[Benjamin Netanyahu|Netanyahu]]'s corruption cases.
 (34:19:25) In connection with [[Israel]]'s media strategy, Larry Ellison was flexing his political might to have the government facilitate his acquisition of social media and conventional media companies.
 (35:46:77) [[Donald Trump]] was giving the [[United States|U.S]]. [[TikTok]] business to Larry Ellison, with a newly created entity giving [[David Ellison|Ellison]] a significant stake and a major role in securing the platform.
-(36:21:95) [[Benjamin Netanyahu]], facing a problem in [[Israel]], could call [[United States|American]] [[Jews|Jewish]] billionaire Larry Ellison, who would use his connections through the [[Republican Party]] and [[United States|American]] government to gain control over [[TikTok]] for [[Israel]]'s benefit.
+(36:21:95) [[Benjamin Netanyahu]], facing a problem in [[Israel]], could call [[United States|American]] [[Jewish]] billionaire Larry Ellison, who would use his connections through the [[Republican Party]] and [[United States|American]] government to gain control over [[TikTok]] for [[Israel]]'s benefit.
 (38:10:01) Larry Ellison underwrote his son [[David Ellison]]'s acquisition of [[Paramount Pictures]] and potentially [[Warner Brothers]], aiming to own major media outlets like [[CBS News|CBS]], [[TBS]], [[HBO]], [[Showtime]], [[Nickelodeon]], and [[UFC]] streaming.
-(39:13:51) [[Bari Weiss]] was made a senior editor and editor-in-chief of [[CBS News|CBS]] after receiving a $100 million payday, with [[Nicholas J. Fuentes]] claiming she and Larry Ellison were using their fortunes as secular [[Jews|Jews]] to help [[Israel]].
+(39:13:51) [[Bari Weiss]] was made a senior editor and editor-in-chief of [[CBS News|CBS]] after receiving a $100 million payday, with [[Nicholas J. Fuentes]] claiming she and Larry Ellison were using their fortunes as secular [[Jews]] to help [[Israel]].
 (40:03:21) Larry Ellison gave [[Marco Rubio]] lots of money and backed his 2015 presidential campaign, saying he believed [[Marco Rubio|Rubio]] was pro-[[United States|American]].
 (40:41:91) According to leaked emails, Larry Ellison tapped [[Israel]]'s ambassador to [[Germany]] to vet [[Marco Rubio]], asking if [[Marco Rubio|Rubio]] was "good on [[Israel]]" before the money poured in.
 (41:36:93) As [[U.S. Department of State|Secretary of State]], [[Marco Rubio]] played a role in the [[TikTok]] talks that steered the company toward Larry Ellison, after previously demonizing the app as a senator.
@@ -59,16 +59,67 @@
 ### AF 2025-10-10 1579
 (08:19:88) [[Marco Rubio]] was historically known as a neoconservative aligned with the [[American Israel Public Affairs Committee|Israel lobby]] and supported by donors like Larry Ellison and [[Miriam Adelson]].
 ### AF 2025-10-16 1582
-(32:32:940) Larry Ellison and [[David Ellison]] are [[Jews|Jewish]] billionaires who have purchased media companies to influence foreign policy, according to [[Nicholas J. Fuentes]].
-(48:07:300) [[David Ellison]] and Larry Ellison are [[Jews|Jewish]] billionaires, and [[Bari Weiss]], [[Ben Shapiro]], [[Laura Loomer]], [[Josh Hammer]], and [[Mark Levin]] are part of a [[Jews|Jewish]] elite that occupies positions of power, according to [[Nicholas J. Fuentes]].
+(32:32:940) Larry Ellison and [[David Ellison]] are [[Jewish]] billionaires who have purchased media companies to influence foreign policy, according to [[Nicholas J. Fuentes]].
+(48:07:300) [[David Ellison]] and Larry Ellison are [[Jewish]] billionaires, and [[Bari Weiss]], [[Ben Shapiro]], [[Laura Loomer]], [[Josh Hammer]], and [[Mark Levin]] are part of a [[Jewish]] elite that occupies positions of power, according to [[Nicholas J. Fuentes]].
 ### AF 2025-10-29 1588
-(00:23:40) [[Nicholas J. Fuentes]] characterized [[United States|American]] politics as a debate between pro-[[Israel]] [[Jews]] on the [[Republican Party|Republican]] side, like [[Sheldon Adelson|Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], Larry Ellison, [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and [[Michael Bloomberg]].
+(00:23:40) [[Nicholas J. Fuentes]] characterized [[United States|American]] politics as a debate between pro-[[Israel]] [[Jews]] on the [[Republican Party|Republican]] side, like [[Miriam Adelson]], [[David Horowitz]], [[Joe Lonsdale]], [[Jacob Helberg]], [[William Ackman]], Larry Ellison, [[Ben Shapiro]], [[Joel Pollak]], and [[Dennis Prager]], and open-borders communist [[Jews]] on the [[Democratic Party|Democratic]] side, like [[George Soros]], [[Reid Hoffman]], [[Tom Steyer]], and [[Michael Bloomberg]].
 ### AF 2025-10-30 1589
 (00:10:31) [[Nicholas J. Fuentes]] attributed his rise in popularity over the past seven months to his vocal opposition to the war in [[Gaza Strip|Gaza]], war with [[Iran]], and the influence of the [[American Israel Public Affairs Committee|AIPAC]] lobby, as well as discussing [[Jeffrey Epstein]], [[Bari Weiss]], Larry Ellison, and [[Peter Thiel]].
 (00:33:41) [[Nicholas J. Fuentes]] stated that Larry Ellison and [[David Ellison]] bought [[TikTok]], [[Paramount Global]], [[Warner Brothers]], and [[CBS News]] in a partnership with [[Benjamin Netanyahu]] to censor criticism of [[Israel]] on those platforms.
 (01:18:10) [[Benjamin Netanyahu]] considers the information war in [[United States|America]] a front in [[Israel]]'s war against [[Iran]] and [[Palestine]], which is why Larry Ellison and [[David Ellison]] bought [[TikTok]] and [[CBS News]] to censor criticism.
 ### AF 2025-11-04 1591
-(00:58:35) Larry Ellison's company, [[Oracle]], took control of [[TikTok]] after the [[Republican Party|U.S. Congress]] passed a law banning it, a move lobbied for by the [[Republican Jewish Coalition]].
+(00:58:35) Larry Ellison's company, [[Oracle]], took control of [[TikTok]] after the [[U.S. Congress]] passed a law banning it, a move lobbied for by the [[Republican Jewish Coalition]].
 ### AF 2025-11-13 1597
 (02:10:22) Larry Ellison, with a net worth of $350 billion, bankrolled the purchase of [[TikTok]] and [[CBS News]], actions interpreted as efforts to control media and ban criticism of [[Israel]].
 
+
+### AF 2023-05-12 1161
+(00:08:00) [[Nicholas J. Fuentes]] stated that [[David Ellison]] acquired [[Paramount Global]] in a purchase subsidized by his father, Larry Ellison.
+
+### 2026-03-25 IRAN WAR DAY 25 Exposing The FAKE Peace Process  America First Ep. 1663
+(04:33:21) Larry Ellison put [[Bari Weiss]] in charge of [[CBS News]], turning it into a pro-[[Israel]] propaganda outlet.
+
+### 2026-03-10 IRAN WAR DAY 10 Oil Crunch Threatens To DESTROY Global Economy  America First Ep. 1653
+(02:29:30) [[Nicholas J. Fuentes]] argued that the media supports the war in [[Iran]] because the people [[who]] own the media, such as [[Rupert Murdoch]] ([[Fox News|Fox]]) and Larry Ellison ([[Paramount Global|Paramount]], [[Warner Bros. Discovery|Warner Brothers]], [[Skydance Media|Skydance]], [[TikTok Inc.|TikTok]]), support it.
+
+### 2026-03-05 IRAN WAR DAY 5 Marine Protester BEAT UP By ZOG Senator  America First Ep. 1651
+(03:31:59:44) Larry Ellison controls the [[TikTok Inc.|TikTok]] algorithm and owns a 19% stake in the [[TikTok Inc.|TikTok]] [[United States|US]] entity through [[Oracle Corporation|Oracle]].
+
+### 2026-03-03 IRAN WAR DAY 3 ISRAEL Dragged US To War, Rubio CONFIRMS  America First Ep. 1649
+(02:34:20) [[Nicholas J. Fuentes]] stated that Larry Ellison, a friend of [[Benjamin Netanyahu]], controls [[Skydance Media|Skydance]], [[Paramount Global]], [[Warner Bros. Discovery|Warner Bros.]], and [[TikTok Inc.|TikTok]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:21:01) Larry Ellison, the [[Jews|Jewish]] billionaire CEO and chairman of [[Oracle Corporation|Oracle]], is building a media empire to become the number one media conglomerate in the world.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:23:13) [[Skydance Media|Skydance]], [[Paramount Global|Paramount]], and [[Warner Bros. Discovery|Warner Brothers]] will all be under the Larry Ellison empire.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:23:20) Larry Ellison holds a significant percentage of [[TikTok Inc.|TikTok]], owns the algorithm, and all the data of the company.
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:24:08) Larry Ellison is a close personal friend of [[Benjamin Netanyahu]] and a huge supporter of [[Israel]].
+
+### 2026-02-27 IRAN TALKS COLLAPSE Iran REJECTS US Demands, WAR IMMINENT (FOR REAL)  America First Ep. 1648
+(01:25:02) The [[United States]] government forced the sale of [[TikTok Inc.|TikTok]] to Larry Ellison.
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:23:12) [[Nicholas J. Fuentes]] argued that the war in [[Iran]], the acquisition of [[Warner Bros. Discovery|Warner Bros.]] by [[Paramount Global]], and the acquisition of [[TikTok Inc.|TikTok]] by Larry Ellison are all for [[Israel]].
+
+### 2026-02-20 IRAN WAR WATCH 10 Day Countdown To US-IRAN WAR  America First Ep. 1644
+(03:35:19) [[Nicholas J. Fuentes]] argued that Larry Ellison is in control of [[TikTok Inc.|TikTok]] with a new [[Jews|Jewish]] CEO.
+
+### 2026-02-18 IRAN WAR IMMINENT SECOND Aircraft Carrier EN ROUTE To Middle East  America First Ep. 1642
+(02:10:52) [[Paramount Global|Paramount]]/[[Skydance Media|Skydance]], owned by Larry Ellison's [[Oracle Corporation|Oracle]], is an eighth-front, pro-[[Israel]] project.
+
+### 2026-02-07 The Truth About Jeffrey Epstein Jewish Fixer  America First Ep. 1636
+(04:29:12) [[Joe Lonsdale]] is an investor in [[Bari Weiss]], [[who]] became the head of [[CBS]] under Larry Ellison through [[David Ellison|Ellison]]'s connections to [[Donald Trump]].
+
+### 2026-02-03 EPSTEIN HOAX DEBUNKING The FAKE Epstein HOAX  America First Ep. 1633
+(04:07:14) [[Nicholas J. Fuentes]] argued that [[Jews|Jewish people]] cannot be allowed at the highest level of society because they will get "their guy in the club" for [[Israel]], citing Larry Ellison, [[Les Wexner]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[Larry Fink]] as examples.
+
+### 2026-01-30 IRAN WAR IMMINENT Trump Plans GROUND RAIDS In IRAN  America First Ep. 1631
+(02:34:55) [[Nicholas J. Fuentes]] reported that the [[United States]] has brokered the sale of [[TikTok Inc.|TikTok]] from its [[China|Chinese]] parent company [[ByteDance]] to a new [[United States|U.S]]. entity, with Larry Ellison of [[Oracle Corporation|Oracle]] as one of the most influential interests.
+
+### 2025-12-11 CANDACE VS ERIKA Erika SLAMS Candace, DRAMA CONTINUES  America First Ep. 1612
+(05:18:55) [[Nicholas J. Fuentes]] stated that his [[Rumble Inc.|Rumble]] channel for the past three months has been about [[Venezuela]], [[Jeffrey Epstein|Epstein]], [[Marjorie Taylor Greene]], Larry Ellison, and the [[Heritage Foundation]].

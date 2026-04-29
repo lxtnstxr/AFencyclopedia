@@ -1,9 +1,15 @@
 # Harry S. Truman
 #person
 
-### AF 2025-08-20 1552
-(01:54:29) [[Nicholas J. Fuentes]] argued that widespread [[Afghanistan|Muslim]] hatred of [[Joe Biden|America]] was a recent phenomenon primarily caused by [[Joe Biden|U.S]]. support for [[Israel]], citing Harry S. Truman's recognition of [[Israel]] against advisor recommendations.
 
+### AF 2024-09-13 1388
+(00:37:35) [[Nicholas J. Fuentes]] listed [[Theodore Roosevelt]], [[Calvin Coolidge]], [[Herbert Hoover]], Harry S. Truman, [[Richard Nixon]], and [[Ronald Reagan]] as [[United States|American]] presidents who held white supremacist or racially restrictive views.
 
-### AF 2025-07-25 1539
-(01:07:51) [[Nicholas J. Fuentes]] pointed out that the official policy of every [[Joe Biden|U.S.]] president since Harry S. Truman has been to seek a two-state solution, but it was [[Emmanuel Macron]] of [[France]] who acted on it first among major Western powers.
+### AF 2022-03-15 0958
+(00:49:27) [[Nicholas J. Fuentes]] asserted that [[United States|America]] was founded as a white [[country]] and that every president up to Harry S. Truman would have disagreed with the notion that being concerned with whiteness was "[[un]]-[[United States|American]]."
+
+### AF 2021-05-11 0809
+(02:45:21) [[Nicholas J. Fuentes]] noted that [[United States|U.S]]. policy did not fully embrace [[Israel]] until the administrations of [[JFK]] and [[Lyndon B. Johnson|LBJ]], though Truman's recognition of [[Israel]] involved political pressure.
+
+### AF 2019-08-21 0445
+(00:03:26) [[Donald Trump]] considered purchasing [[Greenland]] from [[Denmark]] for its strategic military and economic value, a proposal previously floated by President Harry S. Truman.

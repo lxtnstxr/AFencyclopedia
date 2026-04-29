@@ -2,7 +2,7 @@
 #person
 
 ### AF 2025-10-30 1589
-(00:49:08) [[Donald Trump|The president]] of the [[Heritage Foundation]], Kevin Roberts, denounced a venomous coalition criticizing [[Tucker Carlson]] and stated that canceling him is not the answer, while also disagreeing with views of [[Nicholas J. Fuentes]].
+(00:49:08) [[The president]] of the [[Heritage Foundation]], Kevin Roberts, denounced a venomous coalition criticizing [[Tucker Carlson]] and stated that canceling him is not the answer, while also disagreeing with views of [[Nicholas J. Fuentes]].
 (00:50:12) The [[Republican Jewish Coalition]] condemned the [[Heritage Foundation]] and its president Kevin Roberts for his defense of [[Tucker Carlson]] and [[Nicholas J. Fuentes]].
 ### AF 2025-11-03 1590
 (01:09:17) Kevin Roberts, president of the [[Heritage Foundation]], released a video on Thursday defending [[Tucker Carlson]]'s right to interview [[Nicholas J. Fuentes]], stating conservatives don't engage in cancel culture and have a right to criticize [[Israel]].
@@ -18,7 +18,7 @@
 (02:42:64) [[Nicholas J. Fuentes]] stated that Kevin Roberts, president of the [[Heritage Foundation]], issued a major apology following the fallout from [[Tucker Carlson]]'s interview with him.
 (03:09:38) [[Nicholas J. Fuentes]] recounted that Kevin Roberts released a video defending [[Tucker Carlson]] in the immediate aftermath of the interview, stating "We are not canceling [[Tucker Carlson]]" and "We're [[Jesus Christ|Christ]] first, [[United States|America]] always, and free speech."
 (04:16:56) [[Nicholas J. Fuentes]] claimed that the [[American Israel Public Affairs Committee|Jewish lobby]] inside the [[Republican Party]] launched an unrelenting attack on Kevin Roberts following his defense of [[Tucker Carlson]].
-(04:48:04) [[Nicholas J. Fuentes]] alleged that the [[American Israel Public Affairs Committee|Israel first Jews]] threatened to revolt, withdraw funding, and cause resignations to force Kevin Roberts to disavow [[Tucker Carlson]].
+(04:48:04) [[Nicholas J. Fuentes]] alleged that the [[Israel first Jews]] threatened to revolt, withdraw funding, and cause resignations to force Kevin Roberts to disavow [[Tucker Carlson]].
 (05:16:78) [[Nicholas J. Fuentes]] reported that Kevin Roberts uploaded an apology video to [[Twitter]], specifically apologizing for describing the people canceling [[Tucker Carlson]] as a "venomous coalition," which he called an anti-Semitic trope.
 (06:26:74) [[Nicholas J. Fuentes]] stated that Kevin Roberts said [[Youram Hazony|Yoram Hazony]] was flying to [[Washington D.C.|DC]] to help him "get better."
 (08:34:18) [[Nicholas J. Fuentes]] argued that the election of [[Donald Trump]] in 2016 demonstrated that people prefer honesty and strength over "hostage apology videos" like the one from Kevin Roberts.
@@ -32,3 +32,6 @@
 (02:35:05) According to *The [[Washington D.C.|Washington]] Post*, Kevin Roberts of the [[Heritage Foundation]] was working with [[Youram Hazony|Yoram Hazony]] to craft a condemnation of [[Tucker Carlson]] for anti-Semitism.
 (28:13:13) [[Nicholas J. Fuentes]] described an incident where an [[Israel Defense Forces|IDF]] soldier yelled at Kevin Roberts at the [[Heritage Foundation]], leading Roberts to issue a video apology he characterized as a "hostage video."
 (52:56:19) [[Nicholas J. Fuentes]] argued that the [[Heritage Foundation]] staff was in revolt because Kevin Roberts said "people should be able to talk" after the [[Tucker Carlson]] interview.
+
+### AF 2024-09-09 1385
+(02:11:05) [[Nicholas J. Fuentes]] said Kevin Roberts was not the one running [[Project 2025]] and that [[Tulsi Gabbard]] was a liberal, not based.

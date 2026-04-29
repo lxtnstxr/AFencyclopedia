@@ -8,10 +8,10 @@
 
 
 ### AF 2025-08-20 1552
-(01:52:34) [[Nicholas J. Fuentes]] stated he remained banned from [[Twitter]], [[ByteDance|TikTok]], [[Google|YouTube]], CPAC, and [[Turning Point USA]], and characterized his growing influence as "breaking containment."
+(01:52:34) [[Nicholas J. Fuentes]] stated he remained banned from [[Twitter]], [[TikTok]], [[Google|YouTube]], CPAC, and [[Turning Point USA]], and characterized his growing influence as "breaking containment."
 
 ### AF 2025-08-04 1544
-(00:10:12) [[Nicholas J. Fuentes]] had been systematically banned from all social media, PayPal, banks like [[Chase Bank]] and [[Bank of America]], was subpoenaed by the [[Republican Party|U.S. Congress]], had his private checking account frozen by the [[U.S. Department of Justice]], was placed on the federal no-fly list, and was banned from events by groups like [[Turning Point USA]] and CPAC from 2017 until the beginning of 2023.
+(00:10:12) [[Nicholas J. Fuentes]] had been systematically banned from all social media, PayPal, banks like [[Chase Bank]] and [[Bank of America]], was subpoenaed by the [[U.S. Congress]], had his private checking account frozen by the [[U.S. Department of Justice]], was placed on the federal no-fly list, and was banned from events by groups like [[Turning Point USA]] and CPAC from 2017 until the beginning of 2023.
 
 ### AF 2025-08-04 1544
-(00:22:10) [[Nicholas J. Fuentes]] was banned from [[PayPal]], [[Google|YouTube]], [[Twitter]], [[Facebook|Instagram]], [[Facebook]], [[ByteDance|TikTok]], [[Chase Bank]], [[U.S. Bank]], [[Bank of America]], Inland Bank, and [[Fifth Third Bank]], subpoenaed by [[Republican Party|U.S. Congress]], placed on the federal no-fly list, and banned from CPAC and [[Turning Point USA]] events.
+(00:22:10) [[Nicholas J. Fuentes]] was banned from [[PayPal]], [[Google|YouTube]], [[Twitter]], [[Instagram]], [[Facebook]], [[TikTok]], [[Chase Bank]], [[U.S. Bank]], [[Bank of America]], Inland Bank, and [[Fifth Third Bank]], subpoenaed by [[U.S. Congress]], placed on the federal no-fly list, and banned from CPAC and [[Turning Point USA]] events.

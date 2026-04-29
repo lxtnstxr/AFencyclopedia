@@ -1,0 +1,21 @@
+# Thomas Klingenstein
+#person
+
+### AF 2024-10-23 1411
+(01:01:47:030) [[Compact Magazine]]'s prominent startup funders include [[Peter Thiel]], a "right-wing tech investor and [[JD Vance]] mentor," and Thomas Klingenstein, the chairman of the board of the [[Claremont Institute]].
+
+(01:02:01:330) [[Compact Magazine]] receives funding from [[Alex Soros]], [[Peter Thiel]], and Thomas Klingenstein, who are also involved in other projects alongside figures like [[Paul Singer]], [[William Ackman]], and [[Rupert Murdoch]].
+(01:07:33:310) [[Compact Magazine]] receives additional funding from [[Peter Thiel]] and Thomas Klingenstein, complementing its support from [[George Soros]].
+(01:09:20:570) The [[Claremont Institute]] also receives funding from [[Paul Singer]], and Thomas Klingenstein serves as a major donor for [[Compact Magazine]].
+(01:09:57:490) Thomas Klingenstein is a major donor for the [[Claremont Institute]] and serves as its current chairman.
+(01:10:04:830) [[Compact Magazine]], funded by [[Alex Soros]], [[Peter Thiel]], and Thomas Klingenstein, and supported by the [[Open Society Foundations]] and the [[Claremont Institute]], published [[Christopher Rufo]]'s call for censorship of "Groypers" for exposing [[Paul Singer]]'s "influence operation" at the [[Manhattan Institute]], accusing them of "poisoning the well" for the "post-establishmentarian right-wing consensus" with "anti-Semitism and racialism."
+(01:22:25:670) The "real crisis" is that those advocating for censorship, including figures associated with [[Israel|Israeli]] donors like [[William Ackman]], [[Paul Singer]], [[Peter Thiel]], and Thomas Klingenstein, aim to shape the post-[[Donald Trump]] era.
+(01:23:30:770) [[JD Vance]] has a personal relationship with [[Sohrab Ahmari]], who worked for [[The New York Post]], was a neoconservative and former communist, and now receives backing from the [[Open Society Foundations]], [[Peter Thiel]], and Thomas Klingenstein.
+(01:24:45:710) The term "MAGA" has been redefined to mean "colorblind meritocracy, individualism, a pro-[[Israel]] spin on [[United States|America]] first," with funding from [[George Soros]], Thomas Klingenstein, and [[Paul Singer]] used to advocate for banning "Groypers" and limiting free speech for "anti-Semites," while criticizing the establishment but not "[[Israel|Israeli]] donors."
+(01:25:37:110) The [[United States]] is under an "occupation by [[Jewish]] billionaires with an allegiance to [[Israel]]", including [[Paul Singer]], [[Peter Thiel]], [[Alex Karp]], Thomas Klingenstein, [[Alex Soros]], [[Rupert Murdoch]], [[George Soros]], [[Miriam Adelson]], [[Sheldon Adelson]], and [[William Ackman]].
+(01:26:09:390) [[Peter Thiel]], whose net worth is half derived from [[Palantir Technologies]] (co-founded with [[Alex Karp]]), gave $15 million to [[JD Vance]] and helped him become a senator, and Thomas Klingenstein backs the [[Claremont Institute]] and [[Compact Magazine]].
+(01:28:19:510) The exposure of a network of funders (including [[George Soros]], Thomas Klingenstein, [[Peter Thiel]], and [[Paul Singer]]) supporting the same individuals, despite differing views on authoritarianism, reveals their shared objectives: an "open society," "individualism," "no anti-Semitism," "no true free speech," "gatekeepers on the right and left," "no criticism of [[Israel]]," and positioning [[JD Vance]] as [[Donald Trump]]'s successor to guide the base back to "neoconservatism" and a "colorblind, [[Jewish]] blind meritocracy."
+(01:01:47) [[Compact Magazine]]'s startup funders included right-wing tech investor [[Peter Thiel]] and Thomas Klingenstein, chairman of the [[Claremont Institute]] board.
+(01:02:13) [[Nicholas J. Fuentes]] listed the interconnected billionaires funding various projects: [[Paul Singer]], [[William Ackman]], [[Rupert Murdoch]], [[George Soros|Alex Soros]], [[Peter Thiel]], and Thomas Klingenstein.
+(01:09:57) Thomas Klingenstein is a major donor and current chairman of the [[Claremont Institute]] and also funds [[Compact Magazine]].
+(01:10:11) [[Compact Magazine]] is funded by [[George Soros|Alex Soros]], [[Peter Thiel]], and Thomas Klingenstein, linking the [[Open Society Foundation]] and the [[Claremont Institute]].
